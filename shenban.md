@@ -1,59 +1,57 @@
-# 国产算力芯片，重磅利好！规模最大港股通信息技术ETF华宝（159131）涨超3%，联想集团飙涨逾14%
+# 光峰科技获某新能源车企定点，为其独家供应前装智慧座舱产品
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-5月22日早盘，港股硬科技强势领跑全市场，联想集团、滴普科技、联想控股、天岳先进等5股涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）开盘冲高逾3%，实时成交额1.39亿元。 消息面上，盘中传来一则国产芯片重磅利好。5月22日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，人工智能领域核心技术和应用需求都呈现快速增长态势，我们
+4月14日，光峰科技（688007.SH）发布公告称，与某新能源车企签署采购合作相关协议，成为其定点供应商，为其独家供应前装智慧座舱产品。 光峰科技表示，将严格遵循该车企的订单需求，按规定时间节点完成指定产品的开发、试验验证、生产准备及交付工作。 光峰科技是首批科创板上市公司，同时也是科创板广东省第一股、全球激光显示第一股。2007年，光峰科技原创发明ALPD®半导体激光光源技
 
 ## 正文
 
-5月22日早盘，港股硬科技强势领跑全市场，联想集团、滴普科技、联想控股、天岳先进等5股涨超10%。
+4月14日，光峰科技（688007.SH）发布公告称，与某新能源车企签署采购合作相关协议，成为其定点供应商，为其独家供应前装智慧座舱产品。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）开盘冲高逾3%，实时成交额1.39亿元。
+光峰科技表示，将严格遵循该车企的订单需求，按规定时间节点完成指定产品的开发、试验验证、生产准备及交付工作。
 
-消息面上，盘中传来一则国产芯片重磅利好。
+光峰科技是首批科创板上市公司，同时也是科创板广东省第一股、全球激光显示第一股。
 
-5月22日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，人工智能领域核心技术和应用需求都呈现快速增长态势，我们始终坚持系统布局、分业施策、开放共享、安全可控，推动人工智能与经济社会各行业各领域广泛深度融合，指导国产大模型加大力度适配国产算力芯片，在保持快速发展的同时，确保自主可控、向善发展、行稳致远，让全体人民共享人工智能发展成果，这也是我国人工智能发展的一大突出特征。
+2007年，光峰科技原创发明ALPD®半导体激光光源技术，并在影院、专业显示、车载等领域得到广泛应用。
 
-国金证券表示，从AI产业链多家公司业绩超预期，谷歌TPU快速迭代，Anthropic营收爆发式增长，台积电用于AI芯片的先进制程加速扩产、CSP大厂长协抢锁存储产能及GPU租赁价格上涨的情况来看，AI短期、中期的需求都非常强劲。
+此次定点合作的落地，是光峰科技在车载光学赛道的重要布局。
 
-看好AI覆铜板/PCB及核心算力硬件、半导体设备等。
+待产品量产后，公司将根据该车企实际订单交付情况确认产品收入，预计在项目生命周期内为公司经营业绩带来积极影响。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅24.68%，同期恒生科技、港股通科技的涨幅分别为1.68%、0.69%，锐度和弹性显著领先。
-
-支持T+0交易！
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 07:33 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 07:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 07:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 07:21 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 07:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 07:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 07:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 07:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 07:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 07:29 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 07:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 07:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 07:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 07:28 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 07:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 07:25 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 07:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 07:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 07:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:25 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 07:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 07:34 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 07:42 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 07:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2449426.shtml)
-- 2026-06-30 07:20 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/00143537.shtml)
-- 2026-06-30 07:28 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/8194868454.shtml)
-- 2026-06-30 07:36 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/894055246.shtml)
-- 2026-06-30 07:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/9178097554.shtml)
-- 2026-06-30 07:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/58618.shtml)
-- 2026-06-30 07:46 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/1478378.shtml)
-- 2026-06-30 07:23 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/55868923134.shtml)
-- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/820826866510.shtml)
-- 2026-06-30 07:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/116831.shtml)
-- 2026-06-30 07:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/1396776264.shtml)
-- 2026-06-30 07:43 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/56978673.shtml)
-- 2026-06-30 07:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/62367129.shtml)
-- 2026-06-30 07:24 - [日本进球](http://www.blog.kurohicncr.top/Article/details/1937611742.shtml)
-- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/136505484.shtml)
+- 2026-06-30 07:33 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/8326073070.shtml)
+- 2026-06-30 07:34 - [德国 传控](http://www.blog.minike.top/Article/details/958086.shtml)
+- 2026-06-30 07:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/96950001640.shtml)
+- 2026-06-30 07:52 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/8219891778.shtml)
+- 2026-06-30 07:32 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/651135477593.shtml)
+- 2026-06-30 07:31 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/88932.shtml)
+- 2026-06-30 07:44 - [德国 传控](https://www.share.kurohicncr.top/Article/details/44448455929.shtml)
+- 2026-06-30 07:43 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/736653126791.shtml)
+- 2026-06-30 07:44 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/7445961.shtml)
+- 2026-06-30 07:36 - [人类...完蛋了...](https://www.share.minike.top/Article/details/518065.shtml)
+- 2026-06-30 07:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/157322.shtml)
+- 2026-06-30 07:27 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/47241826280.shtml)
+- 2026-06-30 07:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/16578.shtml)
+- 2026-06-30 07:52 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/845619648697.shtml)
+- 2026-06-30 07:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/2666580.shtml)

@@ -1,59 +1,57 @@
-# 落实总书记重要指示 维护人民群众生命财产安全
+# 北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-新华社北京5月23日电 题：把安全生产这根弦绷得更紧——各地各部门贯彻落实习近平总书记重要指示精神再部署再检查再落实维护人民群众生命财产安全 新华社记者 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 事故发生后，习近平总书记高度重视并作出重要指示强调，“要全力救治伤员，科学组织搜救，妥善做好善后处置工作”“各地区
+发布时间：2026年04月13日 12:37 来源：中国新闻网 4月10日至12日，北京人民艺术剧院话剧《张居正》在香港西九文化区戏曲中心大剧院上演。睽违十余载，北京人艺再度来港演出，让不少本地戏迷慕名而来。 作为北京人艺的经典历史大戏，话剧《张居正》由茅盾文学奖获奖同名小说改编。原作者熊召政历时数年，九易其稿，最终打破传统叙事，以现实与想象双线交织，将一代名臣张居正的改革风骨
 
 ## 正文
 
-新华社北京5月23日电 题：把安全生产这根弦绷得更紧——各地各部门贯彻落实习近平总书记重要指示精神再部署再检查再落实维护人民群众生命财产安全 新华社记者 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+发布时间：2026年04月13日 12:37 来源：中国新闻网 4月10日至12日，北京人民艺术剧院话剧《张居正》在香港西九文化区戏曲中心大剧院上演。
 
-事故发生后，习近平总书记高度重视并作出重要指示强调，“要全力救治伤员，科学组织搜救，妥善做好善后处置工作”“各地区各部门要汲取事故教训，时刻绷紧安全生产这根弦，深入排查整治各类风险隐患，坚决防范遏制重特大事故发生”。
+睽违十余载，北京人艺再度来港演出，让不少本地戏迷慕名而来。
 
-深入贯彻落实习近平总书记重要指示精神，相关地方和部门表示，要把人民群众生命财产安全放在第一位，全力搜救被困人员、救治伤员、安抚善后。
+作为北京人艺的经典历史大戏，话剧《张居正》由茅盾文学奖获奖同名小说改编。
 
-同时做好事故调查，强化安全生产责任落实，切实抓好重点行业领域安全隐患排查整治，坚决防范重特大事故发生。
+原作者熊召政历时数年，九易其稿，最终打破传统叙事，以现实与想象双线交织，将一代名臣张居正的改革风骨和人生回望，搬上话剧舞台。
 
-人民至上，生命至上。
+此次来港演出，剧组对表演细节、调度舞美进行了再次打磨。
 
-——山西省成立省级应急救援现场指挥部，下设抢险救援组、医疗救治组、应急保障组等9个工作组。
+冯远征希望，香港的观众能够喜欢这部作品，并且在观演之后受到触动和启发。
 
-22日21时15分，沁源县救护队20人到达现场，其他救援队伍陆续加入。
+此外，他也期待未来能与香港戏剧同行继续深化交流合作，共同向世界展现中国优秀戏剧的魅力。
 
-到23日下午，山西省已调集救援、医疗7支队伍755人，全力开展应急救援、医疗救治、现场处置工作。
+记者 程宇 香港报道 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 07:23 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 07:27 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 07:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 07:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 07:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:33 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 07:30 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 07:29 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 07:45 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 07:43 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 07:38 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 07:18 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 07:38 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 07:27 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 07:26 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 07:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 07:33 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 07:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 07:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 07:50 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 07:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 07:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/136858.shtml)
-- 2026-06-30 07:37 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/09709.shtml)
-- 2026-06-30 07:19 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/50973.shtml)
-- 2026-06-30 07:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/193160543.shtml)
-- 2026-06-30 07:42 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/2625751.shtml)
-- 2026-06-30 07:28 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/26509386.shtml)
-- 2026-06-30 07:37 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/929657.shtml)
-- 2026-06-30 07:24 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/348203056213.shtml)
-- 2026-06-30 07:47 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/9247485531.shtml)
-- 2026-06-30 07:25 - [流金岁月](https://www.blog.minike.top/Article/details/32825496.shtml)
-- 2026-06-30 07:27 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/831498567.shtml)
-- 2026-06-30 07:39 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2248081.shtml)
-- 2026-06-30 07:28 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/965754189.shtml)
-- 2026-06-30 07:20 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5687051.shtml)
-- 2026-06-30 07:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/557414741.shtml)
+- 2026-06-30 07:31 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/8028220.shtml)
+- 2026-06-30 07:24 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/17196703.shtml)
+- 2026-06-30 07:39 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/9870759410.shtml)
+- 2026-06-30 07:29 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/3167266011.shtml)
+- 2026-06-30 07:32 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/27161331.shtml)
+- 2026-06-30 07:37 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/866298970.shtml)
+- 2026-06-30 07:46 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/3260576639.shtml)
+- 2026-06-30 07:52 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/8656053935.shtml)
+- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/0370664.shtml)
+- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/6097096.shtml)
+- 2026-06-30 07:33 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/9586740943.shtml)
+- 2026-06-30 07:53 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/159870992060.shtml)
+- 2026-06-30 07:40 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/018632167.shtml)
+- 2026-06-30 07:36 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/77977.shtml)
+- 2026-06-30 07:27 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/134911.shtml)

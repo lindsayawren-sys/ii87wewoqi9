@@ -1,58 +1,60 @@
-# 西藏拥青一家的时代变迁：归于故乡 寻得“身份”
+# 新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新社西藏林芝5月23日电 题：西藏拥青一家的时代变迁：归于故乡 寻得“身份” 作者 赵朗 陈静 “如果没有国家的帮助，光靠我们自己，肯定过不上现在的好生活。”藏族大姐拥青说这话时，眼神格外坚定。 初夏的察隅，青山滴翠，轻雾缭绕。拥青家门口矗立着一块石碑，上面镌刻着“幸福家园”四个大字。大门门头，是一面涂着红漆的石刻五星红旗，院内鲜花绽放。 新中国成立前，地处藏东南的察隅民众，
+新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。 说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，
 
 ## 正文
 
-中新社西藏林芝5月23日电 题：西藏拥青一家的时代变迁：归于故乡 寻得“身份” 作者 赵朗 陈静 “如果没有国家的帮助，光靠我们自己，肯定过不上现在的好生活。
+新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。
 
-”藏族大姐拥青说这话时，眼神格外坚定。
+车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。
 
-初夏的察隅，青山滴翠，轻雾缭绕。
+说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，“相比于传统的车队，把公交车作为婚车一路上更加热闹，省了一笔开销的同时还简化了迎亲的流程。
 
-拥青家门口矗立着一块石碑，上面镌刻着“幸福家园”四个大字。
+”据刘新团介绍，当地租借传统的婚车车队一般要花费三四千元，而租一辆公交车作为婚车仅花了600元。
 
-大门门头，是一面涂着红漆的石刻五星红旗，院内鲜花绽放。
+“当时想着给自己的婚礼来点特别的元素，结果和媳妇一拍即合，跟双方父母在这件事上沟通得也特别顺畅，没什么阻碍，整个过程特别愉快。
 
-新中国成立前，地处藏东南的察隅民众，并未因闭塞原始而少受旧西藏地方政府的深重压迫。
+”刘新团笑着说。
 
-自上世纪20年代，不少人选择背井离乡，逃往缅甸。
+这场“公交车迎亲”是江苏省连云港市赣榆区近年来婚俗悄然发生变化的一个缩影。
 
-拥青的爷爷便是其中之一。
+地处苏鲁交界的赣榆素有“江苏北大门”之称。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 07:25 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 07:35 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 07:34 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 07:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 07:31 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 07:37 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 07:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 07:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 07:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 07:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 07:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 07:52 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 07:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 07:38 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 07:48 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:28 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 07:30 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 07:47 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 07:37 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 07:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 07:38 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 07:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:37 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 07:40 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/814833825.shtml)
-- 2026-06-30 07:26 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/66600.shtml)
-- 2026-06-30 07:19 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/129654.shtml)
-- 2026-06-30 07:23 - [媒体：手机测评该挤挤水分了](http://www.share.kurohicncr.top/Article/details/17292.shtml)
-- 2026-06-30 07:33 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/46589620315.shtml)
-- 2026-06-30 07:31 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/036222.shtml)
-- 2026-06-30 07:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/6856009922.shtml)
-- 2026-06-30 07:42 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/95713365774.shtml)
-- 2026-06-30 07:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/00167.shtml)
-- 2026-06-30 07:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/11198158.shtml)
-- 2026-06-30 07:40 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/73190666709.shtml)
-- 2026-06-30 07:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/51208296755.shtml)
-- 2026-06-30 07:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/9907388.shtml)
-- 2026-06-30 07:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/384739588.shtml)
-- 2026-06-30 07:36 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/17605.shtml)
+- 2026-06-30 07:43 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/315978852622.shtml)
+- 2026-06-30 07:27 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/1548978.shtml)
+- 2026-06-30 07:26 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/475747.shtml)
+- 2026-06-30 07:25 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/693447740.shtml)
+- 2026-06-30 07:42 - [德国淘汰](http://www.blog.minike.top/Article/details/352322.shtml)
+- 2026-06-30 07:52 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/845663.shtml)
+- 2026-06-30 07:43 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/00330260211.shtml)
+- 2026-06-30 07:37 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/7452685030.shtml)
+- 2026-06-30 07:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/45322558472.shtml)
+- 2026-06-30 07:43 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/44558034196.shtml)
+- 2026-06-30 07:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/724515.shtml)
+- 2026-06-30 07:53 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/47358697821.shtml)
+- 2026-06-30 07:31 - [巴西扳平比分](https://www.blog.minike.top/Article/details/7249613.shtml)
+- 2026-06-30 07:37 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/21077826555.shtml)
+- 2026-06-30 07:43 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/097337048.shtml)

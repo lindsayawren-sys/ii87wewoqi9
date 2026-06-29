@@ -1,56 +1,45 @@
-# 尾盘：三大指数本周均有望录得涨幅
+# 亿缕阳光·乡见｜田头科技范儿
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-北京时间5月23日凌晨，美股周五尾盘维持涨势，三大指数本周均有望录得涨幅。投资者正在密切关注美伊谈判进展。美国总统特朗普主持凯文沃什宣誓就任美联储主席的仪式。 道指涨416.16点，涨幅为0.83%，报50701.82点；纳指涨113.33点，涨幅为0.43%，报26406.43点；标普500指数涨43.27点，涨幅为0.58%，报7488.99点。 本周迄今，标普500指数上
+发布时间：2026年04月14日 16:16 来源：人民网-人民视频 责任编辑：【杨彦宇】
 
 ## 正文
 
-北京时间5月23日凌晨，美股周五尾盘维持涨势，三大指数本周均有望录得涨幅。
-
-投资者正在密切关注美伊谈判进展。
-
-美国总统特朗普主持凯文沃什宣誓就任美联储主席的仪式。
-
-道指涨416.16点，涨幅为0.83%，报50701.82点；纳指涨113.33点，涨幅为0.43%，报26406.43点；标普500指数涨43.27点，涨幅为0.58%，报7488.99点。
-
-本周迄今，标普500指数上涨约1%，有望录得连续第八周收涨。
-
-这将是自2023年末结束的九周连涨以来最长的周度连涨纪录。
-
-道指本周已上涨1.5%，有望实现四周内第三次周度收涨。
-
-纳斯达克综合指数上涨0.3%，有望在过去八周中第七次周度上涨。
+发布时间：2026年04月14日 16:16 来源：人民网-人民视频 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 07:35 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 07:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 07:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 07:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 07:31 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:45 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 07:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 07:30 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 07:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 07:45 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 07:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 07:46 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 07:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 07:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 07:27 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:50 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 07:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 07:37 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 07:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 07:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 07:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/564600.shtml)
-- 2026-06-30 07:44 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/77997506650.shtml)
-- 2026-06-30 07:25 - [巴西扳平比分](http://www.share.minike.top/Article/details/13845.shtml)
-- 2026-06-30 07:27 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/40391149.shtml)
-- 2026-06-30 07:40 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/860060.shtml)
-- 2026-06-30 07:32 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/72552183.shtml)
-- 2026-06-30 07:45 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/139896386889.shtml)
-- 2026-06-30 07:20 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/02812.shtml)
-- 2026-06-30 07:38 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/288788806073.shtml)
-- 2026-06-30 07:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/7293553758.shtml)
-- 2026-06-30 07:20 - [明星大侦探第一季](https://www.share.minike.top/Article/details/23637755.shtml)
-- 2026-06-30 07:20 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/55132.shtml)
-- 2026-06-30 07:46 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/684754679.shtml)
-- 2026-06-30 07:34 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/6934845.shtml)
-- 2026-06-30 07:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/143954390.shtml)
+- 2026-06-30 07:50 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/5463023.shtml)
+- 2026-06-30 07:43 - [毒液2](https://www.blog.minike.top/Article/details/05636.shtml)
+- 2026-06-30 07:50 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/712830217367.shtml)
+- 2026-06-30 07:39 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/692739.shtml)
+- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/8442597580.shtml)
+- 2026-06-30 07:53 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/542385925.shtml)
+- 2026-06-30 07:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/41030.shtml)
+- 2026-06-30 07:41 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/875989.shtml)
+- 2026-06-30 07:30 - [女心理师](https://www.blog.kurohicncr.top/Article/details/6340201117.shtml)
+- 2026-06-30 07:44 - [日本进球](http://www.blog.kurohicncr.top/Article/details/51672245.shtml)
+- 2026-06-30 07:28 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/1801938.shtml)
+- 2026-06-30 07:43 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/811604.shtml)
+- 2026-06-30 07:24 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/6922188.shtml)
+- 2026-06-30 07:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/315161425903.shtml)
+- 2026-06-30 07:30 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/94030743783.shtml)

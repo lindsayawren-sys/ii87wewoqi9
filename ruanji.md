@@ -1,56 +1,60 @@
-# 中欧班列经济圈全球合作洽谈会在西安召开
+# 特朗普对意大利总理梅洛尼开火 反而可能利好这位昔日盟友的国内舆情
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网西安5月23日电 (记者 阿琳娜)中欧班列经济圈全球合作洽谈会22日在西安举行。来自中欧班列沿线国家和地区的铁路、港口、物流等领域企业代表，跨里海国际运输走廊国际协会等国际合作单位代表，国家有关部委、省内外“+西欧”城市代表和国内相关企业代表齐聚一堂、共商合作、携手打造更加紧密、更有活力的中欧班列经济圈。 近年来，陕西西安以中欧班列西安集结中心建设为引擎，全力构建中欧班列
+特朗普大肆抨击曾经的政治盟友、意大利总理梅洛尼，加深了两人之间的裂痕。此前，梅洛尼对伊朗战争和特朗普对教宗良十四世的攻击表示反对。 “我对她感到震惊，”特朗普在长达六分钟的采访中表示，“我本以为她很勇敢，我错了。”该采访以意大利语发表。 他的这番言论几乎与他之前对梅洛尼的看法完全相反。他曾形容梅洛尼是一位“美丽的年轻女性”，在欧洲“掀起一股风暴”。 这场交锋凸显出双方关系的裂痕
 
 ## 正文
 
-中新网西安5月23日电 (记者 阿琳娜)中欧班列经济圈全球合作洽谈会22日在西安举行。
+特朗普大肆抨击曾经的政治盟友、意大利总理梅洛尼，加深了两人之间的裂痕。
 
-来自中欧班列沿线国家和地区的铁路、港口、物流等领域企业代表，跨里海国际运输走廊国际协会等国际合作单位代表，国家有关部委、省内外“+西欧”城市代表和国内相关企业代表齐聚一堂、共商合作、携手打造更加紧密、更有活力的中欧班列经济圈。
+此前，梅洛尼对伊朗战争和特朗普对教宗良十四世的攻击表示反对。
 
-近年来，陕西西安以中欧班列西安集结中心建设为引擎，全力构建中欧班列(西安)经济圈，推动“物流+贸易+金融+产业”深度融合。
+“我对她感到震惊，”特朗普在长达六分钟的采访中表示，“我本以为她很勇敢，我错了。
 
-目前，中欧班列(西安)常态化开行国际干线18条，国内“＋西欧”集结线路26条，线路覆盖亚欧、货源遍及全国。
+”该采访以意大利语发表。
 
-2025年，全年开行6037列、同比增长21.1%，开行量、货运量、重箱率等核心指标连续8年位居全国前列。
+他的这番言论几乎与他之前对梅洛尼的看法完全相反。
 
-西安浐灞国际港已成为国际铁路物流供应链的核心枢纽。
+他曾形容梅洛尼是一位“美丽的年轻女性”，在欧洲“掀起一股风暴”。
 
-西安浐灞国际港管委会主任闻其伟从通道畅、效率高、成本低、服务优、带动强五个方面，分享了中欧班列(西安)高质量发展优势。
+这场交锋凸显出双方关系的裂痕。
 
-他表示，西安浐灞国际港将持续加强中欧班列西安集结中心建设，努力在联通国内国际双循环中发挥更大作用，推动高质量建设中欧班列经济圈取得更大成效。
+此前，意大利拒绝美国使用西西里的一处基地来执行针对伊朗战争的作战行动。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 07:40 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 07:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 07:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 07:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 07:27 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 07:42 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 07:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 07:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 07:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 07:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 07:41 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 07:46 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 07:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 07:49 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 07:27 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 07:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 07:31 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 07:48 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 07:46 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 07:46 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 07:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 07:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 07:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/251834720.shtml)
-- 2026-06-30 07:48 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/021737959.shtml)
-- 2026-06-30 07:24 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/3255293.shtml)
-- 2026-06-30 07:30 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/93725662111.shtml)
-- 2026-06-30 07:30 - [周生如故](https://www.blog.kurohicncr.top/Article/details/096324922307.shtml)
-- 2026-06-30 07:26 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/47268572.shtml)
-- 2026-06-30 07:37 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/474619498.shtml)
-- 2026-06-30 07:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/30545.shtml)
-- 2026-06-30 07:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/344646.shtml)
-- 2026-06-30 07:40 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/76318636197.shtml)
-- 2026-06-30 07:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/1936728358.shtml)
-- 2026-06-30 07:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/494788977734.shtml)
-- 2026-06-30 07:23 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/210415.shtml)
-- 2026-06-30 07:40 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/92800479044.shtml)
-- 2026-06-30 07:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7639650.shtml)
+- 2026-06-30 07:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/73254288.shtml)
+- 2026-06-30 07:29 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/7731522.shtml)
+- 2026-06-30 07:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/27156.shtml)
+- 2026-06-30 07:26 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/5104209228.shtml)
+- 2026-06-30 07:37 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/8084081.shtml)
+- 2026-06-30 07:36 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/48907.shtml)
+- 2026-06-30 07:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/541175038.shtml)
+- 2026-06-30 07:51 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/7314019719.shtml)
+- 2026-06-30 07:48 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/01226012029.shtml)
+- 2026-06-30 07:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/03554623653.shtml)
+- 2026-06-30 07:36 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/239693240448.shtml)
+- 2026-06-30 07:37 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/63377610884.shtml)
+- 2026-06-30 07:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/1221438345.shtml)
+- 2026-06-30 07:35 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/396435150.shtml)
+- 2026-06-30 07:27 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/1619994.shtml)

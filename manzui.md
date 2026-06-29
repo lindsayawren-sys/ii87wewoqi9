@@ -1,57 +1,60 @@
-# 美方称已暂停对台军售，外交部回应
+# 博时基金2026年第二季度宏观策略报告
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-5月22日，外交部发言人郭嘉昆主持例行记者会。 法新社记者提问，美国代理海军部长周四表示，美方对台军售已经暂停，以确保美军有足够弹药用于针对伊朗的军事行动。台湾方面周五表示，目前没有任何信息显示美方有意对此次军售做出任何调整。请问中方对此有何评论？ 对此，郭嘉昆表示：“中方坚决反对美国向中国台湾地区出售武器的立场一贯、明确、坚定。” 来源：北京日报客户端 记者：李治宏责任编辑：
+市场回顾 全球资产方面，一季度权益资产整体承压，原油大幅上行。 2026年一季度国内外权益市场整体承压。国内权益指数中，科创100、中证1000等微幅收涨，恒生科技下跌15%。海外权益指数中东证指数小幅上涨、纳斯达克指数跌幅较大。国内债市有小幅正收益。商品中，原油上涨接近八成、铝上涨15%，铜小幅下跌，贵金属大幅上涨后回撤较多，整个季度仍为正收益。 A股方面，一季度A股回顾——
 
 ## 正文
 
-5月22日，外交部发言人郭嘉昆主持例行记者会。
+市场回顾 全球资产方面，一季度权益资产整体承压，原油大幅上行。
 
-法新社记者提问，美国代理海军部长周四表示，美方对台军售已经暂停，以确保美军有足够弹药用于针对伊朗的军事行动。
+2026年一季度国内外权益市场整体承压。
 
-台湾方面周五表示，目前没有任何信息显示美方有意对此次军售做出任何调整。
+国内权益指数中，科创100、中证1000等微幅收涨，恒生科技下跌15%。
 
-请问中方对此有何评论？
+海外权益指数中东证指数小幅上涨、纳斯达克指数跌幅较大。
 
-对此，郭嘉昆表示：“中方坚决反对美国向中国台湾地区出售武器的立场一贯、明确、坚定。
+国内债市有小幅正收益。
 
-” 来源：北京日报客户端 记者：李治宏责任编辑：刘万里 SF014
+商品中，原油上涨接近八成、铝上涨15%，铜小幅下跌，贵金属大幅上涨后回撤较多，整个季度仍为正收益。
+
+A股方面，一季度A股回顾——市场向上后下，周期与先进制造领涨。
+
+风格方面，周期与先进制造涨幅明显占优；金融地产表现相对靠后；行业方面，煤炭、石油石化、公用事业和建筑材料表现领先；非银、商贸零售、美容护理等行业表现相对靠后。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 07:44 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:25 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 07:22 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 07:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 07:41 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 07:31 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 07:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 07:26 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 07:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 07:34 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 07:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 07:40 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 07:37 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 07:53 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 07:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 07:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 07:46 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 07:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 07:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 07:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 07:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 07:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 07:24 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 07:41 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 07:34 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/0294612216.shtml)
-- 2026-06-30 07:25 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/0558276626.shtml)
-- 2026-06-30 07:20 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/764856.shtml)
-- 2026-06-30 07:43 - [巴西扳平比分](https://www.blog.minike.top/Article/details/39766606.shtml)
-- 2026-06-30 07:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/7365301.shtml)
-- 2026-06-30 07:31 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/9525385371.shtml)
-- 2026-06-30 07:33 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/0895500758.shtml)
-- 2026-06-30 07:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/23649498.shtml)
-- 2026-06-30 07:23 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/14756577.shtml)
-- 2026-06-30 07:26 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/09061.shtml)
-- 2026-06-30 07:47 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/01479.shtml)
-- 2026-06-30 07:35 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/77878156.shtml)
-- 2026-06-30 07:24 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/291178434.shtml)
-- 2026-06-30 07:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/4756980803.shtml)
-- 2026-06-30 07:28 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/947851.shtml)
+- 2026-06-30 07:43 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/2154813441.shtml)
+- 2026-06-30 07:25 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/722132358762.shtml)
+- 2026-06-30 07:44 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/9543610.shtml)
+- 2026-06-30 07:52 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/820507.shtml)
+- 2026-06-30 07:43 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/57359.shtml)
+- 2026-06-30 07:41 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/39969.shtml)
+- 2026-06-30 07:35 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/84770.shtml)
+- 2026-06-30 07:53 - [巴西绝杀](http://www.share.minike.top/Article/details/85506023.shtml)
+- 2026-06-30 07:40 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/4636391.shtml)
+- 2026-06-30 07:33 - [美股](https://www.share.minike.top/Article/details/44109086.shtml)
+- 2026-06-30 07:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/05575525.shtml)
+- 2026-06-30 07:28 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/74855314.shtml)
+- 2026-06-30 07:30 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/523490993.shtml)
+- 2026-06-30 07:31 - [恋与深空道歉声明](http://www.blog.minike.top/Article/details/533472.shtml)
+- 2026-06-30 07:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/384198.shtml)

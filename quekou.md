@@ -1,49 +1,58 @@
-# 开盘|国内期货主力合约跌多涨少，合成橡胶跌超3%
+# 韩国3月进口物价同比劲升18.4% 创逾三年最高涨幅
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-2026年5月22日，早盘开盘，国内期货主力合约跌多涨少，合成橡胶跌超3%，焦煤跌近3%，多晶硅、棕榈油、瓶片跌超2%。涨幅方面，集运欧线涨超4%，生猪涨超1%。 责任编辑：赵思远
+韩国央行周三公布的数据显示，受中东冲突引发的油价飙升影响，韩国3月进口物价涨幅创下三年多来最高纪录。韩国央行公布的进口物价指数显示，3月以韩元计进口物价同比上涨18.4%，这是自2022年10月以来的最大同比涨幅。2月涨幅为1.6%。进口物价环比上涨16.1%，创1998年1月以来最大涨幅，主要因原油价格飙升88.5%，创下历史纪录。进口物价对国内消费者物价的影响通常存在一至三
 
 ## 正文
 
-2026年5月22日，早盘开盘，国内期货主力合约跌多涨少，合成橡胶跌超3%，焦煤跌近3%，多晶硅、棕榈油、瓶片跌超2%。
+韩国央行周三公布的数据显示，受中东冲突引发的油价飙升影响，韩国3月进口物价涨幅创下三年多来最高纪录。
 
-涨幅方面，集运欧线涨超4%，生猪涨超1%。
+韩国央行公布的进口物价指数显示，3月以韩元计进口物价同比上涨18.4%，这是自2022年10月以来的最大同比涨幅。
 
-责任编辑：赵思远
+2月涨幅为1.6%。
+
+进口物价环比上涨16.1%，创1998年1月以来最大涨幅，主要因原油价格飙升88.5%，创下历史纪录。
+
+进口物价对国内消费者物价的影响通常存在一至三个月的滞后期。
+
+韩国央行一名官员在数据发布前的简报会上表示：“目前很难预测4月数据，因为原材料供应中断的问题短期内难以完全解决。
+
+”韩国3月消费者物价较上年同期上涨2.2%，涨幅低于预期，因政府对燃料价格设定上限，但政策制定者和经济学家警告称，通胀风险仍偏向上行。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 07:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 07:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 07:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 07:26 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 07:29 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:34 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 07:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 07:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 07:40 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 07:42 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 07:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 07:27 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 07:37 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 07:52 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 07:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:24 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:27 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 07:37 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 07:29 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 07:29 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 07:28 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 07:46 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 07:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:19 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/162880593.shtml)
-- 2026-06-30 07:38 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/20086.shtml)
-- 2026-06-30 07:28 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/6083412.shtml)
-- 2026-06-30 07:27 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/55976874980.shtml)
-- 2026-06-30 07:28 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/60660590.shtml)
-- 2026-06-30 07:41 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/449118935349.shtml)
-- 2026-06-30 07:33 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/34066.shtml)
-- 2026-06-30 07:43 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7308801.shtml)
-- 2026-06-30 07:29 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/925393001471.shtml)
-- 2026-06-30 07:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/000585034.shtml)
-- 2026-06-30 07:19 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/94382574902.shtml)
-- 2026-06-30 07:39 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/205317.shtml)
-- 2026-06-30 07:30 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9766453341.shtml)
-- 2026-06-30 07:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/628570432.shtml)
-- 2026-06-30 07:27 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/07029344.shtml)
+- 2026-06-30 07:31 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/4503069.shtml)
+- 2026-06-30 07:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/331143464629.shtml)
+- 2026-06-30 07:34 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/94601.shtml)
+- 2026-06-30 07:29 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/81160400241.shtml)
+- 2026-06-30 07:51 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/5566430.shtml)
+- 2026-06-30 07:31 - [世界杯](http://www.blog.kurohicncr.top/Article/details/4807595182.shtml)
+- 2026-06-30 07:26 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/078106.shtml)
+- 2026-06-30 07:25 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/184204.shtml)
+- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/22543288934.shtml)
+- 2026-06-30 07:37 - [全球芯片巨头史诗级扩产](http://www.blog.kurohicncr.top/Article/details/5712217831.shtml)
+- 2026-06-30 07:30 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/2306047621.shtml)
+- 2026-06-30 07:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/07485264.shtml)
+- 2026-06-30 07:47 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/39624.shtml)
+- 2026-06-30 07:49 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3622802818.shtml)
+- 2026-06-30 07:43 - [巴西2比1日本](http://www.share.minike.top/Article/details/65466126.shtml)

@@ -1,56 +1,58 @@
-# 金观平：做好农村金融离不开乡村治理
+# 4月银行体系资金相对充裕 央行缩量续作6个月期买断式逆回购 市场利率处于低位
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-让农村金融更好地适配乡村、扎根乡村、润泽乡村，必须将农村金融与乡村治理相结合。国家金融监督管理总局近期发布《关于做好2026年金融支持乡村全面振兴工作的通知》提出，优化涉农金融发展环境，加强农村金融与乡村治理深度融合。当前，农村金融的重要内容之一是涉农贷款。金融机构发放涉农贷款的主要依据是信用评级。然而，在对农户以及农业经营主体开展信用评级时，一些金融机构就犯了难：不了解农户资
+财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。 这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。同时，央行连续多个交易日在公开市场进行“地量”操作。业内人士表示，近期DR001已运行在1.2%—1.25%之间
 
 ## 正文
 
-让农村金融更好地适配乡村、扎根乡村、润泽乡村，必须将农村金融与乡村治理相结合。
+财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。
 
-国家金融监督管理总局近期发布《关于做好2026年金融支持乡村全面振兴工作的通知》提出，优化涉农金融发展环境，加强农村金融与乡村治理深度融合。
+这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
 
-当前，农村金融的重要内容之一是涉农贷款。
+同时，央行连续多个交易日在公开市场进行“地量”操作。
 
-金融机构发放涉农贷款的主要依据是信用评级。
+业内人士表示，近期DR001已运行在1.2%—1.25%之间，远低于政策利率，反映出市场流动性充裕。
 
-然而，在对农户以及农业经营主体开展信用评级时，一些金融机构就犯了难：不了解农户资产和信用，看不懂相关产业发展前景。
+背后原因在于银行体系资金相对充裕，4月为季节性信贷增量“小月”，且季初阶段部分短贷可能到期，即存贷差可能阶段性扩大。
 
-怎么办？
+央行连日“地量”操作 买断式逆回购再次缩量 今日央行公告，4月15日将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天），到期日为2026年10月15日（遇节假日顺延）。
 
-答案是与乡村治理深度融合。
+这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
 
-与乡村治理深度融合，有助于破解信用信息获取难题。
+由于此前4月3个月期买断式逆回购已缩量3000亿，意味着4月两个期限品种的买断式逆回购合计缩量4000亿，缩量规模较上月扩大1000亿。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 07:23 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 07:43 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 07:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 07:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 07:38 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 07:42 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 07:27 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 07:44 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 07:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 07:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 07:30 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 07:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 07:49 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 07:45 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 07:35 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 07:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 07:29 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 07:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 07:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 07:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:26 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [金牌调解](http://www.blog.minike.top/Article/details/30825.shtml)
-- 2026-06-30 07:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/2565302872.shtml)
-- 2026-06-30 07:39 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/592647274.shtml)
-- 2026-06-30 07:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/424341905011.shtml)
-- 2026-06-30 07:44 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/6932866091.shtml)
-- 2026-06-30 07:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/44008022660.shtml)
-- 2026-06-30 07:22 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/2496603849.shtml)
-- 2026-06-30 07:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/2178746.shtml)
-- 2026-06-30 07:20 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/4399763244.shtml)
-- 2026-06-30 07:23 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/24059.shtml)
-- 2026-06-30 07:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/540202643176.shtml)
-- 2026-06-30 07:37 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/49775467.shtml)
-- 2026-06-30 07:31 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/83174.shtml)
-- 2026-06-30 07:39 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/63146349780.shtml)
-- 2026-06-30 07:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/114066049073.shtml)
+- 2026-06-30 07:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/95012655.shtml)
+- 2026-06-30 07:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/7170018.shtml)
+- 2026-06-30 07:36 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/16507.shtml)
+- 2026-06-30 07:34 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/067590.shtml)
+- 2026-06-30 07:24 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/59895235.shtml)
+- 2026-06-30 07:35 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/50681921.shtml)
+- 2026-06-30 07:30 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/92125738242.shtml)
+- 2026-06-30 07:46 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5937111.shtml)
+- 2026-06-30 07:41 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/12464.shtml)
+- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/17150272883.shtml)
+- 2026-06-30 07:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/7095524365.shtml)
+- 2026-06-30 07:51 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/18838.shtml)
+- 2026-06-30 07:31 - [斛珠夫人](https://www.blog.minike.top/Article/details/86133763300.shtml)
+- 2026-06-30 07:25 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/031887851797.shtml)
+- 2026-06-30 07:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/649410.shtml)

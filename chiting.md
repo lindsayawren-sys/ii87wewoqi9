@@ -1,58 +1,48 @@
-# 高松同志任北京大学校长
+# 中国石油集团董事长戴厚良拜会阿联酋阿布扎比王储
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-日前，中央批准：高松同志任北京大学校长、党委副书记；龚旗煌同志不再担任北京大学校长、党委副书记职务。5月23日，北京大学召开教师干部会议。中央组织部副部长张光军同志到会宣布中央决定并讲话，教育部副部长、党组成员、总督学王嘉毅同志，北京市委常委、组织部部长李成林同志出席会议并讲话。北京大学党委书记何光彩同志主持会议。 中央组织部、教育部、北京市有关部门负责同志，北京大学领导班子成
+4月13日，中国石油集团董事长戴厚良在京拜会阿联酋阿布扎比王储哈立德，双方就深化能源领域合作交换意见。中国石油集团副总经理张道伟以及总经理助理李强参加会见。（中国石油报）
 
 ## 正文
 
-日前，中央批准：高松同志任北京大学校长、党委副书记；龚旗煌同志不再担任北京大学校长、党委副书记职务。
+4月13日，中国石油集团董事长戴厚良在京拜会阿联酋阿布扎比王储哈立德，双方就深化能源领域合作交换意见。
 
-5月23日，北京大学召开教师干部会议。
+中国石油集团副总经理张道伟以及总经理助理李强参加会见。
 
-中央组织部副部长张光军同志到会宣布中央决定并讲话，教育部副部长、党组成员、总督学王嘉毅同志，北京市委常委、组织部部长李成林同志出席会议并讲话。
-
-北京大学党委书记何光彩同志主持会议。
-
-中央组织部、教育部、北京市有关部门负责同志，北京大学领导班子成员、部分退出领导班子的老同志、教授代表、部门和院系主要负责同志、教职工代表等参加会议。
-
-高松同志简历 高松，1964年2月出生，在职研究生，理学博士，中共党员，十四届全国人大常委，教授、中国科学院院士。
-
-曾任北京大学副校长、常务副校长（正局级），华南理工大学校长、党委副书记，中山大学校长（副部长级）、党委副书记，中国科学技术协会副主席（兼）。
-
-责任编辑：江钰涵
+（中国石油报）
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 07:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 07:44 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 07:46 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 07:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 07:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:40 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 07:35 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 07:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 07:35 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 07:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 07:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 07:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 07:38 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 07:25 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 07:46 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 07:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 07:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 07:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 07:44 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 07:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 07:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 07:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/28425528.shtml)
-- 2026-06-30 07:24 - [巴拉圭先进球了](https://www.share.kurohicncr.top/Article/details/2503467.shtml)
-- 2026-06-30 07:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/634723172.shtml)
-- 2026-06-30 07:28 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/167794870944.shtml)
-- 2026-06-30 07:34 - [《共患难》](https://www.share.minike.top/Article/details/435825873.shtml)
-- 2026-06-30 07:36 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.minike.top/Article/details/99121.shtml)
-- 2026-06-30 07:34 - [周生如故](https://www.blog.minike.top/Article/details/79021449935.shtml)
-- 2026-06-30 07:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/476992.shtml)
-- 2026-06-30 07:41 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/160128431.shtml)
-- 2026-06-30 07:20 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/249166.shtml)
-- 2026-06-30 07:30 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/857458660602.shtml)
-- 2026-06-30 07:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/4624078.shtml)
-- 2026-06-30 07:42 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/964972550.shtml)
-- 2026-06-30 07:34 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/72073.shtml)
-- 2026-06-30 07:45 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/185391829084.shtml)
+- 2026-06-30 07:47 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/42363147.shtml)
+- 2026-06-30 07:38 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/187974419476.shtml)
+- 2026-06-30 07:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/860961.shtml)
+- 2026-06-30 07:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/230703616138.shtml)
+- 2026-06-30 07:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/64482977765.shtml)
+- 2026-06-30 07:33 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/53753.shtml)
+- 2026-06-30 07:27 - [美人鱼](http://www.blog.minike.top/Article/details/0306161.shtml)
+- 2026-06-30 07:40 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/7591480793.shtml)
+- 2026-06-30 07:47 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/4251977.shtml)
+- 2026-06-30 07:35 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/895975377031.shtml)
+- 2026-06-30 07:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/989385164676.shtml)
+- 2026-06-30 07:53 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/29313.shtml)
+- 2026-06-30 07:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/1605744.shtml)
+- 2026-06-30 07:49 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/053116435.shtml)
+- 2026-06-30 07:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/42366523.shtml)

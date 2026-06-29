@@ -1,56 +1,60 @@
-# （经济观察）西洽会观察：低空经济的“扶摇”与“直上”
+# “绿地全球馆”携25款首发新品亮相第六届消博会，抢抓海南自贸港封关后首展机遇，服务高水平对外开放
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月24日电 题：西洽会观察：低空经济的“扶摇”与“直上” 作者 马佳欣 24日，第八届中国西部国际投资贸易洽谈会(以下简称“西洽会”)正在重庆举行。15万平方米的展厅里，一股“低空风”席卷全场。从长安飞行汽车到“驼峰”1500H重载无人直升机，从载重120公斤的农业无人机到纯电动低空垂直飞行器，各类飞行器从重庆各区县展台到全国头部企业展区随处可见。低空经济正乘政策之
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：绿地集团 4月13日，第六届中国国际消费品博览会暨“购在中国”国际消费季在海南海口盛大启幕。本届消博会既是“十五五”开局之年的“首展”，也是自贸港封关后政策红利全面释放的“首秀”。作为连续多届深度参与消博会的重要组展商，绿地集团再度亮相，在展会4号馆设立近500平方米的“绿地全球馆”，打造电商直播专区
 
 ## 正文
 
-中新网重庆5月24日电 题：西洽会观察：低空经济的“扶摇”与“直上” 作者 马佳欣 24日，第八届中国西部国际投资贸易洽谈会(以下简称“西洽会”)正在重庆举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-15万平方米的展厅里，一股“低空风”席卷全场。
+来源：绿地集团 4月13日，第六届中国国际消费品博览会暨“购在中国”国际消费季在海南海口盛大启幕。
 
-从长安飞行汽车到“驼峰”1500H重载无人直升机，从载重120公斤的农业无人机到纯电动低空垂直飞行器，各类飞行器从重庆各区县展台到全国头部企业展区随处可见。
+本届消博会既是“十五五”开局之年的“首展”，也是自贸港封关后政策红利全面释放的“首秀”。
 
-低空经济正乘政策之风强劲“扶摇”，在产业实践中加速“直上”，从试点迈向规模化、从探索融入日常。
+作为连续多届深度参与消博会的重要组展商，绿地集团再度亮相，在展会4号馆设立近500平方米的“绿地全球馆”，打造电商直播专区，展销来自澳大利亚、乌兹别克斯坦等10国精品。
 
-“扶摇”：低空经济乘势起风 自2024年起，低空经济连续三年被写入政府工作报告，产业定位从普通新兴产业升级为重点培育的新兴支柱产业。
+开馆首日，绿地集团旗下服务海南自贸港建设的产业平台海南绿天产业经营有限公司，与多家直播电商、私域分销及跨境供应链头部企业签署合伙人渠道分销协议，共同推动消博会展品高效进入国内市场。
 
-政策落地步伐同步加快。
+现场，多位驻华使领馆官员及相关政府领导到访绿地全球馆参观交流。
 
-2025年12月，国家市场监督管理总局等相关部门印发《低空经济标准体系建设指南(2025年版)》，明确到2027年，低空经济标准体系基本建立，基本满足低空经济安全健康发展需求。
+本次消博会，绿地全球馆集结了英国、尼泊尔、乌兹别克斯坦、叙利亚、保加利亚、澳大利亚、泰国、日本、阿曼、伊朗等10个国家和地区的特色商品，涵盖高端食品、工艺品、珠宝、服饰、美妆个护、餐瓷、家居生活等多元品类，并带来25款首发新品。
 
-到2030年，低空经济领域标准超过300项。
+其中，叙利亚大马士革玫瑰精华液与精油、英国百年陶瓷品牌Denby丹碧、尼泊尔高原羊绒围巾、泰国车载香薰等惊艳亮相的首发新品，生动演绎了“在中国，购全球”的消费新图景。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 07:36 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 07:24 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 07:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 07:26 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 07:36 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 07:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 07:22 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 07:24 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 07:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 07:33 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 07:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 07:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 07:37 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 07:49 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 07:40 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 07:27 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 07:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:35 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 07:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 07:52 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 07:43 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/99214.shtml)
-- 2026-06-30 07:27 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/49436530370.shtml)
-- 2026-06-30 07:45 - [第一炉香](http://www.share.minike.top/Article/details/499888.shtml)
-- 2026-06-30 07:25 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/515523.shtml)
-- 2026-06-30 07:45 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/05073903617.shtml)
-- 2026-06-30 07:36 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/68444.shtml)
-- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.minike.top/Article/details/5511054.shtml)
-- 2026-06-30 07:34 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/10693611.shtml)
-- 2026-06-30 07:33 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/119846.shtml)
-- 2026-06-30 07:21 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/169671.shtml)
-- 2026-06-30 07:31 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/19545832461.shtml)
-- 2026-06-30 07:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/78308.shtml)
-- 2026-06-30 07:43 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/533881994.shtml)
-- 2026-06-30 07:29 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/138444286.shtml)
-- 2026-06-30 07:25 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/9369189.shtml)
+- 2026-06-30 07:24 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/54342451633.shtml)
+- 2026-06-30 07:34 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/837972478084.shtml)
+- 2026-06-30 07:40 - [如果有二次元高中是什么样子的？](https://www.blog.minike.top/Article/details/458293207289.shtml)
+- 2026-06-30 07:38 - [美股](https://www.blog.minike.top/Article/details/412817892.shtml)
+- 2026-06-30 07:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/973599978252.shtml)
+- 2026-06-30 07:27 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/64877028035.shtml)
+- 2026-06-30 07:26 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/5601806474.shtml)
+- 2026-06-30 07:34 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/35812064.shtml)
+- 2026-06-30 07:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/713090850172.shtml)
+- 2026-06-30 07:36 - [巴拉圭进球](http://www.share.minike.top/Article/details/428480937.shtml)
+- 2026-06-30 07:53 - [女心理师](https://www.share.minike.top/Article/details/339555314953.shtml)
+- 2026-06-30 07:31 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/07773184589.shtml)
+- 2026-06-30 07:37 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/90289825313.shtml)
+- 2026-06-30 07:32 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/0969099.shtml)
+- 2026-06-30 07:41 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/18466662345.shtml)

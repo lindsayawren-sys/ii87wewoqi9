@@ -1,57 +1,60 @@
-# Arafura获批Nolans稀土矿后启动3.75亿澳元融资，澳洲女首富再度增持
+# 外媒看宁德：中国小城如何做出全球产业？
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-Arafura Rare Earths于5月21日宣布启动3.75亿澳元的股权融资计划，为其刚获批的Nolans稀土项目提供全额股权资金。此前一日，该公司董事会已正式批准开发位于北领地的Nolans项目，该矿将成为澳大利亚第三大稀土矿，预计年产4440吨钕镨氧化物，供应全球约5%的稀土需求。 澳大利亚首富Gina Rinehart旗下的Hancock Prospecting已承
+中新网宁德4月13日电 (吕巧琴 吴允杰)13日晚，坐落于福建省宁德市东侨经济技术开发区赤鉴湖畔的宁德时代新能源科技股份有限公司(以下简称“宁德时代”)大楼在夜色中格外醒目。“宁德时代让我看到了中国新能源科技的实力与速度。”参访完该公司后，中阿卫视主持人阿思玛(Asmaa)感叹道。 由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述
 
 ## 正文
 
-Arafura Rare Earths于5月21日宣布启动3.75亿澳元的股权融资计划，为其刚获批的Nolans稀土项目提供全额股权资金。
+中新网宁德4月13日电 (吕巧琴 吴允杰)13日晚，坐落于福建省宁德市东侨经济技术开发区赤鉴湖畔的宁德时代新能源科技股份有限公司(以下简称“宁德时代”)大楼在夜色中格外醒目。
 
-此前一日，该公司董事会已正式批准开发位于北领地的Nolans项目，该矿将成为澳大利亚第三大稀土矿，预计年产4440吨钕镨氧化物，供应全球约5%的稀土需求。
+“宁德时代让我看到了中国新能源科技的实力与速度。
 
-澳大利亚首富Gina Rinehart旗下的Hancock Prospecting已承诺在此次融资中认购8500万澳元股份，其持股比例将从目前的约15.5%提升至约17.5%。
+”参访完该公司后，中阿卫视主持人阿思玛(Asmaa)感叹道。
 
-Rinehart表示，Hancock很高兴支持北领地的发展，这笔追加投资将助力Nolans项目在全球关键矿产供应链中发挥至关重要的战略作用。
+由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述中华优秀传统文化与现代中国发展的故事。
 
-本次融资包括两批机构配售：第一批1.755亿澳元无需股东批准，第二批1.745亿澳元需待7月股东大会批准。
+当晚，《文化中国·宁德》摄制组走进全球新能源领域领军企业——宁德时代，探寻动力电池前沿科技与新能源变革之路。
 
-配售价格为每股0.26澳元，较上一交易日收盘价折让16.1%。
+从国内领军到国际领跑，宁德时代已成为新能源行业尤其是电池领域的一大产业“链主”。
 
-此外，公司还计划通过购股计划向散户融资最高2500万澳元。
+根据SNE Research数据统计，2025年，宁德时代动力电池使用量全球市占率达39.2%，2017年至2025年连续9年排名全球第一；在储能领域，2025年，该公司储能电池出货量121GWh，全球市占率达30.4%，2021年至2025年连续5年蝉联全球榜首。
 
-Nolans项目位于爱丽丝泉以北135公里处，是澳大利亚首个矿石到氧化物一体化稀土项目，预计将于2026年9月开工建设。
+在宁德时代科技展厅内，丰富的展陈内容与专业讲解，让阿思玛对宁德时代的发展历程、企业文化、产品创新等有了系统而直观的认识，让她深切感受到宁德时代在技术创新方面的实力。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 07:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 07:36 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 07:29 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 07:21 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 07:27 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 07:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 07:39 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 07:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 07:44 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 07:25 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:51 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 07:48 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 07:31 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 07:44 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 07:40 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 07:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 07:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 07:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 07:48 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 07:41 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:39 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 07:53 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [沙丘](http://www.blog.kurohicncr.top/Article/details/3677987344.shtml)
-- 2026-06-30 07:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/75815.shtml)
-- 2026-06-30 07:32 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/1424219819.shtml)
-- 2026-06-30 07:47 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/715623.shtml)
-- 2026-06-30 07:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/4454866.shtml)
-- 2026-06-30 07:45 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/912601430706.shtml)
-- 2026-06-30 07:43 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/577935.shtml)
-- 2026-06-30 07:36 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/9187414.shtml)
-- 2026-06-30 07:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/589360725.shtml)
-- 2026-06-30 07:40 - [德国巴拉圭加时](http://www.blog.kurohicncr.top/Article/details/299037156.shtml)
-- 2026-06-30 07:20 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/54775209.shtml)
-- 2026-06-30 07:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/60223.shtml)
-- 2026-06-30 07:34 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/456538224.shtml)
-- 2026-06-30 07:24 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/7039999989.shtml)
-- 2026-06-30 07:42 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/556987.shtml)
+- 2026-06-30 07:46 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/8209813.shtml)
+- 2026-06-30 07:48 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/918767758.shtml)
+- 2026-06-30 07:24 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/844762.shtml)
+- 2026-06-30 07:24 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/156762.shtml)
+- 2026-06-30 07:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/234479011.shtml)
+- 2026-06-30 07:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/169722192175.shtml)
+- 2026-06-30 07:44 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/435900971444.shtml)
+- 2026-06-30 07:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/2274303976.shtml)
+- 2026-06-30 07:47 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/42413009.shtml)
+- 2026-06-30 07:47 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/275508593008.shtml)
+- 2026-06-30 07:43 - [明星大侦探第四季](https://www.share.minike.top/Article/details/43357.shtml)
+- 2026-06-30 07:24 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/27961624051.shtml)
+- 2026-06-30 07:48 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/7748654227.shtml)
+- 2026-06-30 07:45 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/38156.shtml)
+- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/064035575082.shtml)

@@ -1,55 +1,60 @@
-# 探馆第二十八届海峡两岸经贸交易会：“台味”浓 人气旺
+# 红星二锅头亮相第六届消博会—— 守非遗匠心焕年轻潮力 彰显老字号创新风采
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 17:06 来源：中国新闻网 5月24日，以“推动经贸融合、共建第一家园”为主题的第二十八届海峡两岸经贸交易会正在福建福州举行，本届海交会规划面积达4万平方米，时值周末，成果发布及推介交流活动吸引了许多民众前来参观。 记者看到，现场设置了包括台湾工业智造科技、台湾青年创业、台企好物、台湾县区特色产业、福马产业园、两岸绿色低碳产业、两岸乡建乡创合
+4月13日至18日，第六届中国国际消费品博览会在海南隆重举办。作为海南自贸港封关运作后首个国家级消费精品展会，本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，为全球消费精品搭建展示交易平台，也为中国老字号走向世界提供了重要窗口。北京一轻旗下中华老字号红星二锅头，携核心产品与年轻化创新成果入驻联合展区，融合深厚的非遗底蕴与澎湃潮力，向全球客商展现中国白酒的守正创新。 展
 
 ## 正文
 
-发布时间：2026年05月24日 17:06 来源：中国新闻网 5月24日，以“推动经贸融合、共建第一家园”为主题的第二十八届海峡两岸经贸交易会正在福建福州举行，本届海交会规划面积达4万平方米，时值周末，成果发布及推介交流活动吸引了许多民众前来参观。
+4月13日至18日，第六届中国国际消费品博览会在海南隆重举办。
 
-记者看到，现场设置了包括台湾工业智造科技、台湾青年创业、台企好物、台湾县区特色产业、福马产业园、两岸绿色低碳产业、两岸乡建乡创合作、两岸康养产业、各省市特色产业、两岸时尚产业等10个主题推介交流区。
+作为海南自贸港封关运作后首个国家级消费精品展会，本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，为全球消费精品搭建展示交易平台，也为中国老字号走向世界提供了重要窗口。
 
-在福州海峡职业棒球队的用品中心互动体验区，现场搭起了棒球体验场，吸引众多民众前来体验。
+北京一轻旗下中华老字号红星二锅头，携核心产品与年轻化创新成果入驻联合展区，融合深厚的非遗底蕴与澎湃潮力，向全球客商展现中国白酒的守正创新。
 
-“台湾好物主题推介交流区”人气爆棚，牛肉面、台式麻辣锅等各类台湾零食饮品琳琅满目，吸引了民众驻足体验。
+展区内，红星有序陈列核心产品与权威荣誉，引人驻足：以“三曲三香”为风味核心的大曲酿、主打“纯粮之上更甜润”的第八代二锅头，搭配“中华老字号”“国家级非物质文化遗产”“中国消费名品”等荣誉奖牌，传递出北京二锅头始创者的品质根基与行业认可，让海内外观众直观感受老字号的深厚积淀。
 
-(记者 吴晟炜） 责任编辑：【王凯】
+同时红星聚焦年轻消费需求，带来年轻化新品—— Re-star(茉莉花茶风味酒)，以茶酒融合的清新口感打破白酒饮用边界，契合轻饮潮流；高端光瓶大曲酿同步设置纯饮、调饮体验区，让观众解锁传统二锅头的新潮饮用方式，展现品类创新的更多可能。
+
+展区还设置趣味打卡互动，观众拍摄分享即可领取五星胸针、蓝瓶小酒等礼品，以轻量化社交互动拉近与年轻群体的距离。
+
+此次参展，既是红星年轻化创新成果的集中展示，也是品牌探索国际化路径、布局自营出口的重要契机。
+
+借助消博会的全球影响力，红星向世界传递出京味非遗白酒走向国际的决心，未来将在深化年轻化创新的同时，稳步推进自营出口布局，让兼具传统匠心与新潮魅力的红星产品，走进更多海外消费者视野，为中国白酒的国际化发展贡献力量。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 07:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 07:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 07:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 07:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 07:37 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 07:26 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 07:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 07:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 07:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 07:24 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 07:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 07:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 07:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 07:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 07:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 07:44 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 07:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 07:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 07:33 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 07:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 07:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 07:30 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 07:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 07:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 07:36 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 07:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/8288416.shtml)
-- 2026-06-30 07:40 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/134685561809.shtml)
-- 2026-06-30 07:36 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/28058001.shtml)
-- 2026-06-30 07:38 - [逃狱兄弟](http://www.share.minike.top/Article/details/537480509.shtml)
-- 2026-06-30 07:46 - [巴西vs日本](http://www.blog.minike.top/Article/details/7125526202.shtml)
-- 2026-06-30 07:24 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/50474908992.shtml)
-- 2026-06-30 07:37 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/016913352.shtml)
-- 2026-06-30 07:18 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/186258703302.shtml)
-- 2026-06-30 07:31 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/0516379.shtml)
-- 2026-06-30 07:44 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/355255.shtml)
-- 2026-06-30 07:20 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/962432196927.shtml)
-- 2026-06-30 07:30 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/899624016557.shtml)
-- 2026-06-30 07:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/13996368853.shtml)
-- 2026-06-30 07:30 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/03537.shtml)
-- 2026-06-30 07:35 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/5562513.shtml)
+- 2026-06-30 07:29 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/80619.shtml)
+- 2026-06-30 07:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/159637.shtml)
+- 2026-06-30 07:52 - [勇敢的心第二部](http://www.share.minike.top/Article/details/17004.shtml)
+- 2026-06-30 07:26 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/1032656.shtml)
+- 2026-06-30 07:31 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/35666.shtml)
+- 2026-06-30 07:52 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/60678239.shtml)
+- 2026-06-30 07:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/2867459.shtml)
+- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/321890772.shtml)
+- 2026-06-30 07:44 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/05934959.shtml)
+- 2026-06-30 07:28 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/883828.shtml)
+- 2026-06-30 07:40 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/20591736.shtml)
+- 2026-06-30 07:28 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/7170334918.shtml)
+- 2026-06-30 07:34 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/885295.shtml)
+- 2026-06-30 07:44 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/71281.shtml)
+- 2026-06-30 07:42 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/7827541971.shtml)

@@ -1,60 +1,54 @@
-# 被罚1669万元！长安汽车内幕交易案曝光：员工借华为合作消息，获利400余万
+# 瑞银上调特斯拉评级至中性，看好长期AI机遇
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-近日，中证中小投资者服务中心（以下简称“投服中心”）官方公众号披露了一则关于《韩某等人内幕交易“长安汽车”案》信息。案情显示，2023年11月26日，长安汽车公告与某知名科技公司签订《投资备忘录》，双方拟在智能汽车业务方面开展战略合作。公告发布前，网络开始流传相关消息，内幕信息疑似提前泄露。监管部门快速反应，核查发现与两家公司方面存在关联的一些证券账户突击买入长安汽车，交易行为
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。 该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。 分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Opti
 
 ## 正文
 
-近日，中证中小投资者服务中心（以下简称“投服中心”）官方公众号披露了一则关于《韩某等人内幕交易“长安汽车”案》信息。
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。
 
-案情显示，2023年11月26日，长安汽车公告与某知名科技公司签订《投资备忘录》，双方拟在智能汽车业务方面开展战略合作。
+该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。
 
-公告发布前，网络开始流传相关消息，内幕信息疑似提前泄露。
+分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。
 
-监管部门快速反应，核查发现与两家公司方面存在关联的一些证券账户突击买入长安汽车，交易行为十分可疑，随即启动调查。
+我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Optimus进展缓慢的担忧，已对股价造成压力。
 
-经查，上述重大事项公开前，合作双方的多名员工——韩某、彭某、揭某、魏某、王某利用内幕信息大量买入“长安汽车”股票，合计买入金额6100万元，获利共计400余万元。
+然而，我们确实预计机器人出租车和Optimus最终将取得进展，并继续将特斯拉视为物理AI领域的领导者。
 
-证监会认定，韩某等人在内幕信息公开前买入“长安汽车”股票的行为构成内幕交易，决定没收韩某等人的违法所得，共计处以1669万元罚款，并依法将有关人员涉嫌犯罪线索移送公安机关。
+" 特斯拉股价最新上涨逾3%。
 
-韩某、魏某已全额缴纳罚没款。
-
-据长安汽车2023年11月26日公告，公司在广东省深圳市龙岗区与华为签署了《投资合作备忘录》。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 07:37 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 07:18 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 07:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 07:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 07:25 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 07:32 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 07:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 07:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 07:40 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 07:32 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 07:22 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 07:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 07:25 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:33 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:27 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 07:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 07:34 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 07:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 07:46 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 07:37 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 07:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/6274707.shtml)
-- 2026-06-30 07:44 - [请回答王牌2019](http://www.share.minike.top/Article/details/796087.shtml)
-- 2026-06-30 07:26 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/6590201.shtml)
-- 2026-06-30 07:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/374774.shtml)
-- 2026-06-30 07:45 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/6597384451.shtml)
-- 2026-06-30 07:31 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/261030.shtml)
-- 2026-06-30 07:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/787839538.shtml)
-- 2026-06-30 07:35 - [起风了](http://www.blog.kurohicncr.top/Article/details/26499523893.shtml)
-- 2026-06-30 07:34 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/67995.shtml)
-- 2026-06-30 07:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/020054645.shtml)
-- 2026-06-30 07:28 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/028926130709.shtml)
-- 2026-06-30 07:45 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/401026922.shtml)
-- 2026-06-30 07:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/8383901928.shtml)
-- 2026-06-30 07:27 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/93739.shtml)
-- 2026-06-30 07:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/38054.shtml)
+- 2026-06-30 07:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/0890009701.shtml)
+- 2026-06-30 07:47 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/6716920945.shtml)
+- 2026-06-30 07:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/5789118978.shtml)
+- 2026-06-30 07:49 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/208314434185.shtml)
+- 2026-06-30 07:42 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/8948311.shtml)
+- 2026-06-30 07:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/94681.shtml)
+- 2026-06-30 07:43 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/915358.shtml)
+- 2026-06-30 07:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/86698832408.shtml)
+- 2026-06-30 07:49 - [巴西绝杀](https://www.share.minike.top/Article/details/397792.shtml)
+- 2026-06-30 07:47 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/20790.shtml)
+- 2026-06-30 07:46 - [女心理师](http://www.share.kurohicncr.top/Article/details/1305721591.shtml)
+- 2026-06-30 07:48 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/42937.shtml)
+- 2026-06-30 07:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/32309758.shtml)
+- 2026-06-30 07:45 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/2037893.shtml)
+- 2026-06-30 07:39 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/198980976.shtml)

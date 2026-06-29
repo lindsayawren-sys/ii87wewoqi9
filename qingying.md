@@ -1,60 +1,57 @@
-# 文博会观察：AI加速融入中国文化全产业链
+# 吉林国企改革成效显著 布局新赛道做强新动能
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新社深圳5月24日电 (记者 蔡敏婕)用户只需输入时长、风格、场景等关键词，系统就能快速生成包含分镜的完整短片脚本，数秒内便生成了从人物设定到镜头细节的方案，一部古风悬疑江湖故事逐步成片。 正在深圳举行的第二十二届中国(深圳)国际文化产业博览交易会上，人工智能(AI)不再是锦上添花的辅助工具，已成为贯穿文化创作、生产、运营、传播、消费全链条的核心引擎，推动行业朝着可运营、可迭
+中新网长春4月14日电 (高龙安 李彦国)记者14日从吉林省国资委获悉，该省国企改革取得扎实成效。截至2025年底，全省国有企业资产总额、营业收入、增加值较2022年增幅均超30%；省国资委监管企业营业收入突破千亿元，较“十四五”初期实现翻一番，监管企业利润翻三番，主要指标创近五年最佳水平。其中，监管企业资产总额达6592.1亿元，同比增长6.2%，规模位居东北三省首位。 吉林
 
 ## 正文
 
-中新社深圳5月24日电 (记者 蔡敏婕)用户只需输入时长、风格、场景等关键词，系统就能快速生成包含分镜的完整短片脚本，数秒内便生成了从人物设定到镜头细节的方案，一部古风悬疑江湖故事逐步成片。
+中新网长春4月14日电 (高龙安 李彦国)记者14日从吉林省国资委获悉，该省国企改革取得扎实成效。
 
-正在深圳举行的第二十二届中国(深圳)国际文化产业博览交易会上，人工智能(AI)不再是锦上添花的辅助工具，已成为贯穿文化创作、生产、运营、传播、消费全链条的核心引擎，推动行业朝着可运营、可迭代、可变现的数字生态加速迈进。
+截至2025年底，全省国有企业资产总额、营业收入、增加值较2022年增幅均超30%；省国资委监管企业营业收入突破千亿元，较“十四五”初期实现翻一番，监管企业利润翻三番，主要指标创近五年最佳水平。
 
-硬件终端的革新是大众感知最直观的切口。
+其中，监管企业资产总额达6592.1亿元，同比增长6.2%，规模位居东北三省首位。
 
-展位上，工作人员可通过文字快速生成高精度3D模型，在展会现场复刻千年唐三彩，将原本数周的创作周期压缩至一天以内。
+吉林省国资委党委书记吕鑫介绍，近年来，该省深入推进国企改革，推动国有资本向新能源、新材料等战略性新兴产业集中，向现代农业、旅游等优势特色产业集中，向基础性、保障类、民生领域拓展，不断提升国资国企规模效应、集聚效应、融合效应。
 
-腾讯集团副总裁、总编辑朱殿君表示，AI是文化产业不可逆的发展新引擎，大模型等技术拓宽了创意边界、缩短创作周期、降低生产门槛。
+“十四五”期间，吉林省实现省属经营性国有资产集中统一监管，近千户企业整合重组为12个集团，形成治理更高效、支撑更有力的“吉字号”国企方阵。
 
-观众佩戴AI眼镜后对准《千里江山图》复刻品，即可实时获取专业讲解并自由追问，同时，眼镜搭载的AI克隆同声传译技术，破除文化交流壁垒。
+改革带动下，吉林国企投资力度与产业能级同步提升。
 
-“AI技术正在让文化展示从‘单向讲解’走向‘实时互动’。
+2025年，吉林省国资委监管企业完成投资248.3亿元，同比增长39%，创近五年新高。
 
-”阿里巴巴千问AI硬件产品负责人吴建军介绍，当观众可以边看、边问、边理解，文博内容也不再只是陈列在展厅里的信息，而是变成了一段可以被不断打开的文化故事。
+其中，战略性新兴产业投资达41亿元，为2024年的5.1倍，重点布局具身智能、半导体、康养等新赛道——组建具身智能机器人公司及创新中心，首款仿生机器人样机顺利下线；吉旅健康康养中心投运，500余张床位投入使用；吉林化纤碳纤维产销量位居全球第一，大型风电叶片主梁市场占有率达90%，实现量质同步提升。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 07:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 07:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 07:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 07:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 07:43 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 07:35 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 07:24 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 07:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 07:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 07:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 07:22 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 07:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 07:28 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 07:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 07:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 07:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 07:48 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 07:46 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 07:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 07:41 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/82394484.shtml)
-- 2026-06-30 07:44 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/5370217687.shtml)
-- 2026-06-30 07:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/03795071.shtml)
-- 2026-06-30 07:35 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/2786500.shtml)
-- 2026-06-30 07:19 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/765722210269.shtml)
-- 2026-06-30 07:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/788204973.shtml)
-- 2026-06-30 07:19 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/0289101.shtml)
-- 2026-06-30 07:23 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5989232.shtml)
-- 2026-06-30 07:28 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/9446309.shtml)
-- 2026-06-30 07:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/428879489.shtml)
-- 2026-06-30 07:22 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/10856907699.shtml)
-- 2026-06-30 07:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/4486129.shtml)
-- 2026-06-30 07:23 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/037229176021.shtml)
-- 2026-06-30 07:23 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/27062197290.shtml)
-- 2026-06-30 07:30 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/34225473.shtml)
+- 2026-06-30 07:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/66030655.shtml)
+- 2026-06-30 07:27 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/860583224.shtml)
+- 2026-06-30 07:49 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/37706488218.shtml)
+- 2026-06-30 07:36 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/5157287.shtml)
+- 2026-06-30 07:28 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/360216566.shtml)
+- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/101514.shtml)
+- 2026-06-30 07:50 - [流金岁月](https://www.share.minike.top/Article/details/055823651.shtml)
+- 2026-06-30 07:40 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/042750307509.shtml)
+- 2026-06-30 07:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/3823013.shtml)
+- 2026-06-30 07:47 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1791223815.shtml)
+- 2026-06-30 07:40 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/30356164565.shtml)
+- 2026-06-30 07:43 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/620813.shtml)
+- 2026-06-30 07:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/5898813733.shtml)
+- 2026-06-30 07:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/3460513409.shtml)
+- 2026-06-30 07:31 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/482487071.shtml)

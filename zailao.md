@@ -1,50 +1,61 @@
-# 上海银行行长施红敏：构建六大战略布局，分阶段推进战略部署
+# 中方：愿同匈牙利新一届政府加强高层交往
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-5月22日金融一线消息，上海银行今日举行2025年度股东会。上海银行行长施红敏在谈及未来三至五年发展计划时表示，该行已完成“十五五”规划制定，未来将深刻把握金融工作的政治性、人民性，围绕服务实体经济、金融“五篇大文章”，助力上海“五个中心”建设，聚焦重点领域培育特色核心竞争力。 施红敏表示，上海银行将构建由六大战略布局引领的发展格局，包括以“早小硬”为特色的全生命周期科技金融服
+中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。 有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。中方对此有何评论？对中匈关系未来发展有何期待？ 郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。中方高度重视中匈关系发
 
 ## 正文
 
-5月22日金融一线消息，上海银行今日举行2025年度股东会。
+中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。
 
-上海银行行长施红敏在谈及未来三至五年发展计划时表示，该行已完成“十五五”规划制定，未来将深刻把握金融工作的政治性、人民性，围绕服务实体经济、金融“五篇大文章”，助力上海“五个中心”建设，聚焦重点领域培育特色核心竞争力。
+有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。
 
-施红敏表示，上海银行将构建由六大战略布局引领的发展格局，包括以“早小硬”为特色的全生命周期科技金融服务体系、以小微金融为特色的普惠金融体系、以最佳客户体验为目标的交易银行体系、以撮合交易为引擎的投资银行体系、以财富管理和消费金融为驱动的零售金融体系，以及以服务社会民生为特色的养老金融体系。
+目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。
 
-他进一步表示，为实现上述目标，上海银行将分阶段推进战略部署：用三年左右时间，到2028年实现结构调整目标，并构建与六大战略布局相匹配的组织架构、人才队伍、产业生态渠道及配套机制等体系；用五年左右时间，到2030年实现打造特色、形成优势的目标，持续完善经营体系，推动特色和竞争力转化为发展机遇。
+中方对此有何评论？
 
-责任编辑：秦艺
+对中匈关系未来发展有何期待？
+
+郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。
+
+中方高度重视中匈关系发展，愿在相互尊重、平等相待、互利共赢的基础上，同匈牙利新一届政府加强高层交往，增进政治互信，拓展务实合作，扩大人文交流，造福两国人民。
+
+(完）
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 07:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 07:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 07:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 07:38 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 07:27 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 07:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 07:20 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 07:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 07:26 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:32 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 07:28 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 07:45 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 07:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 07:48 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 07:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 07:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 07:34 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 07:26 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 07:37 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/723903.shtml)
-- 2026-06-30 07:35 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/57506.shtml)
-- 2026-06-30 07:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/0340882219.shtml)
-- 2026-06-30 07:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/38766814090.shtml)
-- 2026-06-30 07:36 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/20514387.shtml)
-- 2026-06-30 07:39 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/155182.shtml)
-- 2026-06-30 07:29 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/059358535.shtml)
-- 2026-06-30 07:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/97471.shtml)
-- 2026-06-30 07:41 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/65437.shtml)
-- 2026-06-30 07:42 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/112347368.shtml)
-- 2026-06-30 07:31 - [一生一世](https://www.blog.kurohicncr.top/Article/details/1822159.shtml)
-- 2026-06-30 07:41 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/584141203.shtml)
-- 2026-06-30 07:21 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/84866.shtml)
-- 2026-06-30 07:34 - [85花告别古偶](https://www.share.minike.top/Article/details/24766371904.shtml)
-- 2026-06-30 07:44 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/5996934.shtml)
+- 2026-06-30 07:49 - [全球芯片巨头史诗级扩产](https://www.share.kurohicncr.top/Article/details/2162661.shtml)
+- 2026-06-30 07:53 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/995109082365.shtml)
+- 2026-06-30 07:24 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/12759.shtml)
+- 2026-06-30 07:24 - [毒液2](http://www.blog.kurohicncr.top/Article/details/01541611605.shtml)
+- 2026-06-30 07:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/26037552201.shtml)
+- 2026-06-30 07:43 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/2969998.shtml)
+- 2026-06-30 07:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/552570145532.shtml)
+- 2026-06-30 07:50 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/22469.shtml)
+- 2026-06-30 07:38 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/6091231078.shtml)
+- 2026-06-30 07:40 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/3923642653.shtml)
+- 2026-06-30 07:39 - [张凌赫 客串](http://www.share.minike.top/Article/details/3361955.shtml)
+- 2026-06-30 07:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/808104612405.shtml)
+- 2026-06-30 07:47 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/705183.shtml)
+- 2026-06-30 07:38 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/265419724791.shtml)
+- 2026-06-30 07:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/7473122.shtml)

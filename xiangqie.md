@@ -1,59 +1,54 @@
-# 广东举行高技能人才专题招聘活动 释放超1.5万个岗位
+# 美国即将开始封锁霍尔木兹海峡
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。 此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。 据统计，现场吸引超1.1万人次求职者入场，初
+核心要点 美国将于周一上午启动封锁行动，禁止船只进出霍尔木兹海峡，试图在和平谈判破裂后加大对伊朗的施压，迫使其重新开放这一关键石油运输通道。 特朗普总统周日在 “真实社交”（Truth Social）上宣布该计划，猛烈抨击伊朗拒绝放弃核野心，并指责德黑兰通过持续封锁海峡航运进行 “全球勒索”。 特朗普表示，美国的封锁行动将于美国东部时间上午 10 点开始，适用于 “所有试图进出
 
 ## 正文
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。
+核心要点 美国将于周一上午启动封锁行动，禁止船只进出霍尔木兹海峡，试图在和平谈判破裂后加大对伊朗的施压，迫使其重新开放这一关键石油运输通道。
 
-此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。
+特朗普总统周日在 “真实社交”（Truth Social）上宣布该计划，猛烈抨击伊朗拒绝放弃核野心，并指责德黑兰通过持续封锁海峡航运进行 “全球勒索”。
 
-据统计，现场吸引超1.1万人次求职者入场，初步达成就业意向2500多人次，人才供需对接精准度高、落地成效显著。
+特朗普表示，美国的封锁行动将于美国东部时间上午 10 点开始，适用于 “所有试图进出霍尔木兹海峡的船只”。
 
-招聘会特设“先进制造业”与“现代服务业”两大专区。
+美国中央司令部随后补充说明，美军 “不会妨碍往返非伊朗港口的船只在霍尔木兹海峡的航行自由”。
 
-小鹏集团、海天机械等制造业龙头企业与京东、中移铁通等服务企业同台揽才，西门子更是联合50家生态企业组团推出千余个岗位。
+封锁行动前夕，股指期货下跌，原油价格大幅飙升。
 
-电驱试验技师、机器人试制技师、智慧家庭工程师、AI设计师……岗位遍布新能源、智能制造、工业机器人、智能运维等新赛道。
-
-在制造业与服务业加速融合的趋势下，企业不再满足于招聘掌握单一技能的人才，而是急需兼具设备操作、系统管理、客户服务的技能复合型人才。
-
-招聘会上，企业岗位设置呈现出明显的“两业融合”特征，从单纯的制造端向数字营销、智能运维、新零售等现代服务业延伸，精准匹配产业链与价值链的深度融合需求。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 07:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 07:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 07:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 07:47 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 07:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 07:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 07:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 07:35 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 07:18 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 07:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 07:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 07:24 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 07:39 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 07:47 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 07:41 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 07:50 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 07:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 07:32 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 07:41 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 07:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 07:54 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 07:42 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/74017907164.shtml)
-- 2026-06-30 07:41 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/0106406.shtml)
-- 2026-06-30 07:23 - [巴西2比1日本](https://www.share.minike.top/Article/details/8510516053.shtml)
-- 2026-06-30 07:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/23099419820.shtml)
-- 2026-06-30 07:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/45689546.shtml)
-- 2026-06-30 07:34 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/377690.shtml)
-- 2026-06-30 07:41 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/16778.shtml)
-- 2026-06-30 07:24 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/78376722229.shtml)
-- 2026-06-30 07:35 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/95821.shtml)
-- 2026-06-30 07:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/814101048793.shtml)
-- 2026-06-30 07:28 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/80839.shtml)
-- 2026-06-30 07:47 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/2016336.shtml)
-- 2026-06-30 07:23 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/134566.shtml)
-- 2026-06-30 07:47 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/11697756426.shtml)
-- 2026-06-30 07:33 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/4766783.shtml)
+- 2026-06-30 07:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/7421058.shtml)
+- 2026-06-30 07:53 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3668987.shtml)
+- 2026-06-30 07:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/94021.shtml)
+- 2026-06-30 07:35 - [爱很美味](http://www.blog.minike.top/Article/details/78499.shtml)
+- 2026-06-30 07:37 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/115420636.shtml)
+- 2026-06-30 07:51 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/8482388.shtml)
+- 2026-06-30 07:24 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/7407230.shtml)
+- 2026-06-30 07:36 - [德国巴拉圭加时](http://www.blog.kurohicncr.top/Article/details/52583.shtml)
+- 2026-06-30 07:45 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/22907149977.shtml)
+- 2026-06-30 07:32 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/46428426294.shtml)
+- 2026-06-30 07:35 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/37138.shtml)
+- 2026-06-30 07:52 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/8802363.shtml)
+- 2026-06-30 07:39 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/83263.shtml)
+- 2026-06-30 07:27 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/92906.shtml)
+- 2026-06-30 07:52 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/0549947.shtml)

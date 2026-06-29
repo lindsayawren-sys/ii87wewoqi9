@@ -1,52 +1,57 @@
-# 在桂留学生体验中国茶道文化：泡茶是一门艺术
+# 吉比特Q1利润大涨超70%，巨人净利翻倍，游戏行业蒸蒸日上
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 13:37 来源：中国新闻网 5月21日，广西大学举办国际茶日校园茶文化系列活动，吸引了越南、印度尼西亚、巴基斯坦等多国留学生踊跃参与。 活动现场茶香四溢、古韵悠然，多样的中华传统茶艺体验让留学生们沉浸式感受茶文化魅力。在老师的指导下，越南籍留学生团玉玄首次体验中国茶道，她认真学习洗茶、冲茶等茶道流程。完整体验过后，团玉玄感觉茶道是一门艺术。
+今（14）日盘后，吉比特发布Q1业绩预增公告。公告显示，吉比特预计Q1扣非净利润在4.6亿至5.4亿元，同比增长68%~97%。吉比特表示，利润大增主要因《杖剑传说（大陆版）》《道友来挖宝》《杖剑传说（境外版）》《问剑长生（境外版）》《九牧之野》等产品于2025年第二季度至第四季度陆续上线，相比上年同期贡献增量利润。值得一提的是，吉比特并非唯一一家在Q1取得净利润大幅增长的游戏
 
 ## 正文
 
-发布时间：2026年05月22日 13:37 来源：中国新闻网 5月21日，广西大学举办国际茶日校园茶文化系列活动，吸引了越南、印度尼西亚、巴基斯坦等多国留学生踊跃参与。
+今（14）日盘后，吉比特发布Q1业绩预增公告。
 
-活动现场茶香四溢、古韵悠然，多样的中华传统茶艺体验让留学生们沉浸式感受茶文化魅力。
+公告显示，吉比特预计Q1扣非净利润在4.6亿至5.4亿元，同比增长68%~97%。
 
-在老师的指导下，越南籍留学生团玉玄首次体验中国茶道，她认真学习洗茶、冲茶等茶道流程。
+吉比特表示，利润大增主要因《杖剑传说（大陆版）》《道友来挖宝》《杖剑传说（境外版）》《问剑长生（境外版）》《九牧之野》等产品于2025年第二季度至第四季度陆续上线，相比上年同期贡献增量利润。
 
-完整体验过后，团玉玄感觉茶道是一门艺术。
+值得一提的是，吉比特并非唯一一家在Q1取得净利润大幅增长的游戏厂商。
 
-此次广西大学举办的活动，以茶为媒，让各国留学生沉浸式体悟中华茶韵，近距离领略中国传统文化魅力，进一步搭建起中国与东盟、南亚国家文化互鉴、民心相通的友好桥梁。
+巨人网络上周发布公告，宣布业绩迎来爆发式增长，预计Q1扣非净利润9.5亿元至11.5 亿元，同比增长162.19%-217.38%。
 
-陈沿佑 广西南宁报道 责任编辑：【罗攀】
+巨人增长核心为自研手游《超自然行动组》，该产品DAU突破1000万，跻身国内千万DAU级别长青游戏，2026年春节期间创下单日、单月流水新高。
+
+《超自然行动组》的持续表现亦带动巨人递延收入显著提升。
+
+2025年末公司递延收入达17.28亿元，2026年Q1末进一步提升至约 21 亿元，将在未来期间逐步确认，为巨人后续业绩增长提供支撑。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 07:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 07:31 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 07:27 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 07:47 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 07:33 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 07:38 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 07:26 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 07:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 07:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 07:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 07:51 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:24 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 07:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:39 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 07:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 07:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 07:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 07:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 07:27 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/0217948091.shtml)
-- 2026-06-30 07:27 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/75566920.shtml)
-- 2026-06-30 07:18 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/0746073.shtml)
-- 2026-06-30 07:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/6449374248.shtml)
-- 2026-06-30 07:36 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/068766320.shtml)
-- 2026-06-30 07:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/159595274131.shtml)
-- 2026-06-30 07:35 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/898489.shtml)
-- 2026-06-30 07:23 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/953417325886.shtml)
-- 2026-06-30 07:42 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/825226560725.shtml)
-- 2026-06-30 07:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/097796724604.shtml)
-- 2026-06-30 07:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/279732525263.shtml)
-- 2026-06-30 07:46 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/670138281399.shtml)
-- 2026-06-30 07:39 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/5394420102.shtml)
-- 2026-06-30 07:28 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/06604466.shtml)
-- 2026-06-30 07:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/35786.shtml)
+- 2026-06-30 07:51 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/38835346163.shtml)
+- 2026-06-30 07:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/179212675.shtml)
+- 2026-06-30 07:33 - [一生一世](http://www.share.minike.top/Article/details/988953936.shtml)
+- 2026-06-30 07:30 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/42096658557.shtml)
+- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/97494262537.shtml)
+- 2026-06-30 07:43 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/24661034.shtml)
+- 2026-06-30 07:49 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/388726385.shtml)
+- 2026-06-30 07:43 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/26026563914.shtml)
+- 2026-06-30 07:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/577582323524.shtml)
+- 2026-06-30 07:32 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/264841649653.shtml)
+- 2026-06-30 07:52 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/87299.shtml)
+- 2026-06-30 07:24 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/7714886.shtml)
+- 2026-06-30 07:32 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/50764.shtml)
+- 2026-06-30 07:41 - [逃狱兄弟](https://www.share.minike.top/Article/details/7081252469.shtml)
+- 2026-06-30 07:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/789908821056.shtml)

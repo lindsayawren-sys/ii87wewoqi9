@@ -1,56 +1,57 @@
-# 第二届“青影计划”启动 公益训练营将落地雅安
+# 固态电池迎量产“冲刺期”
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月23日电 5月22日，适逢国际生物多样性日，“影像自然 守护未来”第二届中国青少年保护自然影像计划(下称“青影计划”)启动仪式在北京举行。活动旨在号召广大青少年走近大自然、了解大自然，用影像记录自然之美，培养青少年生态文明意识，切实将绿色发展理念融入素质教育全过程。 中国少年儿童新闻出版总社党委书记、董事长曾锐表示：“我们相信，自然是最好的老师，实践是最生动的教材
+有业内人士指出，出固态电池发展正快步迈向工程验证及产业化备战阶段。近日，固态电池领域动态频传，国轩高科、欣旺达等企业相继披露相关产品研发及量产进展；与此同时，多个地方项目投产、开工或签约，市场整体呈现火热发展态势。有业内人士指出，一系列积极信号反映出固态电池发展正快步迈向工程验证及产业化备战阶段。凭借宽温域、高安全性、高能量密度等优势，固态电池已在人形机器人、低空飞行器与新能源
 
 ## 正文
 
-中新网北京5月23日电 5月22日，适逢国际生物多样性日，“影像自然 守护未来”第二届中国青少年保护自然影像计划(下称“青影计划”)启动仪式在北京举行。
+有业内人士指出，出固态电池发展正快步迈向工程验证及产业化备战阶段。
 
-活动旨在号召广大青少年走近大自然、了解大自然，用影像记录自然之美，培养青少年生态文明意识，切实将绿色发展理念融入素质教育全过程。
+近日，固态电池领域动态频传，国轩高科、欣旺达等企业相继披露相关产品研发及量产进展；与此同时，多个地方项目投产、开工或签约，市场整体呈现火热发展态势。
 
-中国少年儿童新闻出版总社党委书记、董事长曾锐表示：“我们相信，自然是最好的老师，实践是最生动的教材，用影像保护自然，是青少年参与生态文明建设的有效路径。
+有业内人士指出，一系列积极信号反映出固态电池发展正快步迈向工程验证及产业化备战阶段。
 
-‘青影计划’将点亮孩子们心中的生态文明之光，也将点亮他们全面发展的未来之路。
+凭借宽温域、高安全性、高能量密度等优势，固态电池已在人形机器人、低空飞行器与新能源汽车等场景展现出较高适配性，未来随着技术瓶颈突破及成本逐步下探，其有望从能源供给层面为多领域产业升级发展注入强劲动力。
 
-” 蒙牛集团党委副书记、高级执行总裁李鹏程表示，生态文明教育，要从青少年抓起；美丽中国建设，要靠青少年传承。
+产业化热潮涌动今年以来，国内固态电池产业化进程显著提速，多家企业纷纷推进技术验证、中试产线投产与量产布局。
 
-如何让广大青少年真正理解并自觉践行这一理念，是全社会共同的责任与使命。
+日前，国轩高科在投资者互动平台表示，公司的固态电池正按计划推进，2吉瓦时全固态电池量产线的具体建设则受技术、研发、市场等多项因素影响。
 
-“野性中国”工作室创始人、“青影计划”总顾问奚志农表示，希望通过自然影像教育撬动校园自然美育建设、助力教育体系升级，守护青少年身心健康成长。
+国轩高科于3月披露，公司2吉瓦时全固态电池量产线设计工作已基本完成。
 
-相较于远距离研学，推动自然教育常态化走进校园，让青少年在日常学习生活中感知自然、热爱自然，是当下自然教育所需要的。
+2月，广汽集团表示，公司正积极推进全固态电池的自主研发与产业化落地，2025年11月广汽全固态电池中试线已投产，计划于2026年进行小批量装车实验。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 07:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 07:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 07:30 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 07:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 07:20 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 07:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 07:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 07:35 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 07:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 07:47 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 07:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 07:24 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 07:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 07:33 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 07:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 07:48 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 07:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 07:43 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 07:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/4912802296.shtml)
-- 2026-06-30 07:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/92986.shtml)
-- 2026-06-30 07:22 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/186544318473.shtml)
-- 2026-06-30 07:33 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/8852851252.shtml)
-- 2026-06-30 07:26 - [送你一朵小红花](https://www.blog.minike.top/Article/details/374925964947.shtml)
-- 2026-06-30 07:33 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/5184315.shtml)
-- 2026-06-30 07:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/4821529389.shtml)
-- 2026-06-30 07:20 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/937863.shtml)
-- 2026-06-30 07:46 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/28811.shtml)
-- 2026-06-30 07:35 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/711899.shtml)
-- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/6147525.shtml)
-- 2026-06-30 07:26 - [巴西绝杀](https://www.blog.minike.top/Article/details/35159710571.shtml)
-- 2026-06-30 07:27 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/65031291728.shtml)
-- 2026-06-30 07:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/26941331133.shtml)
-- 2026-06-30 07:41 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/374494896789.shtml)
+- 2026-06-30 07:53 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/0938111357.shtml)
+- 2026-06-30 07:42 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/48772424644.shtml)
+- 2026-06-30 07:50 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/350293954448.shtml)
+- 2026-06-30 07:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/379077268.shtml)
+- 2026-06-30 07:45 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/40910383.shtml)
+- 2026-06-30 07:42 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/886796420.shtml)
+- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/97923128459.shtml)
+- 2026-06-30 07:24 - [苗族银饰](http://www.blog.minike.top/Article/details/26120146180.shtml)
+- 2026-06-30 07:48 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/33561803984.shtml)
+- 2026-06-30 07:40 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/70114306.shtml)
+- 2026-06-30 07:47 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/164561360800.shtml)
+- 2026-06-30 07:45 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/21306999041.shtml)
+- 2026-06-30 07:33 - [日本进球](https://www.share.minike.top/Article/details/55802.shtml)
+- 2026-06-30 07:49 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/25081557657.shtml)
+- 2026-06-30 07:42 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5983819.shtml)

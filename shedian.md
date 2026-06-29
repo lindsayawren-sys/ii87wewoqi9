@@ -1,59 +1,59 @@
-# 证监会拟对老虎、富途、长桥依法严厉处罚
+# 深圳海关缉私局破获空港旅检渠道特大走私黄金出境案
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-证监会严肃查处老虎等机构非法跨境展业案件 近日，证监会依法对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。 老虎、富途、长桥境内外相关主体未经我会核准，未取得经营证券经纪业务许可、经营证券融资融券
+中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。 深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李
 
 ## 正文
 
-证监会严肃查处老虎等机构非法跨境展业案件 近日，证监会依法对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。
 
-老虎、富途、长桥境内外相关主体未经我会核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，违反了《证券法》第一百二十条的规定，构成非法经营证券业务。
+深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李中夹带手镯、戒指等黄金饰品近400件，总重达2.8千克，明显超出合理自用范围。
 
-此外，三家机构境内外相关主体还违反了《证券投资基金法》第九十七条、《期货和衍生品法》第六十三条的规定，构成非法从事公募基金销售业务、非法从事期货经纪业务。
+面对询问，该3人回答前后矛盾、疑点重重，海关立即将线索通报机场海关缉私分局。
 
-上述非法跨境展业行为，违反了我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。
+缉私警察介入后，通过对夹藏的黄金饰品种类、数量及刻意分散藏匿的行为进行研判分析，认为这并非偶发行为，背后极有可能隐藏着有组织的走私犯罪活动，随即成立专案组，并锁定一个盘踞在广州的走私黄金出境团伙。
 
-依据《证券法》第二百零二条、《证券投资基金法》第一百三十六条、《期货和衍生品法》第一百三十二条的规定，我会拟决定没收老虎、富途、长桥境内外相关主体全部违法所得，并依法严厉处罚。
+经查，以黄某、方某为首的货主团伙，安排人员在深圳多家珠宝公司采购黄金及其制品，通过快递邮寄至彭某团伙位于广州的货代物流公司处，再由彭某组织“水客”以行李夹藏方式，通过跨境航班走私出境，最终流向黄某在境外开设的金店销售牟利。
 
-拟对当事人实施的行政处罚，当事人享有陈述、申辩及要求听证的权利，我会将充分听取当事人意见后，依法作出行政处罚决定。
+据介绍，黄某有走私犯罪前科，对海关监管规则十分熟悉，反侦查意识强。
 
-下一步，我会将继续坚决落实监管“长牙带刺”、有棱有角要求，严厉打击境外机构在境内非法经营证券业务等违法行为，全力维护资本市场秩序和稳定。
+其在境外拥有某国内黄金首饰品牌授权店，虽能以低于市场价在国内采购和加工黄金，却不具备合法出口资质，遂通过“自买自卖”、跨境走私方式牟取暴利。
 
-责任编辑：刘万里 SF014
+深圳海关缉私局在全面查清犯罪事实后集中收网。
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 07:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 07:35 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 07:25 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 07:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 07:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 07:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 07:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:20 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 07:42 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 07:25 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 07:34 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 07:31 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 07:48 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 07:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 07:34 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 07:37 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 07:24 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 07:31 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 07:41 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 07:36 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 07:49 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 07:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 07:29 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/01234199.shtml)
-- 2026-06-30 07:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/6035106.shtml)
-- 2026-06-30 07:20 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/6019702.shtml)
-- 2026-06-30 07:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/9621086286.shtml)
-- 2026-06-30 07:33 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/95821160437.shtml)
-- 2026-06-30 07:25 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/8483006109.shtml)
-- 2026-06-30 07:46 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/88870129.shtml)
-- 2026-06-30 07:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/177598.shtml)
-- 2026-06-30 07:45 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/64467935.shtml)
-- 2026-06-30 07:45 - [刘念回应](http://www.blog.minike.top/Article/details/6249115380.shtml)
-- 2026-06-30 07:32 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/5430114169.shtml)
-- 2026-06-30 07:26 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/127442696441.shtml)
-- 2026-06-30 07:18 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/67930422077.shtml)
-- 2026-06-30 07:35 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/329771362.shtml)
-- 2026-06-30 07:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/91994.shtml)
+- 2026-06-30 07:45 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/88365438.shtml)
+- 2026-06-30 07:41 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/289095.shtml)
+- 2026-06-30 07:46 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/55736528.shtml)
+- 2026-06-30 07:31 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/157831194239.shtml)
+- 2026-06-30 07:47 - [刘念回应](http://www.share.kurohicncr.top/Article/details/2759097.shtml)
+- 2026-06-30 07:25 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/13117950.shtml)
+- 2026-06-30 07:43 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/773099.shtml)
+- 2026-06-30 07:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/3077027727.shtml)
+- 2026-06-30 07:30 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/819455.shtml)
+- 2026-06-30 07:25 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/0891721.shtml)
+- 2026-06-30 07:44 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/25517233.shtml)
+- 2026-06-30 07:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/8008352008.shtml)
+- 2026-06-30 07:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/050609719.shtml)
+- 2026-06-30 07:54 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/388591055707.shtml)
+- 2026-06-30 07:53 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/37802.shtml)

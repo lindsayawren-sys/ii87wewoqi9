@@ -1,59 +1,58 @@
-# 5月23日美股成交额前20：富途非法跨境展业被重罚被罚18.5亿
+# 微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-周五美股成交额第1名英伟达收跌1.95%，成交360.25亿美元。英伟达获得Cestrian Capital Research的评级上调。该机构表示，英伟达最新季度财报表现“异常出色”，是此次上调评级的主要依据。财报显示，英伟达一季度营收达816.2亿美元，超出市场预期的784.2亿美元；每股收益1.87美元，高于预期的1.76美元。 事实上，华尔街对英伟达的整体看法持续乐观。
+微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。 微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。 瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至3
 
 ## 正文
 
-周五美股成交额第1名英伟达收跌1.95%，成交360.25亿美元。
+微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。
 
-英伟达获得Cestrian Capital Research的评级上调。
+微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。
 
-该机构表示，英伟达最新季度财报表现“异常出色”，是此次上调评级的主要依据。
+瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。
 
-财报显示，英伟达一季度营收达816.2亿美元，超出市场预期的784.2亿美元；每股收益1.87美元，高于预期的1.76美元。
+瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至35.9港元；评级从“中性”升为“买入”； 料集团2026至2028年的预测收入年复合增长率（CAGR）达49.5%，每股盈利（EPS）年复合增长率高达185.5%，看好其强劲的海外销售潜力。
 
-事实上，华尔街对英伟达的整体看法持续乐观。
+公司去年海外收入同比增长287%，其中“图迈”手术机器人销售量更增长超过五倍。
 
-Evercore ISI在5月21日维持英伟达“跑赢大盘”评级，并将目标价从352美元大幅上调至413美元。
+不同于已发展市场，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大； 预计到2034年，这些地区累计将有超过10，000台腹腔镜手术机器人的安装需求，而微创机器人作为市场先驱之一，有望取得25%的市场份额。
 
-该机构认为，英伟达在人工智能和游戏领域的市场领导地位将继续支撑其增长潜力。
-
-DZ Bank同样重申了对英伟达的“买入”评级。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 07:22 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 07:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 07:22 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 07:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:28 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 07:47 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 07:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 07:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 07:34 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 07:40 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 07:28 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 07:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 07:28 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 07:26 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 07:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 07:25 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 07:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 07:45 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 07:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:28 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 07:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 07:48 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/73724.shtml)
-- 2026-06-30 07:30 - [苗族银饰](https://www.blog.minike.top/Article/details/857562044.shtml)
-- 2026-06-30 07:19 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/144956996876.shtml)
-- 2026-06-30 07:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/5935562.shtml)
-- 2026-06-30 07:31 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/5735742.shtml)
-- 2026-06-30 07:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/85645.shtml)
-- 2026-06-30 07:36 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/20737.shtml)
-- 2026-06-30 07:27 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/22984.shtml)
-- 2026-06-30 07:42 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/11101021.shtml)
-- 2026-06-30 07:25 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/66320.shtml)
-- 2026-06-30 07:29 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/89385692336.shtml)
-- 2026-06-30 07:37 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/129829215129.shtml)
-- 2026-06-30 07:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/04539025.shtml)
-- 2026-06-30 07:28 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/97701.shtml)
-- 2026-06-30 07:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/510939.shtml)
+- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/892276288747.shtml)
+- 2026-06-30 07:30 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/6975967.shtml)
+- 2026-06-30 07:47 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/208005946614.shtml)
+- 2026-06-30 07:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/2269973869.shtml)
+- 2026-06-30 07:34 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/863616.shtml)
+- 2026-06-30 07:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/09708874.shtml)
+- 2026-06-30 07:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/936802123.shtml)
+- 2026-06-30 07:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/552724247.shtml)
+- 2026-06-30 07:32 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/53743.shtml)
+- 2026-06-30 07:38 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/0341806.shtml)
+- 2026-06-30 07:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/186058419746.shtml)
+- 2026-06-30 07:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/48266797359.shtml)
+- 2026-06-30 07:27 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/947707183899.shtml)
+- 2026-06-30 07:46 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/33702214.shtml)
+- 2026-06-30 07:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/86016331816.shtml)

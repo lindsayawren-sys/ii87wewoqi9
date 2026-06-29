@@ -1,61 +1,59 @@
-# 福特转型能源存储获分析师看多 股价大幅上涨
+# 霍尔木兹海峡大消息！美军开始阻截，特朗普再发威胁
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-美东时间5月22日尾盘，福特汽车股价大涨约8.9%，此前多家华尔街机构指出，公司新成立的能源存储业务正打开价值数十亿美元的增长空间。分析师普遍认为，福特通过设立全资子公司Ford Energy切入大型电池储能市场的战略转型，有望重塑公司估值逻辑。 福特能源于5月12日正式亮相，专注于为美国公用事业公司、数据中心及大型工商业客户提供集装箱式电池储能系统。公司计划投资约20亿美元改
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！央视新闻客户端消息，央视记者获悉，当地时间13日，美军已经开始对进出霍尔木兹海峡的船只进行阻截。 美军中央司令部12日说，将根据总统命令于美国东部时间13日10时开始对所有进出伊朗港口的海上交通实施封锁。声明说，该封锁措施适用于所有进出伊朗港口及该国沿海区域的各国船只，涵盖位于波斯湾和阿曼湾的所有伊朗港口。
 
 ## 正文
 
-美东时间5月22日尾盘，福特汽车股价大涨约8.9%，此前多家华尔街机构指出，公司新成立的能源存储业务正打开价值数十亿美元的增长空间。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-分析师普遍认为，福特通过设立全资子公司Ford Energy切入大型电池储能市场的战略转型，有望重塑公司估值逻辑。
+央视新闻客户端消息，央视记者获悉，当地时间13日，美军已经开始对进出霍尔木兹海峡的船只进行阻截。
 
-福特能源于5月12日正式亮相，专注于为美国公用事业公司、数据中心及大型工商业客户提供集装箱式电池储能系统。
+美军中央司令部12日说，将根据总统命令于美国东部时间13日10时开始对所有进出伊朗港口的海上交通实施封锁。
 
-公司计划投资约20亿美元改造肯塔基州格伦代尔工厂，打造从电芯到储能集装箱的完整产业链，规划年产能至少20吉瓦时，首批产品定于2027年末交付。
+声明说，该封锁措施适用于所有进出伊朗港口及该国沿海区域的各国船只，涵盖位于波斯湾和阿曼湾的所有伊朗港口。
 
-摩根士丹利在5月13日发布的研究报告中，对福特能源业务给予乐观展望。
+中央司令部说，往返于非伊朗港口、通过霍尔木兹海峡的船只将不会受到干扰。
 
-分析师Andrew Percoco指出，福特与中国电池制造商宁德时代达成的磷酸铁锂技术授权协议，使公司在美国储能市场具备独特的合规竞争优势。
+伊朗方面表示，美方此举是“虚张声势”。
 
-该协议有助于福特产品满足美国投资税收抵免的本土化要求，为客户争取30%的税收优惠。
+多个国家表示反对美方“封锁令”。
 
-Percoco预计，福特能源业务在产能达20吉瓦时后，年化息税前利润有望达到5亿至6亿美元，潜在估值约100亿美元。
+新华社消息，美国总统特朗普13日在社交媒体发文说，如果伊朗的“快速攻击艇”靠近美军的封锁区，它们将立即被消灭。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 07:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 07:26 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 07:45 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 07:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 07:45 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 07:39 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 07:46 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 07:19 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 07:32 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 07:25 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 07:45 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 07:30 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 07:37 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 07:33 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 07:28 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 07:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 07:47 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 07:50 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 07:45 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 07:53 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 07:34 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 07:51 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 07:37 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 07:43 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 07:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 07:28 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/620483410137.shtml)
-- 2026-06-30 07:47 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/15734.shtml)
-- 2026-06-30 07:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/985060.shtml)
-- 2026-06-30 07:32 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/21333245976.shtml)
-- 2026-06-30 07:40 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/797107806.shtml)
-- 2026-06-30 07:44 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/5149721628.shtml)
-- 2026-06-30 07:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/804434489.shtml)
-- 2026-06-30 07:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/7944182.shtml)
-- 2026-06-30 07:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/66497.shtml)
-- 2026-06-30 07:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/128637952.shtml)
-- 2026-06-30 07:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/8813086.shtml)
-- 2026-06-30 07:19 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/56672.shtml)
-- 2026-06-30 07:21 - [苗族银饰](http://www.blog.minike.top/Article/details/6252866.shtml)
-- 2026-06-30 07:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/97745.shtml)
-- 2026-06-30 07:19 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/761417.shtml)
+- 2026-06-30 07:48 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/924652274.shtml)
+- 2026-06-30 07:45 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/88201.shtml)
+- 2026-06-30 07:39 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/91058711.shtml)
+- 2026-06-30 07:30 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/31512462.shtml)
+- 2026-06-30 07:31 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/003609936.shtml)
+- 2026-06-30 07:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/41329600795.shtml)
+- 2026-06-30 07:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/26642.shtml)
+- 2026-06-30 07:42 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/1042468.shtml)
+- 2026-06-30 07:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/018286074.shtml)
+- 2026-06-30 07:26 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/272454501188.shtml)
+- 2026-06-30 07:36 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/488806929.shtml)
+- 2026-06-30 07:33 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/3342350301.shtml)
+- 2026-06-30 07:35 - [巴西扳平比分](https://www.share.minike.top/Article/details/4278830.shtml)
+- 2026-06-30 07:28 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/95937.shtml)
+- 2026-06-30 07:24 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/77026658702.shtml)

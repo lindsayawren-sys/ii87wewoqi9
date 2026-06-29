@@ -1,56 +1,56 @@
-# 四川成都：第三届川渝美术作品展吸引参观者
+# 火爆朋友圈的SBTI测试究竟准不准
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，
+火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。南京市中西医结合医院脑病
 
 ## 正文
 
-中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？
+火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。
 
-西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
+有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+南京市中西医结合医院脑病科(神经内科)副主任医师、国家二级心理咨询师张林提醒，从医学心理学角度而言，其价值与局限需要结合科学理论与现实场景客观审视。
 
-618大战，为何先从手机降价开始？
+通讯员 杨璞 扬子晚报/紫牛新闻记者 许倩倩 测试局限性与潜在风险并存 张林介绍，SBTI测试的理论根基可追溯至瑞士心理学家卡尔·荣格1921年提出的《心理类型学》，其类型学属于“特质论”范畴，强调人格的稳定性与分类性。
 
-埃及胡夫金字塔如何抗震？
+“SBTI测试通过简化荣格的复杂理论，将抽象的心理特质转化为易于理解的标签，契合了大众对‘快速自我定位’的心理需求。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+”张林表示，但信度(测试结果的稳定性)与效度(测试结果的准确性)是评估心理测试科学性的核心指标。
 
-你的股票和黄金，后市怎么走？
+目前，SBTI测试的信效度并未得到广泛认可的学术验证。
 
-警惕狂奔的日本“灰犀牛”“洋医生”沈义扬扎根海南十三载：义之所至，扬之千里安徽池州：晨韵齐山 景美如画成都汽配展启幕 新兴市场客商觅合作商机消防指战员席地而眠守护湖南石门李显龙在上海与导盲机器人 机械手互动 笑容满面合不拢嘴非洲青年带家乡水稻丰收照片缅怀袁隆平《给阿嬷的情书》总制片人感谢全网“自来水”北京天坛的奠基土来自山西后土祠？
+” 在效度方面，SBTI测试的“类型划分”过于绝对化，忽略了人格的连续性与复杂性。
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 07:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 07:28 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 07:18 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 07:44 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 07:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 07:46 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 07:45 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:24 - [田中碧失误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 07:34 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 07:26 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 07:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 07:41 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:52 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 07:31 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 07:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 07:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 07:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 07:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 07:39 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/39548.shtml)
-- 2026-06-30 07:41 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/050071356502.shtml)
-- 2026-06-30 07:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/185670738.shtml)
-- 2026-06-30 07:47 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/1558604675.shtml)
-- 2026-06-30 07:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/00244645.shtml)
-- 2026-06-30 07:20 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/91741700.shtml)
-- 2026-06-30 07:41 - [巴西扳平比分](https://www.share.minike.top/Article/details/362661.shtml)
-- 2026-06-30 07:24 - [金刚川](https://www.share.minike.top/Article/details/054741037.shtml)
-- 2026-06-30 07:21 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/069901560.shtml)
-- 2026-06-30 07:32 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/57203.shtml)
-- 2026-06-30 07:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/47715180430.shtml)
-- 2026-06-30 07:18 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/1631330.shtml)
-- 2026-06-30 07:46 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/79076029385.shtml)
-- 2026-06-30 07:21 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/86002563.shtml)
-- 2026-06-30 07:24 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/24932758.shtml)
+- 2026-06-30 07:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/89517.shtml)
+- 2026-06-30 07:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/9249990.shtml)
+- 2026-06-30 07:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/219634.shtml)
+- 2026-06-30 07:40 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/55175008.shtml)
+- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/832592.shtml)
+- 2026-06-30 07:45 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/76761214.shtml)
+- 2026-06-30 07:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/78209906451.shtml)
+- 2026-06-30 07:33 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/4681341947.shtml)
+- 2026-06-30 07:34 - [扬名立万](https://www.blog.minike.top/Article/details/4897308.shtml)
+- 2026-06-30 07:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/93463.shtml)
+- 2026-06-30 07:45 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/6582128584.shtml)
+- 2026-06-30 07:26 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/56591609.shtml)
+- 2026-06-30 07:43 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/758157.shtml)
+- 2026-06-30 07:35 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/00294746080.shtml)
+- 2026-06-30 07:25 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/420253754171.shtml)

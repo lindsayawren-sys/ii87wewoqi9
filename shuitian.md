@@ -1,49 +1,59 @@
-# 45%！老虎证券、富途控股美股盘前跌幅进一步扩大
+# 长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 老虎证券美股盘前跌幅扩大至45%，富途控股美股盘前跌幅扩大至33%。责任编辑：石秀珍 SF183
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。 连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。 要理解这场交易，必须先理清一个复杂的家族控制版图。 长源东谷成立于200
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 老虎证券美股盘前跌幅扩大至45%，富途控股美股盘前跌幅扩大至33%。
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。
 
-责任编辑：石秀珍 SF183
+连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。
+
+长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。
+
+要理解这场交易，必须先理清一个复杂的家族控制版图。
+
+长源东谷成立于2001年，主营柴油、天然气、汽油发动机缸体、缸盖、连杆等核心零部件的研发、生产及销售，主要客户包括福田康明斯、东风康明斯、东风商用车、广西玉柴、比亚迪、赛力斯等。
+
+公司于2020年5月在上交所上市，李佐元家族——李佐元、其配偶徐能琛、其子李险峰、其女李从容——为共同实际控制人。
+
+根据天眼查数据，李佐元持股40.72%，徐能琛持股11.22%，李险峰和李从容各持股5.61%。
+
+而此次的收购标的康豪机电，同样“生于”这个家族体系。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 07:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 07:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 07:28 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 07:31 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 07:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 07:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 07:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 07:42 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 07:38 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 07:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 07:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 07:26 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 07:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:27 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 07:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 07:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 07:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 07:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 07:41 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 07:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 07:43 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 07:45 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 07:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 07:45 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 07:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 07:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23075641.shtml)
-- 2026-06-30 07:34 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/807013899130.shtml)
-- 2026-06-30 07:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/810794.shtml)
-- 2026-06-30 07:32 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/492186790547.shtml)
-- 2026-06-30 07:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/56566104.shtml)
-- 2026-06-30 07:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/65925647479.shtml)
-- 2026-06-30 07:30 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/792809493069.shtml)
-- 2026-06-30 07:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/50569842.shtml)
-- 2026-06-30 07:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/8153784.shtml)
-- 2026-06-30 07:40 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/2209984.shtml)
-- 2026-06-30 07:47 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/329158712.shtml)
-- 2026-06-30 07:22 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/4578065514.shtml)
-- 2026-06-30 07:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0743952.shtml)
-- 2026-06-30 07:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/0135472.shtml)
-- 2026-06-30 07:32 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/20433862.shtml)
+- 2026-06-30 07:35 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/702390.shtml)
+- 2026-06-30 07:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/34834466.shtml)
+- 2026-06-30 07:46 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/27247.shtml)
+- 2026-06-30 07:40 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/624422.shtml)
+- 2026-06-30 07:47 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/821025.shtml)
+- 2026-06-30 07:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/62425354.shtml)
+- 2026-06-30 07:42 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/96625752849.shtml)
+- 2026-06-30 07:53 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/9686471294.shtml)
+- 2026-06-30 07:42 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/879939222.shtml)
+- 2026-06-30 07:42 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/810082.shtml)
+- 2026-06-30 07:26 - [女心理师](http://www.share.minike.top/Article/details/827293273835.shtml)
+- 2026-06-30 07:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/401063438302.shtml)
+- 2026-06-30 07:38 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/39221303.shtml)
+- 2026-06-30 07:38 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/989616103.shtml)
+- 2026-06-30 07:24 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/063440518613.shtml)

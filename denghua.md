@@ -1,59 +1,56 @@
-# 加仓，资金流入这些方向
+# 2025年中国基层医疗卫生机构诊疗人次达55.6亿
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-01 5月22日，昨日普遍回调的消费电子、通信、港股通信息技术类ETF，今日集体领涨，多只产品涨幅超5%。港股通信息技术ETF富国（159198）收涨5.92%，消费电子ETF富国（561100）收涨5.21%。 02 昨日上涨的医药类ETF今日转跌，科创医药ETF工银、科创创新药ETF汇添富等跌幅居前，多只产品跌幅超2%。此外，酒ETF鹏华今日表现疲软，收跌2.2%。 03
+中新社北京4月13日电 (记者 李纯)中国国家卫生健康委员会副主任郑哲13日在北京表示，2025年数据显示，全国基层医疗卫生机构诊疗人次达到55.6亿，占比已经超过半数达到52.6%，基层诊疗人次和占比持续提升，分级诊疗成效也在显现。当天，中国国务院新闻办公室举行政策例行吹风会，介绍《关于加快建设分级诊疗体系的若干措施》有关情况。 郑哲介绍，中国的医疗卫生服务可及性明显改善。现
 
 ## 正文
 
-01 5月22日，昨日普遍回调的消费电子、通信、港股通信息技术类ETF，今日集体领涨，多只产品涨幅超5%。
+中新社北京4月13日电 (记者 李纯)中国国家卫生健康委员会副主任郑哲13日在北京表示，2025年数据显示，全国基层医疗卫生机构诊疗人次达到55.6亿，占比已经超过半数达到52.6%，基层诊疗人次和占比持续提升，分级诊疗成效也在显现。
 
-港股通信息技术ETF富国（159198）收涨5.92%，消费电子ETF富国（561100）收涨5.21%。
+当天，中国国务院新闻办公室举行政策例行吹风会，介绍《关于加快建设分级诊疗体系的若干措施》有关情况。
 
-02 昨日上涨的医药类ETF今日转跌，科创医药ETF工银、科创创新药ETF汇添富等跌幅居前，多只产品跌幅超2%。
+郑哲介绍，中国的医疗卫生服务可及性明显改善。
 
-此外，酒ETF鹏华今日表现疲软，收跌2.2%。
+现在全国有超过110万所医疗卫生机构覆盖城乡，基本医疗卫生服务覆盖14亿人，超过90%的居民可以在15分钟内到达最近的医疗服务点。
 
-03 5月21日市场调整之际，中证1000、中证A500、中证500ETF等产品获资金逆势流入，合计净流入近70亿元。
+他表示，基层医疗服务更加夯实。
 
-半导体设备相关ETF合计获得净流入超28亿元。
+乡镇卫生院、社区卫生服务中心科室设置不断丰富，设施设备水平稳步提高，民众基层就医环境持续改善。
 
-昨日收跌今日领涨 5月22日，科技股全线反弹，算力硬件产业链再度走强。
+现在基层已经具备常见病诊疗和慢性病管理、公共卫生等基本服务能力。
 
-昨日普遍回调的消费电子、通信、港股通信息技术类ETF，今日集体领涨，多只产品涨幅超5%。
+“我们也实施了全科医生特岗计划，农村订单定向免费医学生培养计划，落实自愿到农村工作的大学毕业生乡镇卫生院编制专项保障。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 07:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:44 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 07:30 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 07:18 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 07:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 07:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 07:31 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 07:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 07:36 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 07:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 07:38 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 07:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 07:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 07:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 07:52 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 07:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 07:27 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 07:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 07:44 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 07:50 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/89973146.shtml)
-- 2026-06-30 07:21 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/0308093577.shtml)
-- 2026-06-30 07:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/45676469.shtml)
-- 2026-06-30 07:32 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/9872883.shtml)
-- 2026-06-30 07:45 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/077059228.shtml)
-- 2026-06-30 07:43 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/0707659592.shtml)
-- 2026-06-30 07:34 - [金刚川](http://www.blog.minike.top/Article/details/877222.shtml)
-- 2026-06-30 07:43 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/8806701.shtml)
-- 2026-06-30 07:28 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/1328850739.shtml)
-- 2026-06-30 07:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/994893786.shtml)
-- 2026-06-30 07:23 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/369188.shtml)
-- 2026-06-30 07:38 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/975129.shtml)
-- 2026-06-30 07:42 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/989815.shtml)
-- 2026-06-30 07:27 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/5626573343.shtml)
-- 2026-06-30 07:42 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/95579.shtml)
+- 2026-06-30 07:26 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/458312.shtml)
+- 2026-06-30 07:40 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/300604.shtml)
+- 2026-06-30 07:39 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/445814153504.shtml)
+- 2026-06-30 07:51 - [速度与激情9](http://www.blog.minike.top/Article/details/97079.shtml)
+- 2026-06-30 07:40 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/86743450962.shtml)
+- 2026-06-30 07:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/670096.shtml)
+- 2026-06-30 07:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/797764792.shtml)
+- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/41700556603.shtml)
+- 2026-06-30 07:43 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/116854781620.shtml)
+- 2026-06-30 07:47 - [请回答王牌2019](http://www.blog.minike.top/Article/details/75997762616.shtml)
+- 2026-06-30 07:36 - [流金岁月](https://www.blog.minike.top/Article/details/47938330935.shtml)
+- 2026-06-30 07:42 - [刘念回应](https://www.share.kurohicncr.top/Article/details/14532444205.shtml)
+- 2026-06-30 07:29 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/64326.shtml)
+- 2026-06-30 07:24 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/4475866.shtml)
+- 2026-06-30 07:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/04151766.shtml)

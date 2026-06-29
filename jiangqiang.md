@@ -1,57 +1,52 @@
-# 第二届清照诗歌艺术节在李清照故里济南章丘启幕
+# 拾光纪·习近平会见西班牙首相，这三个关键词值得关注
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网济南5月23日电(记者 赵晓)“社会需要灵魂的支撑，而诗人能为世界、为社会注入更多精神能量。当我们进行写作或表达时，可以把积淀下来的学识、智慧、哲学思考等融入其中。”5月22日晚，德国著名汉学家、诗人沃尔夫冈·顾彬在李清照故里济南章丘出席活动时如是说。 当晚，一场夏雨过后，坐落于章丘的明水古城，泉群喷涌如注，古建筑与青石路泛着温润的光泽，第二届清照诗歌艺术节开幕式暨诗歌朗
+14日上午，习近平主席会见西班牙首相桑切斯。桑切斯四年里四次访华，展现出两国关系的定力、活力和国际影响力。同日上午，习主席还会见了阿联酋阿布扎比王储哈立德。两场会见传递一种声音：中国为乱象丛生的世界提供着稳定性和确定性，越来越多的国家选择站在历史正确的一边。
 
 ## 正文
 
-中新网济南5月23日电(记者 赵晓)“社会需要灵魂的支撑，而诗人能为世界、为社会注入更多精神能量。
+14日上午，习近平主席会见西班牙首相桑切斯。
 
-当我们进行写作或表达时，可以把积淀下来的学识、智慧、哲学思考等融入其中。
+桑切斯四年里四次访华，展现出两国关系的定力、活力和国际影响力。
 
-”5月22日晚，德国著名汉学家、诗人沃尔夫冈·顾彬在李清照故里济南章丘出席活动时如是说。
+同日上午，习主席还会见了阿联酋阿布扎比王储哈立德。
 
-当晚，一场夏雨过后，坐落于章丘的明水古城，泉群喷涌如注，古建筑与青石路泛着温润的光泽，第二届清照诗歌艺术节开幕式暨诗歌朗诵会在此举行。
-
-中外60余位诗歌和文学创作者汇聚现场，围绕“声声·慢”主题，展开诗意对话，推动诗歌文化浸润当代生活。
-
-诗人张定浩担任本届诗歌艺术节的学术主持。
-
-他表示，当下，谈及文学与诗歌创作，不少人推崇“不读书也能写出好作品”的天赋论。
-
-但回望古代文坛，才华与学问本是一体，二者相辅相成。
+两场会见传递一种声音：中国为乱象丛生的世界提供着稳定性和确定性，越来越多的国家选择站在历史正确的一边。
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 07:31 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 07:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 07:21 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 07:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 07:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 07:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:28 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 07:33 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 07:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 07:34 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:38 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:46 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 07:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 07:28 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:36 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 07:31 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 07:36 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 07:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:50 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 07:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:26 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 07:38 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/32145.shtml)
-- 2026-06-30 07:35 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/783860333.shtml)
-- 2026-06-30 07:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/3581544.shtml)
-- 2026-06-30 07:27 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/094840.shtml)
-- 2026-06-30 07:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/60675.shtml)
-- 2026-06-30 07:25 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/135405220123.shtml)
-- 2026-06-30 07:41 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/534124291218.shtml)
-- 2026-06-30 07:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/618910601054.shtml)
-- 2026-06-30 07:40 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/8833403983.shtml)
-- 2026-06-30 07:44 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/532061313.shtml)
-- 2026-06-30 07:47 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/21882787236.shtml)
-- 2026-06-30 07:33 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/235401442326.shtml)
-- 2026-06-30 07:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/97225273.shtml)
-- 2026-06-30 07:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/698918759682.shtml)
-- 2026-06-30 07:46 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/0000643080.shtml)
+- 2026-06-30 07:37 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/210199.shtml)
+- 2026-06-30 07:28 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/607125.shtml)
+- 2026-06-30 07:35 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/1550393.shtml)
+- 2026-06-30 07:42 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/2386940904.shtml)
+- 2026-06-30 07:33 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/9978704.shtml)
+- 2026-06-30 07:24 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/32990.shtml)
+- 2026-06-30 07:49 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/052266461483.shtml)
+- 2026-06-30 07:50 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/972125665091.shtml)
+- 2026-06-30 07:47 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/710883931.shtml)
+- 2026-06-30 07:42 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/305756.shtml)
+- 2026-06-30 07:34 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/1945260614.shtml)
+- 2026-06-30 07:34 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/479664784016.shtml)
+- 2026-06-30 07:42 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/21831999976.shtml)
+- 2026-06-30 07:43 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/6498982.shtml)
+- 2026-06-30 07:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/33605633.shtml)

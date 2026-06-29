@@ -1,56 +1,57 @@
-# 算力告急，Anthropic拟租用微软Maia芯片缓解AI芯荒
+# 国家医保局：进一步将口腔等3个领域纳入自查自纠范围
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-由于旗下大模型Claude及AI编程工具Claude Code需求激增，Anthropic正面临严峻的算力短缺。为寻求新的供应渠道，该公司正与微软谈判，计划租用其自主研发的Maia 200 AI芯片服务器。 这一合作若能达成，将标志着微软的自研芯片业务迎来其最具分量的外部客户，有望打破其在专用AI芯片供应上落后于谷歌和亚马逊的竞争劣势。目前，Anthropic已与AWS和谷歌达
+近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。 自查自纠聚焦重点领域“逐渐细化、持续深化”。在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。
 
 ## 正文
 
-由于旗下大模型Claude及AI编程工具Claude Code需求激增，Anthropic正面临严峻的算力短缺。
+近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。
 
-为寻求新的供应渠道，该公司正与微软谈判，计划租用其自主研发的Maia 200 AI芯片服务器。
+自查自纠聚焦重点领域“逐渐细化、持续深化”。
 
-这一合作若能达成，将标志着微软的自研芯片业务迎来其最具分量的外部客户，有望打破其在专用AI芯片供应上落后于谷歌和亚马逊的竞争劣势。
+在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。
 
-目前，Anthropic已与AWS和谷歌达成类似协议，采用其自研芯片。
+各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。
 
-Anthropic首席执行官Dario Amodei在本月初已公开表示公司在算力方面遇到困难。
+本次自查自纠工作分三个阶段有序推进。
 
-此前，为解燃眉之急，Anthropic甚至已与SpaceX达成协议，租用其Colossus 1超级计算机的全部算力。
+一是细化制定本地清单。
 
-微软于今年1月发布了第二代Maia 200芯片。
+国家医保局已下发2026年定点医药机构违法违规使用医保基金典型问题清单，各地医保部门已于3月底前结合本地医保政策、诊疗项目规范，对问题清单进行细化完善。
 
-据CEO萨提亚·纳德拉介绍，与现有芯片相比，Maia 200每美元可实现的Token处理效率提升了超过30%。
+二是组织全面自查。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 07:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 07:29 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 07:21 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 07:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 07:42 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 07:41 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 07:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 07:34 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:31 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 07:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 07:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 07:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 07:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 07:51 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 07:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 07:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 07:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 07:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 07:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/1516159.shtml)
-- 2026-06-30 07:40 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/3645610.shtml)
-- 2026-06-30 07:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/34305802916.shtml)
-- 2026-06-30 07:37 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/805558.shtml)
-- 2026-06-30 07:39 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/37987.shtml)
-- 2026-06-30 07:40 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/0394657729.shtml)
-- 2026-06-30 07:29 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/709816141751.shtml)
-- 2026-06-30 07:21 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/0733202.shtml)
-- 2026-06-30 07:35 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/008355059093.shtml)
-- 2026-06-30 07:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/498383113963.shtml)
-- 2026-06-30 07:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/394824749.shtml)
-- 2026-06-30 07:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/948835619565.shtml)
-- 2026-06-30 07:38 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/5669476.shtml)
-- 2026-06-30 07:38 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/008947.shtml)
-- 2026-06-30 07:41 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/2660923.shtml)
+- 2026-06-30 07:39 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/388879.shtml)
+- 2026-06-30 07:42 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/3783674.shtml)
+- 2026-06-30 07:50 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/168558498.shtml)
+- 2026-06-30 07:37 - [点菜也要教吗](https://www.blog.minike.top/Article/details/903808.shtml)
+- 2026-06-30 07:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/437105.shtml)
+- 2026-06-30 07:49 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/4041037772.shtml)
+- 2026-06-30 07:30 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/09517.shtml)
+- 2026-06-30 07:42 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/9670965.shtml)
+- 2026-06-30 07:31 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/401525.shtml)
+- 2026-06-30 07:29 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/637686599.shtml)
+- 2026-06-30 07:53 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/68080442.shtml)
+- 2026-06-30 07:33 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/98794452.shtml)
+- 2026-06-30 07:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/2419179.shtml)
+- 2026-06-30 07:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/96421611.shtml)
+- 2026-06-30 07:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/83623543483.shtml)

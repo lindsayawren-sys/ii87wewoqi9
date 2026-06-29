@@ -1,60 +1,56 @@
-# 2026泰国购物节暨正大榴莲节在广西南宁启动
+# 美国开始封锁霍尔木兹海峡 特朗普警告伊朗“攻击舰艇”远离
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-【东盟专线】2026泰国购物节暨正大榴莲节在广西南宁启动 中新社南宁5月23日电 (俞靖 黄艳梅)2026泰国购物节23日晚在广西南宁启动，主办方引进上百种泰国商品入驻本地商超，并同步开启榴莲节活动。 本次活动由泰国驻南宁总领事馆商务处携手多家企业举办，为期半个月。榴莲、山竹等泰国原产高品质水果以及泰国香米、泰式休闲小吃、冬阴功泡面等特色泰国食品亮相活动现场。 此外，活动还邀泰
+核心要点 周一，美国宣布开始封锁进出霍尔木兹海峡伊朗港口的船只，试图在和平谈判破裂后，加大对伊朗的施压，迫使其重新开放这一关键石油运输通道。 “我们不能任由一个国家勒索或要挟全世界，他们就是在这么做。” 在美国东部时间上午 10 点封锁生效后，总统特朗普在白宫椭圆形办公室外对记者表示。 当被问及此次封锁的目的是迫使伊朗重新开放海峡，还是回到谈判桌前时，特朗普称：“这两件事，当然
 
 ## 正文
 
-【东盟专线】2026泰国购物节暨正大榴莲节在广西南宁启动 中新社南宁5月23日电 (俞靖 黄艳梅)2026泰国购物节23日晚在广西南宁启动，主办方引进上百种泰国商品入驻本地商超，并同步开启榴莲节活动。
+核心要点 周一，美国宣布开始封锁进出霍尔木兹海峡伊朗港口的船只，试图在和平谈判破裂后，加大对伊朗的施压，迫使其重新开放这一关键石油运输通道。
 
-本次活动由泰国驻南宁总领事馆商务处携手多家企业举办，为期半个月。
+“我们不能任由一个国家勒索或要挟全世界，他们就是在这么做。
 
-榴莲、山竹等泰国原产高品质水果以及泰国香米、泰式休闲小吃、冬阴功泡面等特色泰国食品亮相活动现场。
+” 在美国东部时间上午 10 点封锁生效后，总统特朗普在白宫椭圆形办公室外对记者表示。
 
-此外，活动还邀泰国餐厅厨师现场制作泰国料理，专业技师带来泰式古法按摩，还有泰拳专业选手对决表演。
+当被问及此次封锁的目的是迫使伊朗重新开放海峡，还是回到谈判桌前时，特朗普称：“这两件事，当然，还有更多。
 
-泰国驻南宁总领事馆商务领事尼迪·巴通翁表示，本次活动旨在提升泰国商品品牌口碑与影响力，掀起选购泰国商品的消费热潮，尤其是受中国消费者青睐的榴莲、椰子等，深化双边贸易往来，加强泰中经贸合作。
+” 特朗普在白宫的这番即兴发言之前，副总统 JD・万斯已从巴基斯坦返回，未能与伊朗达成协议；而上周末达成的为期两周的停火协议，因中东局势紧张加剧而显得愈发脆弱。
 
-此次活动的合作方之一正大集团广西区负责人表示，该集团深耕泰中两地，是推动双边贸易往来的跨国企业。
+尽管上周末在巴基斯坦举行的谈判以僵局告终，特朗普周一仍宣称，伊朗 “非常迫切地” 想要达成和平协议。
 
-本次活动汇聚泰国优质榴莲产品，搭配特色泰式风情展演，希望以果为媒，助力更多泰国特色商品进入中国市场，持续搭建好服务泰中跨境消费与农业合作、实现互通共赢的平台。
+他表示，谈判的症结在于 “他们绝不允许拥有核武器”。
 
-(完)
+“我们同意了很多条件，但他们不同意这一点。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 07:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 07:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 07:31 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 07:44 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:44 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 07:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 07:22 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 07:35 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 07:38 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 07:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 07:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 07:41 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 07:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 07:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 07:32 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 07:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:35 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 07:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:40 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 07:51 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 07:35 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/7769699.shtml)
-- 2026-06-30 07:25 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/977030986178.shtml)
-- 2026-06-30 07:38 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/20822869.shtml)
-- 2026-06-30 07:45 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/301732743.shtml)
-- 2026-06-30 07:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/905032726918.shtml)
-- 2026-06-30 07:36 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/9710982174.shtml)
-- 2026-06-30 07:22 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/46822.shtml)
-- 2026-06-30 07:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/944357052.shtml)
-- 2026-06-30 07:27 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/0349296.shtml)
-- 2026-06-30 07:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/81519447129.shtml)
-- 2026-06-30 07:34 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/22356498647.shtml)
-- 2026-06-30 07:44 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/230154.shtml)
-- 2026-06-30 07:46 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/529537902.shtml)
-- 2026-06-30 07:34 - [沙丘](https://www.share.kurohicncr.top/Article/details/36727.shtml)
-- 2026-06-30 07:34 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/379742.shtml)
+- 2026-06-30 07:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/6614738722.shtml)
+- 2026-06-30 07:45 - [周生如故](https://www.share.kurohicncr.top/Article/details/970494303051.shtml)
+- 2026-06-30 07:31 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/116130602132.shtml)
+- 2026-06-30 07:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/28303.shtml)
+- 2026-06-30 07:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/51895850.shtml)
+- 2026-06-30 07:48 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/398701.shtml)
+- 2026-06-30 07:26 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/31470750.shtml)
+- 2026-06-30 07:24 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/43279.shtml)
+- 2026-06-30 07:29 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/71171311758.shtml)
+- 2026-06-30 07:48 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/617851739.shtml)
+- 2026-06-30 07:45 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/282796497.shtml)
+- 2026-06-30 07:50 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/10528.shtml)
+- 2026-06-30 07:51 - [美股](http://www.share.minike.top/Article/details/361793734336.shtml)
+- 2026-06-30 07:51 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/366051964428.shtml)
+- 2026-06-30 07:39 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/38495.shtml)

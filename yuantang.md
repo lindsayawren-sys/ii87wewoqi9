@@ -1,48 +1,54 @@
-# 针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查
+# A股午评：超2600只个股飘绿，三大指数集体收涨
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-新华社快讯：针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清、违规分包转包等问题，确保硬措施得到硬落实。
+A股午评：超2600只个股飘绿，三大指数集体收涨，存储器、半导体板块领涨 14日，A股三大指数高开，随后震荡上行，创业板指涨超2%。截至午间收盘，沪指涨0.55%，深证成指涨1.36%，创业板指涨2.13%。全市半日成交额1.51万亿，超2600只个股下跌。 板块方面，算力硬件、半导体产业链爆发，存储器方向领涨；能源金属、AI应用、商业航天、人工智能、固态电池概念股活跃。油气、
 
 ## 正文
 
-新华社快讯：针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。
+A股午评：超2600只个股飘绿，三大指数集体收涨，存储器、半导体板块领涨 14日，A股三大指数高开，随后震荡上行，创业板指涨超2%。
 
-各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清、违规分包转包等问题，确保硬措施得到硬落实。
+截至午间收盘，沪指涨0.55%，深证成指涨1.36%，创业板指涨2.13%。
+
+全市半日成交额1.51万亿，超2600只个股下跌。
+
+板块方面，算力硬件、半导体产业链爆发，存储器方向领涨；能源金属、AI应用、商业航天、人工智能、固态电池概念股活跃。
+
+油气、稀土、煤炭、化工板块调整。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 07:32 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 07:26 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 07:38 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 07:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 07:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 07:33 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 07:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 07:46 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 07:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:24 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 07:44 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 07:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 07:49 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 07:52 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 07:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 07:27 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 07:39 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 07:34 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 07:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 07:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 07:34 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 07:29 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 07:48 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 07:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/581164233024.shtml)
-- 2026-06-30 07:33 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/471255623.shtml)
-- 2026-06-30 07:23 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/223899.shtml)
-- 2026-06-30 07:20 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/9974371469.shtml)
-- 2026-06-30 07:36 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/97608.shtml)
-- 2026-06-30 07:47 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/2824389.shtml)
-- 2026-06-30 07:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/3112527983.shtml)
-- 2026-06-30 07:32 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/16291376245.shtml)
-- 2026-06-30 07:29 - [一见倾心](https://www.share.minike.top/Article/details/7009828.shtml)
-- 2026-06-30 07:43 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/42145.shtml)
-- 2026-06-30 07:36 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/583072705300.shtml)
-- 2026-06-30 07:40 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/450746308723.shtml)
-- 2026-06-30 07:33 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/656849.shtml)
-- 2026-06-30 07:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/2053101380.shtml)
-- 2026-06-30 07:18 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/834056726.shtml)
+- 2026-06-30 07:43 - [明星大侦探第四季](https://www.share.minike.top/Article/details/79980.shtml)
+- 2026-06-30 07:51 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/22087.shtml)
+- 2026-06-30 07:28 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/12801874151.shtml)
+- 2026-06-30 07:51 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/4290146.shtml)
+- 2026-06-30 07:27 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/09848082260.shtml)
+- 2026-06-30 07:35 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/174350.shtml)
+- 2026-06-30 07:45 - [巴西绝杀日本](http://www.share.minike.top/Article/details/58951256.shtml)
+- 2026-06-30 07:25 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/59246024566.shtml)
+- 2026-06-30 07:25 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/953658293.shtml)
+- 2026-06-30 07:43 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/01411292771.shtml)
+- 2026-06-30 07:26 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/56063685203.shtml)
+- 2026-06-30 07:34 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/65655776.shtml)
+- 2026-06-30 07:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/80136.shtml)
+- 2026-06-30 07:42 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/7803736885.shtml)
+- 2026-06-30 07:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/79090883655.shtml)

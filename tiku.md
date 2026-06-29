@@ -1,46 +1,48 @@
-# 山西留神峪煤矿瓦斯爆炸事故发布会：事故已致82人遇难 2人失联
+# 西班牙首相：世界离不开中国
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。 会上介绍，截至目前，煤矿瓦斯爆炸事故已致82人遇难，2人失联，128人受伤。 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+发布时间：2026年04月13日 16:19 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。桑切斯指出，欧洲是维护世界稳定繁荣与和平的关键力量，若没有一个团结的欧洲，而是支离破碎的，稳定的国际秩序便无从谈起，人类的繁荣未来更无法实现。同样如果没有中国这个伟大国家的参与，这一切也无法实现，因此我们注定要相互理解通力合
 
 ## 正文
 
-今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。
+发布时间：2026年04月13日 16:19 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。
 
-会上介绍，截至目前，煤矿瓦斯爆炸事故已致82人遇难，2人失联，128人受伤。
+桑切斯指出，欧洲是维护世界稳定繁荣与和平的关键力量，若没有一个团结的欧洲，而是支离破碎的，稳定的国际秩序便无从谈起，人类的繁荣未来更无法实现。
 
-5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+同样如果没有中国这个伟大国家的参与，这一切也无法实现，因此我们注定要相互理解通力合作。
+
+(记者 郎佳慧 曾玥 制作 王雪尔） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 07:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 07:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 07:36 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 07:43 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 07:36 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 07:39 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 07:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 07:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 07:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 07:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 07:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 07:36 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 07:32 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 07:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 07:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 07:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 07:39 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 07:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 07:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6429242.shtml)
-- 2026-06-30 07:20 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/41634582882.shtml)
-- 2026-06-30 07:47 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/972692173.shtml)
-- 2026-06-30 07:34 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/82832.shtml)
-- 2026-06-30 07:26 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/556217.shtml)
-- 2026-06-30 07:37 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/42027759.shtml)
-- 2026-06-30 07:22 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/093690.shtml)
-- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/1205885943.shtml)
-- 2026-06-30 07:46 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/756256319315.shtml)
-- 2026-06-30 07:29 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/76905714656.shtml)
-- 2026-06-30 07:22 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/786795.shtml)
-- 2026-06-30 07:43 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/362568941.shtml)
-- 2026-06-30 07:30 - [点菜也要教吗](https://www.blog.minike.top/Article/details/337131141065.shtml)
-- 2026-06-30 07:35 - [世界杯](http://www.share.kurohicncr.top/Article/details/0322963.shtml)
-- 2026-06-30 07:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/66393966.shtml)
+- 2026-06-30 07:32 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/15680477332.shtml)
+- 2026-06-30 07:38 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/97926055.shtml)
+- 2026-06-30 07:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/755873733761.shtml)
+- 2026-06-30 07:33 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/94180.shtml)
+- 2026-06-30 07:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/767405137515.shtml)
+- 2026-06-30 07:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/899823991.shtml)
+- 2026-06-30 07:38 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/11308806483.shtml)
+- 2026-06-30 07:50 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/0197902.shtml)
+- 2026-06-30 07:51 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/293088868831.shtml)
+- 2026-06-30 07:33 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/9151520927.shtml)
+- 2026-06-30 07:26 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/030601114924.shtml)
+- 2026-06-30 07:45 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/68008.shtml)
+- 2026-06-30 07:30 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/68428.shtml)
+- 2026-06-30 07:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/50654817498.shtml)
+- 2026-06-30 07:53 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/21347631523.shtml)

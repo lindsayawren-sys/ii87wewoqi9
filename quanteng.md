@@ -1,60 +1,52 @@
-# 龙宇股份虽退市仍可索赔，已有投资者顺利获赔
+# 阿联酋国际投资峰会首次落地粤港澳大湾区
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师近日再次收到一批胜诉判决，此前也有部分投资者顺利获赔。（刘鹏律师专栏） 针对龙宇股份的索赔区间为于2020年4月28日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损的即符合要求。（*ST龙宇维权入口） 投资者可获赔的范围为根据相关法律法规信息披露义务人在证券交易市场承担民
+中新网广州4月14日电 (记者 王坚)据广州市天河区政府14日消息，广州市天河中央商务区管理委员会13日与阿联酋AIM全球基金会签署合作备忘录，宣布今年将推动中国与中东投资对接会在天河CBD举办，标志着阿联酋国际投资峰会(AIM Congress)首次落地粤港澳大湾区。阿联酋AIM全球基金会主席达伍德表示，广州与阿联酋经贸往来密切，广州作为中国南方经济中心与大湾区核心引擎，在金
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师近日再次收到一批胜诉判决，此前也有部分投资者顺利获赔。
+中新网广州4月14日电 (记者 王坚)据广州市天河区政府14日消息，广州市天河中央商务区管理委员会13日与阿联酋AIM全球基金会签署合作备忘录，宣布今年将推动中国与中东投资对接会在天河CBD举办，标志着阿联酋国际投资峰会(AIM Congress)首次落地粤港澳大湾区。
 
-（刘鹏律师专栏） 针对龙宇股份的索赔区间为于2020年4月28日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损的即符合要求。
+阿联酋AIM全球基金会主席达伍德表示，广州与阿联酋经贸往来密切，广州作为中国南方经济中心与大湾区核心引擎，在金融、科技、数字经济等领域动能强劲。
 
-（*ST龙宇维权入口） 投资者可获赔的范围为根据相关法律法规信息披露义务人在证券交易市场承担民事赔偿责任的范围，以原告因虚假陈述而实际发生的损失为限。
+峰会首进大湾区并选择天河CBD，是对其国际影响力的高度认可。
 
-原告实际损失包括：投资差额损失、投资差额损失部分的佣金和印花税。
+基金会将与天河CBD深化协作，搭建投资对话桥梁，推动双方在可持续发展、创新驱动、跨境投资等领域实现互利共赢。
 
-回溯本案，经查明，涉嫌违法的事实如下： 一是2019-2022年虚构贸易链条进行虚假贸易，致四年年报虚假记载，累计虚增营收超145亿元； 二是实控人徐某2021年6月起控制13家关联公司，2022-2024年通过关联交易形成非经营性资金占用，年末余额从3.33亿元增至8.82亿元，相关关联交易及资金占用未按规定披露。
+根据备忘录，双方将聚焦金融服务、科技创新、数字经济、现代服务业及总部经济等重点领域，开展系列化、品牌化、常态化投资促进活动，并建立长效合作机制，通过互访交流、联合办展、企业对接等形式，持续拓展合作深度与广度。
 
-值得注意的是该公司已被上交所终止上市，但不影响投资者维权事宜。
-
-此次胜诉是针对公司此前收到的《行政监管措施决定书》。
-
-值得注意的是，该公司收到的行政监管措施决定的内容与行政处罚内容一致。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 07:31 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 07:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 07:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 07:31 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 07:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 07:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 07:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 07:41 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 07:43 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 07:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 07:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 07:38 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 07:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 07:49 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 07:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 07:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 07:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 07:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 07:26 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 07:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 07:49 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 07:45 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 07:41 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/01807.shtml)
-- 2026-06-30 07:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/14737854443.shtml)
-- 2026-06-30 07:46 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/94128698.shtml)
-- 2026-06-30 07:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/2772072.shtml)
-- 2026-06-30 07:40 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/681923.shtml)
-- 2026-06-30 07:19 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/01460283087.shtml)
-- 2026-06-30 07:42 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/94440.shtml)
-- 2026-06-30 07:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/0524599.shtml)
-- 2026-06-30 07:28 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/27010018530.shtml)
-- 2026-06-30 07:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/48294489.shtml)
-- 2026-06-30 07:32 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6995839710.shtml)
-- 2026-06-30 07:39 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/9965055704.shtml)
-- 2026-06-30 07:36 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/111769153734.shtml)
-- 2026-06-30 07:40 - [恋与深空回应争议](http://www.share.minike.top/Article/details/264973.shtml)
-- 2026-06-30 07:33 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/017508.shtml)
+- 2026-06-30 07:29 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/71334904118.shtml)
+- 2026-06-30 07:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/489732437.shtml)
+- 2026-06-30 07:26 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/923641.shtml)
+- 2026-06-30 07:50 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/5267931551.shtml)
+- 2026-06-30 07:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/70536.shtml)
+- 2026-06-30 07:46 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/745410334065.shtml)
+- 2026-06-30 07:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/32593129.shtml)
+- 2026-06-30 07:31 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/377506302.shtml)
+- 2026-06-30 07:48 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/86330713240.shtml)
+- 2026-06-30 07:24 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/512463.shtml)
+- 2026-06-30 07:40 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/06953.shtml)
+- 2026-06-30 07:28 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/007349.shtml)
+- 2026-06-30 07:31 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/6160849188.shtml)
+- 2026-06-30 07:43 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/9663012.shtml)
+- 2026-06-30 07:40 - [女心理师](http://www.share.minike.top/Article/details/7174896.shtml)

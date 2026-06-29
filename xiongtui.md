@@ -1,60 +1,54 @@
-# 新案未平又掀旧账，黑芝麻再收执行裁定书
+# 8颗卫星顺利升空 “吉林一号”星座持续扩容
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 老牌食品企业黑芝麻（维权）（000716）再添司法新动态。 近日，公司发布公告称，收到南宁市邕宁区人民法院出具的《执行裁定书》，涉及6553万元PPP项目担保纠纷案件终结本次执行程序。作为被执行人之一的黑芝麻，再度被推至市场舆论中心。 据公
+中新网长春4月14日电 (记者 郭佳)长光卫星技术股份有限公司(以下简称“长光卫星”)14日发布消息，“邮储银行号”卫星、“吉星”高分07A02星、“吉星”高分07A04星、“吉星”高分07B02-04星、“吉星”高分07C02-03星共8颗卫星当日在东风商业航天创新试验区发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 “邮储银行号”卫星(“吉星”高分07A03星)是长
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网长春4月14日电 (记者 郭佳)长光卫星技术股份有限公司(以下简称“长光卫星”)14日发布消息，“邮储银行号”卫星、“吉星”高分07A02星、“吉星”高分07A04星、“吉星”高分07B02-04星、“吉星”高分07C02-03星共8颗卫星当日在东风商业航天创新试验区发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-来源：国际金融报 老牌食品企业黑芝麻（维权）（000716）再添司法新动态。
+“邮储银行号”卫星(“吉星”高分07A03星)是长光卫星与中国邮政储蓄银行联合打造的高精度、高分辨光学遥感卫星。
 
-近日，公司发布公告称，收到南宁市邕宁区人民法院出具的《执行裁定书》，涉及6553万元PPP项目担保纠纷案件终结本次执行程序。
+作为双方深化银企合作、探索“金融+航天”跨界融合新模式的重要里程碑，该卫星将推动国产卫星遥感数据在境外工程、储备林、高标准农田、新能源等金融场景的深度应用，为信贷决策与风险管理提供客观高效的数据支撑，助力邮储银行提升信贷服务质效、强化数字金融能力。
 
-作为被执行人之一的黑芝麻，再度被推至市场舆论中心。
+“吉星”高分07系列卫星作为长光卫星研发的新型业务卫星，可适应热点成像、立体成像、空间目标成像等多类型任务的快速响应需求。
 
-据公告披露，本次执行案件源自2020年南宁儿童医院PPP项目融资旧账。
+该系列卫星基于星载深度融合理念研制，图像产品的定位精度和几何质量得到大幅提升，同时具备自主任务规划和AI算法在轨更新能力，可获取分辨率优于0.5m的高清影像，具有“稳定、可靠、智能”的特点。
 
-彼时，南宁市儿童医院建设运营管理有限公司因项目建设需要向银行融资，黑芝麻以持有的广西广投国医投资有限公司36.41%、对应出资额6553万元的股权为该笔贷款提供质押担保。
+长光卫星是中国第一家商业遥感卫星公司，“吉林一号”卫星星座是其建设并运营管理的核心工程，此次任务是“吉林一号”卫星工程的第35次发射。
 
-后续项目方出现贷款违约，相关纠纷进入司法程序，终审判决认定黑芝麻需对项目方不能清偿部分的二分之一承担赔偿责任，公司由此成为被执行人之一。
-
-针对本次涉诉事项，黑芝麻股东黑五类集团已向公司作出兜底承诺：“若公司因该事项造成的损失均由其承担”；黑五类集团已于2024年将6553万元的承诺保证金转付至公司银行账户，作为其前述兜底承诺的履约保证金。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 07:37 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 07:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 07:32 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 07:26 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 07:36 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 07:29 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 07:45 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 07:36 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 07:42 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 07:44 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 07:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 07:33 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 07:47 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 07:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:47 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 07:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 07:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:52 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 07:24 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 07:43 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 07:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/414639.shtml)
-- 2026-06-30 07:19 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/422745848391.shtml)
-- 2026-06-30 07:39 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/865096092922.shtml)
-- 2026-06-30 07:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/670160637350.shtml)
-- 2026-06-30 07:22 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/51165439711.shtml)
-- 2026-06-30 07:36 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/75821.shtml)
-- 2026-06-30 07:40 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/427657.shtml)
-- 2026-06-30 07:40 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/49305781975.shtml)
-- 2026-06-30 07:26 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6443586155.shtml)
-- 2026-06-30 07:38 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/175805902762.shtml)
-- 2026-06-30 07:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/48003425436.shtml)
-- 2026-06-30 07:26 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/1768438.shtml)
-- 2026-06-30 07:32 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/430937897327.shtml)
-- 2026-06-30 07:22 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/77031.shtml)
-- 2026-06-30 07:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/8759649.shtml)
+- 2026-06-30 07:27 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/44789276.shtml)
+- 2026-06-30 07:26 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/044133.shtml)
+- 2026-06-30 07:32 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/94494272.shtml)
+- 2026-06-30 07:24 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/189442335327.shtml)
+- 2026-06-30 07:32 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/49103.shtml)
+- 2026-06-30 07:47 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/848239656.shtml)
+- 2026-06-30 07:30 - [速度与激情9](https://www.blog.minike.top/Article/details/62464501706.shtml)
+- 2026-06-30 07:42 - [田中碧失误](http://www.share.minike.top/Article/details/42761083700.shtml)
+- 2026-06-30 07:30 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/5815772571.shtml)
+- 2026-06-30 07:39 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/050033019821.shtml)
+- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/964659.shtml)
+- 2026-06-30 07:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/72184423845.shtml)
+- 2026-06-30 07:43 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/8377214.shtml)
+- 2026-06-30 07:24 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/3797996.shtml)
+- 2026-06-30 07:40 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/480475904.shtml)

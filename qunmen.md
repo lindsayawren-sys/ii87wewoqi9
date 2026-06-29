@@ -1,61 +1,59 @@
-# 沃什宣誓就任美联储主席 面临通胀挑战
+# 津巴布韦锂精矿出口松动？龙头独家回应：已获20万吨配额
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-凯文·沃什22日在美国白宫举行的仪式上宣誓就任美国联邦储备委员会主席。沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型。美国总统特朗普在沃什就职仪式上说，他想要沃什“完全独立”，不看他或其他人态度行事，只管做好自己的事。市场分析人士认为，沃什就任后将面临美国经济持续通胀的挑战，美联储近期再次降息难度加大并可能转而加息。芝加
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，锂矿板块震荡走高，盛新锂能、大中矿业等多股收盘涨停，天华新能涨17.42%。 消息面上，津巴布韦政府对锂精矿出口已有所松动，多家中企获得出口配额。 对此，中国证券报记者求证中矿资源、盛新锂能、华友钴业等公司。 中矿资源相关负责人表示：“确有此事，我们获得了20万吨的配额，与公司在当地每个月的产量
 
 ## 正文
 
-凯文·沃什22日在美国白宫举行的仪式上宣誓就任美国联邦储备委员会主席。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型。
+4月13日，锂矿板块震荡走高，盛新锂能、大中矿业等多股收盘涨停，天华新能涨17.42%。
 
-美国总统特朗普在沃什就职仪式上说，他想要沃什“完全独立”，不看他或其他人态度行事，只管做好自己的事。
+消息面上，津巴布韦政府对锂精矿出口已有所松动，多家中企获得出口配额。
 
-市场分析人士认为，沃什就任后将面临美国经济持续通胀的挑战，美联储近期再次降息难度加大并可能转而加息。
+对此，中国证券报记者求证中矿资源、盛新锂能、华友钴业等公司。
 
-芝加哥商品交易所美联储观察工具显示，截至当天中午，市场认为美联储到今年12月议息会议时至少加息一次的概率为70%。
+中矿资源相关负责人表示：“确有此事，我们获得了20万吨的配额，与公司在当地每个月的产量差不多。
 
-沃什出生于1970年，2006年至2011年曾担任美联储理事。
+” 盛新锂能相关负责人表示：“公司获得了津巴布韦锂精矿的出口配额，我们在当地锂精矿的年产能大概为29万吨，津巴布韦政府给的配额可以满足我们生产使用。
 
-沃什近年来对美联储持批评态度，主张调整美联储沟通策略和通胀衡量指标。
+” 日前，盛新锂能在业绩说明会上表示，公司津巴布韦萨比星矿山产能约占公司2026年锂盐所需锂矿原料的1/3左右。
 
-特朗普1月30日宣布，提名沃什为美联储下任主席，接替杰罗姆·鲍威尔。
+华友钴业表示，目前没有收到津巴布韦政府发布的相关通知，要以官方通知为准。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 07:24 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 07:26 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 07:23 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 07:25 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 07:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 07:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 07:44 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 07:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 07:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 07:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 07:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:30 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:48 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 07:42 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 07:39 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 07:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 07:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 07:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 07:31 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 07:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 07:52 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 07:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 07:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:45 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/5659359627.shtml)
-- 2026-06-30 07:32 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/8465212093.shtml)
-- 2026-06-30 07:39 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/67190653.shtml)
-- 2026-06-30 07:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/5193478740.shtml)
-- 2026-06-30 07:32 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/441674707294.shtml)
-- 2026-06-30 07:19 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/03556476599.shtml)
-- 2026-06-30 07:24 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/41077.shtml)
-- 2026-06-30 07:45 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/45297367.shtml)
-- 2026-06-30 07:36 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/9256813.shtml)
-- 2026-06-30 07:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/969700797977.shtml)
-- 2026-06-30 07:27 - [周生如故](https://www.share.kurohicncr.top/Article/details/9781060.shtml)
-- 2026-06-30 07:33 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/7715976045.shtml)
-- 2026-06-30 07:25 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/58528.shtml)
-- 2026-06-30 07:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/788190258.shtml)
-- 2026-06-30 07:45 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/926249110759.shtml)
+- 2026-06-30 07:42 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/8145624484.shtml)
+- 2026-06-30 07:39 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/853148789700.shtml)
+- 2026-06-30 07:47 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/65442453.shtml)
+- 2026-06-30 07:51 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/926469793.shtml)
+- 2026-06-30 07:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/943945.shtml)
+- 2026-06-30 07:39 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/7276177.shtml)
+- 2026-06-30 07:51 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/0264971.shtml)
+- 2026-06-30 07:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/6723230.shtml)
+- 2026-06-30 07:39 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/146433658732.shtml)
+- 2026-06-30 07:42 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/176749.shtml)
+- 2026-06-30 07:48 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/671860236.shtml)
+- 2026-06-30 07:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/58475.shtml)
+- 2026-06-30 07:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/2366170.shtml)
+- 2026-06-30 07:39 - [齐思钧回复张月](http://www.share.minike.top/Article/details/14058.shtml)
+- 2026-06-30 07:51 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/42627686.shtml)

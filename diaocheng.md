@@ -1,59 +1,44 @@
-# 英飞拓索赔已有股民获赔，符合要求还可加入
+# 4月14日央行开展10亿元7天期逆回购操作
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师团队近日再次递交部分案件至法院立案。回溯本案，2023年12月28日，英飞拓曾收到深圳证监局送达的《行政监管措施决定书》。据监管调查，英飞拓的问题主要集中在2019年至2020年的财务数据。（刘鹏律师专栏） 公司部分收入核算与业务基础不匹配，2020年存在部分应收账款虚构收回的情形。公司于2024年4月
+中新网4月14日电 据央行网站消息，2026年4月14日中国人民银行以固定利率、数量招标方式开展了10亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师团队近日再次递交部分案件至法院立案。
+中新网4月14日电 据央行网站消息，2026年4月14日中国人民银行以固定利率、数量招标方式开展了10亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-回溯本案，2023年12月28日，英飞拓曾收到深圳证监局送达的《行政监管措施决定书》。
-
-据监管调查，英飞拓的问题主要集中在2019年至2020年的财务数据。
-
-（刘鹏律师专栏） 公司部分收入核算与业务基础不匹配，2020年存在部分应收账款虚构收回的情形。
-
-公司于2024年4月30日发布公告，对2019年至2022年的财务报表进行了会计差错更正及追溯调整。
-
-针对该会计差错引发的投资者索赔也已获得一审胜诉判决，已有部分投资者获赔。
-
-依据判决符合于2020年4月30日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损的还可加入。
-
-（ST英飞拓维权入口） 不过公司还于2025年1月25日因涉嫌信息披露违法违规，被证监会立案调查。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 07:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 07:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 07:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 07:35 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 07:45 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 07:23 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 07:24 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 07:28 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 07:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 07:20 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 07:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 07:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 07:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 07:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 07:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 07:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 07:41 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 07:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 07:51 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 07:52 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0915914458.shtml)
-- 2026-06-30 07:33 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/8954853333.shtml)
-- 2026-06-30 07:47 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/30628262.shtml)
-- 2026-06-30 07:44 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/366206523310.shtml)
-- 2026-06-30 07:44 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/01582044526.shtml)
-- 2026-06-30 07:31 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/2817057965.shtml)
-- 2026-06-30 07:34 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/2845251.shtml)
-- 2026-06-30 07:41 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/85378573878.shtml)
-- 2026-06-30 07:40 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/020665804.shtml)
-- 2026-06-30 07:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/4121366.shtml)
-- 2026-06-30 07:38 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/8753518077.shtml)
-- 2026-06-30 07:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/595040.shtml)
-- 2026-06-30 07:25 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/7109472058.shtml)
-- 2026-06-30 07:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/272339718.shtml)
-- 2026-06-30 07:25 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/100231.shtml)
+- 2026-06-30 07:26 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/9312865.shtml)
+- 2026-06-30 07:53 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/95706787.shtml)
+- 2026-06-30 07:40 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/142695.shtml)
+- 2026-06-30 07:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/947531970.shtml)
+- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/339439375.shtml)
+- 2026-06-30 07:52 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/490563141831.shtml)
+- 2026-06-30 07:42 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/27822220.shtml)
+- 2026-06-30 07:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/771995075128.shtml)
+- 2026-06-30 07:50 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/269860135.shtml)
+- 2026-06-30 07:34 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/87316.shtml)
+- 2026-06-30 07:52 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/683740240.shtml)
+- 2026-06-30 07:42 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/994648089395.shtml)
+- 2026-06-30 07:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/745053024987.shtml)
+- 2026-06-30 07:43 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/71910925460.shtml)
+- 2026-06-30 07:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/64971110230.shtml)

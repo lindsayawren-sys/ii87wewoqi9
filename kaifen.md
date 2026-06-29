@@ -1,49 +1,55 @@
-# 李家超回应黎家盈入选神23乘组
+# 施罗德CEO：若油价保持在100美元以下，经济增长势头就能持续
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中国载人航天工程办公室今日(五月二十三日)公布神舟二十三号飞行乘组成员，当中包括来自香港特别行政区(特区)的载荷专家黎家盈博士。香港特区行政长官李家超感谢国家对香港特区的支持和信任，同时祝贺黎家盈博士通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量。李家超预祝神舟二十三号飞行任务圆满成功。(记者 邱兆翔)
+施罗德首席执行官 理查德·奥尔德菲尔德表示，只要油价保持在每桶100美元以下，经济增长预计就能持续。 “毫无疑问，油价很可能会超过每桶80美元，但我认为只要油价保持在每桶100美元以下，我们就有可能看到油价继续上涨，”他在接受采访时表示。 奥尔德菲尔德还表示，油价长期超过每桶100美元“显然会造成损害”。 奥尔德菲尔德表示，目前的原油期货价格阶梯尚未反映出未来12个月市场前景中
 
 ## 正文
 
-中国载人航天工程办公室今日(五月二十三日)公布神舟二十三号飞行乘组成员，当中包括来自香港特别行政区(特区)的载荷专家黎家盈博士。
+施罗德首席执行官 理查德·奥尔德菲尔德表示，只要油价保持在每桶100美元以下，经济增长预计就能持续。
 
-香港特区行政长官李家超感谢国家对香港特区的支持和信任，同时祝贺黎家盈博士通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量。
+“毫无疑问，油价很可能会超过每桶80美元，但我认为只要油价保持在每桶100美元以下，我们就有可能看到油价继续上涨，”他在接受采访时表示。
 
-李家超预祝神舟二十三号飞行任务圆满成功。
+奥尔德菲尔德还表示，油价长期超过每桶100美元“显然会造成损害”。
 
-(记者 邱兆翔)
+奥尔德菲尔德表示，目前的原油期货价格阶梯尚未反映出未来12个月市场前景中任何长期市场动荡的预期。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 07:30 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 07:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 07:44 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 07:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 07:23 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 07:37 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 07:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 07:29 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 07:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 07:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 07:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 07:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 07:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 07:39 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 07:24 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 07:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 07:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 07:50 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 07:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 07:28 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 07:37 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:49 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 07:53 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:41 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 07:34 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:30 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/9948624.shtml)
-- 2026-06-30 07:39 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/927503.shtml)
-- 2026-06-30 07:47 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/393887654729.shtml)
-- 2026-06-30 07:28 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/408746.shtml)
-- 2026-06-30 07:33 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/905123085.shtml)
-- 2026-06-30 07:26 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/90403.shtml)
-- 2026-06-30 07:20 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/34608.shtml)
-- 2026-06-30 07:39 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/7905773.shtml)
-- 2026-06-30 07:27 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/88473228.shtml)
-- 2026-06-30 07:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/1692192662.shtml)
-- 2026-06-30 07:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/696828273.shtml)
-- 2026-06-30 07:44 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/81980.shtml)
-- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/99137049.shtml)
-- 2026-06-30 07:21 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/964386922570.shtml)
-- 2026-06-30 07:39 - [张凌赫 客串](http://www.share.minike.top/Article/details/870235851.shtml)
+- 2026-06-30 07:25 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/3533189477.shtml)
+- 2026-06-30 07:26 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/54102591825.shtml)
+- 2026-06-30 07:49 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/625060914315.shtml)
+- 2026-06-30 07:45 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/56424686.shtml)
+- 2026-06-30 07:27 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/0113428.shtml)
+- 2026-06-30 07:40 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/829537123671.shtml)
+- 2026-06-30 07:44 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/128702698955.shtml)
+- 2026-06-30 07:50 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/9798300876.shtml)
+- 2026-06-30 07:41 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/45061348.shtml)
+- 2026-06-30 07:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/44013.shtml)
+- 2026-06-30 07:53 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/20606918434.shtml)
+- 2026-06-30 07:27 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/6179305.shtml)
+- 2026-06-30 07:43 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/4047929.shtml)
+- 2026-06-30 07:44 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/66241329.shtml)
+- 2026-06-30 07:50 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/126987.shtml)

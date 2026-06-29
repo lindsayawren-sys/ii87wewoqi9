@@ -1,50 +1,59 @@
-# 中国与巴布亚新几内亚签署协定 提升经济伙伴关系
+# 美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-记者从商务部了解到，5月21日，中国与巴布亚新几内亚签署《提升经济伙伴关系框架协定》并发表联合声明。 根据《框架协定》，双方同意围绕具体议题开展灵活务实的谈判，商签制度性安排，进一步扩大双边贸易，并支持巴布亚新几内亚吸引投资，加快实现工业化和农业现代化，深度参与全球产业链供应链合作。双方将尽快启动后续模块谈判，以期达成互利共赢成果。(央视新闻客户端)
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。 美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。 加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。随着所谓的‘封锁
 
 ## 正文
 
-记者从商务部了解到，5月21日，中国与巴布亚新几内亚签署《提升经济伙伴关系框架协定》并发表联合声明。
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。
 
-根据《框架协定》，双方同意围绕具体议题开展灵活务实的谈判，商签制度性安排，进一步扩大双边贸易，并支持巴布亚新几内亚吸引投资，加快实现工业化和农业现代化，深度参与全球产业链供应链合作。
+美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。
 
-双方将尽快启动后续模块谈判，以期达成互利共赢成果。
+加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。
 
-(央视新闻客户端)
+随着所谓的‘封锁’，很快你们就会怀念 4-5 美元（每加仑）的汽油了。
+
+” 他还使用了“ΔO_BSOH>0 ⇒ f（f（O））>f（O）”这种符号，这是一种网络迷因式的数学简写，暗示封锁海峡造成的石油冲击会像滚雪球一样越滚越大，而不是像以往那样出现一次性的暴涨。
+
+在特朗普表示美国将采取行动封锁与伊朗相关的船只通行，加利巴夫发表了上述言论。
+
+此前，美国副总统万斯警告称谈判已经失败，而美伊谈判代表离开伊斯兰堡时，并未就伊朗核计划和霍尔木兹海峡问题达成协议。
+
+美国汽车协会（AAA）公布的数据显示，截至4月12日，美国普通汽油的平均价格为每加仑4.125美元，其中加州为每加仑5.894美元，华盛顿州为每加仑5.390美元，而俄勒冈州和内华达州的价格则略低于每加仑5美元。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 07:46 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 07:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 07:33 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 07:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 07:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:18 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 07:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 07:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 07:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 07:29 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 07:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 07:30 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 07:26 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 07:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 07:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 07:29 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 07:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 07:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 07:36 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 07:35 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:50 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/099550934313.shtml)
-- 2026-06-30 07:27 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/66973601793.shtml)
-- 2026-06-30 07:46 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/317597030258.shtml)
-- 2026-06-30 07:20 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/09440799680.shtml)
-- 2026-06-30 07:46 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/41199435186.shtml)
-- 2026-06-30 07:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/18512200998.shtml)
-- 2026-06-30 07:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/93453192.shtml)
-- 2026-06-30 07:41 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/941136.shtml)
-- 2026-06-30 07:37 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/54005560681.shtml)
-- 2026-06-30 07:19 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/95636423296.shtml)
-- 2026-06-30 07:22 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/02002503.shtml)
-- 2026-06-30 07:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/51117561.shtml)
-- 2026-06-30 07:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/70783.shtml)
-- 2026-06-30 07:26 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/751500120397.shtml)
-- 2026-06-30 07:26 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/786783.shtml)
+- 2026-06-30 07:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/3200121638.shtml)
+- 2026-06-30 07:24 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/44988210256.shtml)
+- 2026-06-30 07:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/89614.shtml)
+- 2026-06-30 07:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/20536.shtml)
+- 2026-06-30 07:49 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/652339586.shtml)
+- 2026-06-30 07:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/2245995781.shtml)
+- 2026-06-30 07:29 - [沙丘](https://www.blog.minike.top/Article/details/34721254725.shtml)
+- 2026-06-30 07:50 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/01793911173.shtml)
+- 2026-06-30 07:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/7488395.shtml)
+- 2026-06-30 07:25 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/1755483368.shtml)
+- 2026-06-30 07:49 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/29956880.shtml)
+- 2026-06-30 07:53 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/71314879.shtml)
+- 2026-06-30 07:37 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/5457376.shtml)
+- 2026-06-30 07:39 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/7039316.shtml)
+- 2026-06-30 07:46 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/46283.shtml)

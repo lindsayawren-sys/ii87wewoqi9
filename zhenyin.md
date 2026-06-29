@@ -1,57 +1,59 @@
-# 英国4月借款规模达243亿英镑，超出预期
+# 远程办公和价格上涨推动美国家庭咖啡消费量达到14年来最高水平
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-英国4月政府借款规模达243亿英镑，超出市场预期，创下2020年以来财年开局最差纪录。正值斯塔默身陷执政危机之际，该数据凸显出英国财政面临巨大压力。 英国国家统计局周五公布的数据显示，当月借款额较去年同期高出49亿英镑，也高于财政预算责任办公室预估的209亿英镑。 另有数据显示，受中东冲突引发能源冲击、居民消费意愿下滑影响，英国4月零售销售额大跌1.3%，跌幅超出预期，首相府面
+根据行业数据和分析师的说法，远程办公和节省开支的需求导致美国家庭咖啡消费量增加，这与新冠疫情前咖啡馆咖啡消费量增加的趋势形成了鲜明的反差。 美国全国咖啡协会周二发布的一项调查显示，在过去一天喝过咖啡的美国人中，85%的人是在家饮用的，这是自 2012 年以来的最高比例。 调查还显示，在表示会在家外喝咖啡的人群中，大多数人表示是在办公室或路上（驾车取餐）喝，只有一小部分人表示会走
 
 ## 正文
 
-英国4月政府借款规模达243亿英镑，超出市场预期，创下2020年以来财年开局最差纪录。
+根据行业数据和分析师的说法，远程办公和节省开支的需求导致美国家庭咖啡消费量增加，这与新冠疫情前咖啡馆咖啡消费量增加的趋势形成了鲜明的反差。
 
-正值斯塔默身陷执政危机之际，该数据凸显出英国财政面临巨大压力。
+美国全国咖啡协会周二发布的一项调查显示，在过去一天喝过咖啡的美国人中，85%的人是在家饮用的，这是自 2012 年以来的最高比例。
 
-英国国家统计局周五公布的数据显示，当月借款额较去年同期高出49亿英镑，也高于财政预算责任办公室预估的209亿英镑。
+调查还显示，在表示会在家外喝咖啡的人群中，大多数人表示是在办公室或路上（驾车取餐）喝，只有一小部分人表示会走进咖啡店。
 
-另有数据显示，受中东冲突引发能源冲击、居民消费意愿下滑影响，英国4月零售销售额大跌1.3%，跌幅超出预期，首相府面临的经济困境进一步加剧。
+雀巢前高管、现任咖啡行业顾问格尔德·穆勒-普费弗表示，通勤减少的混合生活方式以及部分人群面临的经济压力是推动家庭咖啡消费量增长的两大主要因素。
 
-执政党工党内部动荡不安，债券投资者对此忧心忡忡，担忧领导层更迭会推高财政支出，进而抬升政府借贷成本，惨淡经济数据加剧了市场不安情绪。
+由于主要生产国的产量下降，美国咖啡价格在去年底创下历史新高，目前仍处于历史高位。
 
-资本经济学咨询公司经济学家鲁思・格雷戈里表示：“零售销量下滑、政府借款超标，意味着经济增长前景走弱，财政基础愈发脆弱，无论谁执掌首相府都将直面这些难题。
+穆勒-普费弗表示，美国家庭咖啡消费量增加的第三个因素是设备质量。
 
-” 自2月末中东冲突爆发以来，英国借贷成本大幅攀升。
+“家用咖啡机现在能提供接近餐厅品质的咖啡，”他说。
 
-交易押注英国央行或将加息，以此应对通胀冲击。
+尽管美国（全球最大的咖啡市场）的咖啡消费方式发生了变化，但美国全国咖啡协会的调查显示，过去一天喝过咖啡的人数比例稳定在66%，高于包括瓶装水在内的任何其他饮料。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 07:36 - [森保一 保守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 07:19 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 07:47 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 07:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:46 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 07:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 07:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 07:25 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 07:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 07:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 07:24 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:46 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 07:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 07:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 07:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 07:46 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 07:45 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 07:37 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 07:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 07:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 07:24 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:22 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/0145944.shtml)
-- 2026-06-30 07:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/86669374.shtml)
-- 2026-06-30 07:34 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/26613.shtml)
-- 2026-06-30 07:31 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/391879028.shtml)
-- 2026-06-30 07:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/10495870.shtml)
-- 2026-06-30 07:36 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/22911.shtml)
-- 2026-06-30 07:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/608512225326.shtml)
-- 2026-06-30 07:26 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/4064025.shtml)
-- 2026-06-30 07:38 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/4128198.shtml)
-- 2026-06-30 07:34 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/54448754.shtml)
-- 2026-06-30 07:19 - [千与千寻](https://www.share.kurohicncr.top/Article/details/93091278191.shtml)
-- 2026-06-30 07:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/296157.shtml)
-- 2026-06-30 07:38 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/07469.shtml)
-- 2026-06-30 07:45 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/991678.shtml)
-- 2026-06-30 07:23 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0562567.shtml)
+- 2026-06-30 07:48 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/8123451.shtml)
+- 2026-06-30 07:34 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/61426891.shtml)
+- 2026-06-30 07:27 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/11944472727.shtml)
+- 2026-06-30 07:36 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/158150769183.shtml)
+- 2026-06-30 07:46 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/52002.shtml)
+- 2026-06-30 07:49 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/841066518.shtml)
+- 2026-06-30 07:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/20761131.shtml)
+- 2026-06-30 07:34 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/8279888444.shtml)
+- 2026-06-30 07:39 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/665202.shtml)
+- 2026-06-30 07:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/6861819.shtml)
+- 2026-06-30 07:25 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/341259419062.shtml)
+- 2026-06-30 07:51 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/02938.shtml)
+- 2026-06-30 07:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/56243820.shtml)
+- 2026-06-30 07:53 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/21670308534.shtml)
+- 2026-06-30 07:33 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/2773781.shtml)

@@ -1,59 +1,56 @@
-# 16国友城青年企业家“研学云南” 共话合作新机遇
+# 国家安全“大事”，跟普通人有什么关系？
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月22日电 题：16国友城青年企业家“研学云南” 共话合作新机遇 作者 陆希成 为期4天的2026“友城同心·研学云南”暨国际友城青年企业家面对面活动22日在云南落下帷幕。来自美国、法国、俄罗斯、马来西亚、泰国、尼泊尔等16个国家的30余名青年企业家，与友城青年、留学生等共500余人，参访该省产业一线、品鉴非遗、共话合作机遇。 5月19日至22日，青年们先后赴云南昆
+国家安全“大事”，跟普通人有什么关系？(读者点题·共同关注) 最近，在很多场所看到4月15日“全民国家安全教育日”的海报，国家安全的“大事”，跟普通人有什么关系？ ——人民网网友 一提到国家安全，很多人往往会想到军事装备、外交斡旋、反间谍等，觉得这些事是专门机关的职责，离自己很远。实际上，国家安全的内涵和外延已大大拓展。随着技术变革和生产生活方式变化，安全需求提高，生态、网络、
 
 ## 正文
 
-中新网昆明5月22日电 题：16国友城青年企业家“研学云南” 共话合作新机遇 作者 陆希成 为期4天的2026“友城同心·研学云南”暨国际友城青年企业家面对面活动22日在云南落下帷幕。
+国家安全“大事”，跟普通人有什么关系？
 
-来自美国、法国、俄罗斯、马来西亚、泰国、尼泊尔等16个国家的30余名青年企业家，与友城青年、留学生等共500余人，参访该省产业一线、品鉴非遗、共话合作机遇。
+(读者点题·共同关注) 最近，在很多场所看到4月15日“全民国家安全教育日”的海报，国家安全的“大事”，跟普通人有什么关系？
 
-5月19日至22日，青年们先后赴云南昆明、玉溪、楚雄等州(市)，深入产业一线考察调研，探寻高原特色现代农业发展路径，感受绿色能源、生物制药等产业的创新活力，体验非遗的独特魅力，并围绕共建“一带一路”青年新机遇、中老铁路黄金大通道、生物多样性与绿色可持续发展、AI赋能与青年创业等议题展开对话。
+——人民网网友 一提到国家安全，很多人往往会想到军事装备、外交斡旋、反间谍等，觉得这些事是专门机关的职责，离自己很远。
 
-在云南财经大学攻读项目管理专业期间，尼泊尔马卡鲁集团首席技术官夏星云便持续关注中尼两国产业互通的可能性，尤为看重云南在绿色能源领域的实践经验对尼泊尔水电产业的借鉴价值。
+实际上，国家安全的内涵和外延已大大拓展。
 
-此次走进玉溪绿色能源企业实地考察，进一步坚定了他对合作前景的信心。
+随着技术变革和生产生活方式变化，安全需求提高，生态、网络、人工智能、数据等方面的安全已经融入生活的方方面面。
 
-“中国创新发展的磅礴实力、全产业链的高新布局令人惊叹，云南蕴藏着无限发展机遇和巨大合作潜力。
+举几个例子：随意点击的陌生网络链接，可能成为境外黑客攻击的入口；私自从境外带回的水果蔬菜、动物标本，可能威胁国家生态安全；手机随意拍摄的敏感场景，可能成为泄露国家秘密的“定时炸弹”；社交网络上的“高薪兼职”诱惑，可能隐藏着间谍活动的陷阱…… 这些并非耸人听闻，而是有活生生的警示案例，有人为此栽跟头、铸大错，悔之晚矣。
 
-”夏星云说。
+进一步说，一碗热腾腾的米饭，来自国家粮食安全的支撑；深夜能安心出门吃夜宵，背后是社会安全的有力保障…… 国家安全的“大事”，和普通人紧密相连，它就在我们身边，就在日常生活的每一天。
 
-2025年缅甸7.9级地震发生后，中国多地民间救援队伍自发跨境驰援的画面，让缅甸青年创业者莫君燕深感“民间外交”的善意与温度。
+2014年4月15日，习近平总书记创造性提出总体国家安全观，“总体”强调的就是“大安全”理念，即贯通发展和安全、国家安全和社会稳定、国内和国际、顶层和基层、传统安全和非传统安全，实现国家安全全覆盖。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 07:27 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 07:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 07:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 07:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 07:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:42 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 07:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 07:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 07:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:20 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 07:44 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 07:52 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 07:53 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 07:28 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 07:49 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 07:47 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 07:38 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 07:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 07:44 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 07:26 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/38380808.shtml)
-- 2026-06-30 07:23 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/26052.shtml)
-- 2026-06-30 07:27 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/576471467.shtml)
-- 2026-06-30 07:32 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/6878257511.shtml)
-- 2026-06-30 07:20 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/673414934.shtml)
-- 2026-06-30 07:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/130960787.shtml)
-- 2026-06-30 07:42 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/256074764.shtml)
-- 2026-06-30 07:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/617944630717.shtml)
-- 2026-06-30 07:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/414800195.shtml)
-- 2026-06-30 07:24 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/26250586.shtml)
-- 2026-06-30 07:23 - [千与千寻](https://www.share.minike.top/Article/details/135388932.shtml)
-- 2026-06-30 07:20 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/93776604.shtml)
-- 2026-06-30 07:22 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/551997161346.shtml)
-- 2026-06-30 07:26 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/101294.shtml)
-- 2026-06-30 07:36 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/23364435.shtml)
+- 2026-06-30 07:30 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/3684639.shtml)
+- 2026-06-30 07:29 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/63907.shtml)
+- 2026-06-30 07:39 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/5918412.shtml)
+- 2026-06-30 07:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/085437011899.shtml)
+- 2026-06-30 07:39 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/41972.shtml)
+- 2026-06-30 07:50 - [点菜也要教吗](http://www.share.minike.top/Article/details/10407.shtml)
+- 2026-06-30 07:53 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/567379.shtml)
+- 2026-06-30 07:47 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/44886056.shtml)
+- 2026-06-30 07:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/40286675204.shtml)
+- 2026-06-30 07:37 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/5633854801.shtml)
+- 2026-06-30 07:44 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/31235.shtml)
+- 2026-06-30 07:37 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/67643.shtml)
+- 2026-06-30 07:34 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/840618843.shtml)
+- 2026-06-30 07:48 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/483022855235.shtml)
+- 2026-06-30 07:26 - [日本领先巴西](http://www.blog.minike.top/Article/details/126802211.shtml)

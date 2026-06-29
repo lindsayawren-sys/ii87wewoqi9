@@ -1,59 +1,61 @@
-# 李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头雅戈尔走出困局？
+# 最高法：一季度人民法院受理各类案件1060.79万件
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-新京报记者 刘欢 编辑 唐峥 校对 赵琳 原标题：《李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头走出困局？》 雅戈尔正式换帅！中国男装龙头企业雅戈尔时尚股份有限公司（以下简称“雅戈尔”）近日召开股东大会，全票通过李寒穷担任公司董事长、总裁、法定代表人。这意味着，自公司创立之初便掌舵近半个世纪的创始人、75岁的李如成，正式退居二线。雅戈尔这家市值约300亿元的服装巨头，在成立
+中新网4月14日电 据最高人民法院微信公众号消息，4月14日，最高人民法院公布2026年第一季度司法审判工作主要数据。数据显示，第一季度，人民法院受理各类案件1060.79万件。 ——司法审判工作总体情况 受理各类案件1060.79万件，同比略有下降。其中，受理刑事案件、民商事案件数量同比下降，受理行政案件、执行案件数量同比上升。 反映审判质量、效率、效果的多数关键指标同比持续
 
 ## 正文
 
-新京报记者 刘欢 编辑 唐峥 校对 赵琳 原标题：《李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头走出困局？
+中新网4月14日电 据最高人民法院微信公众号消息，4月14日，最高人民法院公布2026年第一季度司法审判工作主要数据。
 
-》 雅戈尔正式换帅！
+数据显示，第一季度，人民法院受理各类案件1060.79万件。
 
-中国男装龙头企业雅戈尔时尚股份有限公司（以下简称“雅戈尔”）近日召开股东大会，全票通过李寒穷担任公司董事长、总裁、法定代表人。
+——司法审判工作总体情况 受理各类案件1060.79万件，同比略有下降。
 
-这意味着，自公司创立之初便掌舵近半个世纪的创始人、75岁的李如成，正式退居二线。
+其中，受理刑事案件、民商事案件数量同比下降，受理行政案件、执行案件数量同比上升。
 
-雅戈尔这家市值约300亿元的服装巨头，在成立47年后，正式进入了“李寒穷时代”。
+反映审判质量、效率、效果的多数关键指标同比持续趋优，其中上诉率、申诉申请再审率同比均下降0.08个百分点。
 
-值得关注的是，从业绩来看，雅戈尔2025年实现营业收入115.82亿元，同比下降18.37%；归母净利润24.47亿元，同比下降11.57%，而雅戈尔的归母净利润已连续5年下滑。
+截至2026年3月底，全国法院两年以上未结诉讼案件数量同比下降8.87%，长期未结诉讼案件清理工作成效明显。
 
-李寒穷能否带领雅戈尔走出困局，成为市场关注的焦点。
+先行调解案件348.29万件，调解成功119.36万件，同比增长205.11%。
 
-李寒穷正式接棒雅戈尔 5月21日，雅戈尔公告称，股东大会选举李寒穷、徐鹏、刘新宇、杨珂、陈育雄等人为非独立董事；选举邱妘、王朝晖、尹小龙为独立董事。
+持续深化多元解纷机制，最高人民法院等20家单位联合出台《关于深化“总对总”多元化纠纷解决机制改革的意见》，推动“总对总”工作高质量发展，“总对总”合作单位调解组织在人民法院指导下先行调解纠纷16.6万件，同比增长13.28%。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 07:46 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 07:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 07:33 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 07:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 07:19 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 07:21 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 07:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 07:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 07:36 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 07:30 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:25 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 07:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 07:50 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 07:42 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 07:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 07:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 07:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 07:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 07:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 07:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 07:24 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 07:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 07:29 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 07:34 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:43 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/230540780.shtml)
-- 2026-06-30 07:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/05132.shtml)
-- 2026-06-30 07:25 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/0171625944.shtml)
-- 2026-06-30 07:35 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/011305885412.shtml)
-- 2026-06-30 07:33 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/21057.shtml)
-- 2026-06-30 07:36 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/0840452632.shtml)
-- 2026-06-30 07:47 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/78248.shtml)
-- 2026-06-30 07:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/327562930.shtml)
-- 2026-06-30 07:37 - [我和我的家乡](http://www.share.minike.top/Article/details/258955430604.shtml)
-- 2026-06-30 07:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/8073439.shtml)
-- 2026-06-30 07:41 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/2758699656.shtml)
-- 2026-06-30 07:36 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/473342.shtml)
-- 2026-06-30 07:27 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/286386453.shtml)
-- 2026-06-30 07:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/79711.shtml)
-- 2026-06-30 07:38 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/594348.shtml)
+- 2026-06-30 07:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/339402167718.shtml)
+- 2026-06-30 07:53 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/7645362479.shtml)
+- 2026-06-30 07:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/367167321.shtml)
+- 2026-06-30 07:47 - [田中碧失误](https://www.blog.minike.top/Article/details/77276.shtml)
+- 2026-06-30 07:35 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/62714453.shtml)
+- 2026-06-30 07:46 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/4179397.shtml)
+- 2026-06-30 07:28 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/392909331538.shtml)
+- 2026-06-30 07:27 - [沙丘](https://www.share.kurohicncr.top/Article/details/866276803402.shtml)
+- 2026-06-30 07:47 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/82121570.shtml)
+- 2026-06-30 07:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/907146.shtml)
+- 2026-06-30 07:27 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/086006.shtml)
+- 2026-06-30 07:24 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/98733.shtml)
+- 2026-06-30 07:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/37192577726.shtml)
+- 2026-06-30 07:45 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/27260945.shtml)
+- 2026-06-30 07:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/74952427243.shtml)

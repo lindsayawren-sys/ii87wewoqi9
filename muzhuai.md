@@ -1,56 +1,44 @@
-# 李寒穷“接棒”雅戈尔，李如成留下多少家底？
+# 拾光纪·习近平会见西班牙首相，这三个关键词值得关注
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。 尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。 5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。与
+发布时间：2026年04月14日 21:33 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。
-
-尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。
-
-而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。
-
-5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。
-
-与很多海外求学归来“空降”的“富二代”不同，李寒穷的接班路，是从基层干起，一步一个脚印“熬”出来的。
-
-如今，49岁的李寒穷正在主导品牌年轻化，努力逆转品牌老化的固有印象。
-
-75岁的李如成也宣告“功成身退”，给闺女留下一个“服装+零售+投资”的商业帝国，包括银泰百货、宁波银行、中信证券等核心资产。
+发布时间：2026年04月14日 21:33 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 07:44 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 07:31 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 07:44 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 07:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 07:25 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 07:37 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 07:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 07:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 07:31 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 07:26 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 07:40 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 07:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 07:33 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 07:27 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 07:27 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 07:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 07:27 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 07:45 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/95240812941.shtml)
-- 2026-06-30 07:40 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/06486099069.shtml)
-- 2026-06-30 07:28 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/1786770926.shtml)
-- 2026-06-30 07:19 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/2828584429.shtml)
-- 2026-06-30 07:41 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/37461831841.shtml)
-- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/47826522015.shtml)
-- 2026-06-30 07:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/5341723.shtml)
-- 2026-06-30 07:40 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/1503365847.shtml)
-- 2026-06-30 07:26 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/785682704.shtml)
-- 2026-06-30 07:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/426246.shtml)
-- 2026-06-30 07:29 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/472543518562.shtml)
-- 2026-06-30 07:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/49967804.shtml)
-- 2026-06-30 07:32 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/55069671.shtml)
-- 2026-06-30 07:34 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/965429.shtml)
-- 2026-06-30 07:33 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/079875372541.shtml)
+- 2026-06-30 07:39 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/4960747999.shtml)
+- 2026-06-30 07:39 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/20244428687.shtml)
+- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/745795676893.shtml)
+- 2026-06-30 07:31 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/83752770.shtml)
+- 2026-06-30 07:40 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/71173846855.shtml)
+- 2026-06-30 07:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/7926403004.shtml)
+- 2026-06-30 07:45 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/05914.shtml)
+- 2026-06-30 07:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/282213715019.shtml)
+- 2026-06-30 07:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/3624947740.shtml)
+- 2026-06-30 07:35 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/98052.shtml)
+- 2026-06-30 07:25 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/0581834.shtml)
+- 2026-06-30 07:53 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/643412257.shtml)
+- 2026-06-30 07:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8104734707.shtml)
+- 2026-06-30 07:39 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/976691040.shtml)
+- 2026-06-30 07:31 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/5337123.shtml)

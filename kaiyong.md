@@ -1,61 +1,59 @@
-# 山西沁源煤矿瓦斯爆炸事故伤者救治情况如何？最新进展
+# 重庆涪陵：1毫升“污染”牵动全流程 实战演练核酸阳性对照质控品溢洒应急处置
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-据央视新闻消息，5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 目前，事故救援工作仍在紧张进行中，伤者已被送至医院救治，具体情况如何？ 获救人员均已送到医院救治 总台记者 张说地：沁源县人民医院是沁源煤矿瓦斯爆炸事故伤者救治的现场之一，医院单独开辟了病区进行伤者的收治工作。目前，救治工作正在进行当中。 记者从现场救
+发布时间：2026年04月14日 15:03 来源：中国新闻网 国家安全教育日前夕，一场核酸阳性对照质控品溢洒应急处置实战演练在重庆涪陵区举行。模拟华兰生物重庆公司实验室操作中发生约1毫升溢洒事故，5名一线人员按预案完成紧急停机、现场警戒、逐级上报、规范消毒、废物处置及环境监测全流程操作。 演练中，操作人员发现溢洒后立即自查、更换手套、设置警戒并上报。现场以5000mg/L含氯
 
 ## 正文
 
-据央视新闻消息，5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+发布时间：2026年04月14日 15:03 来源：中国新闻网 国家安全教育日前夕，一场核酸阳性对照质控品溢洒应急处置实战演练在重庆涪陵区举行。
 
-目前，事故救援工作仍在紧张进行中，伤者已被送至医院救治，具体情况如何？
+模拟华兰生物重庆公司实验室操作中发生约1毫升溢洒事故，5名一线人员按预案完成紧急停机、现场警戒、逐级上报、规范消毒、废物处置及环境监测全流程操作。
 
-获救人员均已送到医院救治 总台记者 张说地：沁源县人民医院是沁源煤矿瓦斯爆炸事故伤者救治的现场之一，医院单独开辟了病区进行伤者的收治工作。
+演练中，操作人员发现溢洒后立即自查、更换手套、设置警戒并上报。
 
-目前，救治工作正在进行当中。
+现场以5000mg/L含氯消毒液覆盖消毒30分钟，再二次消毒并处理废物。
 
-记者从现场救援指挥部了解到，目前升井的伤者均被送到了医院进行救治。
+终末紫外消毒1小时后环境监测结果为阴性，事件记录完整，无人员伤害。
 
-沁源县人民医院目前收治的病人共27人，其中1人重症26人轻伤。
+演练有效检验了预案科学性，提升了生物安全应急处置能力。
 
-为每名伤者制定有针对性的治疗方案 参与救治的医生介绍，从今天凌晨开始，伤者陆续被送到了这个医院进行救治，部分伤者经检查无事后就自行回家了。
-
-目前，医院针对留院的伤者的病情不同，采取了一患一策的针对性治疗。
+(记者 贾楠) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 07:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 07:39 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 07:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 07:26 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:41 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 07:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 07:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 07:25 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 07:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 07:46 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 07:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 07:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 07:20 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 07:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 07:37 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:32 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 07:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 07:35 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 07:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 07:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 07:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 07:48 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 07:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 07:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 07:37 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:42 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 07:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/254683930.shtml)
-- 2026-06-30 07:32 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/2782482059.shtml)
-- 2026-06-30 07:29 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/81697516888.shtml)
-- 2026-06-30 07:39 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/7433334.shtml)
-- 2026-06-30 07:31 - [日本反击率先破门](https://www.share.minike.top/Article/details/685242094.shtml)
-- 2026-06-30 07:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/41410082.shtml)
-- 2026-06-30 07:46 - [金牌调解](https://www.blog.minike.top/Article/details/328293678.shtml)
-- 2026-06-30 07:44 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/22896.shtml)
-- 2026-06-30 07:36 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/66188095.shtml)
-- 2026-06-30 07:43 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/954268.shtml)
-- 2026-06-30 07:44 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/2595941.shtml)
-- 2026-06-30 07:41 - [啊啊啊](http://www.blog.minike.top/Article/details/096449.shtml)
-- 2026-06-30 07:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/10072.shtml)
-- 2026-06-30 07:45 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/984639776.shtml)
-- 2026-06-30 07:31 - [点球大战](http://www.blog.minike.top/Article/details/790960671.shtml)
+- 2026-06-30 07:45 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/92392538.shtml)
+- 2026-06-30 07:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/31111431798.shtml)
+- 2026-06-30 07:28 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/672482589.shtml)
+- 2026-06-30 07:50 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/18352354.shtml)
+- 2026-06-30 07:45 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/38051195765.shtml)
+- 2026-06-30 07:50 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/73553792111.shtml)
+- 2026-06-30 07:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/596216285064.shtml)
+- 2026-06-30 07:36 - [田中碧失误](https://www.share.minike.top/Article/details/737397.shtml)
+- 2026-06-30 07:29 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/013338239604.shtml)
+- 2026-06-30 07:32 - [一生一世](http://www.share.minike.top/Article/details/99109299.shtml)
+- 2026-06-30 07:53 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/1250116.shtml)
+- 2026-06-30 07:43 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/535603573.shtml)
+- 2026-06-30 07:50 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/001446.shtml)
+- 2026-06-30 07:31 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/9673334.shtml)
+- 2026-06-30 07:47 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/27328.shtml)

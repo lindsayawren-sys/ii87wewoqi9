@@ -1,57 +1,61 @@
-# 30位江苏中青年优秀美术家的110幅精品亮相中国美术馆
+# 纪录片《中老铁路纪行》将在中老两国首播
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月24日电 (记者 应妮)“苏韵新晖 春山可望——江苏中青年优秀美术家作品展”24日在中国美术馆开幕，展览汇聚了30位江苏中青年优秀美术家的110幅精品力作。 参展作品涵盖中国画、油画、版画、水彩(粉)画四大画种，共展出75件(组)、110幅作品。这批作品扎根江南文脉，彰显江苏文化底蕴，紧扣时代主题，集中呈现了江苏中青年美术群体的创作实力、艺术追求和精神风貌。参展的
+4月14日起，三集纪录片《中老铁路纪行》将在中央广播电视总台和老挝国家电视台同步首播，爱奇艺、优酷、腾讯、哔哩哔哩等视频平台及各省级卫视将陆续播出。 纪录片共3集75分钟，以英国摄影师托马斯·希顿(Thomas Heaton)展开中老跨国旅行为主线，拍摄了他乘坐中老铁路国际旅客列车从中国昆明出发抵达老挝万象的所见所闻。其间，摄影师全面了解中老铁路建设过程，深度体验铁路运营维护工
 
 ## 正文
 
-中新网北京5月24日电 (记者 应妮)“苏韵新晖 春山可望——江苏中青年优秀美术家作品展”24日在中国美术馆开幕，展览汇聚了30位江苏中青年优秀美术家的110幅精品力作。
+4月14日起，三集纪录片《中老铁路纪行》将在中央广播电视总台和老挝国家电视台同步首播，爱奇艺、优酷、腾讯、哔哩哔哩等视频平台及各省级卫视将陆续播出。
 
-参展作品涵盖中国画、油画、版画、水彩(粉)画四大画种，共展出75件(组)、110幅作品。
+纪录片共3集75分钟，以英国摄影师托马斯·希顿(Thomas Heaton)展开中老跨国旅行为主线，拍摄了他乘坐中老铁路国际旅客列车从中国昆明出发抵达老挝万象的所见所闻。
 
-这批作品扎根江南文脉，彰显江苏文化底蕴，紧扣时代主题，集中呈现了江苏中青年美术群体的创作实力、艺术追求和精神风貌。
+其间，摄影师全面了解中老铁路建设过程，深度体验铁路运营维护工作，切身感受了中老两国7座城镇、乡村的美丽风光、传统文化和社会生活。
 
-参展的30位美术家深植于江苏深厚的文化沃土，在各画种领域深耕不辍。
+2025年12月13日起，《中老铁路纪行》在国家地理(National Geographic)南亚频道播出后产生强烈反响，南亚区实时触达人次达1286.1万，收视率达0.117，位列同时段全年龄层收视排名第一，受到海外观众欢迎。
 
-展览多画种并置展出，呈现出江苏美术多元并进、各美其美的生动格局。
+今年3月6日起，该纪录片在国家地理(National Geographic)欧洲区、中东区、拉美区、非洲区陆续播出，欧洲区实时触达人次达2018.9万。
 
-在中国画部分，参展美术家展现出对自然造化与中国画语言本体的双重自觉；油画部分，参展作品既延续了江南油画注重色彩温润感的传统，又融入了当代视觉经验的复杂性，呈现出与北方油画浑厚凝重风格迥异的江南气质；版画是江苏美术的传统强项，参展版画家的作品将传统水印技艺与当代图像语言相结合，使古老的艺术形式焕发出新的生机；水彩(粉)画部分则展现了江苏中青年美术家的深厚积累，在轻盈与厚重、瞬间与永恒之间建构起独特的审美空间。
+其中，德国收视率0.177，位列该国同时段全年龄层收视排名第一；法国收视率0.203，位列该国同时段全年龄层收视排名第二。
 
-当天举行的学术研讨会上，专家学者围绕“新金陵画派的传承与当代创新路径”“美术创作的时代性与江苏辨识度”“新时代江苏美术的定位与使命”“江苏中青年美术人才培养与激励机制建设”“江苏美术领军人才培育路径”“网络时代美术传播与影响力构建”等议题展开了深度交流。
+英国摄影师托马斯·希顿通过海外社交媒体发布宣传片，引发广泛讨论。
 
-据悉，展览由中国美术家协会、中国美术馆、中共江苏省委宣传部、江苏省文学艺术界联合会主办，将持续至6月3日。
+不少海外受众通过Instagram和Facebook纷纷留言，表示出对纪录片及中老铁路的浓厚兴趣：“非常期待这个节目”“希望有机会乘坐这趟列车”“这将是一段奇妙的旅程”……该纪录片由《人民铁道》报业有限公司、五洲传播中心、国家地理(National Geographic)、云南广播电视台联合出品，新加坡棱聚影视传媒有限公司制作。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 07:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 07:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 07:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 07:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 07:47 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 07:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 07:37 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 07:33 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 07:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 07:29 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 07:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 07:48 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 07:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 07:34 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 07:39 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 07:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 07:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:45 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 07:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 07:25 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 07:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 07:42 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 07:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 07:42 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 07:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [第一炉香](https://www.blog.minike.top/Article/details/38410883099.shtml)
-- 2026-06-30 07:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/5485557067.shtml)
-- 2026-06-30 07:25 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/434219209.shtml)
-- 2026-06-30 07:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/413047226.shtml)
-- 2026-06-30 07:22 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/092741.shtml)
-- 2026-06-30 07:25 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/188579858.shtml)
-- 2026-06-30 07:32 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/251789542007.shtml)
-- 2026-06-30 07:43 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/46907.shtml)
-- 2026-06-30 07:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/78619.shtml)
-- 2026-06-30 07:31 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/73074979588.shtml)
-- 2026-06-30 07:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/983736328.shtml)
-- 2026-06-30 07:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/789061.shtml)
-- 2026-06-30 07:43 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/21055594690.shtml)
-- 2026-06-30 07:38 - [巴拉圭进球](https://www.share.minike.top/Article/details/0681142701.shtml)
-- 2026-06-30 07:46 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/90930572.shtml)
+- 2026-06-30 07:29 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/12620182.shtml)
+- 2026-06-30 07:48 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/0079856.shtml)
+- 2026-06-30 07:49 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/225494273987.shtml)
+- 2026-06-30 07:29 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/21832.shtml)
+- 2026-06-30 07:33 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/971320121.shtml)
+- 2026-06-30 07:35 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/2403620177.shtml)
+- 2026-06-30 07:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1257288.shtml)
+- 2026-06-30 07:32 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/05403.shtml)
+- 2026-06-30 07:38 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/958096354.shtml)
+- 2026-06-30 07:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/53823.shtml)
+- 2026-06-30 07:25 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/720546818.shtml)
+- 2026-06-30 07:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/76842741930.shtml)
+- 2026-06-30 07:53 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/42090647585.shtml)
+- 2026-06-30 07:47 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/84084916613.shtml)
+- 2026-06-30 07:43 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/4222662.shtml)

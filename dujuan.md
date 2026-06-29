@@ -1,60 +1,57 @@
-# 国内首家商业火箭公司再现IPO信号，估值近111亿元，武汉国资入局
+# （八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-记者丨凌晨 编辑丨郑世凤 张明艳 一则招聘启事，将航天科工火箭技术有限公司（下称：航天科工火箭）的资本化进程再次推至台前。 近日，航天科工火箭在其官方微信公众号发布“行政中干岗位”招聘启事，其中包括财务副总监一职。 招聘信息显示，该岗位职责包括建立符合上市规范的财务制度和治理架构，牵头上市辅导财务专项工作，配合中介机构完成IPO财务核查与辅导验收等方面。 值得注意的是，岗位要求
+中新网福州4月13日电 题：一盅鸡汤汆海蚌 两岸同胞共此鲜 作者 叶秋云 “选料如选玉、吊汤似炼金，这是鸡汤汆海蚌的立身之本。”12日晚，中国饭店协会名厨委副主席、闽菜大师陈辉俯身拿起一只外壳莹白的漳港海蚌，向记者详解这道汤菜的精髓。 作为福州传统宴席上的“压轴菜”，鸡汤汆海蚌素有闽菜“皇后”之称。20世纪80年代初，经闽菜大师强木根、强曲曲改良，这道汤菜多次亮相国宴接待外宾，
 
 ## 正文
 
-记者丨凌晨 编辑丨郑世凤 张明艳 一则招聘启事，将航天科工火箭技术有限公司（下称：航天科工火箭）的资本化进程再次推至台前。
+中新网福州4月13日电 题：一盅鸡汤汆海蚌 两岸同胞共此鲜 作者 叶秋云 “选料如选玉、吊汤似炼金，这是鸡汤汆海蚌的立身之本。
 
-近日，航天科工火箭在其官方微信公众号发布“行政中干岗位”招聘启事，其中包括财务副总监一职。
+”12日晚，中国饭店协会名厨委副主席、闽菜大师陈辉俯身拿起一只外壳莹白的漳港海蚌，向记者详解这道汤菜的精髓。
 
-招聘信息显示，该岗位职责包括建立符合上市规范的财务制度和治理架构，牵头上市辅导财务专项工作，配合中介机构完成IPO财务核查与辅导验收等方面。
+作为福州传统宴席上的“压轴菜”，鸡汤汆海蚌素有闽菜“皇后”之称。
 
-值得注意的是，岗位要求还明确提到，应聘者需具备参与IPO财务规范、内控建设、账务整改、税务合规及辅导验收等全流程经验。
+20世纪80年代初，经闽菜大师强木根、强曲曲改良，这道汤菜多次亮相国宴接待外宾，声名远扬。
 
-这意味着，这一岗位并非普通财务管理职位，而是与上市前财务规范、内控整改和辅导验收高度相关。
+2022年，鸡汤汆海蚌制作技艺入选福建省第七批省级非物质文化遗产代表性项目名录。
 
-被称为“国内首家采用商业模式开展研发应用的火箭公司”，航天科工火箭早已进入资本市场视野。
+在弥漫着高汤香气的厨房内，年近六旬的陈辉手持长勺，眼神专注地盯着锅中澄澈的鸡汤。
 
-从拟赴科创板的早期预期，到入选地方上市后备企业，再到今年股权转让和IPO财务岗招聘，其上市预期正重新升温。
+他说，这道汤品的精髓的在于“三茸鸡汤”的慢炖与漳港海蚌的鲜醇，需选用两年以上老母鸡、牛里脊、猪里脊，按1:1:1比例剁茸制成绒团，放入鸡汤中慢煮吸附杂质，再经多层过滤去油，最终汤色清亮可鉴，即为“鼎汤”。
 
-但IPO叙事之外，公司的控制权变化、股权结构调整及盈利能力如何仍待市场检验。
+汆烫海蚌更见功夫。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 07:19 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 07:35 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 07:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 07:29 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 07:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 07:46 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:20 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 07:37 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 07:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 07:19 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 07:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 07:50 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 07:49 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 07:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 07:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 07:24 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 07:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 07:31 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 07:43 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 07:37 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 07:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/431657478650.shtml)
-- 2026-06-30 07:36 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/47790.shtml)
-- 2026-06-30 07:34 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/9658128.shtml)
-- 2026-06-30 07:19 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/17230567165.shtml)
-- 2026-06-30 07:27 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/324853636183.shtml)
-- 2026-06-30 07:43 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/02433.shtml)
-- 2026-06-30 07:27 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/481698.shtml)
-- 2026-06-30 07:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/124533563364.shtml)
-- 2026-06-30 07:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/79034241.shtml)
-- 2026-06-30 07:24 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/5286952.shtml)
-- 2026-06-30 07:45 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/100215444.shtml)
-- 2026-06-30 07:42 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/9393977.shtml)
-- 2026-06-30 07:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/734331787505.shtml)
-- 2026-06-30 07:22 - [巴拉圭进球](https://www.blog.minike.top/Article/details/3324213.shtml)
-- 2026-06-30 07:23 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/12882158484.shtml)
+- 2026-06-30 07:44 - [金牌调解](http://www.blog.minike.top/Article/details/63706.shtml)
+- 2026-06-30 07:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/8945894031.shtml)
+- 2026-06-30 07:36 - [齐思钧回复张月](http://www.blog.minike.top/Article/details/091771216972.shtml)
+- 2026-06-30 07:37 - [《共患难》](http://www.share.minike.top/Article/details/2960795.shtml)
+- 2026-06-30 07:51 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/42062.shtml)
+- 2026-06-30 07:25 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/14605666115.shtml)
+- 2026-06-30 07:31 - [金刚川](http://www.blog.minike.top/Article/details/487116495147.shtml)
+- 2026-06-30 07:30 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/38916366.shtml)
+- 2026-06-30 07:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/180172.shtml)
+- 2026-06-30 07:48 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/64832.shtml)
+- 2026-06-30 07:35 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/002310843.shtml)
+- 2026-06-30 07:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/55327408.shtml)
+- 2026-06-30 07:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/78490213302.shtml)
+- 2026-06-30 07:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/6443022.shtml)
+- 2026-06-30 07:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/014214.shtml)

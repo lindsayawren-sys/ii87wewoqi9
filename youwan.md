@@ -1,52 +1,55 @@
-# 山西省调集7支队伍共755人全力开展通洲集团留神峪煤矿瓦斯爆炸事故救援
+# 何立峰出席第六届中国国际消费品博览会暨2026“购在中国”国际消费季启动仪式并致辞
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-新华社太原5月23日电 山西省长治市沁源县应急管理局通报称，山西通洲集团留神峪煤矿瓦斯爆炸事故发生后，山西省委、省政府高度重视，调集救援、医疗7支队伍755人，全力开展应急救援、医疗救治、现场处置工作。截至5月23日14时，事故已造成82人死亡，9人失联，送医救治123人(其中，危重2人，重症2人)，回家33人。企业实际控制人、负责人已被依法采取控制措施。(完)
+新华社海口4月13日电 第六届中国国际消费品博览会暨2026“购在中国”国际消费季启动仪式在海南海口举行。中共中央政治局委员、国务院副总理何立峰出席启动仪式并致辞。 何立峰指出，在习近平总书记亲自关心指导下，经过各方共同努力，海南消博会作为全球消费精品展示交易平台已成为海南自由贸易港建设的一张靓丽名片，也成为中国与世界共享市场机遇的重要平台。 何立峰表示，中国将坚定实施扩大内需
 
 ## 正文
 
-新华社太原5月23日电 山西省长治市沁源县应急管理局通报称，山西通洲集团留神峪煤矿瓦斯爆炸事故发生后，山西省委、省政府高度重视，调集救援、医疗7支队伍755人，全力开展应急救援、医疗救治、现场处置工作。
+新华社海口4月13日电 第六届中国国际消费品博览会暨2026“购在中国”国际消费季启动仪式在海南海口举行。
 
-截至5月23日14时，事故已造成82人死亡，9人失联，送医救治123人(其中，危重2人，重症2人)，回家33人。
+中共中央政治局委员、国务院副总理何立峰出席启动仪式并致辞。
 
-企业实际控制人、负责人已被依法采取控制措施。
+何立峰指出，在习近平总书记亲自关心指导下，经过各方共同努力，海南消博会作为全球消费精品展示交易平台已成为海南自由贸易港建设的一张靓丽名片，也成为中国与世界共享市场机遇的重要平台。
 
-(完)
+何立峰表示，中国将坚定实施扩大内需战略，以科技创新引领产业升级，推动高质量发展、扩大高水平开放，持续激发市场潜力和消费活力，以中国式的新发展为世界经济增长注入更多确定性和新动能。
+
+欢迎各国企业充分利用消博会等平台，积极参加“购在中国”国际消费季活动，继续深耕中国市场，共享中国发展机遇。
+
+启动仪式后，何立峰会见了中加经济财金战略对话加方联合牵头人、加拿大国际贸易部长马宁德·西杜，双方就下一步开展中加经贸合作交换了看法。
+
+何立峰还实地考察了海南自贸港一站式飞机维修产业基地。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 07:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 07:34 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 07:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 07:42 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 07:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 07:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 07:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 07:21 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 07:34 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 07:20 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 07:34 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:28 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 07:43 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:33 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 07:35 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 07:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 07:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 07:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 07:47 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 07:40 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 07:42 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 07:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/381147045537.shtml)
-- 2026-06-30 07:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/8642375428.shtml)
-- 2026-06-30 07:46 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/91753.shtml)
-- 2026-06-30 07:24 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/24534418766.shtml)
-- 2026-06-30 07:36 - [巴西vs日本](https://www.share.minike.top/Article/details/075952520.shtml)
-- 2026-06-30 07:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/991953092.shtml)
-- 2026-06-30 07:45 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/6850353713.shtml)
-- 2026-06-30 07:47 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/910316.shtml)
-- 2026-06-30 07:46 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/9265475298.shtml)
-- 2026-06-30 07:44 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/530990.shtml)
-- 2026-06-30 07:38 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/404128.shtml)
-- 2026-06-30 07:18 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/613388.shtml)
-- 2026-06-30 07:31 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/6911313.shtml)
-- 2026-06-30 07:30 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/00680201634.shtml)
-- 2026-06-30 07:43 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/61683270381.shtml)
+- 2026-06-30 07:51 - [急先锋](http://www.share.kurohicncr.top/Article/details/45847304342.shtml)
+- 2026-06-30 07:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/2913055672.shtml)
+- 2026-06-30 07:32 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/19172916.shtml)
+- 2026-06-30 07:29 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/10415823.shtml)
+- 2026-06-30 07:33 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/04362521169.shtml)
+- 2026-06-30 07:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/409138.shtml)
+- 2026-06-30 07:36 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/90227013491.shtml)
+- 2026-06-30 07:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/7554906775.shtml)
+- 2026-06-30 07:42 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/4774299.shtml)
+- 2026-06-30 07:46 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/948062499802.shtml)
+- 2026-06-30 07:31 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/6163495.shtml)
+- 2026-06-30 07:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/50761.shtml)
+- 2026-06-30 07:52 - [田中碧失误](http://www.blog.minike.top/Article/details/22541879165.shtml)
+- 2026-06-30 07:33 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/26922512.shtml)
+- 2026-06-30 07:41 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/9911848.shtml)

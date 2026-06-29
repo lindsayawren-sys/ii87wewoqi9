@@ -1,58 +1,61 @@
-# 青海绿电交易累计超200亿千瓦时
+# 美国债市：国债走高 受到油价涨幅收窄的提振
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新社西宁5月24日电 (李隽 谢莉蓉)中国国家电网青海省电力公司(以下简称“国网青海电力”)24日消息，截至今年5月中旬，青海绿电交易规模达200.9亿千瓦时，相当于减排二氧化碳超1500万吨，其中省间交易电量占比超九成。 作为水、风、光等清洁能源资源富集区，青海省着力构建清洁低碳、安全高效的能源体系，建设清洁能源产业高地。 青海在中国率先实现新能源装机和发电量占比“双主体”
+美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。随着油价日内涨幅收窄，美债获得支撑。尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。 纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。长期国债收益率跌幅更小，
 
 ## 正文
 
-中新社西宁5月24日电 (李隽 谢莉蓉)中国国家电网青海省电力公司(以下简称“国网青海电力”)24日消息，截至今年5月中旬，青海绿电交易规模达200.9亿千瓦时，相当于减排二氧化碳超1500万吨，其中省间交易电量占比超九成。
+美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。
 
-作为水、风、光等清洁能源资源富集区，青海省着力构建清洁低碳、安全高效的能源体系，建设清洁能源产业高地。
+随着油价日内涨幅收窄，美债获得支撑。
 
-青海在中国率先实现新能源装机和发电量占比“双主体”，截至2026年4月底，该省电力总装机达8527.8万千瓦，其中清洁能源装机占比93.3%，新能源装机占比74.1%。
+尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。
 
-2022年7月，青海开展首笔绿电市场交易，8家新能源发电企业与2家用户成交电量6000万千瓦时。
+美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。
 
-此后青海绿电交易量逐年快速增长，由2022年的5.33亿千瓦时增至2025年的98.95亿千瓦时。
+纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。
 
-绿电外送至北京、上海、浙江、福建等23个省区市。
+长期国债收益率跌幅更小，推动5年和30年期国债收益率日内扩大近2个基点。
 
-2025年9月，青海电力交易中心完成中国西北地区首笔绿电挂牌交易。
+WTI在亚洲早盘一度接近106美元/桶后回落。
 
-国网青海电力依托青海省智慧双碳大数据中心，首创“以电算碳”模型，联合金融机构推出“绿电贷”优惠利率贷款，破解企业融资难题。
+标普500指数在现货收盘前上涨约0.5%，该指数周一低开。
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 07:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 07:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 07:43 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 07:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 07:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 07:44 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 07:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 07:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 07:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 07:30 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 07:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:41 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 07:25 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 07:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 07:52 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 07:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 07:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 07:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 07:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 07:43 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 07:28 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 07:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 07:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 07:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/35597059.shtml)
-- 2026-06-30 07:22 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/3187426755.shtml)
-- 2026-06-30 07:45 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/242129260026.shtml)
-- 2026-06-30 07:36 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/5046852.shtml)
-- 2026-06-30 07:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/54916.shtml)
-- 2026-06-30 07:47 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/00473.shtml)
-- 2026-06-30 07:41 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/24005580.shtml)
-- 2026-06-30 07:26 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/457447098554.shtml)
-- 2026-06-30 07:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/6896408.shtml)
-- 2026-06-30 07:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/94123647.shtml)
-- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/459845704456.shtml)
-- 2026-06-30 07:26 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/7037462.shtml)
-- 2026-06-30 07:43 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/74589729110.shtml)
-- 2026-06-30 07:45 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/49531.shtml)
-- 2026-06-30 07:39 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/33235644769.shtml)
+- 2026-06-30 07:46 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/7696137.shtml)
+- 2026-06-30 07:40 - [刘念回应](http://www.share.minike.top/Article/details/071274.shtml)
+- 2026-06-30 07:31 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/4096115.shtml)
+- 2026-06-30 07:43 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/46254.shtml)
+- 2026-06-30 07:43 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/394196461085.shtml)
+- 2026-06-30 07:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/46455798.shtml)
+- 2026-06-30 07:44 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/41807500287.shtml)
+- 2026-06-30 07:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/342969284403.shtml)
+- 2026-06-30 07:47 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/920847156.shtml)
+- 2026-06-30 07:42 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/9598891.shtml)
+- 2026-06-30 07:27 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/2501455.shtml)
+- 2026-06-30 07:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/664990.shtml)
+- 2026-06-30 07:30 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/2485055950.shtml)
+- 2026-06-30 07:38 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/273773.shtml)
+- 2026-06-30 07:35 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/4968563.shtml)

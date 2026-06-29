@@ -1,56 +1,59 @@
-# 周末大事件！霍尔木兹海峡利好来了，原油暗盘暴跌！7只半导体热门股拟套现127亿元
+# 11项网络直播打赏规定为何出台、意义何在？专家解读
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】周末大事，以及十大券商最新研判中国基金报记者 泰勒大家好啊，马上就要开盘了，一起回顾一下周末的大事，以及看看券商分析师们的最新研判。这个周末，最大的利好就是美伊谈判迎来重大的进展，好消息不断弹窗。周末大事1．重大利好！美伊谈判最新进展 特朗普表示，美国和伊朗之间一项更广泛的协议已经
+记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。 据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。 针对打赏规则及打赏营利权限开通，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。
 
-来源：中国基金报 【导读】周末大事，以及十大券商最新研判中国基金报记者 泰勒大家好啊，马上就要开盘了，一起回顾一下周末的大事，以及看看券商分析师们的最新研判。
+据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。
 
-这个周末，最大的利好就是美伊谈判迎来重大的进展，好消息不断弹窗。
+针对打赏规则及打赏营利权限开通，“通知”要求，网站平台向用户提供充值打赏服务，设置榜单排名，设计互动玩法，应制定明确规则，并以直接、简洁方式公开，不得采取多次跳转、冗长条款等方式影响用户知晓。
 
-周末大事1．重大利好！
+网络直播账号申请开通打赏营利权限，如有违规记录，应在处置期满3个月后，再予以开通。
 
-美伊谈判最新进展 特朗普表示，美国和伊朗之间一项更广泛的协议已经“基本谈妥”，霍尔木兹海峡也将重新开放。
+网络直播账号被禁言的，应同步暂停其打赏营利权限，时长为禁言期限的2至3倍。
 
-这释放出一个信号：持续数月的战争可能正朝着结束方向取得进展。
+针对未成年人保护，“通知”要求，网站平台不得向八周岁以下的未成年人提供打赏服务。
 
-美国国务卿马尔科·鲁比奥表示，今天晚些时候可能会有更多关于伊朗的消息，并称谈判已经取得“重大进展”。
+向八周岁至十六周岁的未成年人提供打赏服务，应征得其监护人同意。
 
-他重申，美国的目标是确保伊朗“永远不能拥有核武器”，并强调德黑兰方面威胁霍尔木兹海峡船只的行为是非法的。
+向十六周岁以上的未成年人提供打赏服务，应征得其监护人同意或核验其收入证明材料。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 07:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 07:43 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 07:22 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 07:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 07:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 07:34 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 07:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 07:40 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 07:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 07:32 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 07:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 07:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:47 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 07:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 07:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 07:34 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 07:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 07:29 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 07:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 07:24 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 07:26 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 07:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/471305.shtml)
-- 2026-06-30 07:20 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/7052846.shtml)
-- 2026-06-30 07:33 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/8030052.shtml)
-- 2026-06-30 07:40 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/5377588396.shtml)
-- 2026-06-30 07:46 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/012113759.shtml)
-- 2026-06-30 07:41 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/0785092.shtml)
-- 2026-06-30 07:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/0312284994.shtml)
-- 2026-06-30 07:28 - [女心理师](https://www.share.minike.top/Article/details/9796412.shtml)
-- 2026-06-30 07:42 - [千香](http://www.blog.minike.top/Article/details/8715325737.shtml)
-- 2026-06-30 07:34 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/1767986486.shtml)
-- 2026-06-30 07:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/144857662380.shtml)
-- 2026-06-30 07:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/7360670.shtml)
-- 2026-06-30 07:43 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/70907433.shtml)
-- 2026-06-30 07:42 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/678045360.shtml)
-- 2026-06-30 07:46 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/6868082816.shtml)
+- 2026-06-30 07:39 - [毒液2](https://www.share.minike.top/Article/details/794452.shtml)
+- 2026-06-30 07:48 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/99895442854.shtml)
+- 2026-06-30 07:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/1710046209.shtml)
+- 2026-06-30 07:50 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/0444788.shtml)
+- 2026-06-30 07:30 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/06585901.shtml)
+- 2026-06-30 07:44 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/8884482800.shtml)
+- 2026-06-30 07:30 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/912728.shtml)
+- 2026-06-30 07:48 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/592462011216.shtml)
+- 2026-06-30 07:48 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9534416029.shtml)
+- 2026-06-30 07:36 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/18618546.shtml)
+- 2026-06-30 07:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/16820.shtml)
+- 2026-06-30 07:43 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/1075529370.shtml)
+- 2026-06-30 07:50 - [流金岁月](http://www.share.kurohicncr.top/Article/details/74083284740.shtml)
+- 2026-06-30 07:26 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/4272956071.shtml)
+- 2026-06-30 07:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/8929060622.shtml)

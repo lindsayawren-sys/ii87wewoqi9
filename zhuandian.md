@@ -1,50 +1,60 @@
-# 书声越过山峦：西藏牧区孩子的“语言翅膀”
+# 亚马逊同意收购Globalstar，并扩大与苹果的卫星合作
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 17:15 来源：中国新闻网 2026年是西藏和平解放75周年。在羊卓雍错湖畔的山南市贡嘎县东拉乡芝龙小学，琅琅读书声穿透晨雾，回荡在海拔4480米的山谷间。这里的少年不仅能熟练运用国家通用语言文字诵读课文，更在沟通对话中，展现出从容自信的面貌。国家通用语言文字的普及，正赋予高原少年破壁未来的底气，解锁高原少年无限可能的未来。 记者 贡桑拉姆
+亚马逊宣布计划收购Globalstar并与苹果合作，扩大其卫星网络，在直连设备服务领域与Starlink直接竞争。 亚马逊股价周二上涨约4%，此前该公司宣布计划收购Globalstar，并扩大其低地球轨道卫星网络以提供直连设备连接服务。 此次收购将把Globalstar的卫星资产整合到亚马逊的Leo网络中。亚马逊还披露了与苹果公司达成的一项独立协议，将为iPhone和Apple
 
 ## 正文
 
-发布时间：2026年05月22日 17:15 来源：中国新闻网 2026年是西藏和平解放75周年。
+亚马逊宣布计划收购Globalstar并与苹果合作，扩大其卫星网络，在直连设备服务领域与Starlink直接竞争。
 
-在羊卓雍错湖畔的山南市贡嘎县东拉乡芝龙小学，琅琅读书声穿透晨雾，回荡在海拔4480米的山谷间。
+亚马逊股价周二上涨约4%，此前该公司宣布计划收购Globalstar，并扩大其低地球轨道卫星网络以提供直连设备连接服务。
 
-这里的少年不仅能熟练运用国家通用语言文字诵读课文，更在沟通对话中，展现出从容自信的面貌。
+此次收购将把Globalstar的卫星资产整合到亚马逊的Leo网络中。
 
-国家通用语言文字的普及，正赋予高原少年破壁未来的底气，解锁高原少年无限可能的未来。
+亚马逊还披露了与苹果公司达成的一项独立协议，将为iPhone和Apple Watch用户提供卫星服务。
 
-记者 贡桑拉姆 西藏拉萨报道 责任编辑：【李季】
+该服务可在无蜂窝网络覆盖时发送紧急短信和道路救援请求。
+
+亚马逊预计Globalstar交易将于2027年完成，尚需获得监管批准并满足其他条件。
+
+该公司表示，Globalstar股东可选择收取现金或亚马逊股票作为对价，并适用标准的比例分配机制。
+
+此次卫星领域的推进使亚马逊能够在新兴的天基移动连接市场更直接地与Starlink竞争。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 07:24 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 07:46 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 07:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 07:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:38 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 07:20 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 07:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 07:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 07:53 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 07:32 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 07:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 07:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 07:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 07:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 07:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 07:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 07:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 07:36 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 07:40 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:46 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/1826213672.shtml)
-- 2026-06-30 07:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/12843624.shtml)
-- 2026-06-30 07:28 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/32492160.shtml)
-- 2026-06-30 07:32 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/725843620.shtml)
-- 2026-06-30 07:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/875190459390.shtml)
-- 2026-06-30 07:44 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/63293300382.shtml)
-- 2026-06-30 07:21 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/35027116.shtml)
-- 2026-06-30 07:20 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/014983.shtml)
-- 2026-06-30 07:25 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/45412313752.shtml)
-- 2026-06-30 07:32 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/793369748.shtml)
-- 2026-06-30 07:47 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/44876508157.shtml)
-- 2026-06-30 07:42 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/998523575.shtml)
-- 2026-06-30 07:45 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/355509.shtml)
-- 2026-06-30 07:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/8656837.shtml)
-- 2026-06-30 07:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/983991784530.shtml)
+- 2026-06-30 07:24 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/022546493.shtml)
+- 2026-06-30 07:51 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/4927026.shtml)
+- 2026-06-30 07:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/835654.shtml)
+- 2026-06-30 07:29 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/55237822665.shtml)
+- 2026-06-30 07:48 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/5829364070.shtml)
+- 2026-06-30 07:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/68482058.shtml)
+- 2026-06-30 07:29 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/332256556545.shtml)
+- 2026-06-30 07:25 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/025101030428.shtml)
+- 2026-06-30 07:49 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/2004028.shtml)
+- 2026-06-30 07:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/775800224455.shtml)
+- 2026-06-30 07:26 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/76945.shtml)
+- 2026-06-30 07:30 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/071088227.shtml)
+- 2026-06-30 07:42 - [一生一世](https://www.blog.kurohicncr.top/Article/details/923149820210.shtml)
+- 2026-06-30 07:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/241525.shtml)
+- 2026-06-30 07:51 - [三星投资计划](https://www.blog.minike.top/Article/details/5493939.shtml)

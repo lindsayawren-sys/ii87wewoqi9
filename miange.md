@@ -1,56 +1,58 @@
-# 我国生物多样性保护成效显著
+# 美伊谈判无果点燃油价，全球通胀警报再起
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-今天(5月22日)是国际生物多样性日。生态环境部今天在上海崇明岛举行2026年国际生物多样性日主题宣传活动，展示了我国生物多样性保护的实践成果。 今年国际生物多样性日的主题为“护一方生灵，泽万物共荣”。2026年国际生物多样性日主题宣传活动发布《中国履行〈生物多样性公约〉第七次国家报告》。报告显示，与生物多样性有关的27个国家目标中，有21个目标取得了显著进展，为推进“昆蒙框架
+南方财经21世纪经济报道特约撰稿王应贵 美国伊朗在伊斯兰堡的谈判于4月12日结束。据央视新闻报道，双方未能达成协议。北京时间13日，美国期货市场开盘即跌，标准普尔500指数期货一度跌幅超1%。WTI原油5月期货上破100美元/桶，涨幅超8%。 上周，美伊停火协议以及后续安排的双边谈判刺激了金融市场，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别上涨3.04%
 
 ## 正文
 
-今天(5月22日)是国际生物多样性日。
+南方财经21世纪经济报道特约撰稿王应贵 美国伊朗在伊斯兰堡的谈判于4月12日结束。
 
-生态环境部今天在上海崇明岛举行2026年国际生物多样性日主题宣传活动，展示了我国生物多样性保护的实践成果。
+据央视新闻报道，双方未能达成协议。
 
-今年国际生物多样性日的主题为“护一方生灵，泽万物共荣”。
+北京时间13日，美国期货市场开盘即跌，标准普尔500指数期货一度跌幅超1%。
 
-2026年国际生物多样性日主题宣传活动发布《中国履行〈生物多样性公约〉第七次国家报告》。
+WTI原油5月期货上破100美元/桶，涨幅超8%。
 
-报告显示，与生物多样性有关的27个国家目标中，有21个目标取得了显著进展，为推进“昆蒙框架”全球目标实现作出中国贡献。
+上周，美伊停火协议以及后续安排的双边谈判刺激了金融市场，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别上涨3.04%、3.56%、4.68%，其中，前段时间被抛售的纳斯达克指数表现略好。
 
-同时，现场还举行了昆明生物多样性基金的捐资仪式等活动。
+美国十年期国债收益率由4月3日的（收盘）4.343%微跌至10日的4.317%；黄金现货涨1.53%；得克萨斯西部轻质油（WTI）5月期货跌13.42%，布伦特6月期货跌12.68%；比特币ETF资金回流，市场回暖，比特币大涨5.48%；美元指数跌1.42%。
 
-生态环境部自然生态保护司司长 张玉军：经过不懈努力，我们将生物多样性保护从“被动应对”转向“主动预防、精准干预、系统恢复”，长江江豚、亚洲象、东北虎豹等300多种珍贵濒危物种种群稳步恢复。
+然而，高油价的阴影并未远去，美伊谈判结果将至关重要。
 
-对特别的濒危物种，比如中华鲟，还专门建设繁育产房，上海中华鲟保护基地就是其中之一。
+美伊各自立场差异较大，未来谈判依然会非常艰难，美国能拿出多少筹码，以及伊朗提出怎样的诉求，均会影响到谈判进程和最终结果，中东局势难以在短期恢复正常。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 07:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 07:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 07:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 07:40 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 07:43 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 07:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 07:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:31 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 07:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 07:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 07:34 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 07:40 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 07:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 07:45 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 07:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 07:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 07:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:47 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 07:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 07:32 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 07:47 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/38186569.shtml)
-- 2026-06-30 07:37 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/54182.shtml)
-- 2026-06-30 07:19 - [85花告别古偶](http://www.blog.minike.top/Article/details/06487.shtml)
-- 2026-06-30 07:25 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/5563537.shtml)
-- 2026-06-30 07:25 - [房价什么时候能涨](https://www.share.minike.top/Article/details/35116.shtml)
-- 2026-06-30 07:23 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/199136927674.shtml)
-- 2026-06-30 07:32 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/808814406.shtml)
-- 2026-06-30 07:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/921821703.shtml)
-- 2026-06-30 07:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/771229416.shtml)
-- 2026-06-30 07:40 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/606227714807.shtml)
-- 2026-06-30 07:40 - [蔚来车主罚站](https://www.share.minike.top/Article/details/12376595.shtml)
-- 2026-06-30 07:23 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/697052661845.shtml)
-- 2026-06-30 07:32 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/616445802996.shtml)
-- 2026-06-30 07:45 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/14863748.shtml)
-- 2026-06-30 07:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/9843272.shtml)
+- 2026-06-30 07:32 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/41216650143.shtml)
+- 2026-06-30 07:44 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/976146.shtml)
+- 2026-06-30 07:38 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0335885.shtml)
+- 2026-06-30 07:42 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/597179685.shtml)
+- 2026-06-30 07:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/983899.shtml)
+- 2026-06-30 07:41 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/61552813.shtml)
+- 2026-06-30 07:31 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/25356207831.shtml)
+- 2026-06-30 07:41 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/37399887324.shtml)
+- 2026-06-30 07:46 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/8523144212.shtml)
+- 2026-06-30 07:35 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/324717229686.shtml)
+- 2026-06-30 07:40 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/40151900.shtml)
+- 2026-06-30 07:50 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/669380158501.shtml)
+- 2026-06-30 07:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/2176428.shtml)
+- 2026-06-30 07:43 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/0134959.shtml)
+- 2026-06-30 07:52 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/76367146.shtml)

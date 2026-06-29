@@ -1,59 +1,59 @@
-# 降雨间歇期 湖北襄阳打响夏粮“抢收仗”
+# 天风策略：特朗普TACO了吗？
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网襄阳5月23日电 题：降雨间歇期 湖北襄阳打响夏粮“抢收仗” 作者 张倩龙 高原 付冰洁 近期，湖北省遭遇大范围强降雨天气。趁着短暂降雨间歇期，襄阳“雨口夺粮”，全力开展小麦抢收工作。 位居汉水中游的襄阳，是湖北省唯一粮食产能过百亿斤的农业大市。时值536万亩小麦集中成熟、80多万亩油菜收获尾声的夏收关键期，两轮降雨之间的窗口期不足96小时。 据襄阳市农业农村局党组成员、
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：开达策略知行 【天风策略】吴开达/苏璟宇/牛晓彤 摘要 一、核心内容 本周（2026年4月6日至2026年4月10日）中东局势呈现缓和路径，霍尔木兹海峡成为市场定价的核心锚。4月7日，美国总统特朗普显著加大对伊朗施压力度，明确警告若未在美东时间晚上8点前达成协议，美国将对包括桥梁、电厂在内的民用基础设
 
 ## 正文
 
-中新网襄阳5月23日电 题：降雨间歇期 湖北襄阳打响夏粮“抢收仗” 作者 张倩龙 高原 付冰洁 近期，湖北省遭遇大范围强降雨天气。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-趁着短暂降雨间歇期，襄阳“雨口夺粮”，全力开展小麦抢收工作。
+来源：开达策略知行 【天风策略】吴开达/苏璟宇/牛晓彤 摘要 一、核心内容 本周（2026年4月6日至2026年4月10日）中东局势呈现缓和路径，霍尔木兹海峡成为市场定价的核心锚。
 
-位居汉水中游的襄阳，是湖北省唯一粮食产能过百亿斤的农业大市。
+4月7日，美国总统特朗普显著加大对伊朗施压力度，明确警告若未在美东时间晚上8点前达成协议，美国将对包括桥梁、电厂在内的民用基础设施实施打击，并称伊朗政权可能很快被“消灭”，同时再次要求德黑兰允许船只通过霍尔木兹海峡，地缘冲突一度逼近极端升级情形。
 
-时值536万亩小麦集中成熟、80多万亩油菜收获尾声的夏收关键期，两轮降雨之间的窗口期不足96小时。
+随后4月8日局势出现缓和，美国、以色列与伊朗同意为期两周的临时停火，伊朗同意在停火期间开放霍尔木兹海峡，该协议标志着局势从本周早些时候的紧张升级中快速降温。
 
-据襄阳市农业农村局党组成员、副局长杨道华介绍，连日来，襄阳市调集2.7万台本地收割机与4200余台外地调运机械，昼夜抢收。
+此前特朗普亦曾警告若未达成协议“整个文明都将消亡”，进一步凸显冲突阶段性极端性。
 
-走进老河口市孟楼镇朱庄村，多台收割机正来回作业，轰鸣声此起彼伏。
+从资产价格表现看，地缘局势阶段性缓和后，大宗商品价格已出现明显回落，随后伴随冲突反复再度波动。
 
-上一轮强降雨过程中，老河口多地累计降雨量超150毫米。
+截至2026年4月10日收盘，COMEX黄金期货价格为4748.50美元/盎司，COMEX白银期货价格为76.65美元/盎司；原油方面，布伦特原油期货价格为95.20美元/桶，WTI原油期货价格为96.57美元/桶。
 
-为确保收割顺利，当地农技服务中心组织工作人员下沉田间地头，查看小麦成色，规范收割流程，帮助农户解决实际问题。
+结合现货价格走势看，布伦特原油现货价格由4月7日的144.59美元/桶高位快速回落至4月10日的126.59美元/桶，期间一度下行近18美元，显示在停火预期及阶段性缓和背景下，能源供给中断的极端定价已逐步修正。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 07:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 07:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 07:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 07:30 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 07:36 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 07:35 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 07:36 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 07:33 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 07:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 07:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 07:20 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 07:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 07:53 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 07:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 07:45 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 07:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 07:28 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 07:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 07:28 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 07:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 07:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 07:31 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 07:33 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 07:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 07:33 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/27681.shtml)
-- 2026-06-30 07:34 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/4735943992.shtml)
-- 2026-06-30 07:39 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/932299747.shtml)
-- 2026-06-30 07:24 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/60472.shtml)
-- 2026-06-30 07:27 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/4006324.shtml)
-- 2026-06-30 07:19 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/522032.shtml)
-- 2026-06-30 07:35 - [田中碧失误](http://www.share.minike.top/Article/details/52288382.shtml)
-- 2026-06-30 07:21 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/784960710914.shtml)
-- 2026-06-30 07:29 - [啊啊啊](http://www.blog.minike.top/Article/details/84808.shtml)
-- 2026-06-30 07:21 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/703729206417.shtml)
-- 2026-06-30 07:29 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/31306903.shtml)
-- 2026-06-30 07:21 - [巴西vs日本](https://www.share.minike.top/Article/details/5427776.shtml)
-- 2026-06-30 07:38 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/948382917.shtml)
-- 2026-06-30 07:20 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/999830.shtml)
-- 2026-06-30 07:42 - [周生如故](http://www.blog.kurohicncr.top/Article/details/5769295288.shtml)
+- 2026-06-30 07:36 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.kurohicncr.top/Article/details/876273798437.shtml)
+- 2026-06-30 07:50 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/688663685.shtml)
+- 2026-06-30 07:41 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/072982.shtml)
+- 2026-06-30 07:45 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/327272559.shtml)
+- 2026-06-30 07:44 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/0107407405.shtml)
+- 2026-06-30 07:36 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/9620385191.shtml)
+- 2026-06-30 07:46 - [千与千寻](https://www.blog.minike.top/Article/details/864322.shtml)
+- 2026-06-30 07:48 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/44710.shtml)
+- 2026-06-30 07:30 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/64239471300.shtml)
+- 2026-06-30 07:32 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/7872636.shtml)
+- 2026-06-30 07:50 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/51405296.shtml)
+- 2026-06-30 07:28 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/860611534952.shtml)
+- 2026-06-30 07:49 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5756244.shtml)
+- 2026-06-30 07:31 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/23865463.shtml)
+- 2026-06-30 07:50 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/42893276.shtml)

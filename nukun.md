@@ -1,59 +1,59 @@
-# 特朗普称美伊终战协议框架接近定稿 霍尔木兹海峡将重启通航 核议题仍存重大分歧
+# 金鹰基金：冲突扰动影响有望减弱 超跌反弹后仍需聚焦景气
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普表示，一份用于敲定与伊朗终战谈判、重新开放霍尔木兹海峡的框架草案已接近“最终定稿”。 特朗普周六称，一份规划未来美伊终战谈判、重启霍尔木兹海峡通航的框架草案，已接近“最终定稿”。 他表示，协议条款“大体已谈判完毕”，将于近期公布。此前，他已于周六与中东多国领导人通电话，又单独与以色列总理本雅明・内塔尼亚胡交谈。 协议核心内容 若协议最终达成，虽无法实现特朗普阻止伊
+上周A股震荡上行，风偏整体回升，科技成长回归。周初市场观望情绪较重，周中受美伊相关消息刺激市场大幅反弹，后续随着谈判破裂风险上升，市场情绪短暂收缩，周五在谈判顺利进行预期下再度反弹。周内A股成交额有所回升，日均成交额升至2.14万亿元。市场风格上看，上周各行业涨多跌少，科技成长领涨，整体表现为：成长>周期>金融=消费。 金鹰基金表示，科技成长板块重新回归市场主线，虽然资源、化工
 
 ## 正文
 
-美国总统特朗普表示，一份用于敲定与伊朗终战谈判、重新开放霍尔木兹海峡的框架草案已接近“最终定稿”。
+上周A股震荡上行，风偏整体回升，科技成长回归。
 
-特朗普周六称，一份规划未来美伊终战谈判、重启霍尔木兹海峡通航的框架草案，已接近“最终定稿”。
+周初市场观望情绪较重，周中受美伊相关消息刺激市场大幅反弹，后续随着谈判破裂风险上升，市场情绪短暂收缩，周五在谈判顺利进行预期下再度反弹。
 
-他表示，协议条款“大体已谈判完毕”，将于近期公布。
+周内A股成交额有所回升，日均成交额升至2.14万亿元。
 
-此前，他已于周六与中东多国领导人通电话，又单独与以色列总理本雅明・内塔尼亚胡交谈。
+市场风格上看，上周各行业涨多跌少，科技成长领涨，整体表现为：成长>周期>金融=消费。
 
-协议核心内容 若协议最终达成，虽无法实现特朗普阻止伊朗永久拥核的核心目标，但可避免中东国家不愿看到的战争重启，同时逐步缓解因伊朗封锁霍尔木兹海峡引发的全球经济危机——全球五分之一的石油供应经该海峡运输。
+金鹰基金表示，科技成长板块重新回归市场主线，虽然资源、化工、黄金、券商都有表现，但从持续性看，AI算力链、光模块、半导体、储能方向等高景气赛道表现更为稳健，资金逐步从避险逻辑转向产业趋势逻辑，业绩与政策确定性较强的板块表现相对占优。
 
-美国官员透露，特朗普已向助手及他国代表明确，若伊朗违反临时协议，美国保留恢复对伊打击的权利。
+我们认为，中东冲突作为资产定价主要矛盾的阶段或已至尾声，后续美伊谈判反复或仍难免，但负面冲击可能逐渐趋弱，双方外交手段解决矛盾的策略调整亦有效降低了加剧冲突升级的选项概率，短期市场或有望迎来交易冲突缓和下带来的超跌反弹。
 
-特朗普在其社交平台“真实社交”上发文称：“美利坚合众国、伊朗伊斯兰共和国及各斡旋国之间的协议已大体谈妥，待最终定稿。
+此外，3月美国通胀数据上行，但核心CPI环比好于预期，显现表明美国总需求依然偏弱，且目前高油价的冲击尚未扩散，那么未来美国CPI环比可能延续0.3%的增速水平，这对应美国CPI同比将在3.5%附近震荡，由此带来美联储进一步加息的概率或偏低。
 
-协议包含多项内容，其中霍尔木兹海峡将重新开放。
+国内3月PPI亦在油价带动下明显转正，但CPI修复弱于预期，总体维持1%水平，油价推动企业成本上行或将引发A股盈利结构变化。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 07:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 07:35 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 07:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 07:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 07:39 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 07:31 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 07:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 07:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 07:32 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 07:31 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 07:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 07:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 07:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 07:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 07:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 07:51 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 07:30 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 07:29 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 07:53 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 07:41 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 07:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 07:34 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 07:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/375453646.shtml)
-- 2026-06-30 07:27 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/12846703.shtml)
-- 2026-06-30 07:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/95715.shtml)
-- 2026-06-30 07:41 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/13537167068.shtml)
-- 2026-06-30 07:22 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/44929.shtml)
-- 2026-06-30 07:29 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/726111398.shtml)
-- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/293422734.shtml)
-- 2026-06-30 07:32 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/62459.shtml)
-- 2026-06-30 07:37 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/387742.shtml)
-- 2026-06-30 07:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/313105.shtml)
-- 2026-06-30 07:22 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/82119.shtml)
-- 2026-06-30 07:20 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/11262.shtml)
-- 2026-06-30 07:31 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/641421.shtml)
-- 2026-06-30 07:22 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/13174925.shtml)
-- 2026-06-30 07:28 - [内马尔替补](https://www.share.minike.top/Article/details/6895747979.shtml)
+- 2026-06-30 07:51 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/996376.shtml)
+- 2026-06-30 07:39 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/29091097678.shtml)
+- 2026-06-30 07:45 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/639267306.shtml)
+- 2026-06-30 07:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/316362.shtml)
+- 2026-06-30 07:46 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/6602702063.shtml)
+- 2026-06-30 07:31 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/477857.shtml)
+- 2026-06-30 07:48 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/751734347193.shtml)
+- 2026-06-30 07:25 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/8549952.shtml)
+- 2026-06-30 07:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/805307.shtml)
+- 2026-06-30 07:50 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/08517169310.shtml)
+- 2026-06-30 07:40 - [人类...完蛋了...](http://www.share.minike.top/Article/details/11327109.shtml)
+- 2026-06-30 07:43 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/090124550.shtml)
+- 2026-06-30 07:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/500321.shtml)
+- 2026-06-30 07:43 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/523897209501.shtml)
+- 2026-06-30 07:51 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/593803.shtml)

@@ -1,61 +1,58 @@
-# 中国—东盟人工智能产业创新中心成立
+# 国际观察：中国机遇为何吸引西班牙？
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-5月24日，中国—东盟人工智能产业创新中心(以下简称“中国—东盟AI中心”)成立仪式在北京举行。工业和信息化部副部长柯吉欣、东盟秘书长高金洪出席仪式并致辞。 在中国—东盟数字部长会议机制框架下，中方与东盟各方持续深化合作，以人工智能为纽带构建跨境合作链条，共同打造互利共赢的“数字丝绸之路”。为推进《中国—东盟全面战略伙伴关系行动计划(2026—2030)》，落实《2026年中国
+程弋洋 4月11日至15日，西班牙首相桑切斯开启四年内第四次中国之行；此前，西班牙国王费利佩六世也于2025年11月访华。如此密集的高层往来，清楚表明一个事实：在世界百年变局加速演进、欧洲面临经济转型和战略重塑双重压力的背景下，中国日益成为西班牙不能忽视的重要合作方向。 西班牙重视对华合作，首先是出于现实经济利益。中国是世界第二大经济体，也是全球最具活力的大市场之一。近年来，中
 
 ## 正文
 
-5月24日，中国—东盟人工智能产业创新中心(以下简称“中国—东盟AI中心”)成立仪式在北京举行。
+程弋洋 4月11日至15日，西班牙首相桑切斯开启四年内第四次中国之行；此前，西班牙国王费利佩六世也于2025年11月访华。
 
-工业和信息化部副部长柯吉欣、东盟秘书长高金洪出席仪式并致辞。
+如此密集的高层往来，清楚表明一个事实：在世界百年变局加速演进、欧洲面临经济转型和战略重塑双重压力的背景下，中国日益成为西班牙不能忽视的重要合作方向。
 
-在中国—东盟数字部长会议机制框架下，中方与东盟各方持续深化合作，以人工智能为纽带构建跨境合作链条，共同打造互利共赢的“数字丝绸之路”。
+西班牙重视对华合作，首先是出于现实经济利益。
 
-为推进《中国—东盟全面战略伙伴关系行动计划(2026—2030)》，落实《2026年中国—东盟数字合作计划》，工业和信息化部在凝聚多方共识基础上，推动成立中国—东盟AI中心，着力打造面向东盟的人工智能多边合作平台，充分发挥中国与东盟产业互补优势，持续深化人工智能领域务实合作。
+中国是世界第二大经济体，也是全球最具活力的大市场之一。
 
-中国—东盟AI中心将重点聚焦四方面工作：一是推动技术研发与创新合作，加强大模型等新一代人工智能技术在工业典型场景中的应用，加快产业智能化升级。
+近年来，中西经贸合作稳步推进。
 
-二是构建人工智能产业合作生态，建立中国与东盟国家人工智能产业对话机制，促进双多边贸易投资。
+2025年桑切斯访华期间，双方达成多项协议，涵盖农食产品、科技、教育、文化等多个领域。
 
-三是深化人工智能治理实践，加强标准化协同与治理工具开发，形成更具共识的治理框架和规则。
+对西班牙而言，中国不仅是重要出口市场，也是推动产业升级、扩大就业、增强增长动能的重要伙伴。
 
-四是助力区域能力建设，共建智能基础设施，共享人工智能发展红利，推动弥合全球智能鸿沟。
+特别是在欧洲需求疲弱、外部不确定性上升的情况下，深化对华合作，有助于西班牙稳外贸、稳投资、稳预期。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 07:32 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 07:23 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 07:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 07:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 07:31 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 07:47 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 07:38 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 07:40 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 07:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 07:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 07:33 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 07:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 07:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:44 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 07:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 07:48 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 07:30 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 07:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:43 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 07:45 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 07:37 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 07:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 07:40 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 07:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 07:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:24 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [巴西扳平比分](http://www.blog.minike.top/Article/details/93818814141.shtml)
-- 2026-06-30 07:22 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/18347549.shtml)
-- 2026-06-30 07:20 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/198310.shtml)
-- 2026-06-30 07:25 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/0384585690.shtml)
-- 2026-06-30 07:44 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/0539974.shtml)
-- 2026-06-30 07:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/0136571.shtml)
-- 2026-06-30 07:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/25597686442.shtml)
-- 2026-06-30 07:37 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/37342693.shtml)
-- 2026-06-30 07:27 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/98583.shtml)
-- 2026-06-30 07:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/84960087572.shtml)
-- 2026-06-30 07:34 - [世界杯巴拉圭点球淘汰德国](http://www.blog.minike.top/Article/details/81384299089.shtml)
-- 2026-06-30 07:40 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/46207739.shtml)
-- 2026-06-30 07:18 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/90357.shtml)
-- 2026-06-30 07:44 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/28440.shtml)
-- 2026-06-30 07:19 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/950574381689.shtml)
+- 2026-06-30 07:37 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/67390272760.shtml)
+- 2026-06-30 07:33 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/975011.shtml)
+- 2026-06-30 07:25 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.minike.top/Article/details/47305425649.shtml)
+- 2026-06-30 07:52 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/38175296.shtml)
+- 2026-06-30 07:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/609499161.shtml)
+- 2026-06-30 07:48 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/5726097.shtml)
+- 2026-06-30 07:52 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/5311415.shtml)
+- 2026-06-30 07:37 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/29877.shtml)
+- 2026-06-30 07:27 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/5204929.shtml)
+- 2026-06-30 07:44 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/17625.shtml)
+- 2026-06-30 07:32 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/3160717384.shtml)
+- 2026-06-30 07:36 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/79304.shtml)
+- 2026-06-30 07:26 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/5856676276.shtml)
+- 2026-06-30 07:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/3044828.shtml)
+- 2026-06-30 07:49 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/67388.shtml)

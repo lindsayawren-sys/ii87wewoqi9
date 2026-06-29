@@ -1,59 +1,59 @@
-# CVC与布鲁塞尔兰伯特集团斥资125亿美元要约收购，拟将瑞科迪药业私有化
+# 甲骨文股价连续两日上涨，布鲁姆能源因AI数据中心电力协议大涨20%
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-本次要约收购每股作价51.29欧元，较 3 月 CVC 收购意向曝光前的股价溢价 13% 此次收购由 CVC 资本与布鲁塞尔兰伯特集团牵头组成财团推进 CVC 资本联合布鲁塞尔兰伯特集团周五宣布，将以现金要约方式收购意大利药企瑞科迪药业并将其私有化，交易估值达 107.3 亿欧元（折合 124.7 亿美元）。 两家机构组建的收购财团表示，本次要约收购每股报价 51.29 欧元。
+核心要点 甲骨文股价周二上涨 5%，软件股连续第二个交易日反弹，同时该公司扩大了与布鲁姆能源的供电产能协议。 布鲁姆能源股价暴涨 20%。 本轮上涨延续了周一软件股的普遍反弹势头，当日甲骨文股价大涨近 13%。周二，ServiceNow、帕兰提尔、Applovin 上涨 3%，HubSpot 与 Unity Software 涨幅超 4%，赛富时与奥多比涨超 1%。 过去几个月
 
 ## 正文
 
-本次要约收购每股作价51.29欧元，较 3 月 CVC 收购意向曝光前的股价溢价 13% 此次收购由 CVC 资本与布鲁塞尔兰伯特集团牵头组成财团推进 CVC 资本联合布鲁塞尔兰伯特集团周五宣布，将以现金要约方式收购意大利药企瑞科迪药业并将其私有化，交易估值达 107.3 亿欧元（折合 124.7 亿美元）。
+核心要点 甲骨文股价周二上涨 5%，软件股连续第二个交易日反弹，同时该公司扩大了与布鲁姆能源的供电产能协议。
 
-两家机构组建的收购财团表示，本次要约收购每股报价 51.29 欧元。
+布鲁姆能源股价暴涨 20%。
 
-该价格略低于瑞科迪药业周四 51.70 欧元的收盘价，但相较 3 月 CVC 收购消息披露前的股价高出 13%。
+本轮上涨延续了周一软件股的普遍反弹势头，当日甲骨文股价大涨近 13%。
 
-财团称，若计入公司本周向股东派发的每股 0.71 欧元股息，等效每股收购价值为 52 欧元。
+周二，ServiceNow、帕兰提尔、Applovin 上涨 3%，HubSpot 与 Unity Software 涨幅超 4%，赛富时与奥多比涨超 1%。
 
-CVC 此前已向瑞科迪董事会提交非约束性收购提案，此次双方达成合作，满足相关前置条件。
+过去几个月，由于市场担忧新一代人工智能工具将颠覆现有商业模式，软件股大幅下挫。
 
-目前 CVC 是瑞科迪药业的控股股东。
+此次抛售也引发了对私人信贷违约风险上升的忧虑，而私人信贷正是该行业的主要融资渠道。
 
-本次收购投资方阵容还包括阿布扎比投资局、加拿大养老金计划投资委员会、加拿大公共部门养老金投资委员会欧洲分部、思拓投资、MGG 战略投资、卡普索尔资本以及安德烈亚・瑞科迪本人。
+周一，甲骨文扩大了与布鲁姆能源的供电产能合作；就在几天前，甲骨文刚获得一项认股权证，可购入这家燃料电池电力公司价值 4 亿美元的股票。
 
-财团表示，此次收购旨在推动瑞科迪药业从米兰泛欧交易所退市，并助力这家药企拓展罕见病药物业务。
+根据协议，为满足数据中心飙升的电力需求，甲骨文计划采购至多2.8 吉瓦的布鲁姆能源系统设备。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:23 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 07:38 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 07:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 07:29 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 07:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 07:33 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 07:43 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 07:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 07:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 07:31 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 07:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 07:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 07:39 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 07:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 07:38 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 07:49 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 07:42 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 07:31 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 07:46 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 07:35 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 07:43 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 07:39 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/19939070.shtml)
-- 2026-06-30 07:42 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/4180752509.shtml)
-- 2026-06-30 07:20 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/05184735.shtml)
-- 2026-06-30 07:39 - [时光音乐会](https://www.share.minike.top/Article/details/6515910.shtml)
-- 2026-06-30 07:46 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/1131446066.shtml)
-- 2026-06-30 07:40 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/538946698685.shtml)
-- 2026-06-30 07:37 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/349949145.shtml)
-- 2026-06-30 07:39 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/99448.shtml)
-- 2026-06-30 07:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/992267.shtml)
-- 2026-06-30 07:21 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/525231874.shtml)
-- 2026-06-30 07:32 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/407803145.shtml)
-- 2026-06-30 07:28 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2634124963.shtml)
-- 2026-06-30 07:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/72212.shtml)
-- 2026-06-30 07:23 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/97576033276.shtml)
-- 2026-06-30 07:38 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/0832829529.shtml)
+- 2026-06-30 07:29 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/053193956.shtml)
+- 2026-06-30 07:53 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/1134028306.shtml)
+- 2026-06-30 07:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/300597.shtml)
+- 2026-06-30 07:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/01859.shtml)
+- 2026-06-30 07:37 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/3798707933.shtml)
+- 2026-06-30 07:49 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/46901.shtml)
+- 2026-06-30 07:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/331580.shtml)
+- 2026-06-30 07:26 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/24564882.shtml)
+- 2026-06-30 07:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/65117390638.shtml)
+- 2026-06-30 07:31 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/7063428731.shtml)
+- 2026-06-30 07:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/5141795.shtml)
+- 2026-06-30 07:36 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/669476488818.shtml)
+- 2026-06-30 07:41 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/439666.shtml)
+- 2026-06-30 07:50 - [巴拉圭率先破门](https://www.share.minike.top/Article/details/32492.shtml)
+- 2026-06-30 07:50 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/13937577.shtml)

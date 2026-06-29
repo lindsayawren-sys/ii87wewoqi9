@@ -1,60 +1,60 @@
-# 川崎重工携手英伟达等企业 加速人工智能与机器人技术融合
+# （经济观察）具身智能打开“中国服务”新空间
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-日本川崎重工业公司22日宣布，已在美国加利福尼亚州圣何塞市设立全新研发中心，并将与英伟达、微软等科技企业展开深度合作。此举旨在通过人工智能（AI）技术赋能机器人产业，加速具身智能（Physical AI）在多领域的商业化应用。受相关合作消息提振，川崎重工当日股价收涨4.5%。 根据合作规划，川崎重工将率先以医疗保健领域为切入点，与英伟达共同开发整合人工智能与机器人技术的商业项目
+中新社北京4月13日电 (记者 刘亮)中国服务业的“科技味”正越来越足。业内普遍看好，具身智能作为机器人技术与人工智能技术深度融合的前沿热点，将为培育更多“中国服务”品牌打开新空间。 具身智能已连续两年被写入中国政府工作报告，“十五五”规划纲要也提到推动具身智能等成为新的经济增长点。 日前召开的全国服务业大会传递出加强数智服务，推动制造业和服务业融合发展的信号。作为连接制造业和
 
 ## 正文
 
-日本川崎重工业公司22日宣布，已在美国加利福尼亚州圣何塞市设立全新研发中心，并将与英伟达、微软等科技企业展开深度合作。
+中新社北京4月13日电 (记者 刘亮)中国服务业的“科技味”正越来越足。
 
-此举旨在通过人工智能（AI）技术赋能机器人产业，加速具身智能（Physical AI）在多领域的商业化应用。
+业内普遍看好，具身智能作为机器人技术与人工智能技术深度融合的前沿热点，将为培育更多“中国服务”品牌打开新空间。
 
-受相关合作消息提振，川崎重工当日股价收涨4.5%。
+具身智能已连续两年被写入中国政府工作报告，“十五五”规划纲要也提到推动具身智能等成为新的经济增长点。
 
-根据合作规划，川崎重工将率先以医疗保健领域为切入点，与英伟达共同开发整合人工智能与机器人技术的商业项目。
+日前召开的全国服务业大会传递出加强数智服务，推动制造业和服务业融合发展的信号。
 
-其产品管线涵盖手术辅助机器人、餐饮与药品配送机器人，以及特种攀爬机器人等多种创新设备。
+作为连接制造业和服务业的桥梁，具身智能正加速从“实验室”迈向“生活场”，推动服务业扩能提质。
 
-此外，川崎重工还将依托圣何塞研发中心，与微软、ADI>亚德诺半导体（Analog Devices）及日本富士通等企业协同发力，共同推进具身智能产品的市场化部署。
+对外经济贸易大学教授陈建伟向中新社记者表示，具身智能是服务业提质升级的重要支撑。
 
-针对新一代机器人的发展愿景，英伟达首席执行官黄仁勋指出，人工智能的下一个前沿领域是让机器理解物理世界，并在人类周围安全地移动与工作。
+它天然具备连接实体生产与柔性服务的枢纽属性，是实现服务业数字化、智能化、精细化跃升的底层技术变量，将推动服务业从人力驱动向技术驱动转型。
 
-他强调，双方正在为新一代智能机器奠定基础。
+百度智能云泛科技创新行业总监徐良说，具身智能创造了新的服务交互范式与价值，通过自然的人机交互，提供更个性化和贴身的服务体验，有望催生全新服务业态，推动行业向更智能、更人性化的方向演进。
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 07:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 07:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 07:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 07:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 07:28 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 07:44 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 07:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 07:23 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:33 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 07:42 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 07:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 07:31 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 07:31 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 07:39 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 07:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 07:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 07:36 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:52 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:29 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 07:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 07:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 07:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 07:40 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 07:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 07:31 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/0312525.shtml)
-- 2026-06-30 07:37 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/827164.shtml)
-- 2026-06-30 07:36 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/7278681.shtml)
-- 2026-06-30 07:45 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/0665944133.shtml)
-- 2026-06-30 07:38 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/26824860800.shtml)
-- 2026-06-30 07:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/89368.shtml)
-- 2026-06-30 07:36 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/340116547063.shtml)
-- 2026-06-30 07:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/1763693.shtml)
-- 2026-06-30 07:38 - [点球大战](http://www.blog.kurohicncr.top/Article/details/05395950.shtml)
-- 2026-06-30 07:29 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/6544451.shtml)
-- 2026-06-30 07:18 - [日本反击率先破门](http://www.blog.minike.top/Article/details/5598727453.shtml)
-- 2026-06-30 07:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/067259.shtml)
-- 2026-06-30 07:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/424064806793.shtml)
-- 2026-06-30 07:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/74709601.shtml)
-- 2026-06-30 07:29 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/37222954.shtml)
+- 2026-06-30 07:44 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/4728104.shtml)
+- 2026-06-30 07:35 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/8146136861.shtml)
+- 2026-06-30 07:34 - [爱很美味](https://www.share.kurohicncr.top/Article/details/7164109.shtml)
+- 2026-06-30 07:46 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/138331.shtml)
+- 2026-06-30 07:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/165225363.shtml)
+- 2026-06-30 07:52 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/088273262150.shtml)
+- 2026-06-30 07:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0742916512.shtml)
+- 2026-06-30 07:51 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/9070554377.shtml)
+- 2026-06-30 07:26 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/446828964378.shtml)
+- 2026-06-30 07:39 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/934607.shtml)
+- 2026-06-30 07:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/803243578.shtml)
+- 2026-06-30 07:33 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8651551864.shtml)
+- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/34674868978.shtml)
+- 2026-06-30 07:37 - [齐思钧回复张月](https://www.share.minike.top/Article/details/10946528141.shtml)
+- 2026-06-30 07:25 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/8755735474.shtml)

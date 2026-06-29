@@ -1,56 +1,47 @@
-# 中国香港与哈萨克斯坦签署移交逃犯等协定
+# 摩根大通就停火风险提示油价走势
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新社香港5月22日电 香港特区政府保安局局长邓炳强与哈萨克斯坦共和国(简称“哈萨克斯坦”)总检察长Berik Assylov，22日代表香港特别行政区及哈萨克斯坦在香港签署关于移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定。 根据香港基本法，在中央人民政府授权下，香港特区政府可与外国就司法互助关系作出适当安排。移交逃犯协定列明香港特区与哈萨克斯坦在移交逃犯的规定，并载
+摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。责任编辑：张俊 SF065
 
 ## 正文
 
-中新社香港5月22日电 香港特区政府保安局局长邓炳强与哈萨克斯坦共和国(简称“哈萨克斯坦”)总检察长Berik Assylov，22日代表香港特别行政区及哈萨克斯坦在香港签署关于移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定。
+摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。
 
-根据香港基本法，在中央人民政府授权下，香港特区政府可与外国就司法互助关系作出适当安排。
-
-移交逃犯协定列明香港特区与哈萨克斯坦在移交逃犯的规定，并载列同类国际协定的一般保障条款。
-
-香港特区政府与哈萨克斯坦签署关于刑事事宜相互法律协助的协定，载有国际上同类协定的主要条款及保障，所涵盖的协助包括辨认和追寻有关的人、送达文件、取得证据、执行搜查和检取的请求、提供资料，及没收犯罪得益等。
-
-香港特区政府保安局表示，移交被判刑人协定体现了香港和哈萨克斯坦双方的一个共同信念，就是容许被判刑人返回原居地服刑，免除语言和文化障碍，而其亲友又能更经常探望，有助于他们改过自新。
-
-邓炳强在签署仪式上表示，香港和哈萨克斯坦均致力于通过国际合作打击罪案。
-
-当日签订的移交逃犯、刑事事宜相互法律协助和移交被判刑人的双边协定，标志两地在司法合作方面迈出重要一步。
-
-(完)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:31 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 07:22 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 07:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 07:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 07:35 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 07:30 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 07:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 07:37 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 07:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 07:51 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 07:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 07:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 07:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 07:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 07:48 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 07:25 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 07:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 07:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/905826495612.shtml)
-- 2026-06-30 07:45 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/83464.shtml)
-- 2026-06-30 07:33 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/21788054.shtml)
-- 2026-06-30 07:37 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/141718180494.shtml)
-- 2026-06-30 07:28 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/07902.shtml)
-- 2026-06-30 07:39 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/3872653.shtml)
-- 2026-06-30 07:22 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/737671.shtml)
-- 2026-06-30 07:30 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/75975.shtml)
-- 2026-06-30 07:20 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/19122050.shtml)
-- 2026-06-30 07:23 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/41273.shtml)
-- 2026-06-30 07:34 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/63965050495.shtml)
-- 2026-06-30 07:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/478185790484.shtml)
-- 2026-06-30 07:39 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/6608468.shtml)
-- 2026-06-30 07:36 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/4729361754.shtml)
-- 2026-06-30 07:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/07460.shtml)
+- 2026-06-30 07:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/50366215.shtml)
+- 2026-06-30 07:31 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/813647151961.shtml)
+- 2026-06-30 07:39 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/7962942631.shtml)
+- 2026-06-30 07:50 - [齐思钧回复张月](https://www.share.kurohicncr.top/Article/details/4474235.shtml)
+- 2026-06-30 07:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/97442245247.shtml)
+- 2026-06-30 07:47 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/85340.shtml)
+- 2026-06-30 07:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/219670420612.shtml)
+- 2026-06-30 07:36 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/528831168605.shtml)
+- 2026-06-30 07:37 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/944030.shtml)
+- 2026-06-30 07:49 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/69066272359.shtml)
+- 2026-06-30 07:49 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/67987071460.shtml)
+- 2026-06-30 07:36 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/05552064549.shtml)
+- 2026-06-30 07:37 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/794363302080.shtml)
+- 2026-06-30 07:26 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/94380890808.shtml)
+- 2026-06-30 07:34 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/310877.shtml)

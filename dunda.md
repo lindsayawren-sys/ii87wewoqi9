@@ -1,58 +1,59 @@
-# 斯特兰蒂斯CEO拟将中国品牌车型引入北美
+# 开局之年看中国·开放自贸港：让黎乡好物走出海南
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-核心要点 斯特兰蒂斯 CEO 安东尼奥・菲洛萨表示，公司计划扩大在北美的合作伙伴关系，以盘活工厂产能、提升销量；同时考虑在美国以外地区生产中国品牌车型。 菲洛萨周四表示，公司 “无疑” 看好与中国车企浙江零跑科技股份有限公司深化合作，将其车型生产与销售拓展至墨西哥，亦有可能落地加拿大。 “我认为墨西哥市场存在机会…… 加拿大或许也有空间，我们拭目以待。” 他在底特律附近的斯特兰
+中新网海口4月14日电 (记者 张茜翼)在正于海南举行的“开局之年看中国·开放自贸港”网络主题传播活动上，“山海黎乡”海南省昌江黎族自治县通过“昌江好物”，走进了海内外媒体人的视野。 在活动现场，昌江黎族自治县商务局局长金俊伟登台分享“昌江好物”，围绕非遗好物展销、特色零售引流、品牌形象提升三大目标，展现黎乡山海珍品的独特魅力。 金俊伟重点推介的昌江好物，不只有黎锦、黎陶、木棉
 
 ## 正文
 
-核心要点 斯特兰蒂斯 CEO 安东尼奥・菲洛萨表示，公司计划扩大在北美的合作伙伴关系，以盘活工厂产能、提升销量；同时考虑在美国以外地区生产中国品牌车型。
+中新网海口4月14日电 (记者 张茜翼)在正于海南举行的“开局之年看中国·开放自贸港”网络主题传播活动上，“山海黎乡”海南省昌江黎族自治县通过“昌江好物”，走进了海内外媒体人的视野。
 
-菲洛萨周四表示，公司 “无疑” 看好与中国车企浙江零跑科技股份有限公司深化合作，将其车型生产与销售拓展至墨西哥，亦有可能落地加拿大。
+在活动现场，昌江黎族自治县商务局局长金俊伟登台分享“昌江好物”，围绕非遗好物展销、特色零售引流、品牌形象提升三大目标，展现黎乡山海珍品的独特魅力。
 
-“我认为墨西哥市场存在机会…… 加拿大或许也有空间，我们拭目以待。
+金俊伟重点推介的昌江好物，不只有黎锦、黎陶、木棉文创等非遗产品，还有乌烈羊、木棉香糕等地理标志美食。
 
-” 他在底特律附近的斯特兰蒂斯北美总部投资者日活动后的新闻发布会上表示，“但目前美国市场没有机会，我们不考虑。
+他指出，“昌江好物”具有稀缺性、非遗性、原生态性三大特质。
 
-” 传统车企，尤其是像斯特兰蒂斯这样在北美深耕多年的企业，一直对中国车企进军北美市场保持警惕。
+如今，在昌江，黎锦通过“非遗+文创”转化为旅游伴手礼；黎陶是文化“活化石”，保突黎陶合作社已成为非遗体验热门打卡地；乌烈羊以肉质细嫩享誉岛内外，木棉香糕、木棉茶饮则将山海之味融入日常品鉴，深受市场青睐。
 
-美国企业高管担忧，中国车企的布局可能成为进入美国消费者市场的跳板。
+“昌江好物”的此次亮相，是其借助重大活动的高端平台与庞大流量，实现品牌跃升的重要措施。
 
-斯特兰蒂斯合作动态一览 尽管美中贸易关系紧张，加拿大目前允许每年进口 4.9 万辆中国制造电动汽车用于零售销售，关税税率为 6.1%。
+活动现场专门设置的“昌江好物”展示区，集中陈列黎锦、黎陶小件、乌烈羊特色食品、木棉香糕等核心产品，并安排专人讲解。
 
-加拿大安大略省多伦多市郊的布兰普顿市，拥有斯特兰蒂斯一座大型装配厂。
+参加活动的海内外媒体人纷纷驻足品鉴，多位网络大V现场拍摄图文短视频进行传播，让“昌江好物”的品牌声量迅速扩大。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 07:28 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 07:43 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 07:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 07:41 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 07:39 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 07:40 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 07:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 07:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 07:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 07:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:24 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 07:46 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 07:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 07:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 07:41 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 07:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 07:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 07:43 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 07:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 07:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 07:24 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 07:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 07:36 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/3422426.shtml)
-- 2026-06-30 07:24 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/9150179359.shtml)
-- 2026-06-30 07:36 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/7824751103.shtml)
-- 2026-06-30 07:25 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/1686962346.shtml)
-- 2026-06-30 07:26 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/303679320.shtml)
-- 2026-06-30 07:33 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/312636.shtml)
-- 2026-06-30 07:42 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/311492406.shtml)
-- 2026-06-30 07:40 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/4332483915.shtml)
-- 2026-06-30 07:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/95539411.shtml)
-- 2026-06-30 07:30 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/317652598866.shtml)
-- 2026-06-30 07:21 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/1905469.shtml)
-- 2026-06-30 07:30 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/7781777280.shtml)
-- 2026-06-30 07:20 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/1607540429.shtml)
-- 2026-06-30 07:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/56014.shtml)
-- 2026-06-30 07:19 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/23755.shtml)
+- 2026-06-30 07:49 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/53101.shtml)
+- 2026-06-30 07:45 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/928065.shtml)
+- 2026-06-30 07:53 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/5510391.shtml)
+- 2026-06-30 07:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/39805.shtml)
+- 2026-06-30 07:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/44696979.shtml)
+- 2026-06-30 07:24 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/666558524.shtml)
+- 2026-06-30 07:27 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/85142.shtml)
+- 2026-06-30 07:38 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/119123.shtml)
+- 2026-06-30 07:49 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/19648309.shtml)
+- 2026-06-30 07:46 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/477428173.shtml)
+- 2026-06-30 07:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8909131.shtml)
+- 2026-06-30 07:46 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/68288505.shtml)
+- 2026-06-30 07:53 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/3871128285.shtml)
+- 2026-06-30 07:36 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/1824444.shtml)
+- 2026-06-30 07:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/11426132.shtml)

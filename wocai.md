@@ -1,57 +1,48 @@
-# 清远连山四月八“牛王诞”：非遗赋能乡村振兴
+# 177只股短线走稳 站上五日均线
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网清远5月24日电 题：清远连山四月八“牛王诞”：非遗赋能乡村振兴 作者 张璐 黄秋月 5月24日(农历四月初八)，2026年广东省“四季村晚”夏季示范活动——连山壮族瑶族自治县四月八“牛王诞”活动(简称“活动”)在广东省清远市上帅镇东君村举行。 据悉，“牛王诞”这一习俗已延续超370年，于2015年列入广东省非物质文化遗产代表性项目名录。 当日，以《装古事》为核心的非遗巡
+证券时报·数据宝统计，截至今日下午14:00，上证综指3986.99点，收于五日均线之上，涨跌幅0.02%，A股总成交额为17754.63亿元。到目前为止，今日有177只A股价格突破了五日均线，其中乖离率较大的个股有*ST金泰（维权）、必创科技、天邦食品等，乖离率分别为11.26%、8.16%、7.47%；欧林生物、探路者、农业银行等个股乖离率较小，刚刚站上五日均线。4月13日
 
 ## 正文
 
-中新网清远5月24日电 题：清远连山四月八“牛王诞”：非遗赋能乡村振兴 作者 张璐 黄秋月 5月24日(农历四月初八)，2026年广东省“四季村晚”夏季示范活动——连山壮族瑶族自治县四月八“牛王诞”活动(简称“活动”)在广东省清远市上帅镇东君村举行。
+证券时报·数据宝统计，截至今日下午14:00，上证综指3986.99点，收于五日均线之上，涨跌幅0.02%，A股总成交额为17754.63亿元。
 
-据悉，“牛王诞”这一习俗已延续超370年，于2015年列入广东省非物质文化遗产代表性项目名录。
+到目前为止，今日有177只A股价格突破了五日均线，其中乖离率较大的个股有*ST金泰（维权）、必创科技、天邦食品等，乖离率分别为11.26%、8.16%、7.47%；欧林生物、探路者、农业银行等个股乖离率较小，刚刚站上五日均线。
 
-当日，以《装古事》为核心的非遗巡游拉开了活动序幕。
-
-装古事是壮族一种群众性的民间游艺活动，已被列入清远市第三批市级非物质文化遗产代表作名录。
-
-巡游起点上，来自各村寨联合组成的锣鼓队、八音队，列成笔直的方阵。
-
-壮家儿女身着节日盛装，银饰在阳光下闪闪发亮；锣鼓手紧握鼓槌，八音师傅或怀抱二弦或手持唢呐，姑娘们妆容精致、头戴彩花。
-
-晨风中，他们静待时辰，铜鼓一敲，便浩浩荡荡向着主会场出发。
-
-锣鼓喧天、旌旗招展，由德高望重的族老掌灯引路，身后百余群众演员手持竹篾和纸浆编扎的彩绘鸟、鱼、虾、虫形态灯具蜿蜒前行。
+4月13日突破五日均线个股乖离率排名（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 07:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 07:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 07:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 07:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 07:27 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 07:21 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 07:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 07:21 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 07:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 07:35 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 07:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 07:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 07:41 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 07:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 07:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 07:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 07:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 07:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 07:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 07:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 07:39 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/75446631188.shtml)
-- 2026-06-30 07:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/33519121115.shtml)
-- 2026-06-30 07:43 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/65062.shtml)
-- 2026-06-30 07:35 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/98547.shtml)
-- 2026-06-30 07:22 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/839568206.shtml)
-- 2026-06-30 07:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3748419.shtml)
-- 2026-06-30 07:34 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/782194956643.shtml)
-- 2026-06-30 07:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/36684.shtml)
-- 2026-06-30 07:31 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/179940.shtml)
-- 2026-06-30 07:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/733304.shtml)
-- 2026-06-30 07:46 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/677488876822.shtml)
-- 2026-06-30 07:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/5680048575.shtml)
-- 2026-06-30 07:42 - [巴西扳平比分](https://www.share.minike.top/Article/details/589883855984.shtml)
-- 2026-06-30 07:36 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/80590572315.shtml)
-- 2026-06-30 07:42 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/913860.shtml)
+- 2026-06-30 07:53 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/0398263.shtml)
+- 2026-06-30 07:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/6809642617.shtml)
+- 2026-06-30 07:27 - [急先锋](https://www.share.kurohicncr.top/Article/details/8981510.shtml)
+- 2026-06-30 07:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/6871760512.shtml)
+- 2026-06-30 07:44 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/491746.shtml)
+- 2026-06-30 07:50 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/00993641690.shtml)
+- 2026-06-30 07:47 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/37859357.shtml)
+- 2026-06-30 07:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/922177993107.shtml)
+- 2026-06-30 07:36 - [森保一 保守](https://www.blog.minike.top/Article/details/09341426.shtml)
+- 2026-06-30 07:46 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/6112661.shtml)
+- 2026-06-30 07:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/278136963.shtml)
+- 2026-06-30 07:53 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/4913221.shtml)
+- 2026-06-30 07:49 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/9501851.shtml)
+- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/284887570383.shtml)
+- 2026-06-30 07:38 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/697028135.shtml)

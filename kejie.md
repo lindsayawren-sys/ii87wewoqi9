@@ -1,60 +1,56 @@
-# 乳企年报|12家公司经营活动现金流净额减少 佳禾食品现金流由正转负
+# 美银调查显示，固定收益基金经理更担心增长而非通胀
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，乳企陷入营收、净利润双下滑的困境。 去年19 家上市乳制品公司中仅 8 家实现营收正增长，超半数企业营收同比下滑。9家公司净利润同比下滑，占比也接近一半。 从细分领域来看，不同公司之间分化巨大，10家以液体乳为主营业务的公司中
+在伊朗战争前景不确定性的情况下，外汇市场正努力应对通胀恐慌和增长放缓的担忧。 美国银行在一份关于其全球固定收益基金经理调查的报告中称，投资者认为，中东冲突对2026年美元走势路径造成的是“水平层面的转变，而非趋势的改变“。受访者不认为美联储会加息，并认为该央行可能会采取偏宽松的立场。 美银分析师称，他们还“担心经济下行风险的定价不足，只有极少数人担心通胀上行风险“。 洲际交易所
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，乳企陷入营收、净利润双下滑的困境。
+在伊朗战争前景不确定性的情况下，外汇市场正努力应对通胀恐慌和增长放缓的担忧。
 
-去年19 家上市乳制品公司中仅 8 家实现营收正增长，超半数企业营收同比下滑。
+美国银行在一份关于其全球固定收益基金经理调查的报告中称，投资者认为，中东冲突对2026年美元走势路径造成的是“水平层面的转变，而非趋势的改变“。
 
-9家公司净利润同比下滑，占比也接近一半。
+受访者不认为美联储会加息，并认为该央行可能会采取偏宽松的立场。
 
-从细分领域来看，不同公司之间分化巨大，10家以液体乳为主营业务的公司中有6家收入下滑，不管是阳光乳业这种在低温领域占据优势的大型乳企，还是天润乳业、三元乳业这类区域乳企都未能幸免。
+美银分析师称，他们还“担心经济下行风险的定价不足，只有极少数人担心通胀上行风险“。
 
-从净利润来看，甚至有7家乳企陷入亏损。
+洲际交易所的DXY美元指数上涨0.2%，与此同时，美元兑日圆升值0.3%，兑欧元升值0.2%。
 
-低温鲜奶、奶酪、奶油、炼乳、奶粉是乳制品行业为数不多仍保持增长的细分领域，与此形成对比的是，植脂末及乳饮品公司收入则在下滑。
-
-从整体来看，行业马太效应持续加剧，市场份额、利润持续向全国性龙头集中，中小企业的生存空间被持续挤压。
-
-行业龙头伊利股份去年实现了营收、净利双增长。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 07:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 07:42 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 07:33 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 07:23 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 07:26 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 07:36 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 07:31 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 07:32 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 07:20 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 07:19 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 07:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 07:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 07:28 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 07:39 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 07:46 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 07:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 07:32 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 07:28 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 07:43 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:38 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 07:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 07:46 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 07:40 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 07:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 07:46 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/89577783.shtml)
-- 2026-06-30 07:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/234871.shtml)
-- 2026-06-30 07:22 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/57437595.shtml)
-- 2026-06-30 07:43 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/8724720.shtml)
-- 2026-06-30 07:47 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/5807810395.shtml)
-- 2026-06-30 07:30 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/30065579.shtml)
-- 2026-06-30 07:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/5656151728.shtml)
-- 2026-06-30 07:43 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/383716046.shtml)
-- 2026-06-30 07:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/1844222.shtml)
-- 2026-06-30 07:33 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/605351957.shtml)
-- 2026-06-30 07:34 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/694220205610.shtml)
-- 2026-06-30 07:30 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/97985.shtml)
-- 2026-06-30 07:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/79756318629.shtml)
-- 2026-06-30 07:22 - [极限挑战第一季](https://www.blog.minike.top/Article/details/03343543439.shtml)
-- 2026-06-30 07:20 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/2029059.shtml)
+- 2026-06-30 07:38 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/77924977001.shtml)
+- 2026-06-30 07:29 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1868831764.shtml)
+- 2026-06-30 07:31 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/20531012.shtml)
+- 2026-06-30 07:38 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/801185.shtml)
+- 2026-06-30 07:24 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/862493449804.shtml)
+- 2026-06-30 07:35 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/69754264.shtml)
+- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/1288642221.shtml)
+- 2026-06-30 07:45 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/68547600.shtml)
+- 2026-06-30 07:26 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/276196804668.shtml)
+- 2026-06-30 07:44 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/039078.shtml)
+- 2026-06-30 07:46 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/943522313412.shtml)
+- 2026-06-30 07:44 - [爱很美味](http://www.blog.minike.top/Article/details/077333867.shtml)
+- 2026-06-30 07:43 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/07165194.shtml)
+- 2026-06-30 07:50 - [流金岁月](http://www.blog.minike.top/Article/details/480017908481.shtml)
+- 2026-06-30 07:34 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/4806057966.shtml)

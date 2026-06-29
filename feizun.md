@@ -1,56 +1,49 @@
-# ATFX:美盘时段 关注凯文沃什宣誓就职和密歇根大学数据
+# 以黎代表在华盛顿举行会谈
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月22日，ATFX：今日亚盘时段最受关注的数据是日本的四月份核心CPI年率，最新至1.4%低于前值1.8%，同样低于预期值1.7%。超预期的数据意味着，日本对能源价格拥有较强的控制能力。因此，本首相高市早苗表示，本周日本的价格在G7各国中保持最低。 ATFX图▲ 分钟级别，USDJPY在数据发布后，从最低点158.98上涨至159.03，幅度5基点
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月14日电以色列和黎巴嫩政府代表14日在美国首都华盛顿举行会谈。以方拒绝与黎巴嫩真主党讨论停火。（完）责任编辑：宋雅芳
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月22日，ATFX：今日亚盘时段最受关注的数据是日本的四月份核心CPI年率，最新至1.4%低于前值1.8%，同样低于预期值1.7%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-超预期的数据意味着，日本对能源价格拥有较强的控制能力。
+新华社华盛顿4月14日电以色列和黎巴嫩政府代表14日在美国首都华盛顿举行会谈。
 
-因此，本首相高市早苗表示，本周日本的价格在G7各国中保持最低。
+以方拒绝与黎巴嫩真主党讨论停火。
 
-ATFX图▲ 分钟级别，USDJPY在数据发布后，从最低点158.98上涨至159.03，幅度5基点，在走势图中形成明显的长阳线。
-
-随后的一个半小时里，USDJPY继续上涨，最高触及159.11，累计最大涨幅13基点。
-
-日本的通胀率低于预期，意味着日本央行加息的紧迫性不及美联储，日本走贬符合逻辑。
-
-北京时间22：00，美国密歇根大学将公布两项关键数据：消费者信心指数和一年期通胀预期。
-
-这两项数据被美联储重点关注，如果出现类似日本CPI一样的超预期情况，可能导致EURUSD剧烈波动。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 07:27 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 07:20 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 07:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:43 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 07:37 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 07:30 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 07:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 07:29 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:37 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 07:35 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 07:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 07:49 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 07:39 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 07:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 07:37 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 07:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 07:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:33 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 07:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/0912751.shtml)
-- 2026-06-30 07:33 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/407453061.shtml)
-- 2026-06-30 07:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/72570000.shtml)
-- 2026-06-30 07:26 - [第一炉香](https://www.share.minike.top/Article/details/48095.shtml)
-- 2026-06-30 07:43 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/223639.shtml)
-- 2026-06-30 07:46 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/1129392151.shtml)
-- 2026-06-30 07:26 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/464117.shtml)
-- 2026-06-30 07:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/051894166.shtml)
-- 2026-06-30 07:21 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/1093070.shtml)
-- 2026-06-30 07:20 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/73369877.shtml)
-- 2026-06-30 07:24 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/57847831904.shtml)
-- 2026-06-30 07:47 - [速度与激情9](https://www.share.minike.top/Article/details/0656756.shtml)
-- 2026-06-30 07:47 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/70598199643.shtml)
-- 2026-06-30 07:28 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/2213386.shtml)
-- 2026-06-30 07:24 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/82849409.shtml)
+- 2026-06-30 07:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/608716701740.shtml)
+- 2026-06-30 07:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/74710626.shtml)
+- 2026-06-30 07:24 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/368584082.shtml)
+- 2026-06-30 07:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/73648620225.shtml)
+- 2026-06-30 07:34 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/76027234.shtml)
+- 2026-06-30 07:38 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/28629199783.shtml)
+- 2026-06-30 07:52 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/81017878638.shtml)
+- 2026-06-30 07:36 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/752720039083.shtml)
+- 2026-06-30 07:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/3884244.shtml)
+- 2026-06-30 07:28 - [流金岁月](http://www.share.kurohicncr.top/Article/details/18763.shtml)
+- 2026-06-30 07:35 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/02019359.shtml)
+- 2026-06-30 07:47 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/34673.shtml)
+- 2026-06-30 07:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/92292534.shtml)
+- 2026-06-30 07:24 - [点菜也要教吗](http://www.share.minike.top/Article/details/912943141.shtml)
+- 2026-06-30 07:29 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/41596512.shtml)

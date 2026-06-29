@@ -1,57 +1,59 @@
-# （乡村行·看振兴）银发族变身“思想导游”： 直播带“理”，回甘直抵心尖
+# 全面贯彻总体国家安全观 在维护国家“五大安全”中挺膺担当
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网淮南5月24日电 题：银发族变身“思想导游”：直播带“理”，回甘直抵心尖 作者：刘鸿鹤 一人、一车、一拐、一手机……走进安徽省淮南市寿县正阳关镇，七旬退休教师汪洋变身“思想导游”，把理论与政策揉进古镇文脉、田间地头与百姓日常，用乡音白话祛除理论“涩度”，让真理的“回甘”从指尖直抵心尖。 故事串起理论，直播间里寻乡愁 汪洋的直播，始于对家乡文化的深沉热爱。退休后，他先是做义
+国家安全是民族复兴的根基。党的十八大以来，习近平总书记4次亲临黑龙江，赋予维护国家国防安全、粮食安全、生态安全、能源安全、产业安全重大使命任务，为我们服务保障国家安全大局指明了方向。黑龙江牢记习近平总书记重要嘱托，坚决扛起维护国家“五大安全”政治责任，建好建强国家重要商品粮生产基地、重型装备生产制造基地、重要能源及原材料基地、北方生态安全屏障、向北开放新高地“三基地一屏障一高地
 
 ## 正文
 
-中新网淮南5月24日电 题：银发族变身“思想导游”：直播带“理”，回甘直抵心尖 作者：刘鸿鹤 一人、一车、一拐、一手机……走进安徽省淮南市寿县正阳关镇，七旬退休教师汪洋变身“思想导游”，把理论与政策揉进古镇文脉、田间地头与百姓日常，用乡音白话祛除理论“涩度”，让真理的“回甘”从指尖直抵心尖。
+国家安全是民族复兴的根基。
 
-故事串起理论，直播间里寻乡愁 汪洋的直播，始于对家乡文化的深沉热爱。
+党的十八大以来，习近平总书记4次亲临黑龙江，赋予维护国家国防安全、粮食安全、生态安全、能源安全、产业安全重大使命任务，为我们服务保障国家安全大局指明了方向。
 
-退休后，他先是做义务导游，后又顺应新媒体潮流，用短视频和直播搭建起传播古镇文化的数字桥梁。
+黑龙江牢记习近平总书记重要嘱托，坚决扛起维护国家“五大安全”政治责任，建好建强国家重要商品粮生产基地、重型装备生产制造基地、重要能源及原材料基地、北方生态安全屏障、向北开放新高地“三基地一屏障一高地”，以“身在最北方、心向党中央”的政治忠诚，守好祖国“北大门”。
 
-在汪洋的镜头里，既有清代清官俞化鹏促成邻里各退三尺、传为佳话的“九尺巷”，也有始建于清末、见证淮河水运繁华的“淮安客栈”。
+认真学习贯彻习近平总书记关于统筹发展和安全的重要论述，牢固树立安全发展理念，以实际行动坚定拥护“两个确立”、坚决做到“两个维护” 党的十八大以来，习近平总书记统筹中华民族伟大复兴战略全局和世界百年未有之大变局，高瞻远瞩对国家安全作出战略擘画，创造性提出总体国家安全观，开辟了中国特色国家安全理论和实践新境界，为维护新时代国家安全指明了方向、提供了根本遵循，为完善全球安全治理贡献了中国智慧，具有重大的历史意义、时代意义和世界意义。
 
-这份对乡土文脉的深耕，让他的直播间不仅传播理论，更成了游子寄托乡愁的温暖驿站。
+安全发展理念指引中国式现代化行稳致远。
 
-一位泰国华侨寻亲多年无果，而汪洋凭借对地方志的熟稔，很快帮其找到了正阳关镇的宗亲。
+习近平总书记强调，安全是发展的前提，发展是安全的保障。
 
-正如汪洋所说：“能让游子找到根，让乡愁有了家，思想理论才算真正走进了人心。
+深入践行安全发展理念，更好统筹发展和安全，是全面建设社会主义现代化国家的战略选择。
 
-” 田间地头开讲，政策理论“见缝插针” 汪洋的理论宣讲从不照本宣科，而是将大道理“见缝插针”融入日常直播中。
+党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我国坚决维护国家主权、安全、发展利益，进行了具有许多新的历史特点的伟大斗争，经受住了来自国内国外各方面的风险考验，走出了一条中国特色国家安全道路，成功续写了经济快速发展和社会长期稳定“两大奇迹”新篇章。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 07:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 07:35 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 07:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 07:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 07:39 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 07:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 07:23 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 07:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 07:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 07:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 07:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 07:44 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:51 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 07:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 07:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 07:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 07:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 07:35 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 07:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 07:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 07:39 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 07:34 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/15528978.shtml)
-- 2026-06-30 07:25 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/76901166.shtml)
-- 2026-06-30 07:43 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/33696815125.shtml)
-- 2026-06-30 07:37 - [锐评T1零封KC](https://www.share.minike.top/Article/details/9073624.shtml)
-- 2026-06-30 07:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/767195180.shtml)
-- 2026-06-30 07:32 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/069403889.shtml)
-- 2026-06-30 07:26 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/57660494937.shtml)
-- 2026-06-30 07:25 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/724829354168.shtml)
-- 2026-06-30 07:40 - [毒液2](http://www.share.kurohicncr.top/Article/details/3822151602.shtml)
-- 2026-06-30 07:38 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/025062784644.shtml)
-- 2026-06-30 07:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/38102809984.shtml)
-- 2026-06-30 07:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/529472532.shtml)
-- 2026-06-30 07:40 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/08013532466.shtml)
-- 2026-06-30 07:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/930889401.shtml)
-- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/007442979969.shtml)
+- 2026-06-30 07:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/576679286465.shtml)
+- 2026-06-30 07:33 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/4046042.shtml)
+- 2026-06-30 07:46 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/88504.shtml)
+- 2026-06-30 07:47 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/2618887.shtml)
+- 2026-06-30 07:46 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.minike.top/Article/details/590082534.shtml)
+- 2026-06-30 07:38 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/27619574.shtml)
+- 2026-06-30 07:50 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/5339504.shtml)
+- 2026-06-30 07:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/23792696795.shtml)
+- 2026-06-30 07:53 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/8318584686.shtml)
+- 2026-06-30 07:44 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/852240.shtml)
+- 2026-06-30 07:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/723657596.shtml)
+- 2026-06-30 07:36 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/7048749.shtml)
+- 2026-06-30 07:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/573812580.shtml)
+- 2026-06-30 07:48 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/85583425696.shtml)
+- 2026-06-30 07:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/66343069.shtml)

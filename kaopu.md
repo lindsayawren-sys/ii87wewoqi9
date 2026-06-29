@@ -1,56 +1,58 @@
-# 四川成都：公园里长出“巨蛋” “智能气膜球场”将建成投用
+# 李强同西班牙首相桑切斯会谈
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？最
+新华社北京4月14日电(记者董雪)4月14日下午，国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。 李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。越是形势变乱交织，中西两国越要
 
 ## 正文
 
-“手搓经济”火热，AI真的让创业变容易了吗？
+新华社北京4月14日电(记者董雪)4月14日下午，国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。
 
-618大战，为何先从手机降价开始？
+李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。
 
-埃及胡夫金字塔如何抗震？
+中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+越是形势变乱交织，中西两国越要加强务实合作，相互赋能、相互成就。
 
-你的股票和黄金，后市怎么走？
+今天上午，习近平主席同首相先生举行会晤，就深化两国关系擘画了蓝图。
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+中方愿同西班牙进一步对接发展战略，推动双方全方位合作不断走深走实，实现更高水平的互利共赢。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+李强指出，中方愿同西班牙更好发挥经济互补优势，深挖合作潜力，推动两国贸易扩容提质、平衡发展。
 
-最高法案例“划重点”黄金，再跌也不能买了？
+中方愿进口西班牙更多优质产品，鼓励更多有实力的中资企业赴西班牙投资。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 07:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 07:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 07:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 07:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 07:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 07:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 07:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 07:42 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 07:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 07:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 07:46 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 07:49 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 07:31 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 07:27 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 07:27 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:30 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 07:32 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 07:27 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:44 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:40 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/79820205005.shtml)
-- 2026-06-30 07:36 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/63703904862.shtml)
-- 2026-06-30 07:35 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/072075.shtml)
-- 2026-06-30 07:43 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/78903330.shtml)
-- 2026-06-30 07:20 - [美人鱼](https://www.blog.minike.top/Article/details/681926199.shtml)
-- 2026-06-30 07:42 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/51267380809.shtml)
-- 2026-06-30 07:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/24332.shtml)
-- 2026-06-30 07:41 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/94257037107.shtml)
-- 2026-06-30 07:24 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/932684690822.shtml)
-- 2026-06-30 07:41 - [德国 传控](http://www.share.kurohicncr.top/Article/details/945395.shtml)
-- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/12983837804.shtml)
-- 2026-06-30 07:34 - [内马尔替补](https://www.blog.minike.top/Article/details/89527.shtml)
-- 2026-06-30 07:30 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/439733.shtml)
-- 2026-06-30 07:34 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/28599650599.shtml)
-- 2026-06-30 07:42 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/9900375.shtml)
+- 2026-06-30 07:35 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/0725314946.shtml)
+- 2026-06-30 07:47 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/094180224.shtml)
+- 2026-06-30 07:28 - [千香](http://www.blog.minike.top/Article/details/8917619968.shtml)
+- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/2090805720.shtml)
+- 2026-06-30 07:50 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/95215124502.shtml)
+- 2026-06-30 07:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/97210840842.shtml)
+- 2026-06-30 07:49 - [我和我的家乡](https://www.share.minike.top/Article/details/74529656706.shtml)
+- 2026-06-30 07:34 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/06958930.shtml)
+- 2026-06-30 07:25 - [一见倾心](http://www.share.minike.top/Article/details/981734926579.shtml)
+- 2026-06-30 07:30 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/731845614.shtml)
+- 2026-06-30 07:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/610742.shtml)
+- 2026-06-30 07:26 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/7602087605.shtml)
+- 2026-06-30 07:24 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/8162685865.shtml)
+- 2026-06-30 07:52 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/05468832520.shtml)
+- 2026-06-30 07:36 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/234718761.shtml)

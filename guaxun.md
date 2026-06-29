@@ -1,58 +1,61 @@
-# 从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路
+# 内塔尼亚胡：支持特朗普对伊朗实施海上封锁的决定
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网太原5月22日电 题：从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路 作者 赵亮宇 “我是一名从农村走出来的工人，手里的焊枪，就是我追梦的翅膀。”5月22日，刚刚在全国总工会机关完成主题宣讲的全国劳动模范、全国五一劳动奖章获得者、中国能建山西院工程承包分公司一级技能专家贾向东，讲述了自己走出农村、从送水工成长为全国劳模的奋斗历程。 今年4月，贾向东站在全国总工会机
+以色列总理本雅明·内塔尼亚胡表示，以色列支持美国总统唐纳德·特朗普对伊朗实施海上封锁的决定。 内塔尼亚胡表示，他周日与美国副总统JD·万斯就美伊会谈通话。万斯乘机从伊斯兰堡返回途中向他致电。 内塔尼亚胡称，万斯表示，美伊谈判破裂是由美方作出的决定，原因是伊朗未按双方约定在停火开始时开放霍尔木兹海峡 由于伊朗违反协议，特朗普决定实施海上封锁。 “我们当然支持这种强硬立场，”内塔尼
 
 ## 正文
 
-中新网太原5月22日电 题：从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路 作者 赵亮宇 “我是一名从农村走出来的工人，手里的焊枪，就是我追梦的翅膀。
+以色列总理本雅明·内塔尼亚胡表示，以色列支持美国总统唐纳德·特朗普对伊朗实施海上封锁的决定。
 
-”5月22日，刚刚在全国总工会机关完成主题宣讲的全国劳动模范、全国五一劳动奖章获得者、中国能建山西院工程承包分公司一级技能专家贾向东，讲述了自己走出农村、从送水工成长为全国劳模的奋斗历程。
+内塔尼亚胡表示，他周日与美国副总统JD·万斯就美伊会谈通话。
 
-今年4月，贾向东站在全国总工会机关的报告台上，以《匠心铸魂实干建功以劳模精神、劳动精神、工匠精神书写新时代产业工人答卷》为题，回顾了自己的成长之路。
+万斯乘机从伊斯兰堡返回途中向他致电。
 
-这是他时隔多年再次走进全总机关，而最令他终生难忘的，是2013年4月28日——那一年他30岁，在这里参加了全国劳模代表座谈会。
+内塔尼亚胡称，万斯表示，美伊谈判破裂是由美方作出的决定，原因是伊朗未按双方约定在停火开始时开放霍尔木兹海峡 由于伊朗违反协议，特朗普决定实施海上封锁。
 
-13年过去，当年的场景依然历历在目。
+“我们当然支持这种强硬立场，”内塔尼亚胡说。
 
-他的这段珍贵经历，成为激励新时代产业工人的生动教材。
+内塔尼亚胡还称，万斯表示，美方的核心关切是将所有浓缩铀从伊朗移除，并确保伊朗未来数年不再进行铀浓缩活动。
 
-这位从山西天镇贫困农村走出来的少年，从扛水桶的送水工，到手握焊枪的全国劳动模范、全国五一劳动奖章获得者，再到新能源总承包项目带头人，二十余载光阴，他以焊枪为笔，以匠心为墨，在焊花飞溅中书写着新时代产业工人的奋斗答卷。
+他说，美国每天都会向以色列通报与伊朗谈判进展的最新情况。
 
-初心如磐：苦难里扎根 1983年，贾向东出生在山西天镇县的旧窑洞里。
+对于黎巴嫩局势，内塔尼亚胡表示，以色列正寻求建立更纵深的安全缓冲区，防范真主党发动侵略的威胁。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 07:43 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 07:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 07:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 07:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 07:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 07:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 07:37 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 07:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 07:18 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 07:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 07:32 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 07:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 07:36 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:46 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 07:28 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 07:32 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 07:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:35 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 07:35 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 07:35 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 07:30 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 07:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 07:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 07:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/596637838.shtml)
-- 2026-06-30 07:45 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/4680941892.shtml)
-- 2026-06-30 07:39 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/066919498.shtml)
-- 2026-06-30 07:44 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/1598848222.shtml)
-- 2026-06-30 07:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/32203439018.shtml)
-- 2026-06-30 07:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/59885.shtml)
-- 2026-06-30 07:46 - [扫黑风暴](https://www.share.minike.top/Article/details/08689194703.shtml)
-- 2026-06-30 07:26 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/64461899783.shtml)
-- 2026-06-30 07:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/996120.shtml)
-- 2026-06-30 07:30 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/2611747207.shtml)
-- 2026-06-30 07:21 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/8604660.shtml)
-- 2026-06-30 07:26 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/5689808.shtml)
-- 2026-06-30 07:21 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/17631796446.shtml)
-- 2026-06-30 07:44 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/442655345342.shtml)
-- 2026-06-30 07:22 - [一见倾心](http://www.share.kurohicncr.top/Article/details/285893933088.shtml)
+- 2026-06-30 07:49 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/953999615.shtml)
+- 2026-06-30 07:31 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/1693545.shtml)
+- 2026-06-30 07:30 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/41174333917.shtml)
+- 2026-06-30 07:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/36675915274.shtml)
+- 2026-06-30 07:35 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/204069570.shtml)
+- 2026-06-30 07:53 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/854672.shtml)
+- 2026-06-30 07:26 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/32726.shtml)
+- 2026-06-30 07:51 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/69306.shtml)
+- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/3194959897.shtml)
+- 2026-06-30 07:38 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/8851972.shtml)
+- 2026-06-30 07:33 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/37655.shtml)
+- 2026-06-30 07:42 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/70458618341.shtml)
+- 2026-06-30 07:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/37535328136.shtml)
+- 2026-06-30 07:26 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/5913964.shtml)
+- 2026-06-30 07:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/05413563.shtml)

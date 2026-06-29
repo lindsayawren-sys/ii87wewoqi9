@@ -1,60 +1,53 @@
-# 香港7位学者与业界人士获科技创新奖
+# 光环新网：2024年底公司进一步拓展数据中心业务半径
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网香港5月22日电 (记者 魏华都 赵静怡)由香港科技创新联盟主办、中国银行(香港)冠名赞助的第四届中银香港科技创新奖获奖名单22日揭晓。本届奖项提名数量较上一届增长73.75%。主办方表示，这充分反映香港对高端科研人才的吸引力及粤港澳大湾区科研生态的蓬勃发展。 各领域获奖者包括人工智能及机器人领域林达华、生命健康领域陈君赐、先进制造领域余长源、新材料新能源领域卢怡君，金融
+证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。两个项目可实现同城双中心互为备份，更好地满足客户需求。目前两个项目均已经取得项目用地，正处于项目前期审批筹
 
 ## 正文
 
-中新网香港5月22日电 (记者 魏华都 赵静怡)由香港科技创新联盟主办、中国银行(香港)冠名赞助的第四届中银香港科技创新奖获奖名单22日揭晓。
+证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。
 
-本届奖项提名数量较上一届增长73.75%。
+其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。
 
-主办方表示，这充分反映香港对高端科研人才的吸引力及粤港澳大湾区科研生态的蓬勃发展。
+两个项目可实现同城双中心互为备份，更好地满足客户需求。
 
-各领域获奖者包括人工智能及机器人领域林达华、生命健康领域陈君赐、先进制造领域余长源、新材料新能源领域卢怡君，金融科技领域则由郭彦麟、叶沛贤及章昱共同获奖。
+目前两个项目均已经取得项目用地，正处于项目前期审批筹划阶段。
 
-全国政协副主席梁振英出席颁奖典礼致辞时表示，期望香港创新科技产业在未来10年不断发展，成为香港四大产业之一。
-
-他认为香港科技创新奖鼓励创科界不懈努力，也为香港树立标杆，希望各界持之以恒助力国家实现科技强国目标。
-
-香港特区政府创新科技及工业局局长孙东表示，中银香港科技创新奖奖项与国家战略性新兴产业及香港战略性科技产业高度契合，体现了以香港所长，贡献国家所需的初心。
-
-特区政府会积极贯彻“以人才推动科技，以科技引领产业，以产业汇聚人才”的方针推动创科产业发展，继续引进各类人才，让香港的创科动力源源不绝、薪火相传。
+公司将以市场为导向，根据客户需求采取分期建设的方式进行。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 07:24 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 07:34 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 07:22 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 07:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 07:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 07:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 07:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 07:21 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 07:46 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 07:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 07:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:20 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 07:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:37 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 07:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 07:29 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 07:40 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 07:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 07:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 07:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 07:29 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 07:40 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 07:32 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 07:40 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 07:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 07:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/3186812211.shtml)
-- 2026-06-30 07:32 - [世界杯](http://www.share.minike.top/Article/details/9249885.shtml)
-- 2026-06-30 07:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/159464478.shtml)
-- 2026-06-30 07:40 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/26605990.shtml)
-- 2026-06-30 07:33 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/39205017.shtml)
-- 2026-06-30 07:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/37450230963.shtml)
-- 2026-06-30 07:46 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/74399.shtml)
-- 2026-06-30 07:30 - [周生如故](https://www.share.kurohicncr.top/Article/details/336340803155.shtml)
-- 2026-06-30 07:34 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/578470.shtml)
-- 2026-06-30 07:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/7122329.shtml)
-- 2026-06-30 07:38 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/414769632.shtml)
-- 2026-06-30 07:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/551232595.shtml)
-- 2026-06-30 07:37 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/36711818056.shtml)
-- 2026-06-30 07:31 - [全球芯片巨头史诗级扩产](https://www.blog.minike.top/Article/details/21775240.shtml)
-- 2026-06-30 07:30 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/36013446752.shtml)
+- 2026-06-30 07:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/66326.shtml)
+- 2026-06-30 07:40 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/53445.shtml)
+- 2026-06-30 07:26 - [锐评T1零封KC](https://www.share.minike.top/Article/details/781802.shtml)
+- 2026-06-30 07:42 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/904177829.shtml)
+- 2026-06-30 07:40 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/35928921184.shtml)
+- 2026-06-30 07:30 - [恋与深空道歉声明](http://www.blog.kurohicncr.top/Article/details/627829148346.shtml)
+- 2026-06-30 07:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/272105.shtml)
+- 2026-06-30 07:49 - [金刚川](http://www.share.kurohicncr.top/Article/details/158308911.shtml)
+- 2026-06-30 07:29 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/5721287951.shtml)
+- 2026-06-30 07:34 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/900321952.shtml)
+- 2026-06-30 07:43 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/90431.shtml)
+- 2026-06-30 07:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/71050678.shtml)
+- 2026-06-30 07:46 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/617558697544.shtml)
+- 2026-06-30 07:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/9794181.shtml)
+- 2026-06-30 07:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/309042711.shtml)

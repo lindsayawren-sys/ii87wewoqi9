@@ -1,50 +1,59 @@
-# 英矽智能早盘涨超4% 携手沙特阿美构建流程化AI筛选与验证系统Sanity Pipeline
+# 欧洲股市上涨 美伊和谈预期提振风险偏好
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-英矽智能（03696）盘中涨超5%，截至发稿，股价上涨4.45%，现报47.88港元，成交额3986.81万港元。 5月21日，据英矽智能官微消息，公司与沙特阿美于2023年LEAP科技大会期间签订战略合作协议（MoU），赋能AI驱动的可持续发展与抗衰老研究。针对荣获诺奖的金属有机框架（MOFs）材料设计，英矽智能与沙特阿美合作构建了流程化的AI筛选与验证系统Sanity Pi
+受投资者对美伊可能重启谈判的乐观情绪推动，欧洲股市上涨。 斯托克欧洲600指数收盘上涨1%，媒体和旅游板块领涨。能源股表现最弱，因布伦特原油跌破每桶100美元。 一位了解德黑兰方面讨论情况的人士透露，伊朗正考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。美国总统唐纳德·特朗普表示，在美军开始封锁伊朗港口后，德黑兰已主动联系寻求达成协议。 得益于
 
 ## 正文
 
-英矽智能（03696）盘中涨超5%，截至发稿，股价上涨4.45%，现报47.88港元，成交额3986.81万港元。
+受投资者对美伊可能重启谈判的乐观情绪推动，欧洲股市上涨。
 
-5月21日，据英矽智能官微消息，公司与沙特阿美于2023年LEAP科技大会期间签订战略合作协议（MoU），赋能AI驱动的可持续发展与抗衰老研究。
+斯托克欧洲600指数收盘上涨1%，媒体和旅游板块领涨。
 
-针对荣获诺奖的金属有机框架（MOFs）材料设计，英矽智能与沙特阿美合作构建了流程化的AI筛选与验证系统Sanity Pipeline，旨在提升MOFs的研发速度和精度，相关成果已于近期公布在ChemRxiv。
+能源股表现最弱，因布伦特原油跌破每桶100美元。
 
-Sanity Pipeline结合了高效预筛选和深度验证，核心模型由双方联合研发，包括用于高效MOF分解和结构分析的工具LibCIF，以及用于识别氧化态异常的检测器OxiChecker。
+一位了解德黑兰方面讨论情况的人士透露，伊朗正考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。
 
-责任编辑：卢昱君
+美国总统唐纳德·特朗普表示，在美军开始封锁伊朗港口后，德黑兰已主动联系寻求达成协议。
+
+得益于市场情绪改善，欧洲股市本月以来反弹逾5%，正逼近战前水平。
+
+与此同时，标普500指数已收复自冲突爆发以来的全部跌幅。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:33 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:20 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 07:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 07:19 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 07:46 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 07:25 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 07:47 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 07:22 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:42 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 07:29 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 07:45 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 07:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 07:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 07:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 07:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:25 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:42 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 07:44 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 07:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 07:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/697499.shtml)
-- 2026-06-30 07:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/045712987506.shtml)
-- 2026-06-30 07:43 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/209937.shtml)
-- 2026-06-30 07:40 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/20602.shtml)
-- 2026-06-30 07:38 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/849292054.shtml)
-- 2026-06-30 07:36 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/46051.shtml)
-- 2026-06-30 07:34 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/32125324.shtml)
-- 2026-06-30 07:19 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/351820478324.shtml)
-- 2026-06-30 07:39 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/39810.shtml)
-- 2026-06-30 07:23 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/576792053.shtml)
-- 2026-06-30 07:27 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/0191733.shtml)
-- 2026-06-30 07:36 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/1049831084.shtml)
-- 2026-06-30 07:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/81971.shtml)
-- 2026-06-30 07:33 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/792628067503.shtml)
-- 2026-06-30 07:18 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/494485470841.shtml)
+- 2026-06-30 07:24 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/52201.shtml)
+- 2026-06-30 07:50 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/6263869320.shtml)
+- 2026-06-30 07:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/3581230818.shtml)
+- 2026-06-30 07:52 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/10525585930.shtml)
+- 2026-06-30 07:44 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/03888197.shtml)
+- 2026-06-30 07:46 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/65060335.shtml)
+- 2026-06-30 07:40 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/78436544338.shtml)
+- 2026-06-30 07:52 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/4896957.shtml)
+- 2026-06-30 07:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/281332215.shtml)
+- 2026-06-30 07:41 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/1311447.shtml)
+- 2026-06-30 07:43 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/08771.shtml)
+- 2026-06-30 07:34 - [巴西2比1日本](https://www.blog.minike.top/Article/details/862861.shtml)
+- 2026-06-30 07:30 - [我和我的家乡](http://www.blog.minike.top/Article/details/315250258.shtml)
+- 2026-06-30 07:52 - [明星大侦探第一季](http://www.share.minike.top/Article/details/45432.shtml)
+- 2026-06-30 07:51 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/6961658502.shtml)

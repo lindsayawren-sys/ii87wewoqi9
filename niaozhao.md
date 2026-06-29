@@ -1,61 +1,52 @@
-# （乡村行·看振兴）广西乡村“以田换田”破局土地连片开发难题发展韭黄产业
+# 恒大集团、恒大地产及许家印案一审开庭
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-中新网梧州5月22日电 题：广西乡村“以田换田”破局土地连片开发难题发展韭黄产业 作者 蒙文炎 祝石梅 林伟宁 连日来，广西梧州市藤县金鸡镇平山村的田野间，数台挖掘机挥舞着机械臂对高低错落的地块进行推平、整形、修埂，一条条笔直规整的田埂渐次成形。这片经过提质改造的土地，即将披上嫩黄新装，成为藤县万亩韭黄基地的重要组成部分。 韭黄产业是藤县重点打造的乡村振兴特色主导产业之一。与当
+来源：深圳市中级人民法院微信公众号 2026年4月13日至14日，广东省深圳市中级人民法院对深圳市人民检察院提起公诉的被告单位恒大集团有限公司非法吸收公众存款、集资诈骗、违法发放贷款、欺诈发行证券、违规披露重要信息、单位行贿，被告单位恒大地产集团有限公司欺诈发行证券，被告人许家印非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单
 
 ## 正文
 
-中新网梧州5月22日电 题：广西乡村“以田换田”破局土地连片开发难题发展韭黄产业 作者 蒙文炎 祝石梅 林伟宁 连日来，广西梧州市藤县金鸡镇平山村的田野间，数台挖掘机挥舞着机械臂对高低错落的地块进行推平、整形、修埂，一条条笔直规整的田埂渐次成形。
+来源：深圳市中级人民法院微信公众号 2026年4月13日至14日，广东省深圳市中级人民法院对深圳市人民检察院提起公诉的被告单位恒大集团有限公司非法吸收公众存款、集资诈骗、违法发放贷款、欺诈发行证券、违规披露重要信息、单位行贿，被告单位恒大地产集团有限公司欺诈发行证券，被告人许家印非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单位行贿一案进行了公开开庭审理。
 
-这片经过提质改造的土地，即将披上嫩黄新装，成为藤县万亩韭黄基地的重要组成部分。
+庭审中，法庭主持控辩双方围绕指控的事实进行了法庭调查及法庭辩论，被告单位、许家印进行了最后陈述。
 
-韭黄产业是藤县重点打造的乡村振兴特色主导产业之一。
+许家印当庭表示认罪悔罪。
 
-与当地部分已有韭黄种植基础的村庄不同，平山村的韭黄产业几乎从零起步，村民既无规模种植经验，也对产业发展前景心存疑虑。
+法庭将择期宣判。
 
-面对土地流转和产业发展的号召，村民大多持观望态度，产业在推进初期即遇阻。
+部分人大代表、政协委员，被告人亲属，集资参与人代表等旁听了庭审。
 
-“群众有顾虑，我们就要想办法打消。
-
-”面对这一状况，金鸡镇人大代表陆超联合村干部组成工作专班，挨家挨户地进行走访。
-
-从藤县产业规划到金鸡镇发展蓝图，从土地流转政策到韭黄种植收益，工作专班“一户一户讲、一笔一笔算”。
+责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 07:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 07:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 07:36 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 07:19 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 07:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 07:39 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 07:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 07:24 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 07:18 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 07:32 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 07:41 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 07:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 07:36 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 07:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 07:51 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 07:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 07:50 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:36 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 07:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 07:49 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 07:26 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 07:41 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 07:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/42451.shtml)
-- 2026-06-30 07:39 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/01771.shtml)
-- 2026-06-30 07:22 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/437294.shtml)
-- 2026-06-30 07:24 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/20418756.shtml)
-- 2026-06-30 07:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/3008289982.shtml)
-- 2026-06-30 07:28 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/639699328530.shtml)
-- 2026-06-30 07:42 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5172484.shtml)
-- 2026-06-30 07:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/40286.shtml)
-- 2026-06-30 07:38 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/54161908014.shtml)
-- 2026-06-30 07:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/380586.shtml)
-- 2026-06-30 07:30 - [苗族银饰](http://www.share.minike.top/Article/details/421726825726.shtml)
-- 2026-06-30 07:23 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/706136034908.shtml)
-- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/86466030.shtml)
-- 2026-06-30 07:28 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/08579204.shtml)
-- 2026-06-30 07:34 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/1662551264.shtml)
+- 2026-06-30 07:46 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/94142.shtml)
+- 2026-06-30 07:25 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/714954047.shtml)
+- 2026-06-30 07:33 - [女心理师](http://www.share.minike.top/Article/details/370705.shtml)
+- 2026-06-30 07:40 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/179807.shtml)
+- 2026-06-30 07:53 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/9056616.shtml)
+- 2026-06-30 07:45 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/175438164.shtml)
+- 2026-06-30 07:29 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/721975.shtml)
+- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/351111158.shtml)
+- 2026-06-30 07:44 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/34447050.shtml)
+- 2026-06-30 07:38 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/63091212.shtml)
+- 2026-06-30 07:28 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/913618.shtml)
+- 2026-06-30 07:45 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/5628532588.shtml)
+- 2026-06-30 07:33 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/576385.shtml)
+- 2026-06-30 07:36 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/59595973812.shtml)
+- 2026-06-30 07:33 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/413637458.shtml)

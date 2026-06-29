@@ -1,49 +1,59 @@
-# 洪水不退，我们不退！消防指战员席地而眠守护湖南石门
+# 冰川网络一季度业绩断崖下滑 股价应声跌超11% 扭亏只是昙花一现？
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 08:35 来源：中国新闻网 5月21日，湖南常德，在遭遇强降雨灾害的石门县村落连续奋战多日后，长沙消防救援机动支队疲惫的指战员们在夜间生火席地而睡。(俞东卫 梅韦达 制作 徐志雄） 责任编辑：【李岩】
+2026年4月10日晚间，冰川网络披露了一季度业绩预告，数据令市场大为震惊。预告显示，公司2026年第一季度归属于上市公司股东的净利润预计亏损950万元至1350万元，而上年同期为盈利1.89亿元，同比由盈转亏。 即便剔除非经常性损益，扣非净利润的恶化同样触目惊心。报告期内，扣除非经常性损益后的净利润预计亏损2900万元至3350万元，上年同期为盈利1.86亿元。 消息披露后的
 
 ## 正文
 
-发布时间：2026年05月22日 08:35 来源：中国新闻网 5月21日，湖南常德，在遭遇强降雨灾害的石门县村落连续奋战多日后，长沙消防救援机动支队疲惫的指战员们在夜间生火席地而睡。
+2026年4月10日晚间，冰川网络披露了一季度业绩预告，数据令市场大为震惊。
 
-(俞东卫 梅韦达 制作 徐志雄） 责任编辑：【李岩】
+预告显示，公司2026年第一季度归属于上市公司股东的净利润预计亏损950万元至1350万元，而上年同期为盈利1.89亿元，同比由盈转亏。
+
+即便剔除非经常性损益，扣非净利润的恶化同样触目惊心。
+
+报告期内，扣除非经常性损益后的净利润预计亏损2900万元至3350万元，上年同期为盈利1.86亿元。
+
+消息披露后的第一个交易日，冰川网络股价应声跳水。
+
+4月13日收盘，公司股价下跌11.87%，成交额达4.38亿元，市场情绪快速转向悲观。
+
+这份业绩预告的出炉，意味着这家靠“副玩法买量”红极一时的华南游戏大厂，正陷入“旧酒难卖、新酒未成”的双重困境。
+
+而在业绩“断崖”的背后，冰川网络依赖了四年的买量逻辑，正在失去它的魔力。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 07:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 07:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 07:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 07:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 07:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 07:27 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 07:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 07:21 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 07:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 07:23 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 07:29 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 07:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 07:25 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 07:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 07:32 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:48 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 07:31 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 07:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 07:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 07:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:52 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 07:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 07:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 07:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 07:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 07:43 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/65725858985.shtml)
-- 2026-06-30 07:41 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/76484481.shtml)
-- 2026-06-30 07:26 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/046572189.shtml)
-- 2026-06-30 07:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/314172274.shtml)
-- 2026-06-30 07:41 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/4966568022.shtml)
-- 2026-06-30 07:32 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/21960744.shtml)
-- 2026-06-30 07:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/770229254966.shtml)
-- 2026-06-30 07:30 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/964085817.shtml)
-- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/59810.shtml)
-- 2026-06-30 07:42 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/981355.shtml)
-- 2026-06-30 07:37 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/448157480790.shtml)
-- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/467290571.shtml)
-- 2026-06-30 07:22 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.minike.top/Article/details/049519.shtml)
-- 2026-06-30 07:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/166970807001.shtml)
-- 2026-06-30 07:41 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/9933106.shtml)
+- 2026-06-30 07:25 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/754950237339.shtml)
+- 2026-06-30 07:25 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/5350103033.shtml)
+- 2026-06-30 07:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/230048631027.shtml)
+- 2026-06-30 07:25 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.minike.top/Article/details/808714520.shtml)
+- 2026-06-30 07:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/72080510630.shtml)
+- 2026-06-30 07:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/03955304450.shtml)
+- 2026-06-30 07:40 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/940446.shtml)
+- 2026-06-30 07:40 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/124095.shtml)
+- 2026-06-30 07:32 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/71083425.shtml)
+- 2026-06-30 07:51 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/13191096290.shtml)
+- 2026-06-30 07:28 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/558716838.shtml)
+- 2026-06-30 07:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/221519111830.shtml)
+- 2026-06-30 07:50 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/25882153.shtml)
+- 2026-06-30 07:32 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/89532.shtml)
+- 2026-06-30 07:51 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/07158.shtml)

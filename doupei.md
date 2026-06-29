@@ -1,56 +1,57 @@
-# 中微公司公告，重要股东拟减持
+# 沃飞长空冲刺A股 “低空经济第一股”
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】大基金拟减持中微公司不超过1257.68万股股份，公司创始人、董事长尹志尧等也拟减持 中国基金报记者卢鸰 在近期股价大涨之后，大基金、公司创始人尹志尧等人，拟减持半导体设备巨头中微公司股份。 中微公司5月22日晚公告，收到巽鑫（上海）投资有限公司（以下简称巽鑫投资）出具的《关于股份
+近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。 在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。 低空经济作为新兴产业尚未普遍进入盈利期。去年6月，中国证监会发布意
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。
 
-来源：中国基金报 【导读】大基金拟减持中微公司不超过1257.68万股股份，公司创始人、董事长尹志尧等也拟减持 中国基金报记者卢鸰 在近期股价大涨之后，大基金、公司创始人尹志尧等人，拟减持半导体设备巨头中微公司股份。
+若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。
 
-中微公司5月22日晚公告，收到巽鑫（上海）投资有限公司（以下简称巽鑫投资）出具的《关于股份减持计划的告知函》，巽鑫投资计划自公告披露之日起15个交易日后的3个月内，在符合法律法规规定的减持前提下，通过集中竞价、大宗交易方式减持公司股票不超过总股本的2%，减持数量为不超过1257.68万股，减持原因为自身经营管理需要。
+在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。
 
-巽鑫投资是国家集成电路产业投资基金股份有限公司（俗称大基金）的全资子公司。
+低空经济作为新兴产业尚未普遍进入盈利期。
 
-截至公告披露日，巽鑫投资持有中微公司股份5595.1万股，占公司总股本的8.9%。
+去年6月，中国证监会发布意见，重启并扩容未盈利企业第五套上市标准至低空经济领域。
 
-巽鑫投资所持中微公司股份是IPO前取得，此前分别在2025年9月至2025年11月、2026年2月至2026年4月进行过减持，减持数量均为1252.29万股。
+这为低空经济公司在国内上市留下了政策窗口。
 
-中微公司同时还披露，近日收到公司董事长、总经理尹志尧等出具的《减持意向书》，因股权激励行权资金及缴税资金需要，尹志尧等计划自公告披露之日起15个交易日后的3个月内，在符合法律法规规定的减持前提下，通过集中竞价等方式减持公司股份，具体情况为： 尹志尧计划减持公司股份数量不超过10万股，占公司总股本比例为0.016%； 公司董事、副总经理丛海计划减持公司股份数量不超过1.1万股，占公司总股本比例为0.002%； 公司董事、副总经理陶珩计划减持公司股份数量不超过5844股，占公司总股本比例为0.001%； 公司副总经理靳巨计划减持公司股份数量不超过6250股，占公司总股本比例为0.001%； 公司财务负责人、副总经理陈伟文计划减持公司股份数量不超过8万股，占公司总股本比例为0.013%； 公司副总经理何奕计划减持公司股份数量不超过1.5万股，占公司总股本比
+然而，入场券从来不是免费的午餐。
 
-资料显示，尹志尧是中微公司创始人，现年82岁，曾先后就职于英特尔、泛林半导体、应用材料等国际知名半导体公司；2004年至今，担任中微公司董事长、总经理、核心技术人员。
+尽管政策窗口已开，但针对低空经济的具体上市指引尚未完全落地。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 07:18 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 07:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 07:22 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:24 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 07:43 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 07:18 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 07:35 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 07:47 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 07:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 07:30 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 07:39 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 07:47 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 07:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 07:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 07:49 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 07:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 07:48 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 07:30 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 07:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/78002164784.shtml)
-- 2026-06-30 07:29 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/134323272.shtml)
-- 2026-06-30 07:26 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/790629.shtml)
-- 2026-06-30 07:30 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/992796.shtml)
-- 2026-06-30 07:29 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/03283.shtml)
-- 2026-06-30 07:28 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/2656607311.shtml)
-- 2026-06-30 07:22 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/83550167126.shtml)
-- 2026-06-30 07:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/8789628501.shtml)
-- 2026-06-30 07:38 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/15637.shtml)
-- 2026-06-30 07:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/43705.shtml)
-- 2026-06-30 07:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/72703841509.shtml)
-- 2026-06-30 07:28 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/64352.shtml)
-- 2026-06-30 07:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/41074.shtml)
-- 2026-06-30 07:37 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/3996117.shtml)
-- 2026-06-30 07:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/11112764.shtml)
+- 2026-06-30 07:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/8181662.shtml)
+- 2026-06-30 07:48 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/3836150.shtml)
+- 2026-06-30 07:49 - [一生一世](http://www.share.kurohicncr.top/Article/details/21599.shtml)
+- 2026-06-30 07:44 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/73109.shtml)
+- 2026-06-30 07:31 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/615564083663.shtml)
+- 2026-06-30 07:35 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/46124.shtml)
+- 2026-06-30 07:47 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/07119380.shtml)
+- 2026-06-30 07:41 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/591279409720.shtml)
+- 2026-06-30 07:35 - [日本反击率先破门](http://www.blog.minike.top/Article/details/37399950461.shtml)
+- 2026-06-30 07:46 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/27073602179.shtml)
+- 2026-06-30 07:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/62757783.shtml)
+- 2026-06-30 07:40 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/96996499.shtml)
+- 2026-06-30 07:28 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/8127154128.shtml)
+- 2026-06-30 07:26 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/224722760.shtml)
+- 2026-06-30 07:29 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/65172970.shtml)

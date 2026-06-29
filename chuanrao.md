@@ -1,52 +1,61 @@
-# 两部门：落实野生动物致害补偿，探索建立保险赔偿制度
+# 海关总署：我国外贸基础稳、活力足、动能强
 
-> 更新时间：2026-06-30 07:48:02 UTC+8
+> 更新时间：2026-06-30 07:54:02 UTC+8
 
 ## 摘要
 
-5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。责
+中新网4月14日电 国务院新闻办14日举行新闻发布会。会上，海关总署副署长王军表示，一季度，我国进出口能够实现较快增长，关键在于我国外贸基础稳、活力足、动能强。 基础稳，主要体现在大盘稳中有进、市场多元稳定。到今年一季度，我国进出口总值已连续12个季度保持在10万亿元以上，增速自2022年四季度以来重回两位数增长。一季度，我国对欧盟等发达经济体的进出口整体保持增长，对东盟、拉美
 
 ## 正文
 
-5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。
+中新网4月14日电 国务院新闻办14日举行新闻发布会。
 
-其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。
+会上，海关总署副署长王军表示，一季度，我国进出口能够实现较快增长，关键在于我国外贸基础稳、活力足、动能强。
 
-引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。
+基础稳，主要体现在大盘稳中有进、市场多元稳定。
 
-责任编辑：王馨茹
+到今年一季度，我国进出口总值已连续12个季度保持在10万亿元以上，增速自2022年四季度以来重回两位数增长。
+
+一季度，我国对欧盟等发达经济体的进出口整体保持增长，对东盟、拉美、非洲等地区进出口增速都在两位数以上。
+
+多元化的市场格局让我们的外贸根基扎实稳固。
+
+活力足，主要体现在经营主体活力迸发、区域发展各显所长。
+
+一季度，我国有进出口记录的企业达61.8万家，其中民营企业超过54万家，外贸主力军的地位进一步巩固。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 07:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 07:45 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:21 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:22 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 07:28 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 07:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 07:35 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 07:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 07:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 07:31 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 07:27 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 07:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 07:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 07:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 07:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 07:44 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:27 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 07:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 07:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 07:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 07:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 07:38 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 07:44 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 07:48 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 07:33 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 07:53 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 07:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [周冬雨多次说演不了话剧文城](http://www.share.kurohicncr.top/Article/details/32972.shtml)
-- 2026-06-30 07:42 - [第一炉香](https://www.blog.minike.top/Article/details/819184482467.shtml)
-- 2026-06-30 07:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/728087600481.shtml)
-- 2026-06-30 07:46 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/606845260.shtml)
-- 2026-06-30 07:30 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/493815.shtml)
-- 2026-06-30 07:41 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/3918288543.shtml)
-- 2026-06-30 07:18 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/794558530.shtml)
-- 2026-06-30 07:33 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/9788013.shtml)
-- 2026-06-30 07:19 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/17699912.shtml)
-- 2026-06-30 07:45 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/90052.shtml)
-- 2026-06-30 07:32 - [青春环游记第三季](http://www.share.minike.top/Article/details/81626931.shtml)
-- 2026-06-30 07:42 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/847021.shtml)
-- 2026-06-30 07:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/0049658511.shtml)
-- 2026-06-30 07:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/9508134.shtml)
-- 2026-06-30 07:30 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/9824140.shtml)
+- 2026-06-30 07:25 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/478391106.shtml)
+- 2026-06-30 07:35 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/73818534452.shtml)
+- 2026-06-30 07:30 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/61901.shtml)
+- 2026-06-30 07:30 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/929132055.shtml)
+- 2026-06-30 07:31 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/2428491.shtml)
+- 2026-06-30 07:33 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/06548411.shtml)
+- 2026-06-30 07:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/862515693416.shtml)
+- 2026-06-30 07:45 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/6901468419.shtml)
+- 2026-06-30 07:46 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/08678.shtml)
+- 2026-06-30 07:40 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/724651567.shtml)
+- 2026-06-30 07:44 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/2443205.shtml)
+- 2026-06-30 07:45 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/8675441650.shtml)
+- 2026-06-30 07:53 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/559303.shtml)
+- 2026-06-30 07:25 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/1168884474.shtml)
+- 2026-06-30 07:27 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/556673684.shtml)
