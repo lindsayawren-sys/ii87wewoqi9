@@ -1,59 +1,58 @@
-# 2026年北京市积分落户申报阶段结束 94549人提交申请
+# TVB航空职业剧《飞常日志 2》在广州路演
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电(记者 吕少威)北京市人力资源和社会保障局16日发布消息，北京市2026年积分落户申报阶段自4月16日8时开始，已于5月15日20时结束。今年全市共有94549人在线提交积分落户申请。 自5月16日起至6月4日，北京市年度积分落户工作进入部门审核结果汇总阶段，相关部门将对申请人填报的各项指标及时更新审核结果并汇总处理。6月5日8时至6月12日20时为审核结
+中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。 作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈
 
 ## 正文
 
-中新网北京5月16日电(记者 吕少威)北京市人力资源和社会保障局16日发布消息，北京市2026年积分落户申报阶段自4月16日8时开始，已于5月15日20时结束。
+中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。
 
-今年全市共有94549人在线提交积分落户申请。
+作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈现大湾区互联互通的发展成果。
 
-自5月16日起至6月4日，北京市年度积分落户工作进入部门审核结果汇总阶段，相关部门将对申请人填报的各项指标及时更新审核结果并汇总处理。
+出行便利化是湾区融通最直观的体现。
 
-6月5日8时至6月12日20时为审核结果查询阶段，申请人可登录北京市人力资源和社会保障局官方网站的积分落户在线申报系统(https://rsj.beijing.gov.cn/jflh/)查看全部积分指标审核结果，如有异议，可在这一阶段在线提出申诉。
+TVB艺人高海宁结合自身出行体验表示，香港国际机场联动湾区构建的立体交通体系完善，旅客一下飞机即可换乘各类交通工具通达湾区多个城市，缩减出行耗时，日常往返便捷高效。
 
-审核结果查询阶段结束后，申请人对本人年度积分指标审核结果有异议的将不再受理。
+高效便捷的跨境交通网络，不仅便利了旅客出行，更深度激活湾区人才流动活力。
 
-7月13日起，2026年拟取得积分落户资格人员名单将在北京市政府网站“首都之窗”公示。
+TVB艺人洪永城说：“我在拍戏时发现，有不少来自珠海、东莞等地居民选择前往香港国际机场就业，湾区人才融合持续加深。
 
-届时，申请人可登录积分落户在线申报系统，查看本人最终年度积分及排名。
+” 针对跨境中转出行的便民服务，TVB艺人刘颖镟重点介绍“经珠港飞”联程服务，旅客飞抵广东珠海后，乘坐接驳巴士经港珠澳大桥可达香港国际机场，免去香港方面的出入境查验环节，提高通关效率，“这项服务支持双向通行，无论是内地居民出境环游世界，还是海外旅客经香港进入内地城市，都能实现高效中转”。
 
-(完)
+在跨境物流领域，湾区联运体系同样实现跨越式升级。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 04:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 04:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 04:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 04:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 04:11 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 04:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 04:21 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 04:30 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 04:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 04:30 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 04:30 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:27 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 04:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 04:20 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 04:24 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 04:35 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 04:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 04:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 04:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 04:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 04:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 04:34 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 04:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 04:20 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/7783696.shtml)
-- 2026-06-30 04:32 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/4489528072.shtml)
-- 2026-06-30 04:26 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/5676170.shtml)
-- 2026-06-30 04:15 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/9813931.shtml)
-- 2026-06-30 04:33 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/290824862318.shtml)
-- 2026-06-30 04:34 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/67405431309.shtml)
-- 2026-06-30 04:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4954984037.shtml)
-- 2026-06-30 04:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/9990933.shtml)
-- 2026-06-30 04:20 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/4845362.shtml)
-- 2026-06-30 04:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/634958.shtml)
-- 2026-06-30 04:06 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/8820278.shtml)
-- 2026-06-30 04:16 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/65727.shtml)
-- 2026-06-30 04:21 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/68948096657.shtml)
-- 2026-06-30 04:18 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/86674119.shtml)
-- 2026-06-30 04:11 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/59273911025.shtml)
+- 2026-06-30 04:24 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/07611.shtml)
+- 2026-06-30 04:37 - [金牌调解](http://www.blog.minike.top/Article/details/163681461.shtml)
+- 2026-06-30 04:15 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/10737.shtml)
+- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/51914.shtml)
+- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/37005617.shtml)
+- 2026-06-30 04:26 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/900321852.shtml)
+- 2026-06-30 04:26 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/156778711.shtml)
+- 2026-06-30 04:34 - [田曦薇没招了](https://www.blog.minike.top/Article/details/836064.shtml)
+- 2026-06-30 04:41 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/72484593.shtml)
+- 2026-06-30 04:18 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/9702944331.shtml)
+- 2026-06-30 04:18 - [日本16强魔咒](https://www.blog.minike.top/Article/details/16270691.shtml)
+- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/64590.shtml)
+- 2026-06-30 04:27 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/48375735963.shtml)
+- 2026-06-30 04:26 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/915179605.shtml)
+- 2026-06-30 04:35 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/45420487201.shtml)

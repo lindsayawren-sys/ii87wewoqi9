@@ -1,59 +1,56 @@
-# 603082，股价2连涨停！公司紧急澄清：未生产人形机器人本体及零部件！
+# 创新药放量反攻，见底信号？华宝基金港股通创新药ETF（520880）劲涨3.66%，周线7连阴后首度收阳
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！两连板北自科技（603082）5月15日晚间发布股价异动公告，针对市场热度较高的人形机器人概念作出明确澄清，表示公司聚焦产业化落地，截至目前未生产人形机器人本体及零部件，也未发现其他可能影响股价的热点概念事项或市场传闻。 北自科技称，针对股价异动，公司进行了全面自查，并对公司控股股东、间接控股股东就相关事项
+6月12日，AH创新药携手上攻，显著跑赢大市！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。 聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月12日，AH创新药携手上攻，显著跑赢大市！
 
-两连板北自科技（603082）5月15日晚间发布股价异动公告，针对市场热度较高的人形机器人概念作出明确澄清，表示公司聚焦产业化落地，截至目前未生产人形机器人本体及零部件，也未发现其他可能影响股价的热点概念事项或市场传闻。
+重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。
 
-北自科技称，针对股价异动，公司进行了全面自查，并对公司控股股东、间接控股股东就相关事项进行了核实，公司生产经营情况正常，内外部经营环境未发生重大变化，公司及控股股东均不存在应披露而未披露的重大信息。
+沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。
 
-北自科技2024年登陆资本市场，主要从事智能物流系统和装备的研发、设计、制造与集成业务。
+聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！
 
-2025年公司实现营业总收入21.06亿元，同比增长2.13%，归母净利润1.72亿元，同比增长1.3%；2026 年一季度实现营收4.26亿元，同比下降3.41%，归母净利润 1900.76 万元，同比下降54.97%。
+权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨超5%，百济神州、翰森制药、三生制药齐涨超2%。
 
-对于今年一季度业绩波动的原因，公司解释称其智能物流系统为非标准化产品，销售定价受市场竞争与项目复杂度影响，本期部分验收项目毛利率偏低，直接拖累利润水平。
+热门ETF方面，100%创新药研发标的——港股通创新药ETF华宝（520880）全天震荡上行，盘中摸高3.92%，收涨3.66%，创下4月16日以来最大单日升幅，全天成交5.28亿元，较上日激增逾77%！
 
-5月以来北自科技股价震荡上行，5月14日、15日连续两个交易日涨停，两日成交额分别为1.8亿元和5.27亿元，换手率分别为11.97%和31.63%，成交活跃。
+本周，港股通创新药初现止跌迹象，520880在连跌7周后，周线终于收阳！
 
-盘后龙虎榜数据显示，知名游资炒股养家的常用席位华鑫证券上海宛平南路连续两日现身，5月14日位列买一席位，买入1889.43万元，5月15日上榜卖一席位，卖出2042.41万元。
+尽管单周累计涨幅仅为0.25%，但已成功跑赢大盘，恒指周跌0.98%，连跌5周。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 04:30 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 04:22 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 04:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 04:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 04:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 04:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 04:15 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 04:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 04:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 04:35 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 04:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 04:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 04:25 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 04:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 04:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 04:39 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 04:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 04:31 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 04:40 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/56124.shtml)
-- 2026-06-30 04:35 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/483951681541.shtml)
-- 2026-06-30 04:10 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/880554.shtml)
-- 2026-06-30 04:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/751678445.shtml)
-- 2026-06-30 04:09 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/033520587.shtml)
-- 2026-06-30 04:24 - [流金岁月](https://www.blog.minike.top/Article/details/2565829856.shtml)
-- 2026-06-30 04:21 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/8815788.shtml)
-- 2026-06-30 04:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/395301.shtml)
-- 2026-06-30 04:16 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/601379.shtml)
-- 2026-06-30 04:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/809855670711.shtml)
-- 2026-06-30 04:21 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/285446.shtml)
-- 2026-06-30 04:16 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/358266918.shtml)
-- 2026-06-30 04:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/25192160726.shtml)
-- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/093720.shtml)
-- 2026-06-30 04:10 - [孙兴慜道歉](http://www.share.minike.top/Article/details/90469.shtml)
+- 2026-06-30 04:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/99366906.shtml)
+- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/350666585.shtml)
+- 2026-06-30 04:12 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/782995595908.shtml)
+- 2026-06-30 04:24 - [请回答王牌2019](https://www.share.minike.top/Article/details/786692.shtml)
+- 2026-06-30 04:24 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/0763370771.shtml)
+- 2026-06-30 04:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/0703048.shtml)
+- 2026-06-30 04:41 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/120714571.shtml)
+- 2026-06-30 04:31 - [扬名立万](http://www.share.kurohicncr.top/Article/details/837952528434.shtml)
+- 2026-06-30 04:35 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/50358731.shtml)
+- 2026-06-30 04:36 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4900358071.shtml)
+- 2026-06-30 04:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/045209216.shtml)
+- 2026-06-30 04:29 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/3496510566.shtml)
+- 2026-06-30 04:27 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/82102014440.shtml)
+- 2026-06-30 04:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/48137.shtml)
+- 2026-06-30 04:36 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5789645974.shtml)

@@ -1,56 +1,53 @@
-# 美联储理事巴尔：缩减资产负债表是错误的政策目标
+# 台湾时事评论员王炳忠：台当局禁止县市人员参加海峡论坛是“心里有鬼”
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-美联储理事巴尔表示，缩减资产负债表并非央行应设定的政策目标，而且为实现该目标提出的诸多方案，反而会危及金融稳定。 巴尔在曼哈顿中城的一场活动上发表了上述言论，时值沃什获任命出任美联储主席之后。沃什一直主张缩减美联储资产负债表，削弱央行在金融市场中的大规模介入力度。巴尔则称，部分缩表相关提案实际上反而会扩大美联储在市场中的影响力。 其已发布的演讲稿中提到：“为实现这一目标而提出的
+发布时间：2026年06月13日 17:21 来源：中国新闻网 6月13日，台湾时事评论员、新中华儿女学会创会理事长王炳忠在第十八届海峡论坛期间接受媒体采访时表示，台当局要求县市政府与公职人员不得出席海峡论相关活动坛，是“心里有鬼”且心虚的表现。他指出，民进党根本解决不了台湾的民生问题，连绿营南部的基层民代都私下议论，所谓“盟友”也无法帮台湾解决问题，致使像他故乡台南的农渔产品
 
 ## 正文
 
-美联储理事巴尔表示，缩减资产负债表并非央行应设定的政策目标，而且为实现该目标提出的诸多方案，反而会危及金融稳定。
+发布时间：2026年06月13日 17:21 来源：中国新闻网 6月13日，台湾时事评论员、新中华儿女学会创会理事长王炳忠在第十八届海峡论坛期间接受媒体采访时表示，台当局要求县市政府与公职人员不得出席海峡论相关活动坛，是“心里有鬼”且心虚的表现。
 
-巴尔在曼哈顿中城的一场活动上发表了上述言论，时值沃什获任命出任美联储主席之后。
+他指出，民进党根本解决不了台湾的民生问题，连绿营南部的基层民代都私下议论，所谓“盟友”也无法帮台湾解决问题，致使像他故乡台南的农渔产品只能赔本贩卖。
 
-沃什一直主张缩减美联储资产负债表，削弱央行在金融市场中的大规模介入力度。
+王炳忠批评，民进党当局只会喊“抗中”口号，但“抗中保台”其实只有“抗中”没有“保台”，不但保不了台，反而是在“祸台”。
 
-巴尔则称，部分缩表相关提案实际上反而会扩大美联储在市场中的影响力。
-
-其已发布的演讲稿中提到：“为实现这一目标而提出的诸多方案，将会削弱银行抗风险韧性、阻碍货币市场正常运转，最终危及金融稳定。
-
-” 巴尔表示，在充裕准备金框架（2008至2009年金融危机后确立的货币运行机制）下，正常的市场环境中货币市场波动本应维持在低位。
-
-他指出，即便美联储重回稀缺准备金框架，考虑到为此所需的监管力度与市场干预程度，也并不能真正缩减美联储在市场中的存在感。
-
-巴尔认为，若金融体系内准备金不足，支付体系或将受到冲击：银行会出于节约流动性的考量，放缓对外付款节奏，进而造成资金市场交易拥堵及各类流动性压力。
+(记者 郎佳慧） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 04:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 04:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 04:24 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 04:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 04:35 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 04:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 04:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 04:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 04:17 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 04:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 04:41 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 04:16 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 04:23 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 04:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:13 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 04:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 04:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 04:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 04:33 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:37 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 04:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 04:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/49508.shtml)
-- 2026-06-30 04:16 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/816475743155.shtml)
-- 2026-06-30 04:27 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/80645313.shtml)
-- 2026-06-30 04:16 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/7895122105.shtml)
-- 2026-06-30 04:18 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/6683763.shtml)
-- 2026-06-30 04:10 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/991490.shtml)
-- 2026-06-30 04:33 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/697450346133.shtml)
-- 2026-06-30 04:23 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/8652558.shtml)
-- 2026-06-30 04:28 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/42040862.shtml)
-- 2026-06-30 04:15 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/778001858.shtml)
-- 2026-06-30 04:22 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/0182846.shtml)
-- 2026-06-30 04:08 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/978727087.shtml)
-- 2026-06-30 04:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/6030397842.shtml)
-- 2026-06-30 04:13 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/79590115.shtml)
-- 2026-06-30 04:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/94665807913.shtml)
+- 2026-06-30 04:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/033977869.shtml)
+- 2026-06-30 04:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/8339234139.shtml)
+- 2026-06-30 04:26 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/63035803.shtml)
+- 2026-06-30 04:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/153324798345.shtml)
+- 2026-06-30 04:21 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/31981.shtml)
+- 2026-06-30 04:34 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/1850625.shtml)
+- 2026-06-30 04:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/38902913.shtml)
+- 2026-06-30 04:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/5430269.shtml)
+- 2026-06-30 04:22 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/94346936344.shtml)
+- 2026-06-30 04:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/47962181.shtml)
+- 2026-06-30 04:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/152955764.shtml)
+- 2026-06-30 04:40 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/385065116264.shtml)
+- 2026-06-30 04:28 - [恋与深空 巧合](https://www.share.minike.top/Article/details/16253.shtml)
+- 2026-06-30 04:28 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/74122915039.shtml)
+- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/44289761.shtml)

@@ -1,56 +1,59 @@
-# 134小时的ICU时光 被一本日记完整珍藏
+# 卖旧买新政策引爆广州！黄埔新城·漫璟凭什么成首选？
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。 你今天没有惊心动魄的抢救，按部就班，稳中向好。每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。 一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。由于病情危重，她意识模糊，身上插着不少管子。等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。 这位小伙，名叫孙国涛，是ICU的护士。两年前
+01广州楼市迎来历史性政策拐点国企直接下场收房，引爆广州楼市。5月26日，广州安居集团启动支持居民“卖旧买新”试点工作，试行期至2026年12月31日，是实实在在拿出了真金白银，势要打通楼市改善置换的链条。大量市民清空了主城区的老房，手里握着充沛的置换资金，这股庞大的购买力会砸向哪里？广州的“卖旧买新”试点，收购的是总价300万以内、70平方米以下的二手房。这些房子的业主，大多
 
 ## 正文
 
-从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。
+01广州楼市迎来历史性政策拐点国企直接下场收房，引爆广州楼市。
 
-你今天没有惊心动魄的抢救，按部就班，稳中向好。
+5月26日，广州安居集团启动支持居民“卖旧买新”试点工作，试行期至2026年12月31日，是实实在在拿出了真金白银，势要打通楼市改善置换的链条。
 
-每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。
+大量市民清空了主城区的老房，手里握着充沛的置换资金，这股庞大的购买力会砸向哪里？
 
-一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。
+广州的“卖旧买新”试点，收购的是总价300万以内、70平方米以下的二手房。
 
-由于病情危重，她意识模糊，身上插着不少管子。
+这些房子的业主，大多是老城区的原住民，习惯了中心区的便利，对通勤、教育、社区配套有刚性需求。
 
-等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。
+总价可控、地铁直达、学校确定、商业可期的小区更符合这部分置换客的期待。
 
-这位小伙，名叫孙国涛，是ICU的护士。
+众多板块中，老黄埔既承接了珠江新城、金融城高薪产业人群的外溢需求，又拥有地铁5号线直达的交通便利，是刚需和改善客户的必看之地。
 
-两年前，他还在兰州医院实习时，就一直利用休息时间为患者记录这些“被偷走的时光”。
+其中，黄埔新城凭借超全配套，自2022年入市以来便稳居广州市套数销冠，近期推出了四期全新组团——漫璟，首期推出建面约78㎡、90㎡、105㎡、109 ㎡三-四空间的新规产品，成为300万总价段置换的最优选择之一。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 04:17 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 04:25 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 04:27 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 04:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 04:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 04:12 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 04:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:09 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 04:08 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 04:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 04:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 04:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 04:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 04:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 04:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 04:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 04:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 04:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:42 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 04:29 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 04:31 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/82347891.shtml)
-- 2026-06-30 04:09 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/81981299559.shtml)
-- 2026-06-30 04:11 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/02458.shtml)
-- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/213453775509.shtml)
-- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/348001031.shtml)
-- 2026-06-30 04:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/333262.shtml)
-- 2026-06-30 04:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/2567458477.shtml)
-- 2026-06-30 04:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/08221929890.shtml)
-- 2026-06-30 04:20 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/155719.shtml)
-- 2026-06-30 04:16 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/95328589866.shtml)
-- 2026-06-30 04:15 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/01296.shtml)
-- 2026-06-30 04:07 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/787940789903.shtml)
-- 2026-06-30 04:27 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/264839873207.shtml)
-- 2026-06-30 04:24 - [恋与深空回应争议](https://www.share.minike.top/Article/details/48744953.shtml)
-- 2026-06-30 04:13 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/46337725861.shtml)
+- 2026-06-30 04:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/7260346371.shtml)
+- 2026-06-30 04:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/42828.shtml)
+- 2026-06-30 04:30 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/72750.shtml)
+- 2026-06-30 04:41 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/57260.shtml)
+- 2026-06-30 04:33 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/076556724.shtml)
+- 2026-06-30 04:38 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/855781518.shtml)
+- 2026-06-30 04:27 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/42391034946.shtml)
+- 2026-06-30 04:26 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/865752663190.shtml)
+- 2026-06-30 04:12 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/45054793.shtml)
+- 2026-06-30 04:31 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/6814072523.shtml)
+- 2026-06-30 04:31 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/36548589331.shtml)
+- 2026-06-30 04:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/039933.shtml)
+- 2026-06-30 04:14 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/545659.shtml)
+- 2026-06-30 04:19 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/396849099.shtml)
+- 2026-06-30 04:28 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/8971494.shtml)

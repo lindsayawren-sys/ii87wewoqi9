@@ -1,58 +1,61 @@
-# 一季报收官！华夏基金固收+全品类业绩盘点
+# 赛龙舟、挂艾草、品美食，仪式感满满！N种方式“解锁”端午民俗
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-震荡市下，追求相对稳健的投资体验已成为较多投资者的诉求，而固收+产品凭借攻守兼备的策略属性，正逐步成为部分投资者资产配置中的选择之一。 作为国内头部公募基金管理机构之一，华夏基金在固收+领域深耕多年，旗下固收+产品历经多轮市场周期的考验。随着2026年一季报正式收官，华夏基金固收+全品类的业绩表现得以呈现，其综合实力与投资价值也再次得到市场的全面检验！ 一、业绩亮眼，超额收益持
+央视网消息：端午节将近，多地陆续组织特色龙舟赛事。6月12日下午，在福建福州的罗源湾水域，海峡两岸12支龙舟队踏浪角逐，奏响端午竞渡序曲。 当天下午两点，随着发令枪响，龙舟如离弦之箭冲出起点。队员伴着铿锵鼓点挥桨破浪，在500米海上直道展开竞速比拼。岸边观众呐喊助威声此起彼伏，现场氛围热烈。 本次赛事共集结两岸12支队伍、300余名选手，比拼标准龙舟500米海上直道竞速。不同于
 
 ## 正文
 
-震荡市下，追求相对稳健的投资体验已成为较多投资者的诉求，而固收+产品凭借攻守兼备的策略属性，正逐步成为部分投资者资产配置中的选择之一。
+央视网消息：端午节将近，多地陆续组织特色龙舟赛事。
 
-作为国内头部公募基金管理机构之一，华夏基金在固收+领域深耕多年，旗下固收+产品历经多轮市场周期的考验。
+6月12日下午，在福建福州的罗源湾水域，海峡两岸12支龙舟队踏浪角逐，奏响端午竞渡序曲。
 
-随着2026年一季报正式收官，华夏基金固收+全品类的业绩表现得以呈现，其综合实力与投资价值也再次得到市场的全面检验！
+当天下午两点，随着发令枪响，龙舟如离弦之箭冲出起点。
 
-一、业绩亮眼，超额收益持续兑现 从品类分布来看，截至2026年一季度末，华夏基金旗下成立超过1年的固收+产品共计43只，涵盖五大核心类型：偏债混合型基金18只、可转换债券型基金1只、混合债券型一级基金7只、混合债券型二级基金15只、债券型FOF基金2只，兼顾底仓配置与适度增强，力求适配不同市场环境与投资者风险偏好。
+队员伴着铿锵鼓点挥桨破浪，在500米海上直道展开竞速比拼。
 
-华夏基金成立超过1年固收+产品共计43只 投资类型 基金数量 混合债券型二级基金 15 混合债券型一级基金 7 可转换债券型基金 1 偏债混合型基金 18 债券型FOF基金 2 总计 43 数据来源：Wind、基金一季报，截至2026.3.31 丰富的产品矩阵为投资者提供了更多选择，而过往业绩则是检验投研实力的“试金石”。
+岸边观众呐喊助威声此起彼伏，现场氛围热烈。
 
-以2026年一季报为观测窗口，整体来看，华夏固收+全品类在短、中、长期均实现了亮眼表现，超额收益持续兑现，用数据印证了其专业的主动管理能力。
+本次赛事共集结两岸12支队伍、300余名选手，比拼标准龙舟500米海上直道竞速。
 
-华夏基金固收+全品类整体业绩表现 近1年 近3年 近5年 平均净值增长率 6.83% 14.39% 16.90% 平均超额收益率 4.49% 5.62% 4.09% 统计基金数量 43只 38只 25只 数据来源：Wind、基金一季报，截至2026.3.31；超额收益率=报告期净值增长率-基准增长率。
+不同于河湖赛事，海上赛道受潮汐、水流、风向影响大，竞技难度与观赏性兼具。
 
-基金的过往业绩及其净值高低并不预示其未来表现。
+与此同时，赛场同步开设端午龙舟市集，展销罗源非遗好物与特色风味小吃。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 04:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 04:28 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 04:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 04:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 04:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 04:07 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 04:09 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 04:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 04:25 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 04:27 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 04:29 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 04:13 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:15 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 04:39 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 04:17 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 04:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 04:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 04:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 04:31 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 04:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 04:36 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 04:33 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 04:30 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 04:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 04:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 04:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/85368.shtml)
-- 2026-06-30 04:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/07155670353.shtml)
-- 2026-06-30 04:11 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/033600904715.shtml)
-- 2026-06-30 04:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/334802.shtml)
-- 2026-06-30 04:30 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/0265878974.shtml)
-- 2026-06-30 04:09 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/54344591.shtml)
-- 2026-06-30 04:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/833108061141.shtml)
-- 2026-06-30 04:18 - [青春环游记第三季](http://www.blog.minike.top/Article/details/7138497.shtml)
-- 2026-06-30 04:11 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/323967.shtml)
-- 2026-06-30 04:21 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/7795446270.shtml)
-- 2026-06-30 04:09 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/2680922608.shtml)
-- 2026-06-30 04:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/1761476430.shtml)
-- 2026-06-30 04:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/26841601321.shtml)
-- 2026-06-30 04:20 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/1820877296.shtml)
-- 2026-06-30 04:16 - [电影后室值得看吗](http://www.share.minike.top/Article/details/3700358.shtml)
+- 2026-06-30 04:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/52195.shtml)
+- 2026-06-30 04:15 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/59493.shtml)
+- 2026-06-30 04:24 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/42075.shtml)
+- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/7458519.shtml)
+- 2026-06-30 04:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/2215695048.shtml)
+- 2026-06-30 04:16 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/819309405.shtml)
+- 2026-06-30 04:36 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/30332.shtml)
+- 2026-06-30 04:41 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/1288307.shtml)
+- 2026-06-30 04:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/95000073553.shtml)
+- 2026-06-30 04:21 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/611664.shtml)
+- 2026-06-30 04:19 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/33317455769.shtml)
+- 2026-06-30 04:12 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/790004.shtml)
+- 2026-06-30 04:12 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/0853347.shtml)
+- 2026-06-30 04:24 - [沉睡花园](http://www.blog.minike.top/Article/details/65658.shtml)
+- 2026-06-30 04:12 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/31523.shtml)

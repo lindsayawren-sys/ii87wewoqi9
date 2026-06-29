@@ -1,51 +1,58 @@
-# 湖北枝江长江大桥合龙
+# “黄金九分”频现 粤BA八强出炉
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-本报北京5月16日电 (记者韩鑫)湖北枝江长江大桥15日成功合龙，为项目建成通车奠定了重要基础。 枝江长江大桥北起枝江市马家店街道，南至百里洲镇，全长1549米，主跨跨径890米。百里洲是长江枝江段一座大型江心洲，长期以来，洲上居民一直面临着出行不便的难题。大桥建成通车后，两岸群众过江时间将由数小时缩短至5分钟，有效改善当地群众出行条件。
+中新网河源6月14日电 (记者 张璐)2026年李宁·广东省城市篮球联赛(简称“粤BA”)13日结束八强附加赛第二回合较量。粤BA八强附加赛(简称“八强附加赛”)第二回合较量战况焦灼。首战失利的云浮队、珠海队、湛江队、河源队本轮均获得胜利，四场对决均出现“黄金九分”附加赛。最终，汕头队、潮州队、揭阳队、佛山队战胜各自对手，获得八强席位。 八强附加赛，采用主客场回合制，东区、西区
 
 ## 正文
 
-本报北京5月16日电 (记者韩鑫)湖北枝江长江大桥15日成功合龙，为项目建成通车奠定了重要基础。
+中新网河源6月14日电 (记者 张璐)2026年李宁·广东省城市篮球联赛(简称“粤BA”)13日结束八强附加赛第二回合较量。
 
-枝江长江大桥北起枝江市马家店街道，南至百里洲镇，全长1549米，主跨跨径890米。
+粤BA八强附加赛(简称“八强附加赛”)第二回合较量战况焦灼。
 
-百里洲是长江枝江段一座大型江心洲，长期以来，洲上居民一直面临着出行不便的难题。
+首战失利的云浮队、珠海队、湛江队、河源队本轮均获得胜利，四场对决均出现“黄金九分”附加赛。
 
-大桥建成通车后，两岸群众过江时间将由数小时缩短至5分钟，有效改善当地群众出行条件。
+最终，汕头队、潮州队、揭阳队、佛山队战胜各自对手，获得八强席位。
+
+八强附加赛，采用主客场回合制，东区、西区排名第3至第6的队伍通过交叉对阵争夺剩余4个八强席位。
+
+在八强附加赛首回合的比赛中，佛山队主场战胜河源队。
+
+当日，两队展开激烈对决。
+
+比赛开始，两队拼抢激烈。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 04:12 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 04:34 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 04:20 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 04:30 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 04:06 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 04:25 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 04:21 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 04:13 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 04:32 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 04:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 04:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 04:06 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 04:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 04:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 04:35 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 04:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 04:21 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 04:33 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 04:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 04:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 04:34 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 04:38 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 04:13 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 04:26 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/685390848496.shtml)
-- 2026-06-30 04:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/331604.shtml)
-- 2026-06-30 04:30 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/704770408.shtml)
-- 2026-06-30 04:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/729124267689.shtml)
-- 2026-06-30 04:19 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/2202664.shtml)
-- 2026-06-30 04:07 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/4055299.shtml)
-- 2026-06-30 04:32 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/98417892.shtml)
-- 2026-06-30 04:19 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/41102.shtml)
-- 2026-06-30 04:28 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/809566700.shtml)
-- 2026-06-30 04:33 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/01490.shtml)
-- 2026-06-30 04:23 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/062981863.shtml)
-- 2026-06-30 04:27 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/331210855.shtml)
-- 2026-06-30 04:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/57524712.shtml)
-- 2026-06-30 04:30 - [日本淘汰](http://www.share.minike.top/Article/details/4193009052.shtml)
-- 2026-06-30 04:29 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/4233213877.shtml)
+- 2026-06-30 04:28 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/5243169611.shtml)
+- 2026-06-30 04:32 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/986150877760.shtml)
+- 2026-06-30 04:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/185794554.shtml)
+- 2026-06-30 04:30 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/984692.shtml)
+- 2026-06-30 04:33 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/2563519715.shtml)
+- 2026-06-30 04:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/54127131.shtml)
+- 2026-06-30 04:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/689717.shtml)
+- 2026-06-30 04:32 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/58978.shtml)
+- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/7560582.shtml)
+- 2026-06-30 04:19 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/965780.shtml)
+- 2026-06-30 04:23 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/99438963.shtml)
+- 2026-06-30 04:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/644018375.shtml)
+- 2026-06-30 04:16 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/639968816685.shtml)
+- 2026-06-30 04:27 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/650102.shtml)
+- 2026-06-30 04:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/56545.shtml)

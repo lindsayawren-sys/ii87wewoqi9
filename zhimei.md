@@ -1,61 +1,45 @@
-# 泰国曼谷列车与公交车相撞事故已致8人死亡
+# 溜溜梅要上市了！突击分红6730万元，创始人夫妇拿走5300万元
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社曼谷5月16日电 据多家泰国媒体报道，当地时间16日下午，泰国曼谷市区发生一起重大交通事故。一列从北柳府开往曼谷的货运列车与一辆公交车相撞，引发公交车猛烈燃烧，造成8人死亡、数十人受伤。 与此同时，事故现场附近还发生多辆摩托车及汽车连环碰撞，部分车辆也起火燃烧。 泰国防灾减灾部门、警察局及多个基金会救援人员紧急前往现场联合开展处置工作，目前已成功控制火势。相关部门正加紧清
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：深圳商报 责任编辑：凌辰
 
 ## 正文
 
-中新社曼谷5月16日电 据多家泰国媒体报道，当地时间16日下午，泰国曼谷市区发生一起重大交通事故。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一列从北柳府开往曼谷的货运列车与一辆公交车相撞，引发公交车猛烈燃烧，造成8人死亡、数十人受伤。
-
-与此同时，事故现场附近还发生多辆摩托车及汽车连环碰撞，部分车辆也起火燃烧。
-
-泰国防灾减灾部门、警察局及多个基金会救援人员紧急前往现场联合开展处置工作，目前已成功控制火势。
-
-相关部门正加紧清理事故车辆残骸，并将被困于公交车内的遇难者遗体移出现场，以进行身份确认及后续调查。
-
-事故发生后，泰国交通部副部长西里蓬抵达事故现场，下令相关机构全力救助事故受害者。
-
-现场目击者称，事发时，一列从北柳府驶往曼谷的列车正在运行，而一辆公交车恰好停在铁路道口中央，列车直接撞上公交车，并将其拖行约50米，随后公交车被大火吞噬。
-
-西里蓬透露，初步调查显示，事发前，曼谷大众运输机构所属公交车因前方红灯停在铁路轨道上，导致铁路道闸无法正常落下。
+来源：深圳商报 责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 04:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:15 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 04:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 04:29 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 04:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 04:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 04:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 04:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:18 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 04:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 04:32 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 04:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 04:07 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 04:30 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 04:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 04:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 04:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 04:28 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 04:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 04:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 04:23 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 04:34 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 04:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 04:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [美股](https://www.blog.kurohicncr.top/Article/details/52475.shtml)
-- 2026-06-30 04:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/09998531339.shtml)
-- 2026-06-30 04:22 - [蔚来车主罚站](https://www.share.minike.top/Article/details/0380867.shtml)
-- 2026-06-30 04:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/63645214.shtml)
-- 2026-06-30 04:10 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4134074.shtml)
-- 2026-06-30 04:22 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/7141597922.shtml)
-- 2026-06-30 04:34 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/483206.shtml)
-- 2026-06-30 04:21 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/129358205800.shtml)
-- 2026-06-30 04:08 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/347598.shtml)
-- 2026-06-30 04:35 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/19404548.shtml)
-- 2026-06-30 04:09 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/59699.shtml)
-- 2026-06-30 04:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/69424083.shtml)
-- 2026-06-30 04:10 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/6047672.shtml)
-- 2026-06-30 04:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/21100816.shtml)
-- 2026-06-30 04:16 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/780429611857.shtml)
+- 2026-06-30 04:16 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/9924687238.shtml)
+- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/280248975.shtml)
+- 2026-06-30 04:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/152740043909.shtml)
+- 2026-06-30 04:31 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/2044844.shtml)
+- 2026-06-30 04:37 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/43215267709.shtml)
+- 2026-06-30 04:23 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/550759400.shtml)
+- 2026-06-30 04:15 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/34420.shtml)
+- 2026-06-30 04:33 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/992734034004.shtml)
+- 2026-06-30 04:40 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/5178583.shtml)
+- 2026-06-30 04:15 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/819067774625.shtml)
+- 2026-06-30 04:19 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/02254762211.shtml)
+- 2026-06-30 04:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/9506005.shtml)
+- 2026-06-30 04:18 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/918619190285.shtml)
+- 2026-06-30 04:25 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/59677215.shtml)
+- 2026-06-30 04:32 - [毒液2](https://www.blog.kurohicncr.top/Article/details/174955847539.shtml)

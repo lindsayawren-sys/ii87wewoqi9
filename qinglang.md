@@ -1,61 +1,57 @@
-# 韩国股市大幅下挫逾6% 芯片股领跌 持续五周的涨势结束
+# ChatGPT月活突破10亿 竞品增速达640%和973%
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-韩国股市周五大幅下挫，早盘指标股指曾一度升至历史高位，之后因芯片股下跌涨幅全数回吐，终结了连续五周的上涨势头。 指标韩国综合股价指数（KOSPI） 收盘下跌488.23点，或6.12%，报7，493.18点。本周累计下跌0.1%。周五早盘，该指数一度上涨0.82%，创下历史新高8，046.78点，在突破7，000点大关仅一周多后，便再次突破8，000点关口。 权重股中三星电子下
+市场研究机构Sensor Tower的最新估计显示，OpenAI旗下应用ChatGPT在2026年5月突破10亿月活跃用户，成为有史以来最快达到这一规模的应用程序。 这一成绩距离ChatGPT于2022年11月正式上线仅过去约3.5年。此前的纪录保持者是谷歌地图，用时约五年才达到同等用户量。 尽管ChatGPT在总量上领先，但竞争对手的增长速度更快。数据显示，Anthropic
 
 ## 正文
 
-韩国股市周五大幅下挫，早盘指标股指曾一度升至历史高位，之后因芯片股下跌涨幅全数回吐，终结了连续五周的上涨势头。
+市场研究机构Sensor Tower的最新估计显示，OpenAI旗下应用ChatGPT在2026年5月突破10亿月活跃用户，成为有史以来最快达到这一规模的应用程序。
 
-指标韩国综合股价指数（KOSPI） 收盘下跌488.23点，或6.12%，报7，493.18点。
+这一成绩距离ChatGPT于2022年11月正式上线仅过去约3.5年。
 
-本周累计下跌0.1%。
+此前的纪录保持者是谷歌地图，用时约五年才达到同等用户量。
 
-周五早盘，该指数一度上涨0.82%，创下历史新高8，046.78点，在突破7，000点大关仅一周多后，便再次突破8，000点关口。
+尽管ChatGPT在总量上领先，但竞争对手的增长速度更快。
 
-权重股中三星电子下跌8.61%，SK海力下跌7.66%。
+数据显示，Anthropic旗下Claude的月活跃用户同比增长约640%，而Meta AI的增长幅度达到973%。
 
-电池厂商LG新能源下跌5.66%。
+相比之下，ChatGPT的同期增幅为62%。
 
-LG化学下跌4.71%，大型入口网站Naver 下跌4.46%，移动通讯应用程序业者Kakao 下跌4.24%。
+Sensor Tower高级洞察分析师Abe Yousef指出，竞品的快速增长主要得益于过去一年中显著的模型改进以及更为积极的市场情绪。
 
-现代汽车下跌1.69%，起亚汽车下跌5.67%；钢铁制造商POSCO Holdings 下跌3.91%，而制药商三星生物制剂 下跌2.07%。
+值得注意的是，竞品的发展已开始对ChatGPT的用户使用习惯产生影响。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 04:26 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 04:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 04:26 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:09 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 04:14 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 04:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 04:24 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 04:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 04:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 04:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 04:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:33 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 04:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 04:25 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 04:20 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 04:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 04:34 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 04:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 04:15 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 04:36 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 04:26 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 04:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 04:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/06074.shtml)
-- 2026-06-30 04:19 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/958760552668.shtml)
-- 2026-06-30 04:29 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/298423.shtml)
-- 2026-06-30 04:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/47928911759.shtml)
-- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/606950088277.shtml)
-- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8288012.shtml)
-- 2026-06-30 04:12 - [日本进球](https://www.blog.kurohicncr.top/Article/details/645520.shtml)
-- 2026-06-30 04:32 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/35598.shtml)
-- 2026-06-30 04:07 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/998382101776.shtml)
-- 2026-06-30 04:34 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/7423728.shtml)
-- 2026-06-30 04:21 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/37846947120.shtml)
-- 2026-06-30 04:19 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/700308580702.shtml)
-- 2026-06-30 04:33 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/4708082.shtml)
-- 2026-06-30 04:07 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/608848724.shtml)
-- 2026-06-30 04:07 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/746298170.shtml)
+- 2026-06-30 04:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/1814290563.shtml)
+- 2026-06-30 04:12 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7424551041.shtml)
+- 2026-06-30 04:20 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/321245230.shtml)
+- 2026-06-30 04:26 - [周生如故](https://www.blog.kurohicncr.top/Article/details/591027150.shtml)
+- 2026-06-30 04:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/26812952.shtml)
+- 2026-06-30 04:37 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/127789214.shtml)
+- 2026-06-30 04:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/240446556.shtml)
+- 2026-06-30 04:35 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/665887533173.shtml)
+- 2026-06-30 04:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/939948.shtml)
+- 2026-06-30 04:24 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/470464.shtml)
+- 2026-06-30 04:23 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/24254.shtml)
+- 2026-06-30 04:41 - [一见倾心](http://www.blog.minike.top/Article/details/41618331784.shtml)
+- 2026-06-30 04:36 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/0022739429.shtml)
+- 2026-06-30 04:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/872077.shtml)
+- 2026-06-30 04:38 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/74313241788.shtml)

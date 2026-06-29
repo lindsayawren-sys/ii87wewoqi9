@@ -1,61 +1,60 @@
-# 【市场聚焦】黑色：回落压力较大
+# 龙舟破浪前行 两岸走亲走近（两岸观察）
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-来源：中粮期货研究中心 劳动节前后，黑色市场快速上涨，预计近期价格已经到顶部，下跌压力加大。 1、需求回升与政策效应叠加 钢材消费旺季背景下，稳地产相关政策效应逐步显现。劳动节前处于建筑用钢传统需求旺季，用钢需求环比持续好转。政策效应与旺季需求共振，各地密集出台优化购房支持政策，从信贷支持、限购松绑到购房补贴等多维度释放利好信号，同时城市更新工作加速推进，实施范围由试点区域逐渐
+五月五，过端午，划龙舟，敲大鼓。近期，两岸各地相继举办的多场龙舟赛引人关注。在大陆，北京、湖北、福建、江苏等地相继举办多场龙舟比赛，湖南、云南、贵州等地的龙舟赛也将在端午节前后举办，仅广东一省就计划在6至7月举办208项龙舟活动、547场比赛。在台湾，台北龙舟锦标赛吸引了超220支队伍、5000多名选手报名。随着端午节的临近，两岸龙舟队的鼓声越发同频共振。多场跨越海峡两岸的龙舟
 
 ## 正文
 
-来源：中粮期货研究中心 劳动节前后，黑色市场快速上涨，预计近期价格已经到顶部，下跌压力加大。
+五月五，过端午，划龙舟，敲大鼓。
 
-1、需求回升与政策效应叠加 钢材消费旺季背景下，稳地产相关政策效应逐步显现。
+近期，两岸各地相继举办的多场龙舟赛引人关注。
 
-劳动节前处于建筑用钢传统需求旺季，用钢需求环比持续好转。
+在大陆，北京、湖北、福建、江苏等地相继举办多场龙舟比赛，湖南、云南、贵州等地的龙舟赛也将在端午节前后举办，仅广东一省就计划在6至7月举办208项龙舟活动、547场比赛。
 
-政策效应与旺季需求共振，各地密集出台优化购房支持政策，从信贷支持、限购松绑到购房补贴等多维度释放利好信号，同时城市更新工作加速推进，实施范围由试点区域逐渐向全域拓展，项目落地节奏持续加快。
+在台湾，台北龙舟锦标赛吸引了超220支队伍、5000多名选手报名。
 
-多重利好叠加有效提振市场预期，贸易需求边际改善，为钢市需求端形成稳定支撑，价格快速上涨。
+随着端午节的临近，两岸龙舟队的鼓声越发同频共振。
 
-图：螺纹表观消费量（周度月均，万吨） 图：热卷表观消费量（周度月均，万吨） 2、利润改善令供应压力上升 受钢价上行带动，短期炼钢利润快速抬升，当前螺纹钢价格已逼近电炉平电成本区间，价格进一步上行面临较大阻力。
+多场跨越海峡两岸的龙舟交流赛已成为增进两岸同胞情谊、促进两岸同胞心灵契合的重要纽带。
 
-与此同时，盈利改善显著提振钢厂生产积极性，炼钢意愿持续增强，钢材产量管控难度加大。
+芒种到来，凤凰花开。
 
-在行业整体产能充足的背景下，钢厂增产将进一步加大市场供给压力，对钢价上涨形成明显压制，供需博弈加剧下，钢价后续或呈现震荡运行态势。
+6月5日，第十九届“嘉庚杯”“敬贤杯”海峡两岸龙舟赛在厦门集美龙舟池开赛。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 04:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 04:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 04:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 04:12 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 04:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 04:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 04:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 04:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 04:17 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 04:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:21 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 04:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 04:32 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 04:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 04:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 04:37 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 04:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 04:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 04:34 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 04:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 04:33 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 04:31 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 04:32 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 04:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:19 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/326241340.shtml)
-- 2026-06-30 04:30 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/267979142.shtml)
-- 2026-06-30 04:30 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/794891535.shtml)
-- 2026-06-30 04:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/210162657672.shtml)
-- 2026-06-30 04:25 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/124738.shtml)
-- 2026-06-30 04:19 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/39588363782.shtml)
-- 2026-06-30 04:34 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/352880.shtml)
-- 2026-06-30 04:15 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/495456394628.shtml)
-- 2026-06-30 04:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/37451207.shtml)
-- 2026-06-30 04:12 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/7140419967.shtml)
-- 2026-06-30 04:16 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/465008070715.shtml)
-- 2026-06-30 04:30 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/3036563.shtml)
-- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/922091155.shtml)
-- 2026-06-30 04:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/3255364330.shtml)
-- 2026-06-30 04:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/171918.shtml)
+- 2026-06-30 04:13 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/74229235526.shtml)
+- 2026-06-30 04:17 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/190589148.shtml)
+- 2026-06-30 04:14 - [一生一世](https://www.blog.kurohicncr.top/Article/details/8416818410.shtml)
+- 2026-06-30 04:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/374056452180.shtml)
+- 2026-06-30 04:36 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/96603642.shtml)
+- 2026-06-30 04:18 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/02208578408.shtml)
+- 2026-06-30 04:33 - [电影后室值得看吗](https://www.share.minike.top/Article/details/22181.shtml)
+- 2026-06-30 04:31 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/547761366.shtml)
+- 2026-06-30 04:12 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/075267301274.shtml)
+- 2026-06-30 04:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/8531208275.shtml)
+- 2026-06-30 04:23 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/126908567368.shtml)
+- 2026-06-30 04:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/841903.shtml)
+- 2026-06-30 04:15 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/5895396564.shtml)
+- 2026-06-30 04:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/25490.shtml)
+- 2026-06-30 04:27 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/24610369703.shtml)

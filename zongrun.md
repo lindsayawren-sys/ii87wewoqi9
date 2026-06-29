@@ -1,61 +1,56 @@
-# 逾500名澳门中学师生走进华侨大学体验中华传统文化
+# 滨水文旅“混搭”世界杯元素 “东方塞纳河”引燃夏日消费活力
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网泉州5月14日电 (记者 孙虹)二十四节令鼓节奏铿锵有力、舞龙舞狮翻腾跳跃……14日，澳门濠江中学逾500名师生到访华侨大学泉州校区，与华大学子同上一堂课、同唱一首歌、同吟一首诗，沉浸式体验内地高校丰富多彩的校园文化。 澳门濠江中学副校长陈虹告诉中新网记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。 作
+中新社北京6月12日电 题：滨水文旅“混搭”世界杯元素 “东方塞纳河”引燃夏日消费活力 中新社记者 吕少威 2026年美加墨世界杯拉开战幕，北京亮马河沿线商家抢搭“赛事经济”快车，密集推出多项主题活动与促消费举措，引燃夏日消费活力。 12日，亮马河畔的好运街，一家民谣餐吧早已挂满多国国旗装饰与赛事日程看板，观赛氛围浓厚。工作人员向中新社记者介绍，店内本就配备投影大屏与专业音响，
 
 ## 正文
 
-中新网泉州5月14日电 (记者 孙虹)二十四节令鼓节奏铿锵有力、舞龙舞狮翻腾跳跃……14日，澳门濠江中学逾500名师生到访华侨大学泉州校区，与华大学子同上一堂课、同唱一首歌、同吟一首诗，沉浸式体验内地高校丰富多彩的校园文化。
+中新社北京6月12日电 题：滨水文旅“混搭”世界杯元素 “东方塞纳河”引燃夏日消费活力 中新社记者 吕少威 2026年美加墨世界杯拉开战幕，北京亮马河沿线商家抢搭“赛事经济”快车，密集推出多项主题活动与促消费举措，引燃夏日消费活力。
 
-澳门濠江中学副校长陈虹告诉中新网记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。
+12日，亮马河畔的好运街，一家民谣餐吧早已挂满多国国旗装饰与赛事日程看板，观赛氛围浓厚。
 
-作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。
+工作人员向中新社记者介绍，店内本就配备投影大屏与专业音响，常年播放各类足球赛事，一直深受周边食客与外籍顾客喜爱。
 
-多年前的校园生活令她记忆犹新，“华大以包容开放的校园氛围融通中外，重视中华优秀传统文化传承，给我留下深刻的印象，也培养了我成为一名教书育人的老师。
+为迎接本届世界杯，门店特意升级了影音设备，重新规划了观赛核心区域，预计首个赛事周末将迎客流高峰。
 
-”陈虹说，希望此行能带给澳门中学生不一样的课堂体验。
+不远处的蓝色港湾国际商区，从餐饮门店到零售商铺，各类足球元素随处可见，带动相关品类消费持续升温。
 
-当天，澳门中学生们观看了华侨大学二十四节令鼓、舞龙、舞狮、街舞等表演，并参与互动体验。
+作为全国仅有的6家世界杯主题旗舰店之一，麦当劳蓝色港湾店以球员更衣室为设计灵感，从取餐口、餐桌到墙面都布满了足球与球星主题装饰。
 
-在短暂的交流学习后，华大舞龙队队员带着澳门小朋友一起配合，“巨龙”时而腾空而起，时而俯冲而下，时而盘旋飞舞，引起大家阵阵欢呼。
+门店同步上线世界杯限定菜单，吸引不少球迷专程前来打卡消费。
 
-“体验了敲鼓、打锣，非常有趣。
+商区内的泡泡玛特门店将世界杯联名系列商品摆放在醒目的陈列区。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 04:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 04:26 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 04:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 04:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 04:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 04:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 04:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 04:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 04:17 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 04:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 04:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 04:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 04:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:10 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 04:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 04:19 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 04:32 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 04:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 04:31 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 04:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 04:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 04:15 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [《共患难》](https://www.share.minike.top/Article/details/456056573.shtml)
-- 2026-06-30 04:08 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/49149578.shtml)
-- 2026-06-30 04:16 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/103687483556.shtml)
-- 2026-06-30 04:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/333176.shtml)
-- 2026-06-30 04:10 - [明星大侦探第一季](http://www.share.minike.top/Article/details/436967.shtml)
-- 2026-06-30 04:08 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/312980500.shtml)
-- 2026-06-30 04:25 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/2206066.shtml)
-- 2026-06-30 04:08 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/10116883541.shtml)
-- 2026-06-30 04:08 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/700867.shtml)
-- 2026-06-30 04:08 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/4265669.shtml)
-- 2026-06-30 04:30 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/30861224.shtml)
-- 2026-06-30 04:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/917566.shtml)
-- 2026-06-30 04:09 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/72323.shtml)
-- 2026-06-30 04:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/634316826.shtml)
-- 2026-06-30 04:19 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/1765924752.shtml)
+- 2026-06-30 04:38 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/034076865393.shtml)
+- 2026-06-30 04:14 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/969767276.shtml)
+- 2026-06-30 04:33 - [我们的少年时代2](http://www.share.minike.top/Article/details/56553716479.shtml)
+- 2026-06-30 04:12 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/385988452.shtml)
+- 2026-06-30 04:27 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/100104108.shtml)
+- 2026-06-30 04:30 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/16600321291.shtml)
+- 2026-06-30 04:12 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/01157043.shtml)
+- 2026-06-30 04:38 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/957240.shtml)
+- 2026-06-30 04:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/884591.shtml)
+- 2026-06-30 04:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/4738960652.shtml)
+- 2026-06-30 04:27 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/167301.shtml)
+- 2026-06-30 04:12 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/22412.shtml)
+- 2026-06-30 04:30 - [日本进球](https://www.share.minike.top/Article/details/51711515.shtml)
+- 2026-06-30 04:22 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/622308928631.shtml)
+- 2026-06-30 04:25 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/04964.shtml)

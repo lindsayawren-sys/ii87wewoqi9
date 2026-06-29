@@ -1,57 +1,54 @@
-# （滇藏公路50年）勇士之路：不止是穿越 还有坚守
+# 全球43国民调：超七成受访者点赞中国基建与教育
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网西藏察隅5月17日电 题：勇士之路：不止是穿越 还有坚守——记扎根滇藏公路6年的云南夫妻 作者 陈静 赵朗 伴着幽蓝的夜色，滇藏交界处的群峰还在沉睡。不到6点，张玉芳夫妇已在自家开的“美味小吃”店忙活开来，这是他们落脚察瓦龙乡的第6个年头。 扎根“勇士之路” 46岁的张玉芳是云南省怒江州丙中洛镇人，15岁初中毕业后在家种地，婚后跟着老乡外出打工。丈夫冯明安是云南省保山市白
+发布时间：2026年06月12日 19:06 来源：中国新闻网 6月12日，在2026·全球人权治理高端论坛上，中央广播电视总台CCTV副总编辑、英语环球节目中心副主任丁勇在作大会发言时，发布了一项覆盖全球43个国家、12000多名受访者的大规模民意调查结果。 调查显示，受访者对中国政府治理效能的8个维度满意度均超过60%。其中，基础设施建设、教育、就业、收入水平位列前四，满意
 
 ## 正文
 
-中新网西藏察隅5月17日电 题：勇士之路：不止是穿越 还有坚守——记扎根滇藏公路6年的云南夫妻 作者 陈静 赵朗 伴着幽蓝的夜色，滇藏交界处的群峰还在沉睡。
+发布时间：2026年06月12日 19:06 来源：中国新闻网 6月12日，在2026·全球人权治理高端论坛上，中央广播电视总台CCTV副总编辑、英语环球节目中心副主任丁勇在作大会发言时，发布了一项覆盖全球43个国家、12000多名受访者的大规模民意调查结果。
 
-不到6点，张玉芳夫妇已在自家开的“美味小吃”店忙活开来，这是他们落脚察瓦龙乡的第6个年头。
+调查显示，受访者对中国政府治理效能的8个维度满意度均超过60%。
 
-扎根“勇士之路” 46岁的张玉芳是云南省怒江州丙中洛镇人，15岁初中毕业后在家种地，婚后跟着老乡外出打工。
+其中，基础设施建设、教育、就业、收入水平位列前四，满意度均超过70%。
 
-丈夫冯明安是云南省保山市白族，干过建筑、进过电子厂、开过快餐店，夫妻俩奔波忙碌数十年，将两个儿子养育长大。
+此外，受访者对中国参与全球治理的贡献度与期待值均超过60%，对共建“一带一路”的好感度与满意度超过70%。
 
-2019年秋天，张玉芳因身体不适住院近一个月，不能再做重活，两人便攥着打工攒下的积蓄回了老家。
+丁勇表示，这反映出国际社会对推动全球人权治理朝着更加公平、公正、合理、包容方向发展的殷切期待。
 
-“我一直想开个小吃店，不用到处奔波，生活能安定下来。
+“以合作促发展、以公平促治理、以和平促人权”，正成为理解中国人权观世界意义的重要维度。
 
-”张玉芳说，返乡后，夫妇两人自驾到察瓦龙乡游玩时，看见沿街店铺正在转让，两人一拍即合，当场缴纳5000元定金，2019年10月1日正式开业，勇敢地开启新生活。
-
-“在我们云南，很多人想去西藏，都要走这条路。
+(记者 刘超 刘子衿 制作 乐小敏) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 04:25 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 04:35 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 04:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 04:13 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 04:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 04:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 04:11 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 04:32 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 04:30 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 04:13 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 04:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 04:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 04:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 04:40 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 04:28 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 04:20 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 04:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 04:13 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 04:18 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 04:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/32076520.shtml)
-- 2026-06-30 04:16 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/261667.shtml)
-- 2026-06-30 04:34 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/688255952116.shtml)
-- 2026-06-30 04:09 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/28520992946.shtml)
-- 2026-06-30 04:27 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/66836618494.shtml)
-- 2026-06-30 04:24 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/449783.shtml)
-- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/8442341.shtml)
-- 2026-06-30 04:29 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/46692.shtml)
-- 2026-06-30 04:28 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/51370378759.shtml)
-- 2026-06-30 04:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/952409705.shtml)
-- 2026-06-30 04:24 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/6290472.shtml)
-- 2026-06-30 04:35 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/48150631.shtml)
-- 2026-06-30 04:17 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/85425.shtml)
-- 2026-06-30 04:08 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/405923452194.shtml)
-- 2026-06-30 04:34 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/37067450.shtml)
+- 2026-06-30 04:13 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/140762620.shtml)
+- 2026-06-30 04:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/86593773978.shtml)
+- 2026-06-30 04:39 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/50078107906.shtml)
+- 2026-06-30 04:28 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/538761614332.shtml)
+- 2026-06-30 04:16 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/16334215884.shtml)
+- 2026-06-30 04:25 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/71952.shtml)
+- 2026-06-30 04:16 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/28314.shtml)
+- 2026-06-30 04:12 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/386860443799.shtml)
+- 2026-06-30 04:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/674978640385.shtml)
+- 2026-06-30 04:14 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/70105.shtml)
+- 2026-06-30 04:23 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/846073252362.shtml)
+- 2026-06-30 04:35 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/396470993.shtml)
+- 2026-06-30 04:34 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/4634605.shtml)
+- 2026-06-30 04:34 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/13744830.shtml)
+- 2026-06-30 04:37 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/343137.shtml)

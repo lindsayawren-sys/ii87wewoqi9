@@ -1,61 +1,56 @@
-# “巴菲特午餐”重启，这次有何不同？
+# 2026贵阳马拉松鸣枪开跑 埃塞俄比亚女选手破赛会纪录
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！时隔数年，“巴菲特慈善午餐”再次回归资本市场视野。 北京时间5月15日，重启后的“巴菲特慈善午餐”，最终以900.01万美元（约合人民币6100万元）的价格成交。eBay网站显示，本次拍卖共有172次出价、5位竞标者参与，最终买家身份暂未公开。 图片来自eBay网站 “巴菲特慈善午餐”此次回归，有何不同？
+中新社贵阳6月14日电 (张伟 曾琪男)2026多彩贵州马拉松超级联赛(第三站)暨蒙牛·贵阳马拉松(简称“2026贵阳马拉松”)14日鸣枪开跑。 2026贵阳马拉松设置马拉松和半程马拉松，开放25000个参赛席位，全网报名人数达182570人，刷新历史纪录。经过公开抽签，最终参赛选手覆盖中国31个省、自治区、直辖市及全球27个国家和地区。赛事还特邀31名海内外顶尖跑者同场竞技。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社贵阳6月14日电 (张伟 曾琪男)2026多彩贵州马拉松超级联赛(第三站)暨蒙牛·贵阳马拉松(简称“2026贵阳马拉松”)14日鸣枪开跑。
 
-时隔数年，“巴菲特慈善午餐”再次回归资本市场视野。
+2026贵阳马拉松设置马拉松和半程马拉松，开放25000个参赛席位，全网报名人数达182570人，刷新历史纪录。
 
-北京时间5月15日，重启后的“巴菲特慈善午餐”，最终以900.01万美元（约合人民币6100万元）的价格成交。
+经过公开抽签，最终参赛选手覆盖中国31个省、自治区、直辖市及全球27个国家和地区。
 
-eBay网站显示，本次拍卖共有172次出价、5位竞标者参与，最终买家身份暂未公开。
+赛事还特邀31名海内外顶尖跑者同场竞技。
 
-图片来自eBay网站 “巴菲特慈善午餐”此次回归，有何不同？
+经过激烈角逐，马拉松男子组比赛中，埃塞俄比亚选手阿卜杜勒杰利尔·阿卜杜勒沃基尔·法里斯以2小时15分13秒的成绩夺冠，埃塞俄比亚选手德斯塔·海勒·蒂加布以2小时15分55秒获得亚军，肯尼亚选手基姆雷尔·乔伊·肯博伊以2小时16分53秒获得季军。
 
-作为全球最具知名度的慈善拍卖活动之一，“巴菲特慈善午餐”曾是全球投资圈、互联网圈等高度关注的事件。
+马拉松女子组前三名被埃塞俄比亚选手包揽，阿德马苏·菲克特·韦雷塔以2小时29分4秒破赛会纪录的成绩夺冠，特费拉·科洛勒·梅卡舒和费雷德·贝特尔海姆·尼加分别以2小时30分32秒、2小时37分13秒的成绩分列第二、第三名。
 
-尤其在过去十余年间，多位中国企业家和投资人曾高价竞得午餐资格，一度成为热门话题。
+半程马拉松比赛中，贵州选手郑宏、李馨宇、卯飘包揽男子组前三名，女子组前三名分别由四川选手马秀针、山东选手王文田、贵州选手王美琴斩获。
 
-公开资料显示，“巴菲特慈善午餐”始于2000年，由巴菲特为美国慈善机构格莱德基金会发起。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 04:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 04:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 04:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 04:16 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 04:17 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 04:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 04:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 04:19 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 04:31 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 04:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 04:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 04:30 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 04:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 04:33 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 04:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 04:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 04:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 04:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:31 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 04:39 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 04:16 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/508102101630.shtml)
-- 2026-06-30 04:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/36853245.shtml)
-- 2026-06-30 04:14 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/900012126.shtml)
-- 2026-06-30 04:21 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/756683939.shtml)
-- 2026-06-30 04:30 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/595146385654.shtml)
-- 2026-06-30 04:35 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/516790277.shtml)
-- 2026-06-30 04:25 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/774185270812.shtml)
-- 2026-06-30 04:22 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/54791.shtml)
-- 2026-06-30 04:06 - [金牌调解](https://www.share.kurohicncr.top/Article/details/34127009.shtml)
-- 2026-06-30 04:30 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/3939840273.shtml)
-- 2026-06-30 04:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/79605776.shtml)
-- 2026-06-30 04:27 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/38636661926.shtml)
-- 2026-06-30 04:31 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/96461735.shtml)
-- 2026-06-30 04:27 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/508928550607.shtml)
-- 2026-06-30 04:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/610855595059.shtml)
+- 2026-06-30 04:23 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/773957798630.shtml)
+- 2026-06-30 04:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/58690623900.shtml)
+- 2026-06-30 04:38 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/0758445540.shtml)
+- 2026-06-30 04:27 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/0155312.shtml)
+- 2026-06-30 04:23 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/379927670.shtml)
+- 2026-06-30 04:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/67917465.shtml)
+- 2026-06-30 04:21 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/54513.shtml)
+- 2026-06-30 04:16 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/522190.shtml)
+- 2026-06-30 04:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/30890204491.shtml)
+- 2026-06-30 04:29 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/46634.shtml)
+- 2026-06-30 04:40 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/83582.shtml)
+- 2026-06-30 04:16 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/375910.shtml)
+- 2026-06-30 04:36 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/92231.shtml)
+- 2026-06-30 04:32 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/816866.shtml)
+- 2026-06-30 04:15 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/249618570508.shtml)

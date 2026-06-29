@@ -1,59 +1,57 @@
-# 国际大行上调白银价格预期 但警告供需缺口收窄或限制未来涨势
+# 甲骨文赢得3.96亿美元联邦人力资源现代化合同
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。 银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
+美国人事管理办公室已授予甲骨文公司一份价值3.958亿美元的合同，用于为联邦政府打造统一的人力资源平台。该平台将覆盖约200万名美国联邦文职雇员，取代目前各机构使用的100多个分散的遗留系统。 人事管理办公室主任斯科特·库珀在宣布该合同时表示，联邦政府的人力资源基础设施已变得不必要地分散，这份合同是对联邦劳动力管理未来的基础性投资。该项目名为“联邦人力资源2.0”，将采用甲骨文
 
 ## 正文
 
-财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。
+美国人事管理办公室已授予甲骨文公司一份价值3.958亿美元的合同，用于为联邦政府打造统一的人力资源平台。
 
-银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
+该平台将覆盖约200万名美国联邦文职雇员，取代目前各机构使用的100多个分散的遗留系统。
 
-但随后，在2月，由于中东冲突导致美元大幅升值以及黄金价格回落，白银价格大幅下跌至每盎司约64美元，之后又再次回升至当前的每盎司86美元以上。
+人事管理办公室主任斯科特·库珀在宣布该合同时表示，联邦政府的人力资源基础设施已变得不必要地分散，这份合同是对联邦劳动力管理未来的基础性投资。
 
-在上调目标价格的同时，汇丰银行仍保持谨慎的中期展望，警告称白银供应缺口的缩小以及工业和珠宝需求的减弱，限制了白银价格持续上涨的可能性。
+该项目名为“联邦人力资源2.0”，将采用甲骨文的Fusion Cloud HCM系统，计划于2026年秋季完成核心实施阶段。
 
-该银行预计，全球白银市场缺口将在从去年的1.43亿盎司缩小至今年的7300万盎司，到2027年将进一步缩小至2500万盎司，因为矿山和回收渠道的供应将增加。
+新平台将处理核心人事流程、薪资与福利整合、考勤追踪、人才招聘及绩效管理等功能，并须符合《联邦信息安全现代化法案》和联邦风险与授权管理计划的网络安全标准。
 
-汇丰银行首席贵金属分析师詹姆斯·斯蒂尔（James Steel）表示：“我们认为，温和的供需缺口并不足以使白银价格在较长时期内大幅上涨。
+人事管理办公室预计，将系统整合到单一云平台将为纳税人节省超过90%的成本。
 
-” 他预计，到2026年下半年和2027年下半年，银价可能将有所回落。
+此次合同的达成经历了一番波折。
 
-供需缺口正在缩小 工业需求占白银总消费量的逾一半，2025年这一需求已经降至6.57亿盎司，而前一年为创纪录的6.79亿盎司。
+人事管理办公室曾在2025年5月试图独家授予Workday合同，但随后取消该计划并展开竞争性招标。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 04:23 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 04:27 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 04:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 04:06 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 04:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 04:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 04:11 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 04:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 04:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 04:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 04:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 04:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 04:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 04:20 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 04:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 04:37 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 04:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 04:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 04:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 04:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 04:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [日本进球](http://www.share.kurohicncr.top/Article/details/811817.shtml)
-- 2026-06-30 04:23 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/652409916.shtml)
-- 2026-06-30 04:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0693163.shtml)
-- 2026-06-30 04:20 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/59259.shtml)
-- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/37251.shtml)
-- 2026-06-30 04:06 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/6105154.shtml)
-- 2026-06-30 04:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/951987625379.shtml)
-- 2026-06-30 04:28 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/7426960982.shtml)
-- 2026-06-30 04:23 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/434852.shtml)
-- 2026-06-30 04:06 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/6163336585.shtml)
-- 2026-06-30 04:23 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/1540438309.shtml)
-- 2026-06-30 04:12 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/043243960161.shtml)
-- 2026-06-30 04:31 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/021536430520.shtml)
-- 2026-06-30 04:20 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/9255285.shtml)
-- 2026-06-30 04:30 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/389849.shtml)
+- 2026-06-30 04:26 - [沙丘](http://www.blog.kurohicncr.top/Article/details/70690.shtml)
+- 2026-06-30 04:14 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/06016827.shtml)
+- 2026-06-30 04:36 - [天道](https://www.share.minike.top/Article/details/3254773525.shtml)
+- 2026-06-30 04:13 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/18846.shtml)
+- 2026-06-30 04:26 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/863587.shtml)
+- 2026-06-30 04:12 - [张凌赫 客串](http://www.blog.minike.top/Article/details/942022573314.shtml)
+- 2026-06-30 04:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/83934.shtml)
+- 2026-06-30 04:35 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/7681380.shtml)
+- 2026-06-30 04:34 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/11810056.shtml)
+- 2026-06-30 04:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/83631100.shtml)
+- 2026-06-30 04:14 - [日本领先巴西](http://www.blog.minike.top/Article/details/1910068.shtml)
+- 2026-06-30 04:12 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/243311301574.shtml)
+- 2026-06-30 04:17 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/89877329.shtml)
+- 2026-06-30 04:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/8306226.shtml)
+- 2026-06-30 04:13 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/548038.shtml)

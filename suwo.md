@@ -1,59 +1,59 @@
-# 加密货币交易所Gemini因温克尔沃斯基金注资1亿美元股价飙升
+# 第九届“以慈化瓷”两岸陶艺文化交流活动在上海启幕
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-由温克尔沃斯兄弟创立并领导的加密货币交易所Gemini Space Station周四晚间宣布，获得来自加密亿万富翁旗下风投基金——温克尔沃斯资本基金的1亿美元注资，随后在盘前交易中股价大涨22%。 Gemini首席执行官泰勒·温克尔沃斯在一份声明中表示：“我们认为市场严重低估了Gemini的价值，这笔投资将助力公司进入下一阶段的增长。Gemini已在产品和监管方面达成多项重要
+中新网上海6月13日电(范宇斌)第九届“以慈化瓷”两岸陶艺文化交流活动13日在上海市虹口区下海庙启幕。本届活动延续十二年两岸文化交流之约，汇聚两岸260余位陶艺家及嘉宾，以陶瓷为纽带，搭建两岸艺术互鉴、民心相通的优质平台。 “以慈化瓷”始创于2014年，是上海知名的常态化两岸陶艺交流品牌。本次活动立足下海庙百年人文底蕴，融合虹口海派开埠文化与滨江地域特色，凝练“瓷之匠心、慈之向
 
 ## 正文
 
-由温克尔沃斯兄弟创立并领导的加密货币交易所Gemini Space Station周四晚间宣布，获得来自加密亿万富翁旗下风投基金——温克尔沃斯资本基金的1亿美元注资，随后在盘前交易中股价大涨22%。
+中新网上海6月13日电(范宇斌)第九届“以慈化瓷”两岸陶艺文化交流活动13日在上海市虹口区下海庙启幕。
 
-Gemini首席执行官泰勒·温克尔沃斯在一份声明中表示：“我们认为市场严重低估了Gemini的价值，这笔投资将助力公司进入下一阶段的增长。
+本届活动延续十二年两岸文化交流之约，汇聚两岸260余位陶艺家及嘉宾，以陶瓷为纽带，搭建两岸艺术互鉴、民心相通的优质平台。
 
-Gemini已在产品和监管方面达成多项重要里程碑，使我们能够从一家加密公司转型为一家市场公司。
+“以慈化瓷”始创于2014年，是上海知名的常态化两岸陶艺交流品牌。
 
-这笔投资将推动这一愿景，并为Gemini的长期成功奠定基础。
+本次活动立足下海庙百年人文底蕴，融合虹口海派开埠文化与滨江地域特色，凝练“瓷之匠心、慈之向善、海之包容”内核，塑造“瓷在虹口、慈在下海、情在两岸”的交流特色，为传统陶艺交流融入海派人文特质。
 
-” Gemini还公布，第一季度每股亏损为93美分，低于市场预期。
+本届活动规模再创佳绩，50余位台湾艺术家专程赴沪，参会群体涵盖业界泰斗、资深匠人与青年新锐。
 
-据FactSet数据，分析师此前预期每股亏损1.03美元。
+新老艺人同台交流、碰撞创意，充分展现中华陶艺代代传承的蓬勃生机，彰显两岸文化交融、民心相通的良好局面。
 
-此外，5030万美元的营收也高于预期的4790万美元。
+上海市政协、上海海外联谊会、上海市台办、虹口区相关负责人及两岸艺术界代表出席开幕式，并寄语深耕陶瓷文化、深化两岸艺术合作，助力中华优秀传统文化传承创新。
 
-责任编辑：张俊 SF065
+开幕仪式现场，百余名两岸艺术家捐赠原创陶艺作品，由下海庙永久珍藏，寄托两岸同根同源的深厚情谊。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:32 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 04:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 04:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 04:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 04:11 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 04:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:31 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 04:35 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 04:22 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 04:12 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 04:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 04:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 04:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 04:34 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 04:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 04:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 04:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 04:13 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 04:22 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 04:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 04:12 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 04:33 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 04:18 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 04:37 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 04:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/494051.shtml)
-- 2026-06-30 04:17 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/6721055969.shtml)
-- 2026-06-30 04:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/2279833153.shtml)
-- 2026-06-30 04:11 - [第一炉香](http://www.share.kurohicncr.top/Article/details/362388242.shtml)
-- 2026-06-30 04:28 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/83316.shtml)
-- 2026-06-30 04:06 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/09085390.shtml)
-- 2026-06-30 04:22 - [一生一世](https://www.share.minike.top/Article/details/6521522.shtml)
-- 2026-06-30 04:09 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/626006912692.shtml)
-- 2026-06-30 04:15 - [月亮](http://www.blog.minike.top/Article/details/82085788.shtml)
-- 2026-06-30 04:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/1093357.shtml)
-- 2026-06-30 04:07 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/76379.shtml)
-- 2026-06-30 04:15 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/14227716.shtml)
-- 2026-06-30 04:30 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/1674880.shtml)
-- 2026-06-30 04:25 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/049199551.shtml)
-- 2026-06-30 04:19 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/476909788081.shtml)
+- 2026-06-30 04:29 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/00781.shtml)
+- 2026-06-30 04:12 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/488557618867.shtml)
+- 2026-06-30 04:19 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/73199993.shtml)
+- 2026-06-30 04:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/136444.shtml)
+- 2026-06-30 04:13 - [我和我的家乡](https://www.blog.minike.top/Article/details/12441744.shtml)
+- 2026-06-30 04:23 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/9292815522.shtml)
+- 2026-06-30 04:25 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/836763741.shtml)
+- 2026-06-30 04:38 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/442611.shtml)
+- 2026-06-30 04:15 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/249855722893.shtml)
+- 2026-06-30 04:14 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/270423269249.shtml)
+- 2026-06-30 04:19 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/5618411716.shtml)
+- 2026-06-30 04:22 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/915008105188.shtml)
+- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/02304581.shtml)
+- 2026-06-30 04:25 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/4961920.shtml)
+- 2026-06-30 04:19 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/196433.shtml)

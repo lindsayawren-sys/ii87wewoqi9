@@ -1,60 +1,60 @@
-# 世界超级摩托车锦标赛捷克站：“张雪机车”首回合正赛夺冠
+# “创赢未来”2026创业大赛辽宁省选拔赛在铁岭落幕
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社北京5月16日电 当地时间5月16日，在2026世界超级摩托车锦标赛(WSBK)捷克站World SSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。这也是他与“张雪机车”的赛季第四冠。德比斯在15日进行的本站超级杆位赛中位列第三名，但因在自由练习中慢速行驶受到处罚，正赛以第六位发车。“张雪机车”的另一名车手卡里卡苏洛从第10位发车。
+中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。经过三天的激烈角逐，大赛圆满落下帷幕。 本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+
 
 ## 正文
 
-中新社北京5月16日电 当地时间5月16日，在2026世界超级摩托车锦标赛(WSBK)捷克站World SSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。
+中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。
 
-这也是他与“张雪机车”的赛季第四冠。
+经过三天的激烈角逐，大赛圆满落下帷幕。
 
-德比斯在15日进行的本站超级杆位赛中位列第三名，但因在自由练习中慢速行驶受到处罚，正赛以第六位发车。
+本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。
 
-“张雪机车”的另一名车手卡里卡苏洛从第10位发车。
+大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+创业”、“民生需求+创业”4个主体赛道，以及1个青年创新专项赛。
 
-比赛开始后，德比斯并未立即进入最佳状态，稳定在第五位。
+自2月份启动以来，全省15个地市积极响应，首次依托全省统一网络实名制报名通道，累计吸引2069个项目报名参加各市选拔赛，251个项目从中脱颖而出参加省赛，报名数量创历年新高。
 
-第七圈，德比斯先完成一次超车，随后连续超越前方对手，在第八圈来到第一位。
+选拔赛现场，参赛选手们通过精彩的项目路演和答辩，全方位展示了项目的创新引领性、商业模式及带动就业潜力。
 
-此后他成功守住头名位置，最后率先冲线，斩获本回合赛事冠军，并在最后一圈跑出1分34秒336的全场最快圈速。
+由35位省内外知名投资人、成功创业家及就业创业政策专家组成的评审团，严格按照国赛标准进行了公正评审。
 
-驾驶雅马哈赛车的恩居、阿雷纳斯分获第二、三名。
+最终，“基于AI的虚拟电厂调节与负荷侧节能降碳系统”等10个项目获得一等奖；“高频高速电子级树脂及光刻胶关键单体国产化产业化项目”等20个项目获得二等奖；“智能芯片SDS设备的研发与产业化”等30个项目获得三等奖。
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 04:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:17 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 04:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 04:06 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 04:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 04:29 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 04:33 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 04:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 04:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 04:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 04:14 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 04:30 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 04:09 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 04:21 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 04:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 04:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 04:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:13 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 04:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 04:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 04:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 04:14 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 04:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 04:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/2564952.shtml)
-- 2026-06-30 04:32 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/3365346099.shtml)
-- 2026-06-30 04:14 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7542450760.shtml)
-- 2026-06-30 04:26 - [绘画区你赢了](https://www.share.minike.top/Article/details/108657472415.shtml)
-- 2026-06-30 04:28 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/2939510745.shtml)
-- 2026-06-30 04:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/158968.shtml)
-- 2026-06-30 04:10 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/9498856856.shtml)
-- 2026-06-30 04:09 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/7213132613.shtml)
-- 2026-06-30 04:10 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/9321354.shtml)
-- 2026-06-30 04:29 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/48851.shtml)
-- 2026-06-30 04:35 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/56200248.shtml)
-- 2026-06-30 04:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/05042978.shtml)
-- 2026-06-30 04:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/6214489688.shtml)
-- 2026-06-30 04:35 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/4651912773.shtml)
-- 2026-06-30 04:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/169640632.shtml)
+- 2026-06-30 04:17 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/83596.shtml)
+- 2026-06-30 04:20 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/4072279480.shtml)
+- 2026-06-30 04:39 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/296124.shtml)
+- 2026-06-30 04:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/7182831.shtml)
+- 2026-06-30 04:13 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/45566790.shtml)
+- 2026-06-30 04:39 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/529574.shtml)
+- 2026-06-30 04:34 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/7199689838.shtml)
+- 2026-06-30 04:40 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69359717.shtml)
+- 2026-06-30 04:40 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/038832445.shtml)
+- 2026-06-30 04:27 - [金刚川](http://www.share.kurohicncr.top/Article/details/6716961.shtml)
+- 2026-06-30 04:14 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/8159269146.shtml)
+- 2026-06-30 04:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/11069.shtml)
+- 2026-06-30 04:28 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/89103147.shtml)
+- 2026-06-30 04:36 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/9917211.shtml)
+- 2026-06-30 04:22 - [沉睡花园](https://www.share.minike.top/Article/details/68904042.shtml)

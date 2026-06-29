@@ -1,58 +1,52 @@
-# 明确三方面内容！证券批量纠纷诉调指引来了
+# 世界杯迎来了最不吃压力的中国裁判 细数本届世界杯“含中量” 有多高
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-转自：证券时报5月15日，是第八个“5·15全国投资者保护宣传日”，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》（以下简称《指引》），旨在进一步畅通和规范证券批量纠纷诉调对接流程，推动证券纠纷高效实质化解，助力中小投资者合法权益保护。上海金融法院立案庭副庭长周欣接受证券时报记者采访时表示，《指引》是对上海金融法院与调解组织开展
+发布时间：2026年06月12日 12:17 来源：中国新闻网 虽然中国男足缺席世界杯，但中国裁判来了！除了“中国哨”，本届世界杯还有义乌制造、中国护旗手、中国技术等诸多中国元素。谁说中国没去世界杯？(记者 刘梦青 李晓喻） 责任编辑：【苏亦瑜】
 
 ## 正文
 
-转自：证券时报5月15日，是第八个“5·15全国投资者保护宣传日”，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》（以下简称《指引》），旨在进一步畅通和规范证券批量纠纷诉调对接流程，推动证券纠纷高效实质化解，助力中小投资者合法权益保护。
+发布时间：2026年06月12日 12:17 来源：中国新闻网 虽然中国男足缺席世界杯，但中国裁判来了！
 
-上海金融法院立案庭副庭长周欣接受证券时报记者采访时表示，《指引》是对上海金融法院与调解组织开展示范性诉讼促推证券纠纷批量化调解成功经验的集中呈现。
+除了“中国哨”，本届世界杯还有义乌制造、中国护旗手、中国技术等诸多中国元素。
 
-“之前其他法院、调解组织以及投资者多次向我们咨询示范性诉讼推动批量化调解过程中的相关问题，《指引》的发布，可为示范性诉讼与批量化调解工作提供操作指南，推动批量纠纷高效化解。
+谁说中国没去世界杯？
 
-” 周欣说。
-
-明确解纷模式运用等三方面内容2024年以来，上海金融法院运用示范性诉讼化解纠纷5600余件，已形成可复制可推广的批量纠纷化解经验。
-
-《指引》即是上海金融法院近年来诸多创新探索和成功经验的总结。
-
-《指引》全文共六章三十五条，分为总则、示范性诉讼、批量化调解、诉调对接、机制保障和附则。
-
-其中，重点明确了以下三方面内容：一是明确“示范性诉讼+批量化调解”解纷模式运用。
+(记者 刘梦青 李晓喻） 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 04:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 04:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 04:15 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 04:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:23 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 04:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 04:12 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 04:13 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 04:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 04:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 04:18 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 04:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 04:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 04:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 04:13 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 04:23 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 04:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 04:41 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 04:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 04:27 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 04:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 04:36 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/3791318800.shtml)
-- 2026-06-30 04:06 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/6028917.shtml)
-- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0316244.shtml)
-- 2026-06-30 04:06 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/34871948862.shtml)
-- 2026-06-30 04:33 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/545765103819.shtml)
-- 2026-06-30 04:19 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/277935.shtml)
-- 2026-06-30 04:28 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/5319861.shtml)
-- 2026-06-30 04:14 - [第一炉香](http://www.blog.minike.top/Article/details/336741865104.shtml)
-- 2026-06-30 04:26 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/69365720744.shtml)
-- 2026-06-30 04:08 - [张凌赫 客串](http://www.blog.minike.top/Article/details/690095410.shtml)
-- 2026-06-30 04:21 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/667305.shtml)
-- 2026-06-30 04:34 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/60875678.shtml)
-- 2026-06-30 04:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/867503903802.shtml)
-- 2026-06-30 04:08 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/349843.shtml)
-- 2026-06-30 04:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/600813252408.shtml)
+- 2026-06-30 04:21 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/794781503.shtml)
+- 2026-06-30 04:19 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/97665225469.shtml)
+- 2026-06-30 04:35 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/4113956492.shtml)
+- 2026-06-30 04:37 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/2787337.shtml)
+- 2026-06-30 04:31 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/306772585020.shtml)
+- 2026-06-30 04:28 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/9152736.shtml)
+- 2026-06-30 04:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/436763.shtml)
+- 2026-06-30 04:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/4485356.shtml)
+- 2026-06-30 04:23 - [TOP Prada](https://www.share.minike.top/Article/details/03246.shtml)
+- 2026-06-30 04:26 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/76709929997.shtml)
+- 2026-06-30 04:31 - [苗族银饰](http://www.share.minike.top/Article/details/49770.shtml)
+- 2026-06-30 04:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/80044629031.shtml)
+- 2026-06-30 04:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/24515274.shtml)
+- 2026-06-30 04:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/27604.shtml)
+- 2026-06-30 04:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/092161110185.shtml)

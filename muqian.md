@@ -1,61 +1,58 @@
-# 广西建设中国—东盟信息通信枢纽
+# 索赔10.9亿！中信建投将紫晶存储“造假帮凶”一并告上法庭
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-【东盟专线】广西建设中国—东盟信息通信枢纽 中新社南宁5月15日电 (记者 黄艳梅)广西壮族自治区通信管理局局长黄长庆15日在南宁市表示，广西将发挥区位优势，高水平建设中国—东盟信息通信枢纽，加快南宁国际通信业务出入口局运营，构建安全高效的国际数据大通道。 2026世界电信和信息社会日报告会暨广西互联网大会当日在南宁举行，广西壮族自治区通信管理局在会上发布2025年度《广西互联
+登录新浪财经APP 搜索【信披】查看更多考评等级 紫晶存储欺诈发行一案又有新动态！ 近日，已退市的紫晶存储发布公告称，中信建投、致同会计所、容诚会计所、广东恒益律所对紫晶存储及原管理层等提起诉讼，请求法院判赔10.9亿元先行赔付款。与此同时，配合紫晶存储财务造假的26家客户和5家银行也被列为被告，要求承担对应的赔偿责任。该案将于6月22日开庭审理。 有熟悉证券虚假陈述纠纷案件的
 
 ## 正文
 
-【东盟专线】广西建设中国—东盟信息通信枢纽 中新社南宁5月15日电 (记者 黄艳梅)广西壮族自治区通信管理局局长黄长庆15日在南宁市表示，广西将发挥区位优势，高水平建设中国—东盟信息通信枢纽，加快南宁国际通信业务出入口局运营，构建安全高效的国际数据大通道。
+登录新浪财经APP 搜索【信披】查看更多考评等级 紫晶存储欺诈发行一案又有新动态！
 
-2026世界电信和信息社会日报告会暨广西互联网大会当日在南宁举行，广西壮族自治区通信管理局在会上发布2025年度《广西互联网发展报告》(下称《报告》)。
+近日，已退市的紫晶存储发布公告称，中信建投、致同会计所、容诚会计所、广东恒益律所对紫晶存储及原管理层等提起诉讼，请求法院判赔10.9亿元先行赔付款。
 
-《报告》显示，广西互联网基础资源供给能力持续增强，面向东盟的国际信息通信枢纽地位逐步显现。
+与此同时，配合紫晶存储财务造假的26家客户和5家银行也被列为被告，要求承担对应的赔偿责任。
 
-截至2025年12月，广西光缆线路总长度达290.6万公里，广西互联网省际出口带宽达6378万兆，网络互联互通能力进一步提升。
+该案将于6月22日开庭审理。
 
-在国际通信能力方面，南宁国际通信业务出入口局完成主体工程建设。
+有熟悉证券虚假陈述纠纷案件的律师对券商中国记者分析称，制度层面已确立了“先行赔付—代位追偿”的基本路径，而投资者起诉配合造假方并获得支持，也已有先例。
 
-这是面向东盟的国际通信枢纽关键节点，将显著增强中国与东盟国家间的国际传输与数据交换能力，有效降低跨境通信时延与网络绕转成本，为高水平共建中国—东盟信息港提供坚实的网络底座支撑。
+他表示，只要往来公司、贷款银行的行为满足共同侵权的法定要件，法院通常会判决配合造假方与发行人对投资者损失承担连带责任。
 
-在人工智能(AI)算力基础设施建设方面，广西算力规模实现高速增长，形成了以南宁、柳州为核心，辐射全区14个地市的普惠性算力基础设施。
+时隔近两年，双方将正式对簿公堂 紫晶存储是科创板首批因财务造假而强制退市的公司之一。
 
-五象云谷AI智算产业园在南宁开园，这是目前广西区域最大的算力基地，将助力南宁加快打造面向东盟的人工智能产业高地。
+中信建投等中介机构共同出资设立先行赔付专项基金，对适格投资者进行了先行赔付。
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 04:34 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 04:07 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 04:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 04:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 04:11 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 04:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 04:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 04:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 04:08 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 04:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 04:15 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 04:32 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 04:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 04:11 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 04:30 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 04:29 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 04:35 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 04:38 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 04:32 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 04:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 04:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 04:34 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 04:32 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 04:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 04:39 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 04:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/25152394802.shtml)
-- 2026-06-30 04:12 - [金牌调解](https://www.share.kurohicncr.top/Article/details/20637.shtml)
-- 2026-06-30 04:14 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/120495260345.shtml)
-- 2026-06-30 04:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/164137563050.shtml)
-- 2026-06-30 04:16 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/8213808.shtml)
-- 2026-06-30 04:20 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/4607731254.shtml)
-- 2026-06-30 04:12 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/4665383592.shtml)
-- 2026-06-30 04:32 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/50003.shtml)
-- 2026-06-30 04:21 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/6206358814.shtml)
-- 2026-06-30 04:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/15841462813.shtml)
-- 2026-06-30 04:13 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/53592563.shtml)
-- 2026-06-30 04:08 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/1078025.shtml)
-- 2026-06-30 04:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/190093534169.shtml)
-- 2026-06-30 04:25 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/455352014466.shtml)
-- 2026-06-30 04:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/67415679.shtml)
+- 2026-06-30 04:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/508582038075.shtml)
+- 2026-06-30 04:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/49538071705.shtml)
+- 2026-06-30 04:14 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/836699533.shtml)
+- 2026-06-30 04:25 - [《共患难》](https://www.share.minike.top/Article/details/56932.shtml)
+- 2026-06-30 04:38 - [月亮](http://www.blog.kurohicncr.top/Article/details/619928044.shtml)
+- 2026-06-30 04:21 - [月亮](https://www.blog.minike.top/Article/details/38398148.shtml)
+- 2026-06-30 04:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/6825555.shtml)
+- 2026-06-30 04:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/5290604644.shtml)
+- 2026-06-30 04:36 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/321718.shtml)
+- 2026-06-30 04:33 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/04935.shtml)
+- 2026-06-30 04:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/935113.shtml)
+- 2026-06-30 04:17 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/95725.shtml)
+- 2026-06-30 04:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/23138.shtml)
+- 2026-06-30 04:24 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/294021245252.shtml)
+- 2026-06-30 04:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/07988421478.shtml)

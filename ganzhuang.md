@@ -1,45 +1,60 @@
-# 此行间·跟随中美元首天坛行，看中国古建筑的智慧
+# 特朗普取消对伊打击行动，国际油价跌破每桶90美元
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 09:00 来源：人民日报客户端 责任编辑：【韦俊龙】
+布伦特原油、西德克萨斯轻质原油期货本周跌幅均接近 7% 内容速览 特朗普称有望达成和平协议，取消原定对伊朗军事打击，国际油价应声下跌 受多重消息扰动，原油市场本周行情剧烈波动。美国总统特朗普宣布取消原定针对伊朗的军事打击，并表示数日内有望达成和平协议，油价延续前一交易日跌势，周五跌破每桶 90 美元关口。 周五欧洲盘初，布伦特原油下跌 2.2%，报每桶 88.39 美元；西德克
 
 ## 正文
 
-发布时间：2026年05月15日 09:00 来源：人民日报客户端 责任编辑：【韦俊龙】
+布伦特原油、西德克萨斯轻质原油期货本周跌幅均接近 7% 内容速览 特朗普称有望达成和平协议，取消原定对伊朗军事打击，国际油价应声下跌 受多重消息扰动，原油市场本周行情剧烈波动。
+
+美国总统特朗普宣布取消原定针对伊朗的军事打击，并表示数日内有望达成和平协议，油价延续前一交易日跌势，周五跌破每桶 90 美元关口。
+
+周五欧洲盘初，布伦特原油下跌 2.2%，报每桶 88.39 美元；西德克萨斯轻质原油（WTI）期货下跌 2%，报每桶 85.91 美元。
+
+两大原油基准品种本周累计跌幅均接近 7%。
+
+德意志银行分析师表示：“市场对此消息反应迅速，整条原油期货远期曲线同步走低。
+
+” 特朗普周四曾威胁对伊朗发动新一轮军事打击，宣称美军将攻占伊朗哈尔克岛 —— 伊朗核心石油出口枢纽，全面掌控当地油气资源市场。
+
+此前围绕逐步重启霍尔木兹海峡通航、结束战事的谈判陷入僵局，分歧集中在伊朗核计划以及伊朗提出的资金纾困诉求。
+
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 04:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 04:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 04:34 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 04:19 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 04:14 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 04:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:20 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 04:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 04:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 04:18 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 04:06 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 04:16 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 04:17 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 04:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 04:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 04:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 04:34 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 04:41 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 04:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 04:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 04:32 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 04:27 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 04:23 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 04:17 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 04:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 04:30 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/567061.shtml)
-- 2026-06-30 04:34 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/614355248.shtml)
-- 2026-06-30 04:25 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/343626360331.shtml)
-- 2026-06-30 04:16 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/5522128.shtml)
-- 2026-06-30 04:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/902884265400.shtml)
-- 2026-06-30 04:11 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/5661886638.shtml)
-- 2026-06-30 04:16 - [小娘惹](https://www.share.minike.top/Article/details/81336.shtml)
-- 2026-06-30 04:10 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/331551.shtml)
-- 2026-06-30 04:16 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/549913.shtml)
-- 2026-06-30 04:22 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/461852202.shtml)
-- 2026-06-30 04:15 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/302968839.shtml)
-- 2026-06-30 04:10 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/5149839.shtml)
-- 2026-06-30 04:14 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/873807.shtml)
-- 2026-06-30 04:17 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/343977602.shtml)
-- 2026-06-30 04:23 - [千香](http://www.share.kurohicncr.top/Article/details/812480791.shtml)
+- 2026-06-30 04:37 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/612758482383.shtml)
+- 2026-06-30 04:33 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/011930.shtml)
+- 2026-06-30 04:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/908341140.shtml)
+- 2026-06-30 04:40 - [毒液2](http://www.blog.kurohicncr.top/Article/details/5546592667.shtml)
+- 2026-06-30 04:14 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/203487696990.shtml)
+- 2026-06-30 04:16 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/76055002.shtml)
+- 2026-06-30 04:18 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/387267782532.shtml)
+- 2026-06-30 04:24 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/7311514.shtml)
+- 2026-06-30 04:14 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/031311062.shtml)
+- 2026-06-30 04:30 - [巴西绝杀](http://www.blog.minike.top/Article/details/1047995.shtml)
+- 2026-06-30 04:19 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/123624601081.shtml)
+- 2026-06-30 04:39 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/02336992213.shtml)
+- 2026-06-30 04:41 - [日本领先巴西](https://www.share.minike.top/Article/details/54383581.shtml)
+- 2026-06-30 04:18 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/75894736.shtml)
+- 2026-06-30 04:21 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/70187353.shtml)

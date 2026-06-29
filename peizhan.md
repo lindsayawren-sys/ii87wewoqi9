@@ -1,58 +1,50 @@
-# 五角大楼加速推进欧洲撤军计划，取消向波兰部署装甲旅
+# 美官员谈美伊协议要点：以伊朗履约为前提 涉核计划与霍尔木兹海峡
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-美国国防部近期加速实施其欧洲驻军缩减战略，在宣布从德国撤出约5000名美军之后，又突然取消了向波兰部署一个装甲旅的计划，标志着美国在欧洲的军事存在正经历战略性调整。 撤军行动加速推进 5月1日，美国国防部长赫格塞思下令在未来6至12个月内从德国撤出约5000名美军。特朗普随后表示实际撤军规模将远不止5000人，并暗示可能削减驻意大利和西班牙的兵力。撤军导火索被广泛认为是美德领导
+一位美国高级官员表示，美国和伊朗之间正在酝酿的是一项以履约为前提的协议，内容包括伊朗放弃核材料以及开放霍尔木兹海峡。 根据这位官员介绍，协议主要内容包括： 销毁和移除核材料； 废除核计划； 在伊朗履行承诺前不会解除资金限制； 开放霍尔木兹海峡； 不得资助恐怖组织。 注：根据伊朗方面的说法，和平协议将包括美国与伊朗延长停火安排，并就伊朗核计划展开进一步谈判。两国都将解除对霍尔木兹
 
 ## 正文
 
-美国国防部近期加速实施其欧洲驻军缩减战略，在宣布从德国撤出约5000名美军之后，又突然取消了向波兰部署一个装甲旅的计划，标志着美国在欧洲的军事存在正经历战略性调整。
+一位美国高级官员表示，美国和伊朗之间正在酝酿的是一项以履约为前提的协议，内容包括伊朗放弃核材料以及开放霍尔木兹海峡。
 
-撤军行动加速推进 5月1日，美国国防部长赫格塞思下令在未来6至12个月内从德国撤出约5000名美军。
+根据这位官员介绍，协议主要内容包括： 销毁和移除核材料； 废除核计划； 在伊朗履行承诺前不会解除资金限制； 开放霍尔木兹海峡； 不得资助恐怖组织。
 
-特朗普随后表示实际撤军规模将远不止5000人，并暗示可能削减驻意大利和西班牙的兵力。
+注：根据伊朗方面的说法，和平协议将包括美国与伊朗延长停火安排，并就伊朗核计划展开进一步谈判。
 
-撤军导火索被广泛认为是美德领导人之间围绕美国对伊朗政策的公开分歧。
+两国都将解除对霍尔木兹海峡的封锁。
 
-波兰部署突然取消 据报道，五角大楼取消了向波兰部署第一骑兵师第二装甲旅的计划。
-
-该旅约4000名官兵中已有部分人员和装备启程前往欧洲，因此这一决定令部分军方官员感到惊讶。
-
-五角大楼发言人拒绝对此置评。
-
-战略重心持续东移 此次撤军反映了美国全球战略重心的根本性转变。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 04:24 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 04:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 04:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 04:09 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 04:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 04:34 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 04:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 04:35 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 04:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 04:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 04:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 04:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 04:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 04:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 04:17 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 04:27 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 04:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 04:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/97283.shtml)
-- 2026-06-30 04:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/68691654679.shtml)
-- 2026-06-30 04:26 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/679907699646.shtml)
-- 2026-06-30 04:13 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/30475426873.shtml)
-- 2026-06-30 04:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/830816.shtml)
-- 2026-06-30 04:09 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/11068951783.shtml)
-- 2026-06-30 04:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/04677.shtml)
-- 2026-06-30 04:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/48145078.shtml)
-- 2026-06-30 04:06 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/3895550835.shtml)
-- 2026-06-30 04:07 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/349722.shtml)
-- 2026-06-30 04:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/0786459.shtml)
-- 2026-06-30 04:07 - [蔚来车主罚站](https://www.share.minike.top/Article/details/15100272.shtml)
-- 2026-06-30 04:27 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/08674.shtml)
-- 2026-06-30 04:06 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/56161764667.shtml)
-- 2026-06-30 04:12 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/684832.shtml)
+- 2026-06-30 04:24 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/704378.shtml)
+- 2026-06-30 04:28 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/317282546175.shtml)
+- 2026-06-30 04:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/036974674.shtml)
+- 2026-06-30 04:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/405319331.shtml)
+- 2026-06-30 04:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/72064.shtml)
+- 2026-06-30 04:27 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/4664309.shtml)
+- 2026-06-30 04:26 - [日本淘汰](http://www.share.minike.top/Article/details/201608445961.shtml)
+- 2026-06-30 04:29 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/786868030.shtml)
+- 2026-06-30 04:14 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/494757.shtml)
+- 2026-06-30 04:17 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/048589.shtml)
+- 2026-06-30 04:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/53080783282.shtml)
+- 2026-06-30 04:37 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/106816311159.shtml)
+- 2026-06-30 04:28 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/389224202.shtml)
+- 2026-06-30 04:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/8436567.shtml)
+- 2026-06-30 04:14 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/540589.shtml)

@@ -1,56 +1,48 @@
-# Elevai Labs Q1营收大幅下滑，净亏损扩大
+# 美军一战斗机在华盛顿州坠毁 飞行员弹射逃生
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-核心财务数据 Elevai Labs公布2026年第一季度财报。公司报告期内营收为30.5万美元，相比去年同期的86.8万美元大幅下降65%。净亏损为222.9万美元，较去年同期的净亏损142.5万美元进一步扩大，合每股亏损0.13美元。 业务背景与现金流 Elevai Labs是一家专注于医学美容领域的生物技术公司，主要开发基于外泌体的创新护肤产品。截至季末，公司现金及现金等
+中新网6月14日电 据美国全国广播公司(NBC)报道，当地时间13日，一架美军战斗机在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员受轻伤。 据报道，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。飞行员弹射逃生，后被送往医院。 美军方面表示，事故原因正在调查中，暂不提供更多细节。
 
 ## 正文
 
-核心财务数据 Elevai Labs公布2026年第一季度财报。
+中新网6月14日电 据美国全国广播公司(NBC)报道，当地时间13日，一架美军战斗机在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员受轻伤。
 
-公司报告期内营收为30.5万美元，相比去年同期的86.8万美元大幅下降65%。
+据报道，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。
 
-净亏损为222.9万美元，较去年同期的净亏损142.5万美元进一步扩大，合每股亏损0.13美元。
+飞行员弹射逃生，后被送往医院。
 
-业务背景与现金流 Elevai Labs是一家专注于医学美容领域的生物技术公司，主要开发基于外泌体的创新护肤产品。
-
-截至季末，公司现金及现金等价物为36.4万美元，较上一季度末有所减少。
-
-研发费用维持在较高水平，主要用于推进其核心产品线的临床试验和配方优化。
-
-后续发展 公司在财报中表示，管理层正积极寻求融资渠道以支持持续运营。
-
-公司同时强调了其在高端医美市场的产品布局，预计未来将通过扩大营销投入来提升品牌知名度和市场份额。
+美军方面表示，事故原因正在调查中，暂不提供更多细节。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 04:22 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 04:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 04:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 04:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 04:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 04:22 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 04:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 04:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 04:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 04:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 04:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 04:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 04:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 04:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 04:30 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 04:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 04:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 04:17 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 04:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/390206637673.shtml)
-- 2026-06-30 04:27 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/04085.shtml)
-- 2026-06-30 04:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/99106.shtml)
-- 2026-06-30 04:35 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/94200239.shtml)
-- 2026-06-30 04:33 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/05818.shtml)
-- 2026-06-30 04:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/33241.shtml)
-- 2026-06-30 04:15 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/6287984.shtml)
-- 2026-06-30 04:22 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/6781944.shtml)
-- 2026-06-30 04:21 - [沙丘](https://www.share.minike.top/Article/details/51629350800.shtml)
-- 2026-06-30 04:06 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/35304518.shtml)
-- 2026-06-30 04:27 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/085050996067.shtml)
-- 2026-06-30 04:13 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/746769.shtml)
-- 2026-06-30 04:31 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/1623991586.shtml)
-- 2026-06-30 04:18 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/2666112.shtml)
-- 2026-06-30 04:24 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/114585210402.shtml)
+- 2026-06-30 04:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/819220915075.shtml)
+- 2026-06-30 04:19 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/4593596559.shtml)
+- 2026-06-30 04:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/276616025.shtml)
+- 2026-06-30 04:16 - [张凌赫 客串](https://www.blog.minike.top/Article/details/0315395.shtml)
+- 2026-06-30 04:28 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/4451862557.shtml)
+- 2026-06-30 04:18 - [房价什么时候能涨](https://www.share.minike.top/Article/details/927045093.shtml)
+- 2026-06-30 04:41 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/02780472655.shtml)
+- 2026-06-30 04:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/0411787.shtml)
+- 2026-06-30 04:29 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/51809.shtml)
+- 2026-06-30 04:29 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/61430.shtml)
+- 2026-06-30 04:14 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/9133241.shtml)
+- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/9797596.shtml)
+- 2026-06-30 04:23 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/4073447135.shtml)
+- 2026-06-30 04:19 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/743232600981.shtml)
+- 2026-06-30 04:12 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/89393738.shtml)

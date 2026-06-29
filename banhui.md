@@ -1,56 +1,59 @@
-# “2026·中国—中亚人权发展论坛”在乌兹别克斯坦举行
+# 警钟长鸣！国务院安委办通报典型案例 商洛高速桥梁垮塌等事故细节公布
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 12:54 来源：中国新闻网 当地时间5月14日，“2026·中国—中亚人权发展论坛”在乌兹别克斯坦首都塔什干举行。论坛由中国人权发展基金会、乌兹别克斯坦国家人权中心共同主办，主题为“以高质量发展共促人权进步”。来自中国和中亚国家人权领域的近百名官员、专家学者及有关社会组织、企业、智库代表等出席，围绕推进减贫与民生改善、加快绿色发展、推动数智技
+近日，国务院安委会办公室通报了五起安全生产领域弄虚作假的典型案例，其中包括陕西商洛高速公路桥梁垮塌事故、西成铁路尖扎黄河特大桥施工项目重大垮塌事故、四川阿坝马尔康市红旗大桥垮塌事故、河南三门峡陕州区境内陇海线下穿立交顶进铁路营业线边坡溜塌事故、山东招远蚕庄金矿上庄矿段坠罐事故等，涵盖桥梁、铁路、矿山等领域。五起典型案例，典型在何处？对整个安全生产领域发出了怎样的最新警示？陕西商
 
 ## 正文
 
-发布时间：2026年05月15日 12:54 来源：中国新闻网 当地时间5月14日，“2026·中国—中亚人权发展论坛”在乌兹别克斯坦首都塔什干举行。
+近日，国务院安委会办公室通报了五起安全生产领域弄虚作假的典型案例，其中包括陕西商洛高速公路桥梁垮塌事故、西成铁路尖扎黄河特大桥施工项目重大垮塌事故、四川阿坝马尔康市红旗大桥垮塌事故、河南三门峡陕州区境内陇海线下穿立交顶进铁路营业线边坡溜塌事故、山东招远蚕庄金矿上庄矿段坠罐事故等，涵盖桥梁、铁路、矿山等领域。
 
-论坛由中国人权发展基金会、乌兹别克斯坦国家人权中心共同主办，主题为“以高质量发展共促人权进步”。
+五起典型案例，典型在何处？
 
-来自中国和中亚国家人权领域的近百名官员、专家学者及有关社会组织、企业、智库代表等出席，围绕推进减贫与民生改善、加快绿色发展、推动数智技术赋能人权保障等议题展开研讨。
+对整个安全生产领域发出了怎样的最新警示？
 
-论坛期间，中国人权发展基金会与乌兹别克斯坦国家人权中心签署合作谅解备忘录，并发布《中国—中亚人权发展论坛塔什干倡议》。
+陕西商洛高速公路桥梁垮塌事故：施工、监理、检测层层弄虚作假 25辆车坠河，62人死亡失踪，在国务院安委会办公室本周通报的五起弄虚作假典型案例中，陕西商洛高速公路桥梁垮塌事故排在首位。
 
-据介绍，为落实中国—中亚峰会成果，中国人权发展基金会于2023年9月在北京举办首届中国—中亚人权发展论坛，本届论坛为第四届。
+2024年7月19日，由于暴雨造成山洪，丹宁高速水阳段的一个公路桥梁突然发生单侧垮塌。
 
-(记者 单璐 制作 乐小敏） 责任编辑：【陈海峰】
+从建成通车到发生事故，还不到六年时间，这座桥垮塌原因是什么？
+
+事发后，东南大学桥梁冲刷与水毁专家熊文被派往现场与其他专家一起进行调查。
+
+2025年3月，灾害调查评估报告发布，认定流水压力、漂流物推力、系梁及梁下堵塞物水阻力是导致桥梁垮塌的三个关键因素，权重分别约为35%、57%、8%。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 04:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 04:25 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 04:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 04:08 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 04:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 04:14 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 04:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 04:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 04:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 04:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 04:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 04:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 04:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 04:41 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 04:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 04:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 04:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 04:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 04:38 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 04:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 04:32 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 04:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 04:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 04:22 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/31689279987.shtml)
-- 2026-06-30 04:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/7051392133.shtml)
-- 2026-06-30 04:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/462938909.shtml)
-- 2026-06-30 04:34 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/57964.shtml)
-- 2026-06-30 04:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/997150605.shtml)
-- 2026-06-30 04:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/2730125148.shtml)
-- 2026-06-30 04:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/81565410645.shtml)
-- 2026-06-30 04:25 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/05273068.shtml)
-- 2026-06-30 04:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/10761872.shtml)
-- 2026-06-30 04:13 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/79076585.shtml)
-- 2026-06-30 04:21 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/27975997.shtml)
-- 2026-06-30 04:20 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/657524441.shtml)
-- 2026-06-30 04:10 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/5382684873.shtml)
-- 2026-06-30 04:34 - [千香](http://www.blog.kurohicncr.top/Article/details/541788972884.shtml)
-- 2026-06-30 04:28 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/773148.shtml)
+- 2026-06-30 04:39 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/3366444666.shtml)
+- 2026-06-30 04:24 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/186818689.shtml)
+- 2026-06-30 04:13 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/6772013.shtml)
+- 2026-06-30 04:35 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/0895963578.shtml)
+- 2026-06-30 04:39 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/20682124551.shtml)
+- 2026-06-30 04:40 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/352617.shtml)
+- 2026-06-30 04:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/16751.shtml)
+- 2026-06-30 04:25 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/2275850.shtml)
+- 2026-06-30 04:19 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/02336.shtml)
+- 2026-06-30 04:15 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/17726.shtml)
+- 2026-06-30 04:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/51064988.shtml)
+- 2026-06-30 04:17 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/96173706.shtml)
+- 2026-06-30 04:29 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/3501414985.shtml)
+- 2026-06-30 04:18 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/154177660374.shtml)
+- 2026-06-30 04:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/751574.shtml)

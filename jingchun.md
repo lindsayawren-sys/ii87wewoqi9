@@ -1,56 +1,58 @@
-# 贯通广州三大火车站 广南联络线预计明年年中建成运营
+# 警方提醒：切勿贪图蝇头小利 成为诈骗分子的帮凶
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-广南联络线预计明年年中建成运营 一线贯通广州三大火车站 广州站15分钟到广州南站 文/广州日报全媒体记者黄庆 图/广州日报全媒体记者庄小龙 近年来，广州在完善多向联通的世界级铁路枢纽布局上大招不断。对外，随着广汕—汕汕高铁(广州—汕尾—汕头)的全线贯通和广湛高铁的通车运营，广州先后打通了通往粤东和粤西的350公里时速高铁通道；对内，2023年建成的广州白云站循序渐进，今年初完成
+发布时间：2026年06月12日 16:01 来源：中国新闻网 6月12日，公安部召开新闻发布会。北京市公安局刑侦总队政治处主任李小燕在会上表示，电诈犯罪环节多、链条长，诈骗分子藏身境外窝点，诱导并遥控指挥大量境内人员，从事引流、洗钱、幕后技术开发等形形色色的涉诈黑灰产业。一些人法律意识淡薄，而且贪图蝇头小利，被诱导成为诈骗分子的帮凶，尝到甜头以后丧失了底线，逐渐演变为积极参与
 
 ## 正文
 
-广南联络线预计明年年中建成运营 一线贯通广州三大火车站 广州站15分钟到广州南站 文/广州日报全媒体记者黄庆 图/广州日报全媒体记者庄小龙 近年来，广州在完善多向联通的世界级铁路枢纽布局上大招不断。
+发布时间：2026年06月12日 16:01 来源：中国新闻网 6月12日，公安部召开新闻发布会。
 
-对外，随着广汕—汕汕高铁(广州—汕尾—汕头)的全线贯通和广湛高铁的通车运营，广州先后打通了通往粤东和粤西的350公里时速高铁通道；对内，2023年建成的广州白云站循序渐进，今年初完成了“接管”广州站和广州东站所有始发终到普速列车的任务，细分和优化广州铁路枢纽的车站分工。
+北京市公安局刑侦总队政治处主任李小燕在会上表示，电诈犯罪环节多、链条长，诈骗分子藏身境外窝点，诱导并遥控指挥大量境内人员，从事引流、洗钱、幕后技术开发等形形色色的涉诈黑灰产业。
 
-同时，广州进一步打通市内各大火车站互联互通的工作也在加紧进行，广州站等市中心火车站和广州南站不通车的痛点即将成为历史。
+一些人法律意识淡薄，而且贪图蝇头小利，被诱导成为诈骗分子的帮凶，尝到甜头以后丧失了底线，逐渐演变为积极参与电诈网络犯罪的共犯。
 
-广州站至广州火车站的广南联络线正在热火朝天地建设之中，预计明年年中建成。
+李小燕介绍，在这些人中，有的主动出租出借个人银行卡、手机卡，包括互联网账号；有的轻信网络兼职，替境外诈骗分子跑腿、群发信息、拉人建群，在不知不觉当中沦为了电诈的“工具人”。
 
-届时广州站到广州南站预计在15分钟内即可通达，市民搭乘高铁无须再专程赶到广州南站，从广州站或广州白云站上车，即可直达全国各地。
+有的明知是违法犯罪，帮助诈骗分子运送现金、黄金；或者通过购买电脑、笔记本等贵重物品，还有牲畜、粮食等大宗农产品帮助洗钱；有的直接使用个人银行卡为涉诈资金提供跑分和洗钱的服务；有的注册公司开立大量对公账户，为涉诈资金提供转移的通道；还有的利用自己未成年人、重症患者的身份，帮助诈骗分子完成取现、取金任务，并流窜全国反复作案，试图逃避公安机关侦查打击。
 
-一小时 广州中心城区——香港西九龙 广南联络线位于广州、佛山两市毗邻地段，起自广州站，经广州市荔湾区、佛山市南海区、广州市番禺区，新建线路以隧道形式沿规划城市快捷路向南，引入广州南站。
+这些为电信网络诈骗提供帮助的行为均涉嫌违法犯罪，根据不同情节，轻则受到行政处罚、联合惩戒，重则会被追究刑事责任。
 
-线路全长16.077公里，设计时速200公里。
+希望大家切莫贪图小利、违反法律，最终害人害己。
 
-具体线路为自贵南广联络线接轨后引出，沿花地河东侧前行，分别上跨地铁28号线、下穿25号线，与拟建城市快捷路共通道前行，下穿花地大道后绕避西塱污水处理厂，下穿环城高速后沿环翠南路敷设，下穿珠江、佛山地铁规划11号线、佛山地铁规划19号线、陈村水道后沿广州南运用所外侧折向西南，穿过京广、贵广四线桥后于广州南站北咽喉原预留动走线接头处接入广州南站。
+(记者 董泽宇) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 04:29 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 04:17 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 04:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 04:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 04:15 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 04:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 04:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 04:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 04:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 04:29 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 04:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 04:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 04:24 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 04:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 04:12 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 04:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 04:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 04:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:40 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/3747105.shtml)
-- 2026-06-30 04:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/64854404.shtml)
-- 2026-06-30 04:21 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/2472023.shtml)
-- 2026-06-30 04:17 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/92543.shtml)
-- 2026-06-30 04:13 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/68805726.shtml)
-- 2026-06-30 04:09 - [内马尔替补](https://www.blog.minike.top/Article/details/596735675.shtml)
-- 2026-06-30 04:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/89514.shtml)
-- 2026-06-30 04:29 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/490906343.shtml)
-- 2026-06-30 04:22 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/4975386.shtml)
-- 2026-06-30 04:25 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/69752299.shtml)
-- 2026-06-30 04:14 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/59230.shtml)
-- 2026-06-30 04:27 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/6864761985.shtml)
-- 2026-06-30 04:30 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/1804976854.shtml)
-- 2026-06-30 04:33 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/1949616788.shtml)
-- 2026-06-30 04:21 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/300899830.shtml)
+- 2026-06-30 04:30 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/63602.shtml)
+- 2026-06-30 04:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/7566884.shtml)
+- 2026-06-30 04:25 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/10150.shtml)
+- 2026-06-30 04:33 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/510725917.shtml)
+- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/094458.shtml)
+- 2026-06-30 04:40 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/544967364612.shtml)
+- 2026-06-30 04:39 - [急先锋](https://www.share.minike.top/Article/details/590885.shtml)
+- 2026-06-30 04:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/710724418833.shtml)
+- 2026-06-30 04:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/96706.shtml)
+- 2026-06-30 04:22 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/34930.shtml)
+- 2026-06-30 04:24 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/876827.shtml)
+- 2026-06-30 04:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/0733691842.shtml)
+- 2026-06-30 04:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/261685916523.shtml)
+- 2026-06-30 04:38 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/341387811.shtml)
+- 2026-06-30 04:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/202510327102.shtml)

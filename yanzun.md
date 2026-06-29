@@ -1,52 +1,51 @@
-# 官宣：这类人群可享淡季火车票优惠，5月15日开始发售
+# 外国留学生走进江西万年梓埠镇 体验龙舟制作与竞渡
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。 国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5
+发布时间：2026年06月12日 16:02 来源：中国新闻网 6 月11日，来自美国、缅甸、印度尼西亚等国家的留学生走进江西省上饶市万年县梓埠镇龙舟厂，在师傅指导下亲手体验木料加工、船身彩绘等制作工序，并登船体验划龙舟。印度尼西亚留学生艾拉表示很惊讶于龙舟的制作工艺，觉得很精妙，认为制作一艘龙舟需要付出很多心力。摩洛哥留学生法蒂玛说：“我总在网上看到划龙舟，当亲身尝试的时候，
 
 ## 正文
 
-为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。
+发布时间：2026年06月12日 16:02 来源：中国新闻网 6 月11日，来自美国、缅甸、印度尼西亚等国家的留学生走进江西省上饶市万年县梓埠镇龙舟厂，在师傅指导下亲手体验木料加工、船身彩绘等制作工序，并登船体验划龙舟。
 
-国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5月29日至6月30日期间的周中时段(周一12:00至周五12:00，6月18日至22日端午假期运输除外)，部分动车组列车车票可享受执行票价9折优惠，实行“折上折”。
+印度尼西亚留学生艾拉表示很惊讶于龙舟的制作工艺，觉得很精妙，认为制作一艘龙舟需要付出很多心力。
 
-铁路12306在相关优惠车次后标注“敬”字，享受优惠的车票在订单详情和本人车票页面标识“长者优惠”字样；年满60周岁及以上的持有残疾军人证、伤残人民警察证、国家综合性消防救援队伍残疾人员证的中国公民，在享受原有优待票价的基础上，可再享受9折优惠。
+摩洛哥留学生法蒂玛说：“我总在网上看到划龙舟，当亲身尝试的时候，感觉特别棒。
 
-成功购票出行的老年会员旅客，同时享受普通常旅客会员的3倍积分优惠，积分可用于兑换火车票或办理座位升席业务。
+”此次活动让留学生沉浸式体验龙舟，近距离感受中华传统文化。
+
+(吴敏 熊锦阳） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 04:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 04:09 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 04:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 04:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 04:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 04:28 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 04:34 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 04:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 04:10 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 04:11 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 04:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 04:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 04:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 04:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 04:31 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 04:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 04:39 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 04:12 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 04:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 04:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 04:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 04:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 04:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/41254748381.shtml)
-- 2026-06-30 04:35 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/736334022873.shtml)
-- 2026-06-30 04:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/870651033320.shtml)
-- 2026-06-30 04:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/1333577.shtml)
-- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/93588.shtml)
-- 2026-06-30 04:33 - [点菜也要教吗](http://www.share.minike.top/Article/details/46682353225.shtml)
-- 2026-06-30 04:12 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/76536902.shtml)
-- 2026-06-30 04:29 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/86495.shtml)
-- 2026-06-30 04:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/16799915135.shtml)
-- 2026-06-30 04:35 - [刘念回应](http://www.share.kurohicncr.top/Article/details/514588.shtml)
-- 2026-06-30 04:26 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/55672850.shtml)
-- 2026-06-30 04:26 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/0652000.shtml)
-- 2026-06-30 04:14 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/4627027700.shtml)
-- 2026-06-30 04:27 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/648046.shtml)
-- 2026-06-30 04:14 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/08221927725.shtml)
+- 2026-06-30 04:13 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/0864461255.shtml)
+- 2026-06-30 04:22 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/02548.shtml)
+- 2026-06-30 04:16 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/84743237612.shtml)
+- 2026-06-30 04:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/105463189.shtml)
+- 2026-06-30 04:21 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/5704187892.shtml)
+- 2026-06-30 04:13 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/1138503295.shtml)
+- 2026-06-30 04:23 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/240628.shtml)
+- 2026-06-30 04:25 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/59517048.shtml)
+- 2026-06-30 04:14 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/1908425763.shtml)
+- 2026-06-30 04:13 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/668835727.shtml)
+- 2026-06-30 04:32 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/6887580650.shtml)
+- 2026-06-30 04:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/4807354.shtml)
+- 2026-06-30 04:33 - [勇敢的心第二部](http://www.share.minike.top/Article/details/746962177115.shtml)
+- 2026-06-30 04:40 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/7187733864.shtml)
+- 2026-06-30 04:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/31821544.shtml)

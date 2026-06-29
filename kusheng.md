@@ -1,57 +1,60 @@
-# 4月金融数据出炉 直接融资占比持续提升
+# 浙江赵伯澐墓发掘十周年 南宋男女顶级宋服合璧展出
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-记者 张琼斯 中国人民银行5月14日发布的金融统计数据报告显示，4月末，广义货币（M2）余额、社会融资规模存量、人民币贷款余额分别同比增长8.6%、7.8%和5.6%。 其中，债券融资等直接融资，在整个融资“盘子”中的占比继续提高，贷款增速放缓则成为常态。业内专家表示，核心金融指标增速高于名义经济增速，社会融资成本处于低位，反映当前融资条件较为宽松、有效融资需求得到满足。贷款增
+中新网台州6月12日电(周健 章鸣宇)2016年，浙江台州黄岩区发掘赵伯澐墓，墓主人为宋太祖赵匡胤七世孙。墓中出土的丝绸服饰形制齐全、工艺精湛、纹样清雅，囊括宗室礼仪盛装与日常便服，完整呈现南宋宗室服饰规制，素有“宋服之冠”美誉。 赵伯澐墓宋代服饰出土十周年之际，“宋服之冠”南宋服饰专题展12日在黄岩博物馆开展，97件(套)南宋珍贵文物集中亮相，以衣冠为媒，再现宋代生活与审美，
 
 ## 正文
 
-记者 张琼斯 中国人民银行5月14日发布的金融统计数据报告显示，4月末，广义货币（M2）余额、社会融资规模存量、人民币贷款余额分别同比增长8.6%、7.8%和5.6%。
+中新网台州6月12日电(周健 章鸣宇)2016年，浙江台州黄岩区发掘赵伯澐墓，墓主人为宋太祖赵匡胤七世孙。
 
-其中，债券融资等直接融资，在整个融资“盘子”中的占比继续提高，贷款增速放缓则成为常态。
+墓中出土的丝绸服饰形制齐全、工艺精湛、纹样清雅，囊括宗室礼仪盛装与日常便服，完整呈现南宋宗室服饰规制，素有“宋服之冠”美誉。
 
-业内专家表示，核心金融指标增速高于名义经济增速，社会融资成本处于低位，反映当前融资条件较为宽松、有效融资需求得到满足。
+赵伯澐墓宋代服饰出土十周年之际，“宋服之冠”南宋服饰专题展12日在黄岩博物馆开展，97件(套)南宋珍贵文物集中亮相，以衣冠为媒，再现宋代生活与审美，让市民游客沉浸式邂逅千年宋韵风华。
 
-贷款增速放缓与经济结构、融资结构转型息息相关，债券融资、股权融资等渠道将进一步发挥作用。
+本次展览由黄岩博物馆、福建博物院、中国丝绸博物馆联合打造，共设四大板块，从礼仪盛装到日常衣衫，层层递进、由表及里，全面还原南宋宗室礼仪规制、生活百态、艺术审美与时代风貌。
 
-企业债券增长亮眼 社会融资规模、M2等金融总量指标平稳增长。
+其中，最大亮点为南宋男女顶级宋服——黄岩赵伯澐墓南宋男性宗室服饰、福州黄昇墓南宋贵族女性服饰首次完整合璧展出。
 
-初步统计，4月末社会融资规模存量为456.89万亿元，前4个月的社会融资规模增量为15.45万亿元。
+据悉，黄昇墓出土女饰体系完备、纹样精美，是南宋女性服饰的标杆遗存。
 
-其中，债券融资增长亮眼。
+“这是赵伯澐墓与黄昇墓出土文物有史以来最完整的一次检阅。
 
-数据显示，4月末，政府债券余额为99.37万亿元，同比增长15.6%。
+”中国丝绸博物馆副馆长郑嘉励介绍，以往相关展览多单一展示男服或女服，难以完整呈现宋代社会生活全貌。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 04:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:28 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 04:22 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 04:31 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 04:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 04:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 04:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 04:20 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 04:29 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 04:31 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 04:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 04:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 04:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 04:24 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 04:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 04:23 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 04:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 04:17 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 04:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 04:24 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 04:38 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 04:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/27931755699.shtml)
-- 2026-06-30 04:07 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/38055625460.shtml)
-- 2026-06-30 04:30 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/525385101.shtml)
-- 2026-06-30 04:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/98594.shtml)
-- 2026-06-30 04:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/3519818.shtml)
-- 2026-06-30 04:18 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/378230.shtml)
-- 2026-06-30 04:20 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/62708228836.shtml)
-- 2026-06-30 04:15 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/625400.shtml)
-- 2026-06-30 04:20 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/38312.shtml)
-- 2026-06-30 04:16 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/191152.shtml)
-- 2026-06-30 04:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/714276.shtml)
-- 2026-06-30 04:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/04222057.shtml)
-- 2026-06-30 04:24 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/710715607001.shtml)
-- 2026-06-30 04:32 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/6848851707.shtml)
-- 2026-06-30 04:16 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/998526736236.shtml)
+- 2026-06-30 04:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/236315625188.shtml)
+- 2026-06-30 04:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/50932049349.shtml)
+- 2026-06-30 04:30 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/2916871593.shtml)
+- 2026-06-30 04:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/04644.shtml)
+- 2026-06-30 04:16 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/79749.shtml)
+- 2026-06-30 04:28 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/45839918120.shtml)
+- 2026-06-30 04:28 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/75951250.shtml)
+- 2026-06-30 04:20 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/7457455.shtml)
+- 2026-06-30 04:32 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/974193845.shtml)
+- 2026-06-30 04:18 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/718919228489.shtml)
+- 2026-06-30 04:33 - [《贺子珍》](http://www.blog.minike.top/Article/details/258385970501.shtml)
+- 2026-06-30 04:30 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/91777140.shtml)
+- 2026-06-30 04:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/686529080080.shtml)
+- 2026-06-30 04:42 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/01304.shtml)
+- 2026-06-30 04:36 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/937334196.shtml)

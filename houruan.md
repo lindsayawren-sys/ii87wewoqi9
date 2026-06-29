@@ -1,46 +1,50 @@
-# 中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定
+# 5月外国游客在韩医疗消费创新高
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，中国人民银行惠州市分行行政处罚决定信息公示表显示，中信银行股份有限公司惠州分行因违反金融统计、支付结算、金融科技管理有关规定，被中国人民银行惠州市分行给予警告，并处罚款45.07万元。 责任编辑：李琳琳
+周日公布的数据显示，受韩国医药产品、康养及医美服务热度攀升影响，5月外国游客在韩医疗相关消费总额创下新高。 韩国旅游发展局统计数据显示，5月外籍游客医疗消费总额达2511亿韩元（约合1.652亿美元），同比增长0.5%。 该局表示，该数据基于新韩银行卡的外籍游客消费记录核算得出。 对比来看，2月、3月相关消费额分别为1096亿韩元、2044亿韩元，5月数据增幅显著。责任编辑：陈
 
 ## 正文
 
-5月15日金融一线消息，中国人民银行惠州市分行行政处罚决定信息公示表显示，中信银行股份有限公司惠州分行因违反金融统计、支付结算、金融科技管理有关规定，被中国人民银行惠州市分行给予警告，并处罚款45.07万元。
+周日公布的数据显示，受韩国医药产品、康养及医美服务热度攀升影响，5月外国游客在韩医疗相关消费总额创下新高。
 
-责任编辑：李琳琳
+韩国旅游发展局统计数据显示，5月外籍游客医疗消费总额达2511亿韩元（约合1.652亿美元），同比增长0.5%。
+
+该局表示，该数据基于新韩银行卡的外籍游客消费记录核算得出。
+
+对比来看，2月、3月相关消费额分别为1096亿韩元、2044亿韩元，5月数据增幅显著。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 04:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 04:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 04:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 04:24 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 04:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 04:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 04:35 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 04:27 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 04:28 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:40 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 04:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 04:15 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 04:33 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 04:28 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 04:14 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 04:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 04:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 04:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/715660083693.shtml)
-- 2026-06-30 04:27 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/000420737.shtml)
-- 2026-06-30 04:35 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/145985612.shtml)
-- 2026-06-30 04:12 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/04575046212.shtml)
-- 2026-06-30 04:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/321382722.shtml)
-- 2026-06-30 04:31 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/7597926.shtml)
-- 2026-06-30 04:06 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/1710263.shtml)
-- 2026-06-30 04:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/72621.shtml)
-- 2026-06-30 04:13 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/46430466.shtml)
-- 2026-06-30 04:30 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/03659.shtml)
-- 2026-06-30 04:31 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/09784291180.shtml)
-- 2026-06-30 04:13 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/39642.shtml)
-- 2026-06-30 04:30 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/9643054.shtml)
-- 2026-06-30 04:20 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/789421.shtml)
-- 2026-06-30 04:27 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/325843.shtml)
+- 2026-06-30 04:20 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/976134014.shtml)
+- 2026-06-30 04:31 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/81895685137.shtml)
+- 2026-06-30 04:18 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/0399777.shtml)
+- 2026-06-30 04:16 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/74771618.shtml)
+- 2026-06-30 04:26 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/5077595.shtml)
+- 2026-06-30 04:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/61435981.shtml)
+- 2026-06-30 04:20 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/44066701120.shtml)
+- 2026-06-30 04:40 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/483835.shtml)
+- 2026-06-30 04:21 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/33957120.shtml)
+- 2026-06-30 04:35 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/32331624.shtml)
+- 2026-06-30 04:20 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/852189316.shtml)
+- 2026-06-30 04:24 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/40341406213.shtml)
+- 2026-06-30 04:20 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/979997.shtml)
+- 2026-06-30 04:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/631812892.shtml)
+- 2026-06-30 04:39 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/823172.shtml)

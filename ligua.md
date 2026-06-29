@@ -1,57 +1,56 @@
-# 习近平同美国总统特朗普在中南海小范围会晤
+# 在炮火中坚守学术报国：走进中国西部科学院旧址，寻访三千名流足迹
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-新华社北京5月15日电(记者杨依军、孙奕)5月15日上午，国家主席习近平在中南海同美国总统特朗普举行小范围会晤。 春末夏初的中南海，绿荫渐浓、草木葱茏。特朗普抵达时，习近平热情迎接。两国元首边走边谈，不时驻足观赏园中苍劲挺拔的古树和各色月季。 习近平指出，特朗普总统此访是一次历史性、标志性的访问，我们共同确定了中美建设性战略稳定关系的新定位，就保持经贸关系稳定、拓展各领域务实合
+发布时间：2026年06月13日 14:38 来源：中国新闻网 6月12日，记者走进重庆北碚区中国西部科学院旧址，参观了《三千名流汇北碚——全民族抗战时期北碚的科教与文化展》。这座看似普通的院落里，藏着一份特殊的“课本记忆”——老舍、竺可桢、陈望道、梁漱溟、陈宗器等课本中出现的人物，在抗战时期曾汇聚北碚。 1937年全面抗战爆发后，北碚作为大后方迁建区，先后接纳了200余个文化
 
 ## 正文
 
-新华社北京5月15日电(记者杨依军、孙奕)5月15日上午，国家主席习近平在中南海同美国总统特朗普举行小范围会晤。
+发布时间：2026年06月13日 14:38 来源：中国新闻网 6月12日，记者走进重庆北碚区中国西部科学院旧址，参观了《三千名流汇北碚——全民族抗战时期北碚的科教与文化展》。
 
-春末夏初的中南海，绿荫渐浓、草木葱茏。
+这座看似普通的院落里，藏着一份特殊的“课本记忆”——老舍、竺可桢、陈望道、梁漱溟、陈宗器等课本中出现的人物，在抗战时期曾汇聚北碚。
 
-特朗普抵达时，习近平热情迎接。
+1937年全面抗战爆发后，北碚作为大后方迁建区，先后接纳了200余个文化、科研机构和大专院校，在此工作、生活过的各界名流达3000余人，他们在民族危亡时刻扛起了守护中华文脉的重任，用笔尖、实验数据和课堂讲台，撑起了炮火下的一片学术天空。
 
-两国元首边走边谈，不时驻足观赏园中苍劲挺拔的古树和各色月季。
+《法国侨报》副总编王萍感慨道，以前在课本里读到他们，今天才知道，他们都曾在北碚汇聚，这些人也是海外侨胞的精神坐标。
 
-习近平指出，特朗普总统此访是一次历史性、标志性的访问，我们共同确定了中美建设性战略稳定关系的新定位，就保持经贸关系稳定、拓展各领域务实合作、妥善解决彼此关切达成重要共识，同意就国际和地区问题加强沟通和协调。
+从地质学家黄汲清主持制作的中国地形浮雕，到杨钟健完成的“许氏禄丰龙”骨骼复原，再到三千名流在炮火中坚守学术报国，这些事迹展现了一个民族在危亡时刻的文化自觉与精神韧性。
 
-访问有利于促进相互理解、加深彼此信任、增进两国人民福祉。
-
-这也再次表明，中美在相互尊重基础上实现和平共处、合作共赢，走出一条正确相处之道，是两国人民所愿和世界各国人民所盼。
-
-特朗普总统希望让美国再次伟大，我致力于带领中国人民实现中华民族伟大复兴。
+(贾楠 景诗雁） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 04:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 04:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 04:16 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 04:27 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 04:09 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 04:24 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 04:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 04:29 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 04:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 04:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 04:40 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 04:21 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 04:25 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 04:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 04:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 04:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 04:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 04:34 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 04:38 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 04:27 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 04:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 04:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/9179660131.shtml)
-- 2026-06-30 04:16 - [金刚川](https://www.share.kurohicncr.top/Article/details/896050623117.shtml)
-- 2026-06-30 04:26 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/85289.shtml)
-- 2026-06-30 04:23 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/79264954.shtml)
-- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/3920944261.shtml)
-- 2026-06-30 04:12 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/06935043970.shtml)
-- 2026-06-30 04:35 - [青春环游记第三季](http://www.blog.minike.top/Article/details/1495279078.shtml)
-- 2026-06-30 04:09 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/84874.shtml)
-- 2026-06-30 04:09 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/387274.shtml)
-- 2026-06-30 04:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/32740044.shtml)
-- 2026-06-30 04:27 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/66038.shtml)
-- 2026-06-30 04:28 - [一生一世](https://www.blog.minike.top/Article/details/871284808551.shtml)
-- 2026-06-30 04:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/6351044755.shtml)
-- 2026-06-30 04:15 - [明星大侦探第四季](https://www.share.minike.top/Article/details/8669092838.shtml)
-- 2026-06-30 04:13 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/562377.shtml)
+- 2026-06-30 04:38 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/092256.shtml)
+- 2026-06-30 04:17 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/856091.shtml)
+- 2026-06-30 04:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/961868.shtml)
+- 2026-06-30 04:29 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/641727.shtml)
+- 2026-06-30 04:12 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/716902677.shtml)
+- 2026-06-30 04:31 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/4851773.shtml)
+- 2026-06-30 04:15 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/9942659.shtml)
+- 2026-06-30 04:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/972176694152.shtml)
+- 2026-06-30 04:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/527829655.shtml)
+- 2026-06-30 04:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/791109938.shtml)
+- 2026-06-30 04:36 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/761322202.shtml)
+- 2026-06-30 04:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/83376.shtml)
+- 2026-06-30 04:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/248771421856.shtml)
+- 2026-06-30 04:31 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/6409482385.shtml)
+- 2026-06-30 04:36 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/94439702291.shtml)

@@ -1,58 +1,56 @@
-# 吴松泉：中国汽车品牌在时机成熟时仍有必要进入美国市场
+# 美国点火容易灭火难
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。中国汽车技术研究中心资深首席专家吴松泉在演讲中表示，我国汽车出口的空间和潜力主要体现在三个方面： 一是向全球主要汽车市场发力，2024年全球主要汽车市场已明确，虽然目前我国汽车进入美国市场面临困难，但长远来看，中国品牌在时机成熟时仍有必要进入美国市场； 二是向新能
+连日来，中东局势再度激变。 美国总统特朗普11日表示，鉴于美国和伊朗即将达成协议，他已取消原定针对伊朗的打击。但德黑兰方面12日表示，尚未就美国总统宣布的旨在结束战争的协议作出决定。 伊朗媒体表示：“他(特朗普)每小时都在撒谎并自吹自擂。” 此前，美军于6月9日对伊朗实施了打击。而面对美方的极限施压，伊朗外长阿拉格齐则针锋相对地放话：“美国若想要安全，就撤出我们这个地区。” 炮
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+连日来，中东局势再度激变。
 
-中国汽车技术研究中心资深首席专家吴松泉在演讲中表示，我国汽车出口的空间和潜力主要体现在三个方面： 一是向全球主要汽车市场发力，2024年全球主要汽车市场已明确，虽然目前我国汽车进入美国市场面临困难，但长远来看，中国品牌在时机成熟时仍有必要进入美国市场； 二是向新能源汽车领域要增量，全球电动化发展的速度和方向毋庸置疑，各类机构的预测报告均对此形成共识，国际能源署预测，到2030年全球新能源汽车市场将实现蓬勃发展； 三是向数据化生产要增量。
+美国总统特朗普11日表示，鉴于美国和伊朗即将达成协议，他已取消原定针对伊朗的打击。
 
-吴松泉认为“十五五”期间我国汽车出口可能会达到峰值，之后海外生产将快速增长，长远来看，我国将主要依靠海外生产满足国外市场需求。
+但德黑兰方面12日表示，尚未就美国总统宣布的旨在结束战争的协议作出决定。
 
-这也是全球主要汽车国家、品牌和企业的共同路径，通过海外生产、本地销售的方式，满足当地市场需求。
+伊朗媒体表示：“他(特朗普)每小时都在撒谎并自吹自擂。
 
-目前，我国已有众多整车企业、动力电池企业和零部件企业在海外建立工厂，海外生产已逐步起步。
+” 此前，美军于6月9日对伊朗实施了打击。
 
-除此之外，“十五五”期间汽车出海还将呈现以下几个趋势： 第一，体系出海、协同发展成为主旋律。
+而面对美方的极限施压，伊朗外长阿拉格齐则针锋相对地放话：“美国若想要安全，就撤出我们这个地区。
 
-目前，我国已有部分企业开始成体系地“走出去”，实现全方位、协同化的全球化布局。
+” 炮火轰鸣之下，全球能源市场的神经再度紧绷，国际油价应声大涨。
 
-第二，零部件出口仍有巨大潜力。
+一种更令全球市场揪心的观点是，无论接下来中东局势如何发展，哪怕美以与伊朗在短期内达成某种形式的停火，一场深层次的能源危机，似乎已不可避免地开始向全球蔓延。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 04:17 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 04:30 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 04:13 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 04:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 04:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 04:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 04:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 04:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 04:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 04:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 04:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 04:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 04:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 04:38 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 04:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 04:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 04:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 04:14 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 04:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 04:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/101597.shtml)
-- 2026-06-30 04:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/74894381054.shtml)
-- 2026-06-30 04:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/74886.shtml)
-- 2026-06-30 04:26 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/90243413.shtml)
-- 2026-06-30 04:22 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/06809.shtml)
-- 2026-06-30 04:26 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/540129297.shtml)
-- 2026-06-30 04:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/69105589208.shtml)
-- 2026-06-30 04:26 - [请回答王牌2019](https://www.share.minike.top/Article/details/79978016.shtml)
-- 2026-06-30 04:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/934281559430.shtml)
-- 2026-06-30 04:31 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/580635592802.shtml)
-- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/6272082100.shtml)
-- 2026-06-30 04:29 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/5644123157.shtml)
-- 2026-06-30 04:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/596931879.shtml)
-- 2026-06-30 04:28 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7570256.shtml)
-- 2026-06-30 04:32 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/144125894247.shtml)
+- 2026-06-30 04:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/8358622396.shtml)
+- 2026-06-30 04:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/283965954971.shtml)
+- 2026-06-30 04:16 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/98069562839.shtml)
+- 2026-06-30 04:16 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/4170315.shtml)
+- 2026-06-30 04:14 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/068486650.shtml)
+- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/497086596433.shtml)
+- 2026-06-30 04:23 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/13170511939.shtml)
+- 2026-06-30 04:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/994733533264.shtml)
+- 2026-06-30 04:20 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/752625.shtml)
+- 2026-06-30 04:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/299576717.shtml)
+- 2026-06-30 04:17 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/1690108.shtml)
+- 2026-06-30 04:31 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/649227267.shtml)
+- 2026-06-30 04:30 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/770098.shtml)
+- 2026-06-30 04:32 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/73584360916.shtml)
+- 2026-06-30 04:35 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/151218343.shtml)

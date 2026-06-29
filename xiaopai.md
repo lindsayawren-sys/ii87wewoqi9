@@ -1,56 +1,44 @@
-# 贾可：中国汽车产业面临十大转折
+# 史上最大IPO，SpaceX今晚上市！盘前三大信号
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。轩辕矩阵 CEO、轩辕同学校长、世界新汽车生态协会理事长贾可在演讲中表示，中国汽车产业当下面临十大转折。 转折一，本土市场从规模扩张转向存量博弈，“甚至是缩量博弈，这话写在小字里更合适，但这就是我们当下本土市场的现实。”贾可强调，“大家必须清醒认识到，再也不能靠亏
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：刘万里 SF014
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-轩辕矩阵 CEO、轩辕同学校长、世界新汽车生态协会理事长贾可在演讲中表示，中国汽车产业当下面临十大转折。
-
-转折一，本土市场从规模扩张转向存量博弈，“甚至是缩量博弈，这话写在小字里更合适，但这就是我们当下本土市场的现实。
-
-”贾可强调，“大家必须清醒认识到，再也不能靠亏损换规模、靠不挣钱求生存，失血过多，根本活不了。
-
-”这一现实倒逼车企必须做大做强，他补充道：“今年一季度行业利润又创新低，只有3.21%，二月更低，三月虽随销量回升有所好转，但这样的行业底色，让我们必须认清现实，再这么下去肯定不行。
-
-” 转折二，中国汽车出海将面临25%份额假说的天花板。
-
-贾可表示，“大家一定要意识到，刨除北美和日韩这两个堡垒市场，我们现在的出海份额已经达到25.5%，罗兰贝格基于百年汽车史提出的25%假说，说的就是单一国别全球份额大概就在25%，我们已经超了。
-
-”他坦言，“突破25%到30%、40%，我们要付出的代价会非常大，因为我们的本地化率只有20多，五六辆车才有一辆是本地产的，而德系、日系的本地化率超过80%。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 04:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 04:16 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 04:24 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:19 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 04:13 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:16 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:22 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 04:20 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 04:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:29 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 04:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 04:18 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 04:21 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 04:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 04:38 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 04:31 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 04:14 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 04:24 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/5736889.shtml)
-- 2026-06-30 04:31 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/360294.shtml)
-- 2026-06-30 04:27 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/7694377893.shtml)
-- 2026-06-30 04:24 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/794556.shtml)
-- 2026-06-30 04:06 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/8415569652.shtml)
-- 2026-06-30 04:09 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/34069261736.shtml)
-- 2026-06-30 04:21 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/212938.shtml)
-- 2026-06-30 04:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/01312843.shtml)
-- 2026-06-30 04:14 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/528265899.shtml)
-- 2026-06-30 04:32 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/80240584564.shtml)
-- 2026-06-30 04:15 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/43482.shtml)
-- 2026-06-30 04:33 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/7895750.shtml)
-- 2026-06-30 04:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/998912903983.shtml)
-- 2026-06-30 04:23 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/237573861.shtml)
-- 2026-06-30 04:30 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/169595.shtml)
+- 2026-06-30 04:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/54637.shtml)
+- 2026-06-30 04:27 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/779774.shtml)
+- 2026-06-30 04:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/241235796038.shtml)
+- 2026-06-30 04:38 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/84044.shtml)
+- 2026-06-30 04:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/4614189.shtml)
+- 2026-06-30 04:41 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/502545265.shtml)
+- 2026-06-30 04:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/876935.shtml)
+- 2026-06-30 04:41 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/78183220.shtml)
+- 2026-06-30 04:35 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/128780926888.shtml)
+- 2026-06-30 04:18 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/4035684.shtml)
+- 2026-06-30 04:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/1303503.shtml)
+- 2026-06-30 04:28 - [一见倾心](http://www.share.kurohicncr.top/Article/details/84371755018.shtml)
+- 2026-06-30 04:33 - [斛珠夫人](http://www.blog.minike.top/Article/details/01567310465.shtml)
+- 2026-06-30 04:23 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/58262.shtml)
+- 2026-06-30 04:40 - [周生如故](https://www.share.kurohicncr.top/Article/details/0141374.shtml)

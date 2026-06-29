@@ -1,58 +1,60 @@
-# 515投资者保护 | 278场活动覆盖60城！国泰基金“长情相伴，共赴财富远方”荣获2026年度投教项目优秀实践奖
+# 中金：周大福维持“跑赢行业”评级 目标价15.86港元
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。国泰基金凭借“长情相伴，共赴财富远方”国泰基金投资者教育工作实践，荣获2026年度“投教项目优秀实践奖”。 据悉，面对行业发展新阶段与投资者多样化投教需求，国泰基金始终坚守“金融为民”的初心使命，以提升国民金融素养、保护投资者合法权益为核心，立足行业发
+中金发布研报称，由于周大福（01929）良好的销售表现，上调周大福2027及2028财年每股盈利预测11%及10%至1.1港元及1.1港元。考虑到行业估值有所波动，该行维持其目标价15.86港元不变，对应15倍2027财年预测市盈率，并维持“跑赢行业”评级。 周大福 2026财年收入同比增长5%至944亿港元，归母净利润同比增长52%至90亿港元，业绩符合市场预期。公司宣派末期
 
 ## 正文
 
-专题：515投资者保护！
+中金发布研报称，由于周大福（01929）良好的销售表现，上调周大福2027及2028财年每股盈利预测11%及10%至1.1港元及1.1港元。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+考虑到行业估值有所波动，该行维持其目标价15.86港元不变，对应15倍2027财年预测市盈率，并维持“跑赢行业”评级。
 
-国泰基金凭借“长情相伴，共赴财富远方”国泰基金投资者教育工作实践，荣获2026年度“投教项目优秀实践奖”。
+周大福 2026财年收入同比增长5%至944亿港元，归母净利润同比增长52%至90亿港元，业绩符合市场预期。
 
-据悉，面对行业发展新阶段与投资者多样化投教需求，国泰基金始终坚守“金融为民”的初心使命，以提升国民金融素养、保护投资者合法权益为核心，立足行业发展趋势，精准对接投资者需求，系统构建多元化、场景化、常态化的投教生态，用专业力量护航投资者财富成长，以实际行动践行金融机构服务国家大局、守护民生财富的责任担当。
+公司宣派末期股息每股0.45港元，全年派息率73%，对应股息率约7%，保持高派息比例。
 
-1、打造“国泰基金99养老周”，推动养老投教向年轻圈层破圈 针对年轻群体养老规划意识薄弱、认知存在偏差的问题，2025年9月，国泰基金创新打造“99养老周”主题投教活动，活动为期六天，设置“衰老实验室”“时光长廊”“未来养老生活模拟”“养老知识互动区”四大核心板块，通过互动游戏让年轻人沉浸式体验银发生活，正视养老规划的重要性。
+2026财年下半年收入同比增长10%环比加速，其中中国内地收入同比增长5%至438亿港元，净关358个周大福专门零售点，年末新店月均销售额同比增长57%至约160万港元。
 
-活动期间线下累计接待观展群众超1400人次，同步在小红书平台发起#聊聊你的养老计划#互动话题，吸引大量年轻用户参与分享，话题标签“基金行业话养老”“国泰基金99养老周”合计获得5.5w次浏览，2300余人讨论，助力养老投教向年轻圈层破圈，让“早规划、早受益”的养老理念深入人心。
+中国港澳及海外市场收入同比增长33%至116亿港元。
 
-2、开展社区助老防骗课堂，守护银发群体财产安全 聚焦老年群体金融知识薄弱、易遭受诈骗的痛点，国泰基金联合蓝马甲公益组织，深入上海、杭州两地老龄化程度较高的社区，围绕金融防骗进行系列课程宣讲。
+该行指出，周大福4至5月中国内地直营及加盟同店销售同比分别增长20%及15%，港澳同比增长41%，表现超越市场预期。
 
-宣讲以真实养老诈骗案例为切入点，用通俗易懂的语言拆解“虚假养老投资”“非法集资”“AI仿冒客服”等常见骗局套路，手把手指导老年人识别诈骗陷阱、守护个人财产安全。
+管理层指引2027财年收入同比增长中高单位数，经营利润率约14%，黄金借贷收益预计达5亿至8亿港元。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 04:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 04:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 04:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 04:31 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 04:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 04:11 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 04:16 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 04:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 04:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 04:33 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 04:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 04:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 04:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 04:27 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 04:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 04:13 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:25 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:17 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 04:41 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 04:36 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 04:17 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 04:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 04:32 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 04:39 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/3275970262.shtml)
-- 2026-06-30 04:32 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/9502590449.shtml)
-- 2026-06-30 04:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/503119.shtml)
-- 2026-06-30 04:15 - [绘画区你赢了](https://www.blog.minike.top/Article/details/5673435129.shtml)
-- 2026-06-30 04:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/8645223865.shtml)
-- 2026-06-30 04:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/193987764212.shtml)
-- 2026-06-30 04:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/028566.shtml)
-- 2026-06-30 04:21 - [扫黑风暴](http://www.blog.minike.top/Article/details/4043329.shtml)
-- 2026-06-30 04:17 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/7476926606.shtml)
-- 2026-06-30 04:19 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/0690482283.shtml)
-- 2026-06-30 04:25 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/562906.shtml)
-- 2026-06-30 04:30 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/068849527536.shtml)
-- 2026-06-30 04:09 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/1022979.shtml)
-- 2026-06-30 04:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/09854.shtml)
-- 2026-06-30 04:29 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/397440.shtml)
+- 2026-06-30 04:17 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/203137103.shtml)
+- 2026-06-30 04:40 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/923009193.shtml)
+- 2026-06-30 04:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/1342199447.shtml)
+- 2026-06-30 04:41 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/2064470908.shtml)
+- 2026-06-30 04:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/1138206523.shtml)
+- 2026-06-30 04:25 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/6492604315.shtml)
+- 2026-06-30 04:14 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/812744.shtml)
+- 2026-06-30 04:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/893316.shtml)
+- 2026-06-30 04:28 - [我和我的家乡](https://www.blog.minike.top/Article/details/071530826486.shtml)
+- 2026-06-30 04:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/89606.shtml)
+- 2026-06-30 04:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/64917.shtml)
+- 2026-06-30 04:14 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/4543261.shtml)
+- 2026-06-30 04:13 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/88342292879.shtml)
+- 2026-06-30 04:31 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/000059795.shtml)
+- 2026-06-30 04:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/45749.shtml)

@@ -1,57 +1,56 @@
-# 巴勒斯坦总统阿巴斯连任法塔赫主席
+# 债券通“南向通”正式向险资开闸，多家已完成首笔交易
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社北京5月15日电 综合消息：据巴勒斯坦通讯社报道，巴勒斯坦民族解放运动(法塔赫)第八次代表大会14日在约旦河西岸城市拉姆安拉举行，大会代表一致推选巴勒斯坦总统阿巴斯连任法塔赫主席。 阿巴斯强调，法塔赫始终是巴勒斯坦民族事业的支柱，是民族独立自主决策旗帜的捍卫者，是巴勒斯坦身份和斗争的守护者。 阿巴斯确认，加沙是巴勒斯坦国不可分割的一部分，任何过渡安排都必须是暂时的，且不得
+债券通“南向通”业务正式向险资开闸。 第一财经记者6月12日从业内获悉，中国平安、泰康保险、中国人寿、中国太保等多家保险公司成为首批获准参与债券通“南向通”的保险公司。 其中，平安资管及泰康资产均向第一财经记者表示，它们分别作为平安人寿及泰康人寿的保险资金受托方，已顺利完成首笔投资交易。另据媒体报道，国寿资产亦已落地首单。这也是债券通“南向通”首次扩容至非银金融机构。 “南向通
 
 ## 正文
 
-中新社北京5月15日电 综合消息：据巴勒斯坦通讯社报道，巴勒斯坦民族解放运动(法塔赫)第八次代表大会14日在约旦河西岸城市拉姆安拉举行，大会代表一致推选巴勒斯坦总统阿巴斯连任法塔赫主席。
+债券通“南向通”业务正式向险资开闸。
 
-阿巴斯强调，法塔赫始终是巴勒斯坦民族事业的支柱，是民族独立自主决策旗帜的捍卫者，是巴勒斯坦身份和斗争的守护者。
+第一财经记者6月12日从业内获悉，中国平安、泰康保险、中国人寿、中国太保等多家保险公司成为首批获准参与债券通“南向通”的保险公司。
 
-阿巴斯确认，加沙是巴勒斯坦国不可分割的一部分，任何过渡安排都必须是暂时的，且不得影响国家统一及政治与法律主权。
+其中，平安资管及泰康资产均向第一财经记者表示，它们分别作为平安人寿及泰康人寿的保险资金受托方，已顺利完成首笔投资交易。
 
-他谴责以色列在约旦河西岸实施的“系统性恐怖主义和大规模定居点扩张”，称其严重违反国际法，并呼吁国际社会追究以色列政府的责任，立即采取威慑行动，保护巴勒斯坦人。
+另据媒体报道，国寿资产亦已落地首单。
 
-当天晚些时候，大会代表一致推选阿巴斯连任法塔赫领导人，表达了对他在巴勒斯坦历史关键时期发挥领导作用的信心。
+这也是债券通“南向通”首次扩容至非银金融机构。
 
-据报道，法塔赫上一次代表大会于2016年举行。
+“南向通”是指内地机构投资者通过内地与香港基础服务机构连接，投资于香港债券市场的机制安排，于2021年9月正式上线运行。
 
-半岛电视台称，本次大会为期三天，预计选举产生新一届法塔赫革命委员会及法塔赫中央委员会成员。
+“南向通”初始运行阶段合格内地机构投资者暂定为中国人民银行2020年度公开市场业务一级交易商中的41家银行类金融机构（不含非银行类金融机构与农村金融机构）；合格境内机构投资者（QDII）和人民币合格境内机构投资者（RQDII）也可以通过“南向通”开展境外债券投资。
 
-法塔赫是巴勒斯坦主要政治派别，主张通过谈判解决巴以问题。
+2025年7月，中国人民银行表示，将完善债券通“南向通”运行机制，支持更多境内投资者走出去投资离岸债券市场，将扩大境内投资者范围至券商、基金、保险、理财等4类非银机构，首次将非银金融机构纳入合资格投资者范围。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 04:18 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 04:29 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 04:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 04:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 04:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 04:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 04:08 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:29 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 04:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 04:33 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:15 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 04:40 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 04:34 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 04:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 04:35 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 04:38 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 04:24 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 04:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 04:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/31932.shtml)
-- 2026-06-30 04:09 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/7328849116.shtml)
-- 2026-06-30 04:29 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/038999631487.shtml)
-- 2026-06-30 04:13 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/415670.shtml)
-- 2026-06-30 04:34 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/01712324.shtml)
-- 2026-06-30 04:25 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/97390.shtml)
-- 2026-06-30 04:13 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/657673527.shtml)
-- 2026-06-30 04:14 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/4025848.shtml)
-- 2026-06-30 04:27 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/921766.shtml)
-- 2026-06-30 04:30 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/2582553.shtml)
-- 2026-06-30 04:34 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/27433.shtml)
-- 2026-06-30 04:16 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/53851405.shtml)
-- 2026-06-30 04:34 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/230216.shtml)
-- 2026-06-30 04:15 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/082134.shtml)
-- 2026-06-30 04:09 - [巴西扳平比分](http://www.blog.minike.top/Article/details/40160775564.shtml)
+- 2026-06-30 04:37 - [沉睡花园](http://www.blog.minike.top/Article/details/70690136242.shtml)
+- 2026-06-30 04:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/1476482.shtml)
+- 2026-06-30 04:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/861440049423.shtml)
+- 2026-06-30 04:33 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/84933.shtml)
+- 2026-06-30 04:38 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/2332134.shtml)
+- 2026-06-30 04:26 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/851537461.shtml)
+- 2026-06-30 04:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/680836.shtml)
+- 2026-06-30 04:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/5719512013.shtml)
+- 2026-06-30 04:41 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/51162834.shtml)
+- 2026-06-30 04:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/94721.shtml)
+- 2026-06-30 04:28 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/28643259.shtml)
+- 2026-06-30 04:40 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/32974355.shtml)
+- 2026-06-30 04:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/7565945696.shtml)
+- 2026-06-30 04:34 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/41981729.shtml)
+- 2026-06-30 04:21 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/518272.shtml)

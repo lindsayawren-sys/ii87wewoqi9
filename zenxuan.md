@@ -1,59 +1,57 @@
-# Syensqo股价大涨 调整后盈利超预期
+# 比亚迪凌和平：“闪充技术”为新能源汽车持续高速发展起到引领作用
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 欧股早盘该股涨幅达 6.7% 比利时化工企业Syensqo周五公布一季度调整后盈利超市场预期，股价应声大涨，盘中涨幅达 6.80%。 公司一季度基准息税折旧摊销前利润（EBITDA） 达 2.51 亿欧元（折合 2.941 亿美元）。虽较去年同期的 3.01 亿欧元有所下滑，但高于公司汇总分析师一致预期的 2.39 亿欧元。 受特种聚合物、
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，比亚迪汽车工程研究院副院长凌和平出席并演讲。 凌和平谈到，比亚迪推出的闪充技术，以及自己建站，为新能源汽车的持续高速增长起到了重要引领作用。同时，背后的储能方案还可能为芯片制造等领域提供新的解决方案。 他举例表示，比亚迪把储能技术用到了闪充系统中，储能技术能够让整个供电变得非
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 欧股早盘该股涨幅达 6.7% 比利时化工企业Syensqo周五公布一季度调整后盈利超市场预期，股价应声大涨，盘中涨幅达 6.80%。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，比亚迪汽车工程研究院副院长凌和平出席并演讲。
 
-公司一季度基准息税折旧摊销前利润（EBITDA） 达 2.51 亿欧元（折合 2.941 亿美元）。
+凌和平谈到，比亚迪推出的闪充技术，以及自己建站，为新能源汽车的持续高速增长起到了重要引领作用。
 
-虽较去年同期的 3.01 亿欧元有所下滑，但高于公司汇总分析师一致预期的 2.39 亿欧元。
+同时，背后的储能方案还可能为芯片制造等领域提供新的解决方案。
 
-受特种聚合物、诺维卡（Novecare）及复合材料业务拉动，公司基准 EBITDA环比增长 6%。
+他举例表示，比亚迪把储能技术用到了闪充系统中，储能技术能够让整个供电变得非常稳定。
 
-伯恩斯坦分析师詹姆斯・胡珀在研报中表示：只要后续几个季度能延续本季表现，市场就会逐渐淡忘上一季度的业绩颓势。
+而在芯片制造以及大模型建立的过程中，对电力和供电稳定也有很大需求。
 
-此前受整体经济不确定性持续拖累，公司主营市场一直承压。
+所以闪充技术中的相关积累，对芯片制造领域的供电稳定性也能起到很大的作用。
 
-公司首席执行官迈克・拉多西奇表示：“整体来看，二季度订单趋势已出现改善，也让我们更有把握完成全年业绩目标。
+“因为这么大功率的充电，如果完全依赖电网，电网是承受不住的。
 
-” 公司维持全年业绩指引不变：预计全年基准 EBITDA 约 11 亿欧元，经营现金流约 7 亿欧元。
+比亚迪通过引入储能，让整个电网的使用率提高了很多。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 04:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 04:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 04:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 04:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 04:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 04:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 04:32 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 04:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 04:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 04:21 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 04:35 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 04:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 04:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 04:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 04:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 04:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 04:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 04:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 04:38 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 04:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/23327357195.shtml)
-- 2026-06-30 04:29 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/176430.shtml)
-- 2026-06-30 04:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/6096719346.shtml)
-- 2026-06-30 04:09 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/4433460.shtml)
-- 2026-06-30 04:15 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/0004745678.shtml)
-- 2026-06-30 04:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/7940705758.shtml)
-- 2026-06-30 04:12 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/006538.shtml)
-- 2026-06-30 04:30 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/964029815816.shtml)
-- 2026-06-30 04:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/2367873843.shtml)
-- 2026-06-30 04:17 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/2465336496.shtml)
-- 2026-06-30 04:10 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/0012102.shtml)
-- 2026-06-30 04:06 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/8086072203.shtml)
-- 2026-06-30 04:21 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/79099744.shtml)
-- 2026-06-30 04:31 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/3678815.shtml)
-- 2026-06-30 04:25 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/4126769.shtml)
+- 2026-06-30 04:17 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/012992.shtml)
+- 2026-06-30 04:37 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9809016506.shtml)
+- 2026-06-30 04:28 - [美股](http://www.blog.minike.top/Article/details/3153607.shtml)
+- 2026-06-30 04:18 - [金牌调解](http://www.share.minike.top/Article/details/74799054.shtml)
+- 2026-06-30 04:38 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/986148.shtml)
+- 2026-06-30 04:14 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/966555060.shtml)
+- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4777363.shtml)
+- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/681969.shtml)
+- 2026-06-30 04:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2954959827.shtml)
+- 2026-06-30 04:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/920587.shtml)
+- 2026-06-30 04:27 - [我们的少年时代2](https://www.blog.minike.top/Article/details/2058368.shtml)
+- 2026-06-30 04:16 - [日本 高位逼抢](http://www.share.minike.top/Article/details/109455318.shtml)
+- 2026-06-30 04:13 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/14261780286.shtml)
+- 2026-06-30 04:41 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/06005917075.shtml)
+- 2026-06-30 04:13 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/96106532702.shtml)

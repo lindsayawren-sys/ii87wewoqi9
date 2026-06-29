@@ -1,58 +1,58 @@
-# 苏州“碧螺春香型”枇杷走向海外
+# 蒙古国总统呼日勒苏赫会见王毅
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社苏州5月15日电 (记者 钟升)“吴中枇杷 鲜行天下”枇杷产销赋能活动15日在苏州市吴中区东山镇举行。随着物流行业的发展与冷链保鲜技术的进步，“初夏金果、玉色琼浆”的吴中枇杷开始走向海外。 东山镇是中国枇杷种植传统四大产区之一，“东山白沙枇杷”于2024年入选“全国名特优新农产品名录”。在吴中区，人们会将枇杷等果树与碧螺春茶树交叉种植，令茶叶带有水果的清甜，枇杷染上茶叶的
+2026年6月13日，蒙古国总统呼日勒苏赫在乌兰巴托会见甫抵蒙古国的中共中央政治局委员、外交部长王毅。 呼日勒苏赫请王毅转达对习近平主席的诚挚问候和良好祝愿。呼日勒苏赫表示，我很荣幸同习近平主席建立了深厚友谊和互信，保持着密切沟通，共同引领两国全面战略伙伴关系不断发展。蒙中关系已成为地区国家间关系的典范。两国始终相互理解、相互信任，尊重彼此独立、主权和领土完整，互利合作不断深化
 
 ## 正文
 
-中新社苏州5月15日电 (记者 钟升)“吴中枇杷 鲜行天下”枇杷产销赋能活动15日在苏州市吴中区东山镇举行。
+2026年6月13日，蒙古国总统呼日勒苏赫在乌兰巴托会见甫抵蒙古国的中共中央政治局委员、外交部长王毅。
 
-随着物流行业的发展与冷链保鲜技术的进步，“初夏金果、玉色琼浆”的吴中枇杷开始走向海外。
+呼日勒苏赫请王毅转达对习近平主席的诚挚问候和良好祝愿。
 
-东山镇是中国枇杷种植传统四大产区之一，“东山白沙枇杷”于2024年入选“全国名特优新农产品名录”。
+呼日勒苏赫表示，我很荣幸同习近平主席建立了深厚友谊和互信，保持着密切沟通，共同引领两国全面战略伙伴关系不断发展。
 
-在吴中区，人们会将枇杷等果树与碧螺春茶树交叉种植，令茶叶带有水果的清甜，枇杷染上茶叶的幽香。
+蒙中关系已成为地区国家间关系的典范。
 
-2020年，江苏吴中碧螺春茶果复合系统被中国农业农村部列入第五批中国重要农业文化遗产名单。
+两国始终相互理解、相互信任，尊重彼此独立、主权和领土完整，互利合作不断深化，今年有望实现双边贸易额200亿美元目标。
 
-得益于充沛的雨水与充足的光照，今年吴中区枇杷品质优良、长势喜人，全区枇杷总产量预计为1.6万吨。
+中国是蒙古国永远的好邻居，对华友好是蒙古国外交政策的首要方针。
 
-东山镇果品协会负责人表示，当地正围绕枇杷产业，从标准化种植、品牌打造到深加工全链条发力，开发出枇杷花茶、果酒等衍生产品，拉长产业链、提升附加值。
+蒙方理解尊重中方的立场和关切，坚定恪守一个中国原则，认为台湾是中国领土不可分割的一部分，不支持任何形式的“台独”行径，涉港、涉藏、涉疆问题也都是中国内政。
 
-据苏州市农科院加工所副研究员马佳佳介绍，现在通过快速预冷技术搭配气调低温保鲜箱，可以让枇杷的保鲜期延长至30天。
+蒙古国不会因为同其他国家关系做任何损害中方利益的事情。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 04:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 04:35 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 04:15 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 04:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 04:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 04:16 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 04:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 04:23 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 04:23 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 04:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 04:23 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 04:40 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 04:32 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 04:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 04:30 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 04:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 04:24 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 04:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 04:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 04:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 04:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 04:26 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/12314.shtml)
-- 2026-06-30 04:23 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/0105549.shtml)
-- 2026-06-30 04:13 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/138411.shtml)
-- 2026-06-30 04:10 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/3164544539.shtml)
-- 2026-06-30 04:21 - [周生如故](https://www.blog.kurohicncr.top/Article/details/7016450834.shtml)
-- 2026-06-30 04:18 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/314059293.shtml)
-- 2026-06-30 04:26 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/7202628288.shtml)
-- 2026-06-30 04:11 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/852582.shtml)
-- 2026-06-30 04:34 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/57493.shtml)
-- 2026-06-30 04:32 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/745351573.shtml)
-- 2026-06-30 04:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/1964663336.shtml)
-- 2026-06-30 04:34 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/15969100.shtml)
-- 2026-06-30 04:17 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/73145314.shtml)
-- 2026-06-30 04:31 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/1455205759.shtml)
-- 2026-06-30 04:34 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/8879214.shtml)
+- 2026-06-30 04:22 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/8727375.shtml)
+- 2026-06-30 04:33 - [巴西绝杀日本](http://www.share.minike.top/Article/details/89772958000.shtml)
+- 2026-06-30 04:36 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/612896.shtml)
+- 2026-06-30 04:23 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7493223.shtml)
+- 2026-06-30 04:27 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/02349821094.shtml)
+- 2026-06-30 04:25 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/9298804.shtml)
+- 2026-06-30 04:23 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/378624.shtml)
+- 2026-06-30 04:12 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/9730890165.shtml)
+- 2026-06-30 04:38 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/47007074342.shtml)
+- 2026-06-30 04:24 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/20406718.shtml)
+- 2026-06-30 04:21 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/354161463227.shtml)
+- 2026-06-30 04:16 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/934451450865.shtml)
+- 2026-06-30 04:19 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/526941.shtml)
+- 2026-06-30 04:39 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/6130193731.shtml)
+- 2026-06-30 04:20 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/18986164.shtml)

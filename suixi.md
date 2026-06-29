@@ -1,60 +1,59 @@
-# 人工智能牛市热点为何从英伟达转向存储芯片厂商
+# 中外艺术家走进新疆唐布拉草原 画笔定格“百里画廊”
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-过去一个月，芯片股迎来暴涨行情；美光科技大涨 80%、闪迪上涨 52%、英特尔飙升 85%，仅是本轮行情中的部分代表企业。 本轮芯片大涨背后，核心驱动力是人工智能系统架构向 “编排调度（Orchestration）” 模式演进：AI 算力负载不再集中在少数大型中心化芯片集群，而是分散调度至多条并行处理通道。 在这种新架构下，相比性能强劲的显卡 GPU，市场需要更多传统中央处理器
+中新网新疆尼勒克6月13日电 (张家伟)第二届“美美与共·和美伊犁”——中外知名艺术家走进伊犁文化交流活动日前启动。13日，来自俄罗斯、哈萨克斯坦、乌兹别克斯坦三国的12位画家，与12位中国画家，走进新疆伊犁州尼勒克县唐布拉草原进行写生创作。 唐布拉草原素有“百里画廊”之称。时下，远处雪山皑皑，近处云杉如黛，草木葱茏，牛羊散落，野花遍开。 当日上午，画家们一经抵达写生地点，便被
 
 ## 正文
 
-过去一个月，芯片股迎来暴涨行情；美光科技大涨 80%、闪迪上涨 52%、英特尔飙升 85%，仅是本轮行情中的部分代表企业。
+中新网新疆尼勒克6月13日电 (张家伟)第二届“美美与共·和美伊犁”——中外知名艺术家走进伊犁文化交流活动日前启动。
 
-本轮芯片大涨背后，核心驱动力是人工智能系统架构向 “编排调度（Orchestration）” 模式演进：AI 算力负载不再集中在少数大型中心化芯片集群，而是分散调度至多条并行处理通道。
+13日，来自俄罗斯、哈萨克斯坦、乌兹别克斯坦三国的12位画家，与12位中国画家，走进新疆伊犁州尼勒克县唐布拉草原进行写生创作。
 
-在这种新架构下，相比性能强劲的显卡 GPU，市场需要更多传统中央处理器 CPU。
+唐布拉草原素有“百里画廊”之称。
 
-而在人工智能发展第一阶段，正是 GPU 需求激增助推了英伟达股价大涨。
+时下，远处雪山皑皑，近处云杉如黛，草木葱茏，牛羊散落，野花遍开。
 
-尽管 GPU 在模型训练、智能问答等 AI 核心任务中仍不可或缺，但华尔街认为，随着人工智能向智能体 AI（Agentic AI） 演进 —— 即 AI 能更好理解并执行通用化指令，芯片需求结构将持续向编排调度模式倾斜。
+当日上午，画家们一经抵达写生地点，便被当地美景吸引，纷纷拿出手机拍照留念。
 
-机构观点：智能体 AI 重塑 CPU 与 GPU 配比 摩根士丹利分析师金肖恩及其团队在周一投资者研报中表示： “智能体 AI 会增加系统编排调度、内存调度及工具调用类工作负载，抬升 AI 系统中 CPU 相对 GPU 的配置比例。
+随后，画家们分散在林间草甸开展写生，大家就地选取视角，架起画板、调配颜料，专注描摹唐布拉雪山、草原、河谷相融的自然风光，现场创作秩序井然，用画笔定格“百里画廊”的生态景致。
 
-这并不会削弱 GPU 需求，但会提升整体系统复杂度，同时把新增基础设施开支更多转向 CPU、网络设备与存储芯片。
+乌兹别克斯坦画家安瓦尔·博博库洛夫说：“今天来的这个景区很有特色，准备将景区内的一座中式建筑的亭子和山水画在一起，以后看到这幅画就会想到这里。
 
-” 行业新热词：编排调度 科技巨头纷纷看好编排调度架构，强调优化基础设施内部协同适配、而非单纯升级芯片架构，才是提升 AI 算力的关键。
+” 未来几天，他们将继续在唐布拉草原不同点位继续进行写生创作，让更多人看见伊犁草原的独特魅力。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 04:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 04:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 04:22 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 04:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 04:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 04:13 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 04:18 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 04:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 04:26 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 04:17 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 04:24 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 04:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 04:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 04:26 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 04:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 04:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 04:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 04:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 04:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 04:29 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 04:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 04:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 04:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 04:13 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/080009978085.shtml)
-- 2026-06-30 04:12 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/650123.shtml)
-- 2026-06-30 04:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7587615003.shtml)
-- 2026-06-30 04:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/6117346142.shtml)
-- 2026-06-30 04:19 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/1278562024.shtml)
-- 2026-06-30 04:24 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/6277540.shtml)
-- 2026-06-30 04:19 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/297454331.shtml)
-- 2026-06-30 04:11 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/3214385.shtml)
-- 2026-06-30 04:23 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/631201429624.shtml)
-- 2026-06-30 04:34 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/470924365559.shtml)
-- 2026-06-30 04:12 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/76433843458.shtml)
-- 2026-06-30 04:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/590926294124.shtml)
-- 2026-06-30 04:27 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/27613070.shtml)
-- 2026-06-30 04:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/292696.shtml)
-- 2026-06-30 04:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/910874970254.shtml)
+- 2026-06-30 04:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/079389052825.shtml)
+- 2026-06-30 04:40 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/2753666675.shtml)
+- 2026-06-30 04:28 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/47986.shtml)
+- 2026-06-30 04:34 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/25777605865.shtml)
+- 2026-06-30 04:32 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/078034000.shtml)
+- 2026-06-30 04:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/739126.shtml)
+- 2026-06-30 04:37 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/576952.shtml)
+- 2026-06-30 04:38 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/8351997932.shtml)
+- 2026-06-30 04:22 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/319892015.shtml)
+- 2026-06-30 04:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/1625026973.shtml)
+- 2026-06-30 04:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/121281.shtml)
+- 2026-06-30 04:20 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/49197662.shtml)
+- 2026-06-30 04:12 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/84878407377.shtml)
+- 2026-06-30 04:31 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/94552056.shtml)
+- 2026-06-30 04:12 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/5285329116.shtml)

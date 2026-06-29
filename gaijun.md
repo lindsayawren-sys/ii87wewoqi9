@@ -1,58 +1,56 @@
-# 南宁海关隶属北海海关涉案财物拍卖摇珠公告（2026年5月）
+# 【好评中国】考出“三夏”好成绩，绘就全年好“丰”景
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-我关拟于近期组织公开拍卖一批涉案财物，并通过摇珠选择拍卖企业，拟定于2026年5月18日下午15时30分进行此次拍卖摇珠，具体如下： 一、拍卖标的物 涉案洋酒一批。 通过机器摇珠选择1家拍卖机构进行公开拍卖。二、摇珠范围 入围南宁海关涉案财物拍卖机构备选名录。 三、摇珠地点 北海市海城区西南大道中段6号北海海关大楼701室。 四、联系电话 0779-3235896。 此次摇珠采
+沃野千里麦浪香，机声隆隆收粮忙。眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。“三夏”是一年农业生产的关键节点。夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经
 
 ## 正文
 
-我关拟于近期组织公开拍卖一批涉案财物，并通过摇珠选择拍卖企业，拟定于2026年5月18日下午15时30分进行此次拍卖摇珠，具体如下： 一、拍卖标的物 涉案洋酒一批。
+沃野千里麦浪香，机声隆隆收粮忙。
 
-通过机器摇珠选择1家拍卖机构进行公开拍卖。
+眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。
 
-二、摇珠范围 入围南宁海关涉案财物拍卖机构备选名录。
+“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。
 
-三、摇珠地点 北海市海城区西南大道中段6号北海海关大楼701室。
+“三夏”是一年农业生产的关键节点。
 
-四、联系电话 0779-3235896。
+夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经种下的作物促生长。
 
-此次摇珠采用机选方式确定拍卖企业，参与拍卖摇珠企业可自行决定是否到现场进行监督。
+这环环相扣的三步，哪一步都耽误不得，直接决定着全年粮食的丰产丰收。
 
-并请参与现场监督的拍卖企业提前半小时到达办理登记手续。
+我国夏粮占全年粮食总产量的四分之一，其中小麦占夏粮产量的九成以上，是绝对的“主力”。
 
-特此公告。
+在经历去年罕见秋雨汛情、今年小麦返青拔节期低温等多重考验后，今年夏粮丰收势头向好，我们要铆足劲打赢“三夏”这场硬仗，拿下全年粮食生产的主动权，为稳物价、稳预期、稳大盘筑牢坚实的基础。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 04:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 04:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 04:21 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 04:23 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 04:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 04:15 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 04:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 04:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 04:30 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 04:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 04:26 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 04:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 04:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 04:34 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 04:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 04:36 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 04:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 04:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 04:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/87295.shtml)
-- 2026-06-30 04:07 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/6863570.shtml)
-- 2026-06-30 04:36 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/02209179.shtml)
-- 2026-06-30 04:30 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/41296860622.shtml)
-- 2026-06-30 04:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/390112.shtml)
-- 2026-06-30 04:20 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/0888572.shtml)
-- 2026-06-30 04:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/91215.shtml)
-- 2026-06-30 04:26 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/9761077815.shtml)
-- 2026-06-30 04:27 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/1643787080.shtml)
-- 2026-06-30 04:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/45897716.shtml)
-- 2026-06-30 04:29 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/999499508437.shtml)
-- 2026-06-30 04:21 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/39757641907.shtml)
-- 2026-06-30 04:30 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/312792860858.shtml)
-- 2026-06-30 04:24 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/685841742285.shtml)
-- 2026-06-30 04:33 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/16369522.shtml)
+- 2026-06-30 04:23 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/6774348682.shtml)
+- 2026-06-30 04:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/921952893745.shtml)
+- 2026-06-30 04:16 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/36303.shtml)
+- 2026-06-30 04:20 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/52709123928.shtml)
+- 2026-06-30 04:20 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/8796610359.shtml)
+- 2026-06-30 04:39 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/714587244.shtml)
+- 2026-06-30 04:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/29109.shtml)
+- 2026-06-30 04:20 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/45908247.shtml)
+- 2026-06-30 04:35 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/8730759.shtml)
+- 2026-06-30 04:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/27498207748.shtml)
+- 2026-06-30 04:14 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/4032541641.shtml)
+- 2026-06-30 04:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/885990589.shtml)
+- 2026-06-30 04:12 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/501295296.shtml)
+- 2026-06-30 04:16 - [85花告别古偶](http://www.blog.minike.top/Article/details/555793099.shtml)
+- 2026-06-30 04:35 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/275781643990.shtml)

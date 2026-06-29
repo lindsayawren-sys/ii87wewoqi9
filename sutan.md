@@ -1,57 +1,57 @@
-# 美国承诺向联合国提供新的人道主义援助，并称援助须符合特朗普政府的利益
+# 特朗普称以军对黎巴嫩的袭击“不应该发生”
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。 此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。 杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担
+当地时间6月14日，美国总统特朗普在社交媒体发文称，以色列当天早些时候对黎巴嫩首都贝鲁特发动的袭击“不应该发生”。 特朗普表示，在美国与伊朗“非常接近达成和平协议”之际，相关袭击可能干扰和平进程。他称，以色列有权自卫，但此次袭击所回应的威胁“规模很小且无关紧要”，没有造成人员伤亡。 特朗普表示，美国正接近达成一项将为中东地区带来和平的协议，其中也包括黎巴嫩问题。他呼吁各方保持克
 
 ## 正文
 
-美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。
+当地时间6月14日，美国总统特朗普在社交媒体发文称，以色列当天早些时候对黎巴嫩首都贝鲁特发动的袭击“不应该发生”。
 
-此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。
+特朗普表示，在美国与伊朗“非常接近达成和平协议”之际，相关袭击可能干扰和平进程。
 
-此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。
+他称，以色列有权自卫，但此次袭击所回应的威胁“规模很小且无关紧要”，没有造成人员伤亡。
 
-杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担任负责对外援助、人道主义事务及宗教自由的副国务卿。
+特朗普表示，美国正接近达成一项将为中东地区带来和平的协议，其中也包括黎巴嫩问题。
 
-他表示，通过该机制拨付的美国援助中，92%已“高度优先”用于救生援助，且这一比例将持续保持。
+他呼吁各方保持克制。
 
-他谈及美国总统唐纳德・特朗普时称：“高度优先、聚焦重点，只投向符合我们外交政策利益、契合总统关切的地区。
+特朗普还表示，以色列不应再对黎巴嫩境内任何地点发动袭击，同时包括黎巴嫩真主党在内的其他方面也不应再对以色列发动袭击。
 
-” 卢因指出，这意味着作为联合国人道主义事务协调厅（OCHA）最大单一捐助国，美国的资金将不会流向那些与美国利益不符、且不符合OCHA优先事项的国家。
+特朗普称，这可能是“实现长期和平的开始”，并呼吁各方不要破坏这一机会。
 
-他补充称，通过OCHA提供的资金，并非美国海外人道主义援助的全部。
+(央视记者 吴汉婴)
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 04:35 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 04:28 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 04:31 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 04:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 04:11 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 04:33 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 04:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 04:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 04:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 04:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 04:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 04:26 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 04:37 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 04:22 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 04:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 04:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 04:21 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 04:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 04:19 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 04:31 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 04:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/83743.shtml)
-- 2026-06-30 04:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/29177674.shtml)
-- 2026-06-30 04:14 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/7934453.shtml)
-- 2026-06-30 04:25 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/67922840.shtml)
-- 2026-06-30 04:10 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/800542464.shtml)
-- 2026-06-30 04:25 - [啊啊啊](http://www.share.minike.top/Article/details/5999521.shtml)
-- 2026-06-30 04:35 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/4464700764.shtml)
-- 2026-06-30 04:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/90179.shtml)
-- 2026-06-30 04:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/36981401089.shtml)
-- 2026-06-30 04:19 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/857732140296.shtml)
-- 2026-06-30 04:07 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/044232.shtml)
-- 2026-06-30 04:06 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/3417195963.shtml)
-- 2026-06-30 04:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/17744.shtml)
-- 2026-06-30 04:11 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/56088.shtml)
-- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4721027.shtml)
+- 2026-06-30 04:12 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/173193.shtml)
+- 2026-06-30 04:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/0831618208.shtml)
+- 2026-06-30 04:35 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/29980189.shtml)
+- 2026-06-30 04:24 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/10682523.shtml)
+- 2026-06-30 04:31 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/885219450950.shtml)
+- 2026-06-30 04:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/76002367269.shtml)
+- 2026-06-30 04:15 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/220677.shtml)
+- 2026-06-30 04:31 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/901760166.shtml)
+- 2026-06-30 04:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/1437659325.shtml)
+- 2026-06-30 04:35 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/232393896601.shtml)
+- 2026-06-30 04:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/953647447.shtml)
+- 2026-06-30 04:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/54148.shtml)
+- 2026-06-30 04:13 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/673593.shtml)
+- 2026-06-30 04:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/83516950.shtml)
+- 2026-06-30 04:19 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/47573.shtml)

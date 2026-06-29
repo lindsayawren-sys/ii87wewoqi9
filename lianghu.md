@@ -1,61 +1,61 @@
-# 4月中国电商物流指数总体稳中微升
+# 通用汽车首席产品官：公司目前主攻乘用车自动驾驶技术
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社北京5月14日电 (记者 阮煜琳)中国物流与采购联合会14日发布数据显示，4月份中国电商物流指数为110.6点，环比回升0.3点，总体呈现稳中微升态势。 分项指数中，物流时效指数、履约率指数、满意率指数、人员指数、实载率指数环比有所回升，库存周转率指数、总业务量指数、农村业务量指数环比小幅回落，成本指数环比略有回升。 分析指出，4月份，中国电商物流指数总体呈现稳中微升态势
+通用汽车虽然关停了专门负责自动驾驶出租车业务的子公司，但并未退出这场行业竞赛。通用汽车首席产品官斯特林・安德森曾担任特斯拉自动辅助驾驶项目负责人。 他在接受采访时表示，公司目前主攻乘用车自动驾驶技术，未来这套技术也可应用于无人驾驶网约车服务。安德森介绍，通用汽车的研发思路是拆解驾驶场景，针对车主实际用车需求，分场景落地自动驾驶功能。 团队计划先攻克长距离高速路段的自动驾驶，之后
 
 ## 正文
 
-中新社北京5月14日电 (记者 阮煜琳)中国物流与采购联合会14日发布数据显示，4月份中国电商物流指数为110.6点，环比回升0.3点，总体呈现稳中微升态势。
+通用汽车虽然关停了专门负责自动驾驶出租车业务的子公司，但并未退出这场行业竞赛。
 
-分项指数中，物流时效指数、履约率指数、满意率指数、人员指数、实载率指数环比有所回升，库存周转率指数、总业务量指数、农村业务量指数环比小幅回落，成本指数环比略有回升。
+通用汽车首席产品官斯特林・安德森曾担任特斯拉自动辅助驾驶项目负责人。
 
-分析指出，4月份，中国电商物流指数总体呈现稳中微升态势。
+他在接受采访时表示，公司目前主攻乘用车自动驾驶技术，未来这套技术也可应用于无人驾驶网约车服务。
 
-总业务量指数和农村业务量指数环比虽有小幅回落，但属于节前正常波动，整体仍保持较高增长，电商物流总业务量和农村业务量同比分别增长约20%和25%。
+安德森介绍，通用汽车的研发思路是拆解驾驶场景，针对车主实际用车需求，分场景落地自动驾驶功能。
 
-当月，电商消费市场呈现换季、出游、“五一”预热等特征。
+团队计划先攻克长距离高速路段的自动驾驶，之后再逐步拓展至主干道及城市核心区域。
 
-换季服饰、户外运动装备等品类需求稳定增长。
+这位高管称，假以时日，通用的自动驾驶系统将可在足够多区域稳定运行，届时推出具备商业可行性的自动驾驶出租车服务也水到渠成。
 
-旅游踏青相关商品如旅行箱包、防晒用品、便携数码设备、户外炊具等搜索和成交保持活跃。
+“最终，乘用车自动驾驶和自动驾驶出租车的运行场景会完全重合。
 
-消费品以旧换新政策持续发力，智能家电等升级类商品在县域市场表现亮眼。
+” 他说道，“到那时，我们自然也可以把这套技术应用在自动驾驶出租车上。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 04:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 04:33 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 04:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 04:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 04:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 04:24 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 04:27 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 04:31 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 04:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 04:26 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 04:08 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 04:35 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 04:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 04:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 04:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 04:31 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 04:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 04:35 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 04:25 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 04:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:14 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 04:41 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 04:24 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 04:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 04:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 04:35 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 04:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 04:27 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/832079831911.shtml)
-- 2026-06-30 04:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/355664.shtml)
-- 2026-06-30 04:32 - [我和我的家乡](http://www.blog.minike.top/Article/details/38182282817.shtml)
-- 2026-06-30 04:15 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/71040.shtml)
-- 2026-06-30 04:20 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/1111658.shtml)
-- 2026-06-30 04:33 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5725302.shtml)
-- 2026-06-30 04:19 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/78686.shtml)
-- 2026-06-30 04:25 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/890851554.shtml)
-- 2026-06-30 04:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/38269748162.shtml)
-- 2026-06-30 04:14 - [世界杯](https://www.share.minike.top/Article/details/992896120.shtml)
-- 2026-06-30 04:06 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/806770.shtml)
-- 2026-06-30 04:14 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/55412.shtml)
-- 2026-06-30 04:25 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/2561370675.shtml)
-- 2026-06-30 04:33 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/0686503841.shtml)
-- 2026-06-30 04:20 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/4494061.shtml)
+- 2026-06-30 04:34 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/341384.shtml)
+- 2026-06-30 04:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/4397226247.shtml)
+- 2026-06-30 04:39 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/93145792644.shtml)
+- 2026-06-30 04:12 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/01891550301.shtml)
+- 2026-06-30 04:27 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/510946602757.shtml)
+- 2026-06-30 04:18 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/3080546055.shtml)
+- 2026-06-30 04:16 - [一见倾心](http://www.share.kurohicncr.top/Article/details/415276.shtml)
+- 2026-06-30 04:14 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/074322.shtml)
+- 2026-06-30 04:26 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/2188244.shtml)
+- 2026-06-30 04:16 - [时光音乐会](https://www.share.minike.top/Article/details/1130297389.shtml)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/7358318141.shtml)
+- 2026-06-30 04:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/31040.shtml)
+- 2026-06-30 04:23 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/65739.shtml)
+- 2026-06-30 04:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/573982.shtml)
+- 2026-06-30 04:31 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/84272093647.shtml)

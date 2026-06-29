@@ -1,58 +1,57 @@
-# 宋海涛：中国AI正从“追赶”走向“并跑” 具身智能商业化迈入“最后一公里”
+# 中国公安部通报电诈最新形势 刷单返利诈骗发案最高
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网上海5月15日电 (记者 李佳佳)上海交通大学、上海人工智能研究院院长，联合国人工智能独立国际科学小组成员宋海涛近日在沪出席中欧国际工商学院金融MBA15周年系列F-Dialogue活动“聚力AI，洞见商业新机遇”时表示，当前具身智能行业正处于“打通从数据到整个环境的‘最后一公里’”的关键节点。 在谈到中国AI产业发展时，宋海涛称，虽然当前与国际领先技术仍有差距，但近三年
+中新社北京6月12日电 (记者 李京泽)中国公安部刑事侦查局副局长朱磊12日在北京表示，2025年10月以来，中国电诈案件发案已连续8个月实现同比下降。同时，他介绍了当前最高发的10类诈骗类型，其中刷单返利诈骗发案最高，占所有电诈案件的25%。中国公安部12日召开新闻发布会，朱磊在发布会上表示，从诈骗手法来看，当前最高发的诈骗类型有10类，分别是：刷单返利、虚假购物服务、虚假网
 
 ## 正文
 
-中新网上海5月15日电 (记者 李佳佳)上海交通大学、上海人工智能研究院院长，联合国人工智能独立国际科学小组成员宋海涛近日在沪出席中欧国际工商学院金融MBA15周年系列F-Dialogue活动“聚力AI，洞见商业新机遇”时表示，当前具身智能行业正处于“打通从数据到整个环境的‘最后一公里’”的关键节点。
+中新社北京6月12日电 (记者 李京泽)中国公安部刑事侦查局副局长朱磊12日在北京表示，2025年10月以来，中国电诈案件发案已连续8个月实现同比下降。
 
-在谈到中国AI产业发展时，宋海涛称，虽然当前与国际领先技术仍有差距，但近三年国内模型能力提升斜率已比美国高出23个百分点，差距正加速缩小。
+同时，他介绍了当前最高发的10类诈骗类型，其中刷单返利诈骗发案最高，占所有电诈案件的25%。
 
-当天，宋海涛带来《人工智能发展与全球治理》的主旨演讲。
+中国公安部12日召开新闻发布会，朱磊在发布会上表示，从诈骗手法来看，当前最高发的诈骗类型有10类，分别是：刷单返利、虚假购物服务、虚假网络投资理财、冒充电商物流客服、贷款征信、网络游戏虚假交易、网络婚恋交友、冒充公检法、冒充领导熟人和机票退改签诈骗，占全部电诈案件的85%。
 
-他从人工智能发展历程、新质生产力、上海探索与全球治理四个维度展开分享，系统梳理了人类从农耕文明、工业经济迈向数字经济的科技演进脉络，指出科技创新已成为国家兴衰与全球竞争的关键变量。
+朱磊指出，其中，刷单返利诈骗发案最高，占所有电诈案件的25%；虚假网络投资理财诈骗损失最高，约占全部电诈案件损失的40%，损失百万元(人民币，下同)、千万元以上的案件大多是这种类型。
 
-宋海涛结合全球视野与前沿实践，深入剖析人工智能跨学科、跨领域的融合特性，阐述AI如何从技术走向产业、赋能新质生产力发展。
+朱磊还指出，当前电信网络诈骗出现一些新特点和新手法：一是犯罪分子主要通过网络平台寻找作案目标；二是犯罪分子大量使用小众通联软件对被害人进行深度洗脑；三是犯罪分子使用专门诈骗App实施远程盗刷；四是犯罪分子大量利用现金或者黄金等贵重物品获取、转移涉诈资金。
 
-他同时强调，在全球高度关注人工智能的背景下，构建开放、协同、安全、负责任的全球AI治理体系至关重要，为人工智能规范发展、国际合作与产业落地提供了深刻洞察与方向指引。
-
-宋海涛指出，科技创新正深刻改写全球经济版图。
-
-“过去的1800年，全球经济增长约六倍；而在近200年，有效人口增长不到十倍，全球经济却发生了接近两百倍的增长，这里面最大的变量就是科技乘数。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 04:17 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 04:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 04:14 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 04:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 04:13 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 04:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 04:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 04:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 04:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 04:06 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 04:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 04:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 04:28 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 04:22 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 04:35 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 04:28 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 04:22 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 04:36 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 04:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 04:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 04:19 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 04:39 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 04:23 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 04:41 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [巴西vs日本](https://www.blog.minike.top/Article/details/7017888.shtml)
-- 2026-06-30 04:23 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/3990179.shtml)
-- 2026-06-30 04:15 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/72936579238.shtml)
-- 2026-06-30 04:34 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/209915.shtml)
-- 2026-06-30 04:12 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/4967016587.shtml)
-- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8500717.shtml)
-- 2026-06-30 04:08 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/46184978.shtml)
-- 2026-06-30 04:26 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/3879946.shtml)
-- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/4242022.shtml)
-- 2026-06-30 04:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/39483728198.shtml)
-- 2026-06-30 04:23 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/137563.shtml)
-- 2026-06-30 04:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/14722350633.shtml)
-- 2026-06-30 04:22 - [爱很美味](https://www.share.minike.top/Article/details/869273115.shtml)
-- 2026-06-30 04:10 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/668459183.shtml)
-- 2026-06-30 04:35 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/132650.shtml)
+- 2026-06-30 04:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/17950525405.shtml)
+- 2026-06-30 04:26 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/37462301979.shtml)
+- 2026-06-30 04:12 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2797805995.shtml)
+- 2026-06-30 04:22 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/5739468096.shtml)
+- 2026-06-30 04:30 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/646139.shtml)
+- 2026-06-30 04:20 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/88908.shtml)
+- 2026-06-30 04:35 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/85121.shtml)
+- 2026-06-30 04:23 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/0446621338.shtml)
+- 2026-06-30 04:22 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/31271.shtml)
+- 2026-06-30 04:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/520450.shtml)
+- 2026-06-30 04:22 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/982347950717.shtml)
+- 2026-06-30 04:37 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/121414.shtml)
+- 2026-06-30 04:12 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/86326524.shtml)
+- 2026-06-30 04:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/416695.shtml)
+- 2026-06-30 04:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/15382.shtml)

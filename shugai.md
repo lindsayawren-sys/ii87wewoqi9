@@ -1,56 +1,48 @@
-# Chemomab一季度每股收益为零 核心管线取得新进展
+# 致8人死亡2人失踪 辽绥渔35261船重大倾覆事故调查报告公布
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-财务表现：亏损收窄，现金储备充足 Chemomab Therapeutics近日公布2026年第一季度财务报告。数据显示，公司一季度净亏损180万美元，合每股基本及稀释后普通股亏损不足0.01美元，GAAP口径下每股收益为零，较上年同期330万美元的净亏损显著收窄。 截至2026年3月31日，公司现金、现金等价物及短期银行存款为800万美元，较2025年底的1040万美元有所下
+辽宁省应急管理厅公布辽宁葫芦岛辽绥渔35261船“10·18”重大倾覆事故调查报告：事故造成8人死亡、2人失踪。(央视新闻客户端)
 
 ## 正文
 
-财务表现：亏损收窄，现金储备充足 Chemomab Therapeutics近日公布2026年第一季度财务报告。
+辽宁省应急管理厅公布辽宁葫芦岛辽绥渔35261船“10·18”重大倾覆事故调查报告：事故造成8人死亡、2人失踪。
 
-数据显示，公司一季度净亏损180万美元，合每股基本及稀释后普通股亏损不足0.01美元，GAAP口径下每股收益为零，较上年同期330万美元的净亏损显著收窄。
-
-截至2026年3月31日，公司现金、现金等价物及短期银行存款为800万美元，较2025年底的1040万美元有所下降。
-
-公司预计现有资金可支撑运营至2027年第一季度末。
-
-费用方面，研发费用为90万美元，较上年同期的250万美元大幅下降，主要因Phase 2 SPRING试验相关活动逐步收尾；一般及行政费用为90万美元，与上年同期的100万美元基本持平。
-
-核心管线：Nebokitug展现疾病修饰潜力 公司首席执行官Adi Mor博士表示，第一季度公司与潜在战略合作伙伴持续开展富有成效的讨论，同时发布了新的数据分析，进一步深化了对核心候选药物Nebokitug及其CCL24靶点治疗潜力的理解。
-
-在近期消化疾病周及EASL大会上，公司公布了基于Phase 2 SPRING试验患者数据的新分析。
-
-研究表明，Nebokitug可干扰与原发性硬化性胆管炎疾病进展相关的多种过程和通路。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 04:08 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 04:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 04:31 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 04:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:28 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 04:15 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 04:13 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 04:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 04:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 04:26 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 04:31 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:34 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 04:21 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 04:39 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 04:16 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:15 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 04:22 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 04:33 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 04:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 04:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 04:16 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 04:33 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 04:17 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:22 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/6803188301.shtml)
-- 2026-06-30 04:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/0603556.shtml)
-- 2026-06-30 04:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/035534346.shtml)
-- 2026-06-30 04:26 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/10570278943.shtml)
-- 2026-06-30 04:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/854809.shtml)
-- 2026-06-30 04:17 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/970029612541.shtml)
-- 2026-06-30 04:11 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/2639944930.shtml)
-- 2026-06-30 04:24 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/37243814.shtml)
-- 2026-06-30 04:14 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/75570143038.shtml)
-- 2026-06-30 04:14 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/089427483.shtml)
-- 2026-06-30 04:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/01009540.shtml)
-- 2026-06-30 04:13 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/367353.shtml)
-- 2026-06-30 04:16 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/098405252.shtml)
-- 2026-06-30 04:30 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/4185760626.shtml)
-- 2026-06-30 04:33 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/61130.shtml)
+- 2026-06-30 04:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/123563029.shtml)
+- 2026-06-30 04:37 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/4561857313.shtml)
+- 2026-06-30 04:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/7143291.shtml)
+- 2026-06-30 04:31 - [张凌赫 客串](https://www.blog.minike.top/Article/details/8434455.shtml)
+- 2026-06-30 04:34 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/2296538312.shtml)
+- 2026-06-30 04:38 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/8449496668.shtml)
+- 2026-06-30 04:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9022504823.shtml)
+- 2026-06-30 04:29 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/2238042.shtml)
+- 2026-06-30 04:15 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/579278743.shtml)
+- 2026-06-30 04:29 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/7847883.shtml)
+- 2026-06-30 04:32 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/20623174.shtml)
+- 2026-06-30 04:37 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/878053192.shtml)
+- 2026-06-30 04:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/15681.shtml)
+- 2026-06-30 04:14 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/6694532.shtml)
+- 2026-06-30 04:21 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/10698598886.shtml)

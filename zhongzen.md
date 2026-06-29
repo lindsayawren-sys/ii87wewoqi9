@@ -1,60 +1,59 @@
-# 马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？
+# A股三大指数集体上涨，贵金属涨幅居前
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-文 | 《硅谷观察》栏目 郑峻 据外媒报道，埃隆·马斯克（Elon Musk）起诉OpenAI案进入结案陈词阶段。 马斯克的首席律师史蒂文·莫洛（Steven Molo）在庭审中表示，“这是一件他非常投入、非常在意的事情。”莫洛对陪审团保证，借此说明马斯克虽然未能出庭，但仍高度关注本案进展。 这是一场备受关注的AI世纪审判，就在今天，这场审判结束了第一回合——庭审听证。在过去的
+中新经纬6月12日电 6月12日，A股三大指数集体上涨。截至午间收盘，上证指数报4049.29点，涨幅1.56%；深证成指报15103.14点，涨幅1.69%；创业板指报3859.75点，涨幅1.27%；科创综指报2055.52点，涨幅1.04%；科创50报1681.58点，涨幅1.15%；北证50报1269.99点，涨幅1.41%。全市场共有4534只个股上涨，929只下跌。
 
 ## 正文
 
-文 | 《硅谷观察》栏目 郑峻 据外媒报道，埃隆·马斯克（Elon Musk）起诉OpenAI案进入结案陈词阶段。
+中新经纬6月12日电 6月12日，A股三大指数集体上涨。
 
-马斯克的首席律师史蒂文·莫洛（Steven Molo）在庭审中表示，“这是一件他非常投入、非常在意的事情。
+截至午间收盘，上证指数报4049.29点，涨幅1.56%；深证成指报15103.14点，涨幅1.69%；创业板指报3859.75点，涨幅1.27%；科创综指报2055.52点，涨幅1.04%；科创50报1681.58点，涨幅1.15%；北证50报1269.99点，涨幅1.41%。
 
-”莫洛对陪审团保证，借此说明马斯克虽然未能出庭，但仍高度关注本案进展。
+全市场共有4534只个股上涨，929只下跌。
 
-这是一场备受关注的AI世纪审判，就在今天，这场审判结束了第一回合——庭审听证。
+个股方面，新威凌上涨29.95%、通易航天上涨22.14%、赢时胜上涨20.00%，涨幅居前；金戈新材下跌15.98%、华特气体下跌14.75%、佳创视讯下跌14.59%，跌幅居前。
 
-在过去的三周时间，全球首富马斯克、OpenAI总裁格雷格·布罗克曼（Greg Brockman）、前首席科学家伊利亚·苏茨克维（Ilya Sutskever）、OpenAI CEO山姆·奥特曼（Sam Altman）以及微软CEO纳德拉（Satya Nadella）等AI行业的重磅人物依次出庭作证。
+板块方面，贵金属板块上涨7.46%，金属锌板块上涨6.94%，工业金属板块上涨6.62%，涨幅居前；电子化学品板块下跌2.75%，非金属材料板块下跌1.16%，光刻胶板块下跌0.68%，跌幅居前。
 
-十多名关键证人，每一位都带来了爆炸性的证词，每一份内部文件都在改写这场战争的历史注脚。
+涨停个股包括洛阳钼业(涨幅10.02%)、江西铜业(涨幅9.99%)、金钼股份(涨幅10.00%)；跌停个股包括风华高科(跌幅9.75%)、XD昊华科(跌幅10.00%)、大有能源(跌幅9.94%)。
 
-而从下周开始，九人组成的陪审团将开始评议，给出建议裁定。
+换手率方面，金戈新材换手率为46.50%，C高特电子为36.01%，凡拓数创为35.61%，翔鹭钨业为33.73%，达实智能为29.55%，位居前列。
 
-无论结果如何，审判已经完成了它的使命：把OpenAI的权力内幕赤裸裸地摆在了全世界面前。
+巨丰投顾分析认为，随着一系列逆周期调节政策的实施，A股市场脱离底部并进入牛市阶段，但连续上行后，短线面临高位兑现的压力。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 04:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 04:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 04:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 04:23 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 04:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 04:15 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:06 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:18 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 04:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 04:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 04:27 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 04:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 04:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 04:37 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 04:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 04:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 04:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 04:22 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 04:23 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 04:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 04:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 04:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 04:12 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 04:26 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 04:24 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 04:28 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [恋与深空 巧合](http://www.share.minike.top/Article/details/1090226275.shtml)
-- 2026-06-30 04:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/5286718041.shtml)
-- 2026-06-30 04:35 - [斛珠夫人](https://www.share.minike.top/Article/details/890680.shtml)
-- 2026-06-30 04:33 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/835758.shtml)
-- 2026-06-30 04:20 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/59365130.shtml)
-- 2026-06-30 04:20 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/70779317593.shtml)
-- 2026-06-30 04:34 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/243720758.shtml)
-- 2026-06-30 04:27 - [毒液2](http://www.share.minike.top/Article/details/35624595286.shtml)
-- 2026-06-30 04:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/0093759291.shtml)
-- 2026-06-30 04:08 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/61377506.shtml)
-- 2026-06-30 04:12 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/796479361909.shtml)
-- 2026-06-30 04:20 - [啊啊啊](http://www.share.minike.top/Article/details/13552.shtml)
-- 2026-06-30 04:10 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/398948777186.shtml)
-- 2026-06-30 04:27 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/05410800.shtml)
-- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/80635189.shtml)
+- 2026-06-30 04:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/04421.shtml)
+- 2026-06-30 04:35 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/789011.shtml)
+- 2026-06-30 04:13 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/043434.shtml)
+- 2026-06-30 04:17 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/2630520732.shtml)
+- 2026-06-30 04:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/80864.shtml)
+- 2026-06-30 04:25 - [逃狱兄弟](https://www.share.minike.top/Article/details/5346177264.shtml)
+- 2026-06-30 04:39 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/54572615.shtml)
+- 2026-06-30 04:19 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/95424.shtml)
+- 2026-06-30 04:20 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/46834.shtml)
+- 2026-06-30 04:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/468736129.shtml)
+- 2026-06-30 04:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/30177266.shtml)
+- 2026-06-30 04:41 - [金牌调解](http://www.share.minike.top/Article/details/7871104.shtml)
+- 2026-06-30 04:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/50389133813.shtml)
+- 2026-06-30 04:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/7764860708.shtml)
+- 2026-06-30 04:12 - [美人鱼](https://www.share.kurohicncr.top/Article/details/255428.shtml)

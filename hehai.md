@@ -1,57 +1,59 @@
-# FBI悬赏136万元追捕47岁美国前女特工：曾接受波斯语训练，掌握大量机密，13年前叛逃伊朗，泄露美国防信息！
+# 柬埔寨木薯淀粉首经西部陆海新通道海铁联运抵渝——缩短周转时间压缩物流成本
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-综合国是直通车、红星新闻5月16日报道，美国联邦调查局（FBI）悬赏20万美元（约合人民币136万元），征集能够逮捕美国空军前特工兼反情报专家莫妮卡·维特（Monica Witt）的线索。 现年47岁的维特于2019年被控犯有间谍罪，罪名是向伊朗泄露高度机密的美国情报。FBI认为，维特目前仍身处伊朗。 美国联邦调查局5月14日发表声明称，他们仍在努力寻找维特。据称维特于2013
+6月2日，600吨柬埔寨木薯淀粉首次通过西部陆海新通道海铁联运模式，运抵重庆国际铁路港综合保税区。 木薯淀粉常用于食品加工与轻工产业，国内市场需求旺盛。柬埔寨是全球优质木薯主产国之一，得益于常年高温多雨、土壤肥沃的热带种植环境，其木薯原料淀粉含量高、出粉率高。此前，柬埔寨木薯淀粉多通过传统海运输往我国沿海口岸。本批货物由柬埔寨起运，海运至钦州港办理转关后，经铁路直达重庆团结村。
 
 ## 正文
 
-综合国是直通车、红星新闻5月16日报道，美国联邦调查局（FBI）悬赏20万美元（约合人民币136万元），征集能够逮捕美国空军前特工兼反情报专家莫妮卡·维特（Monica Witt）的线索。
+6月2日，600吨柬埔寨木薯淀粉首次通过西部陆海新通道海铁联运模式，运抵重庆国际铁路港综合保税区。
 
-现年47岁的维特于2019年被控犯有间谍罪，罪名是向伊朗泄露高度机密的美国情报。
+木薯淀粉常用于食品加工与轻工产业，国内市场需求旺盛。
 
-FBI认为，维特目前仍身处伊朗。
+柬埔寨是全球优质木薯主产国之一，得益于常年高温多雨、土壤肥沃的热带种植环境，其木薯原料淀粉含量高、出粉率高。
 
-美国联邦调查局5月14日发表声明称，他们仍在努力寻找维特。
+此前，柬埔寨木薯淀粉多通过传统海运输往我国沿海口岸。
 
-据称维特于2013年叛逃至伊朗，目前尚不清楚联邦调查局为何在此时关注维特案件。
+本批货物由柬埔寨起运，海运至钦州港办理转关后，经铁路直达重庆团结村。
 
-FBI华盛顿外勤办公室反情报与网络部门负责人丹尼尔·维尔兹比茨基表示：“维特在十多年前叛逃伊朗并提供国防情报，背叛了她对美国宪法的誓言，且很可能在继续支持伊朗。
+“依托重庆东盟木薯淀粉西南集散中心区位优势，西部陆海新通道打通了柬埔寨至我国西南内陆直达物流链路，相较传统全水路运输，缩短了周转时间、压缩了综合物流成本。
 
-” “联邦调查局没有忘记，并且相信在伊朗历史的这个关键时刻，肯定有人知道她的下落，”丹尼尔·维尔兹比茨基说，“联邦调查局希望得到您的帮助，以便您能协助我们抓捕维特，并将她绳之以法。
+”陆港枢纽(重庆)经贸有限公司有关负责人表示， 为保障该批木薯淀粉高效通关，重庆海关所属渝州海关提前对接企业，在货物运抵后第一时间完成转关放行和现场查验等工作。
 
-” 美国空军前反情报专家维特 据报道，维特是得克萨斯州人，曾于1997年至2008年间在美国空军服役，她曾接受波斯语培训，并作为美国空军特别调查局（AFOSI）的特工被派往海外执行机密反情报任务。
+下一步，重庆海关将持续优化通关服务，支持更多东盟特色产品通过西部陆海新通道高效进口，进一步提升通道运行效能与产业保障能力。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 04:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 04:29 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 04:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 04:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 04:08 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 04:16 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 04:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 04:26 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 04:18 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 04:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 04:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 04:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:32 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 04:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 04:24 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 04:37 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 04:20 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 04:17 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 04:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 04:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 04:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 04:23 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/7850404180.shtml)
-- 2026-06-30 04:30 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/51934.shtml)
-- 2026-06-30 04:18 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/117653904.shtml)
-- 2026-06-30 04:15 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/11381091509.shtml)
-- 2026-06-30 04:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/0834852.shtml)
-- 2026-06-30 04:14 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/300829656156.shtml)
-- 2026-06-30 04:34 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/639418565.shtml)
-- 2026-06-30 04:26 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/076606541.shtml)
-- 2026-06-30 04:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/949444.shtml)
-- 2026-06-30 04:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/04439451.shtml)
-- 2026-06-30 04:10 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/98383557838.shtml)
-- 2026-06-30 04:25 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/35488031.shtml)
-- 2026-06-30 04:34 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/48680627143.shtml)
-- 2026-06-30 04:22 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/984610.shtml)
-- 2026-06-30 04:29 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/09954520.shtml)
+- 2026-06-30 04:23 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/56263371802.shtml)
+- 2026-06-30 04:36 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/6200485.shtml)
+- 2026-06-30 04:30 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/11561852.shtml)
+- 2026-06-30 04:13 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/76390982.shtml)
+- 2026-06-30 04:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/06166010.shtml)
+- 2026-06-30 04:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/11559.shtml)
+- 2026-06-30 04:15 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/8315521601.shtml)
+- 2026-06-30 04:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/124997192.shtml)
+- 2026-06-30 04:32 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/3008789290.shtml)
+- 2026-06-30 04:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/4527606.shtml)
+- 2026-06-30 04:42 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/470644.shtml)
+- 2026-06-30 04:31 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/53877732939.shtml)
+- 2026-06-30 04:15 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/670808828.shtml)
+- 2026-06-30 04:38 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/66784831053.shtml)
+- 2026-06-30 04:31 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/521470741.shtml)

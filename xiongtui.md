@@ -1,58 +1,59 @@
-# Nu Holdings营收突破50亿美元，但季度利润率承压
+# 2026年文化和自然遗产日四川主会场活动在乐山启动 赋能巴蜀文化遗产保护利用
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。按中性汇率计算，净利润为8.71亿美元，同比增长41%。年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。 毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。经风险调整后的净息差（NIM）从第四季度的
+中新网乐山6月13日电(记者 刘忠俊)6月13日，2026年文化和自然遗产日四川主会场活动在乐山峨眉山市启动。四川省、市(州)文物、林草部门负责人，省内外世界遗产地、文博单位及专家学者代表齐聚，共商遗产保护活化利用路径。 2026年恰逢峨眉山—乐山大佛列入《世界遗产名录》30周年，此次活动以“传承巴蜀双遗文脉 守护文化自然瑰宝”为主题，集中展示四川文化和自然遗产保护利用工作成效
 
 ## 正文
 
-Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。
+中新网乐山6月13日电(记者 刘忠俊)6月13日，2026年文化和自然遗产日四川主会场活动在乐山峨眉山市启动。
 
-按中性汇率计算，净利润为8.71亿美元，同比增长41%。
+四川省、市(州)文物、林草部门负责人，省内外世界遗产地、文博单位及专家学者代表齐聚，共商遗产保护活化利用路径。
 
-年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。
+2026年恰逢峨眉山—乐山大佛列入《世界遗产名录》30周年，此次活动以“传承巴蜀双遗文脉 守护文化自然瑰宝”为主题，集中展示四川文化和自然遗产保护利用工作成效。
 
-毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。
+四川地处长江、黄河上游生态核心区，是全球生物多样性重点保护区域，世界遗产资源禀赋优异。
 
-经风险调整后的净息差（NIM）从第四季度的10.5%下降100个基点至9.5%。
+目前四川拥有九寨沟、黄龙、四川大熊猫栖息地3处世界自然遗产，峨眉山—乐山大佛1处世界文化与自然双重遗产，遗产总面积超1.6万平方公里；甘孜州海子山—皮洛遗址世界文化与自然双重遗产申报筹备工作也已提上议事日程。
 
-早期逾期率（15至90天不良贷款率）上升89个基点至5.0%，与2024年第一季度和2025年第一季度观察到的季节性模式一致。
+近年来，四川锚定长江、黄河上游生态屏障建设核心任务，扎实推进文化遗产保护各项工作，多项工作走在全国前列。
 
-总信贷组合同比增长40%至372亿美元。
+四川出台全国首部省级世界遗产保护条例，并完成三轮修订完善，厘清文物、林草及属地各级部门管理权责；乐山、阿坝等地出台市(州)级配套法规，落实“一区一法”精细化管控。
 
-成本收入比从第四季度的19.9%改善至17.6%。
+管护机制持续完善，四川设立省级世界遗产保护中心，搭建专业专家智库、完善行业管护标准与遗产矢量数据库，严守生态保护底线，常态化开展遗产影响评估与生态修复工作，统筹实现遗产保护、重大项目建设与区域经济协同发展。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 04:35 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 04:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 04:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 04:21 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 04:14 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 04:15 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 04:30 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 04:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 04:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 04:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 04:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 04:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 04:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 04:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 04:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:14 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 04:29 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 04:23 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 04:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 04:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 04:20 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 04:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 04:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/7473136008.shtml)
-- 2026-06-30 04:22 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/6311844.shtml)
-- 2026-06-30 04:33 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/47080.shtml)
-- 2026-06-30 04:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/7083885261.shtml)
-- 2026-06-30 04:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/67006.shtml)
-- 2026-06-30 04:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/23893980442.shtml)
-- 2026-06-30 04:24 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/85717606439.shtml)
-- 2026-06-30 04:34 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/48158911.shtml)
-- 2026-06-30 04:07 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/3787185.shtml)
-- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/58892467.shtml)
-- 2026-06-30 04:35 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/1867247.shtml)
-- 2026-06-30 04:06 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/618523887390.shtml)
-- 2026-06-30 04:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/478830.shtml)
-- 2026-06-30 04:19 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/60948015547.shtml)
-- 2026-06-30 04:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/016312.shtml)
+- 2026-06-30 04:21 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/85481391863.shtml)
+- 2026-06-30 04:24 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/1021809.shtml)
+- 2026-06-30 04:40 - [我们的少年时代2](https://www.share.minike.top/Article/details/9890374285.shtml)
+- 2026-06-30 04:27 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/37016.shtml)
+- 2026-06-30 04:18 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/0008042022.shtml)
+- 2026-06-30 04:39 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/0436309.shtml)
+- 2026-06-30 04:40 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/342951778347.shtml)
+- 2026-06-30 04:41 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/07492018.shtml)
+- 2026-06-30 04:35 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/0928720.shtml)
+- 2026-06-30 04:16 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/520238.shtml)
+- 2026-06-30 04:39 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/08505910091.shtml)
+- 2026-06-30 04:13 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/89490959.shtml)
+- 2026-06-30 04:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/34261.shtml)
+- 2026-06-30 04:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/7148959.shtml)
+- 2026-06-30 04:22 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/00832627.shtml)

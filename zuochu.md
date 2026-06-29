@@ -1,60 +1,57 @@
-# 欢迎宴会企业家座位曝光：马斯克、黄仁勋与海信集团贾少谦、福耀玻璃曹晖等同桌吃饭
+# 特斯拉前董事：SpaceX必须完成三大宏伟愿景中至少两项，才能支撑当前估值
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：外部风险定价钝化 市场主线将回归基本面 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月14日晚，据央视新闻视频，美国总统特朗普的欢迎宴会上，有多名中国企业家亮相。 经记者辨认，晚宴上与特斯拉CEO马斯克、英伟达CEO黄仁勋、苹果CEO库克同桌的中国企业家有海信集团董事长贾少谦、蓝思科技董事长周群飞、万向集团董事长鲁伟鼎以及福耀玻璃董事长曹晖。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 核心要点 特斯拉前董事周五在 CNBC 采访中表示，埃隆・马斯克旗下的 SpaceX 至少要落地三大宏大愿景中的两项，其超高估值才能站得住脚。 美国证券交易委员会申报文件显示，这家主营可回收火箭的企业计划发行 5.556 亿股股票，发行价每股 135 美元，合计募资 7500 亿美元，对应企业总估值 1.7
 
 ## 正文
 
-专题：外部风险定价钝化 市场主线将回归基本面 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 核心要点 特斯拉前董事周五在 CNBC 采访中表示，埃隆・马斯克旗下的 SpaceX 至少要落地三大宏大愿景中的两项，其超高估值才能站得住脚。
 
-5月14日晚，据央视新闻视频，美国总统特朗普的欢迎宴会上，有多名中国企业家亮相。
+美国证券交易委员会申报文件显示，这家主营可回收火箭的企业计划发行 5.556 亿股股票，发行价每股 135 美元，合计募资 7500 亿美元，对应企业总估值 1.77 万亿美元，位列全美企业市值第七位，估值超过特斯拉。
 
-经记者辨认，晚宴上与特斯拉CEO马斯克、英伟达CEO黄仁勋、苹果CEO库克同桌的中国企业家有海信集团董事长贾少谦、蓝思科技董事长周群飞、万向集团董事长鲁伟鼎以及福耀玻璃董事长曹晖。
+风险投资家、特斯拉前董事史蒂夫・韦斯特利周五做客 CNBC《欧洲财经论坛》栏目时表示，即将到来的 SpaceX IPO 股价很难预判，因为公司旗下三大核心业务赛道 “彼此完全独立、差异巨大”。
 
-国航董事长刘铁祥和中国商飞董事长贺东风出席5月14日晚的美国总统特朗普欢迎晚宴。
+除航天发射业务外，SpaceX 旗下还有星链卫星互联网业务 —— 这是公司营收主力，也是目前唯一实现盈利的板块；另外，马斯克在今年 2 月将 xAI 人工智能公司并入了 SpaceX 体系。
 
-与他们一起出席晚宴坐在同一桌的还有随特朗普访华的波音公司总裁兼CEO凯利·奥特伯格（Kelly Ortberg），以及GE航空航天董事长兼CEO拉里·卡尔普（Larry Culp）。
+韦斯特利同时是风投机构韦斯特利集团创始人，他表示：“一家公司同时承载三大近乎不可能完成的宏伟目标，但在我看来，想要稳住近 2 万亿美元的估值，它至少要把其中两项做成。
 
-上一次波音获得中国的飞机采购大单，还是在2017年特朗普访华时。
+” 本次 IPO 已创下全球募资规模最高的上市纪录。
 
-中国商飞此前与波音合资成立舟山波音完工中心，负责737MAX飞机的内饰安装、喷涂和交付。
+市场还在持续猜测马斯克未来或将把特斯拉并入 SpaceX，届时集团旗下业务版图还会进一步扩张。
 
-宴会上，小米董事长兼CEO雷军主动用小米手机与马斯克自拍合影。
+CNBC 五月援引知情人士消息报道，特斯拉与 SpaceX 目前已有大量共享资源，马斯克也曾和团队探讨过两家企业合并的可行性。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 04:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 04:35 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 04:19 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 04:21 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 04:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 04:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 04:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 04:15 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 04:30 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 04:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 04:13 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 04:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:32 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 04:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 04:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 04:40 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 04:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 04:25 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 04:15 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 04:27 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 04:16 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 04:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 04:36 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/179214437364.shtml)
-- 2026-06-30 04:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/31216.shtml)
-- 2026-06-30 04:24 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/426687.shtml)
-- 2026-06-30 04:28 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/865215.shtml)
-- 2026-06-30 04:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/515622.shtml)
-- 2026-06-30 04:30 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/935085.shtml)
-- 2026-06-30 04:30 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/239499.shtml)
-- 2026-06-30 04:24 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/16040.shtml)
-- 2026-06-30 04:07 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/7121905.shtml)
-- 2026-06-30 04:27 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/031557.shtml)
-- 2026-06-30 04:22 - [金刚川](https://www.blog.minike.top/Article/details/467972607.shtml)
-- 2026-06-30 04:26 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/25771245206.shtml)
-- 2026-06-30 04:27 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/41411.shtml)
-- 2026-06-30 04:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/63747481.shtml)
-- 2026-06-30 04:25 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/037673321.shtml)
+- 2026-06-30 04:14 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/8459522.shtml)
+- 2026-06-30 04:26 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/62495959.shtml)
+- 2026-06-30 04:28 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/25658133.shtml)
+- 2026-06-30 04:40 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/0179720596.shtml)
+- 2026-06-30 04:19 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/3338519055.shtml)
+- 2026-06-30 04:24 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/74942417.shtml)
+- 2026-06-30 04:32 - [请回答王牌2019](https://www.share.minike.top/Article/details/45036951144.shtml)
+- 2026-06-30 04:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/71072.shtml)
+- 2026-06-30 04:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/182246.shtml)
+- 2026-06-30 04:30 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/429273796632.shtml)
+- 2026-06-30 04:19 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/4687591541.shtml)
+- 2026-06-30 04:15 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/59559195778.shtml)
+- 2026-06-30 04:19 - [沙丘](https://www.blog.minike.top/Article/details/33548722239.shtml)
+- 2026-06-30 04:12 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/046535.shtml)
+- 2026-06-30 04:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/4464657210.shtml)

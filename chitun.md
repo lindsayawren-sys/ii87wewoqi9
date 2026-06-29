@@ -1,58 +1,49 @@
-# 智能网联汽车法律研究联盟在渝成立 聚焦责任认定与数据安全等议题
+# 6月12日增减持汇总：交大昂立、上海凯宝披露增持情况，智新电子等9股拟减持（表）
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月16日电 (记者 刘相琳)智能网联汽车法律研究联盟15日在西南政法大学成立。该联盟由西南政法大学联合十家汽车产业链代表性单位共同发起，旨在通过法治力量护航产业高质量发展，破解行业合规难题。 当前，中国智能网联汽车正处于技术成熟与商业化落地的关键窗口期。“十五五”规划纲要明确提出加快智能网联新能源汽车等战略性新兴产业发展。在此背景下，西南政法大学联合十家汽车产业链代
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，6月12日盘后，交大昂立、上海凯宝披露增持情况，包括智新电子、中瓷电子、北京文化、博瑞医药（维权）、美迪西、南亚新材、达实智能、九州一轨、海阳科技在内的9家A股上市公司披露拟减持情况。 责任编辑：孙同怀
 
 ## 正文
 
-中新网重庆5月16日电 (记者 刘相琳)智能网联汽车法律研究联盟15日在西南政法大学成立。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该联盟由西南政法大学联合十家汽车产业链代表性单位共同发起，旨在通过法治力量护航产业高质量发展，破解行业合规难题。
+据不完全统计，6月12日盘后，交大昂立、上海凯宝披露增持情况，包括智新电子、中瓷电子、北京文化、博瑞医药（维权）、美迪西、南亚新材、达实智能、九州一轨、海阳科技在内的9家A股上市公司披露拟减持情况。
 
-当前，中国智能网联汽车正处于技术成熟与商业化落地的关键窗口期。
-
-“十五五”规划纲要明确提出加快智能网联新能源汽车等战略性新兴产业发展。
-
-在此背景下，西南政法大学联合十家汽车产业链代表性单位，共同发起成立智能网联汽车法律研究联盟。
-
-成立大会上，中国法学会副会长、西南政法大学校长林维与重庆长安汽车股份有限公司、赛力斯汽车有限公司、蔚来集团、宁德时代新能源科技股份有限公司、北京新能源汽车股份有限公司、滴滴自动驾驶、鄂尔多斯市卡尔动力科技有限公司、北京理想汽车有限公司、国投智能信息科技股份有限公司、中国汽车工程研究院股份有限公司的专家代表共同按下启动键，标志着智能网联汽车法律研究迈入资源联动、优势互补、协同发力的新阶段。
-
-重庆市经济和信息化委员会主任王志杰在现场表示，西南政法大学牵头成立智能网联汽车法律研究联盟，精准对接产业发展法治需求，正当其时、意义深远。
-
-未来，联盟需充分发挥法治协同、创新赋能与规范引领的作用，积极开展前瞻性、系统性规则研究，强化产学研融通创新，推动研究成果与产业实践高效衔接，形成一批具有重庆辨识度的标志性法治成果，为重庆智能网联新能源汽车发展注入智力资源、提供法治保障。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 04:28 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 04:21 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 04:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 04:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 04:11 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 04:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 04:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 04:28 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 04:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 04:32 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 04:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 04:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:13 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 04:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 04:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 04:36 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 04:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 04:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 04:35 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 04:18 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 04:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 04:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/16672521765.shtml)
-- 2026-06-30 04:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/567757.shtml)
-- 2026-06-30 04:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/225349.shtml)
-- 2026-06-30 04:15 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/718755450.shtml)
-- 2026-06-30 04:18 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/61318999.shtml)
-- 2026-06-30 04:25 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/469888539548.shtml)
-- 2026-06-30 04:33 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/88777433237.shtml)
-- 2026-06-30 04:20 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/047559797.shtml)
-- 2026-06-30 04:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/88895.shtml)
-- 2026-06-30 04:06 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/66291202036.shtml)
-- 2026-06-30 04:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/829531.shtml)
-- 2026-06-30 04:20 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/7281774976.shtml)
-- 2026-06-30 04:08 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/4509780179.shtml)
-- 2026-06-30 04:26 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/349711388923.shtml)
-- 2026-06-30 04:06 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/04552222.shtml)
+- 2026-06-30 04:31 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/96117.shtml)
+- 2026-06-30 04:23 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/579091.shtml)
+- 2026-06-30 04:23 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/20223.shtml)
+- 2026-06-30 04:23 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/58294388.shtml)
+- 2026-06-30 04:34 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/165115.shtml)
+- 2026-06-30 04:25 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/4610331419.shtml)
+- 2026-06-30 04:15 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/65953164546.shtml)
+- 2026-06-30 04:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/177913371003.shtml)
+- 2026-06-30 04:37 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/258704059.shtml)
+- 2026-06-30 04:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/30176558841.shtml)
+- 2026-06-30 04:19 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/43969.shtml)
+- 2026-06-30 04:25 - [巴西扳平比分](http://www.share.minike.top/Article/details/844753.shtml)
+- 2026-06-30 04:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/1886448148.shtml)
+- 2026-06-30 04:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/92638184153.shtml)
+- 2026-06-30 04:33 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/513527.shtml)

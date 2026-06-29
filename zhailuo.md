@@ -1,60 +1,61 @@
-# 全球债券大幅下挫 通胀升温引发投资者恐慌
+# （聚焦海峡论坛）张凌赫出席海峡论坛引关注 台胞指民间交流是民心所向
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-全球债券市场在周五惨淡收官，本周走势承压。伊朗局势冲突对经济的冲击迹象愈发明显，投资者由此预判央行加息节奏将快于预期，且经济增长将遭受拖累。 美国国债收益率创下近一年新高，交易员普遍认为，受伊朗冲突引发能源价格冲击、通胀压力飙升，美联储或将被迫加息以抑制通胀。 欧洲早盘交易中，德、意、法国债遭遇抛售，日本债券收益率亦创下历史新高。 意大利 10 年期国债收益率飙升近 9 个基点
+中新社厦门6月14日电 (记者 龙敏)正在厦门举行的第十八届海峡论坛上，大陆演员张凌赫的亮相引发关注。多位台湾与会人士表示，这充分说明两岸文化同根同源、民间交流是民心所向，任何阻碍都挡不住同胞走亲走近的脚步。 凭借在两岸热播剧《逐玉》中的出色表现，张凌赫在台湾人气高涨。 在论坛大会上，张凌赫以一句闽南语“大家好”开场，迅速拉近与现场台湾同胞的距离。他表示，《逐玉》之所以引发两岸
 
 ## 正文
 
-全球债券市场在周五惨淡收官，本周走势承压。
+中新社厦门6月14日电 (记者 龙敏)正在厦门举行的第十八届海峡论坛上，大陆演员张凌赫的亮相引发关注。
 
-伊朗局势冲突对经济的冲击迹象愈发明显，投资者由此预判央行加息节奏将快于预期，且经济增长将遭受拖累。
+多位台湾与会人士表示，这充分说明两岸文化同根同源、民间交流是民心所向，任何阻碍都挡不住同胞走亲走近的脚步。
 
-美国国债收益率创下近一年新高，交易员普遍认为，受伊朗冲突引发能源价格冲击、通胀压力飙升，美联储或将被迫加息以抑制通胀。
+凭借在两岸热播剧《逐玉》中的出色表现，张凌赫在台湾人气高涨。
 
-欧洲早盘交易中，德、意、法国债遭遇抛售，日本债券收益率亦创下历史新高。
+在论坛大会上，张凌赫以一句闽南语“大家好”开场，迅速拉近与现场台湾同胞的距离。
 
-意大利 10 年期国债收益率飙升近 9 个基点，至 3.87% 左右，单周累计涨幅接近 14 个基点；德国基准国债收益率上涨近 6 个基点，报 3.11%。
+他表示，《逐玉》之所以引发两岸共鸣，在于其中蕴含的中华传统文化、中式美学与家国情怀，“两岸同根同脉，文化的力量总能跨越山海，联结起两岸同胞的心”。
 
-本周通胀数据显示，受地缘冲突影响，企业与居民端物价压力大幅攀升；本轮局势已推动原油价格涨幅超 50%。
+张凌赫出席论坛成为台湾参会者热议的话题。
 
-对通胀与利率预期最为敏感的两年期债券收益率本周涨幅最为迅猛，长端债券收益率也同步走高，反映出投资者担忧此次价格冲击将产生长期影响。
+台湾演员姬天语认为，张凌赫的参与有助于进一步提升海峡论坛在台湾青年群体中的关注度与影响力。
 
-杰富瑞策略师莫希特・库马尔表示：“市场关注点不应只局限于通胀，财政赤字走高同样值得警惕。
+旺旺集团副董事长周锡玮受访时表示，大陆影视文化近年进步显著，这类深受两岸欢迎的文化交流活动应多多举办。
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 04:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 04:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 04:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 04:26 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 04:22 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 04:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 04:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 04:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 04:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 04:26 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 04:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 04:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 04:32 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 04:17 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 04:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 04:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 04:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 04:36 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 04:26 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:25 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 04:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 04:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 04:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 04:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 04:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [斗破苍穹](http://www.share.minike.top/Article/details/167960875.shtml)
-- 2026-06-30 04:25 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/0587022.shtml)
-- 2026-06-30 04:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/162881.shtml)
-- 2026-06-30 04:32 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/95662.shtml)
-- 2026-06-30 04:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0183792738.shtml)
-- 2026-06-30 04:22 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/5397560.shtml)
-- 2026-06-30 04:12 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/9669461.shtml)
-- 2026-06-30 04:24 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/168862.shtml)
-- 2026-06-30 04:24 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/547616461.shtml)
-- 2026-06-30 04:07 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3892137.shtml)
-- 2026-06-30 04:11 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/213043.shtml)
-- 2026-06-30 04:07 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/54472826531.shtml)
-- 2026-06-30 04:13 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/8743125.shtml)
-- 2026-06-30 04:17 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/6945079.shtml)
-- 2026-06-30 04:30 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/1789052.shtml)
+- 2026-06-30 04:34 - [刘念回应](http://www.blog.minike.top/Article/details/7555585.shtml)
+- 2026-06-30 04:23 - [田曦薇没招了](http://www.share.minike.top/Article/details/3062154.shtml)
+- 2026-06-30 04:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/52232618872.shtml)
+- 2026-06-30 04:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/776566152.shtml)
+- 2026-06-30 04:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/458978.shtml)
+- 2026-06-30 04:25 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/19632181.shtml)
+- 2026-06-30 04:21 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/1295840358.shtml)
+- 2026-06-30 04:28 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/2529666793.shtml)
+- 2026-06-30 04:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/330896528.shtml)
+- 2026-06-30 04:20 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/94005.shtml)
+- 2026-06-30 04:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/796289925010.shtml)
+- 2026-06-30 04:29 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/58989.shtml)
+- 2026-06-30 04:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/627585.shtml)
+- 2026-06-30 04:16 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/98499.shtml)
+- 2026-06-30 04:14 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/849536074.shtml)

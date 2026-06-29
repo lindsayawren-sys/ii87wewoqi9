@@ -1,57 +1,59 @@
-# （走进中国乡村）青海湖北岸果洛藏贡麻村多业态增“绿”富民
+# 金价跌破“9字头”，菜百投资金条柜台前挤满抄底的人
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网青海刚察5月15日电 题：青海湖北岸果洛藏贡麻村多业态增“绿”富民 作者 李隽 高原初夏，位于青海湖北岸的青海省海北藏族自治州刚察县沙柳河镇果洛藏贡麻村，一栋栋民宿木屋错落有致，村民们正忙着在营地里摆放各类设施。 “过不了多久，来自各地的游客都会来这里看青海湖和观赏湟鱼洄游，我们得提前准备好。”果洛藏贡麻村委会副主任东知布加告诉中新网记者，如今，生态保护成效明显，村里布局
+作者：罗文利 封图：现场拍摄 6月11日，马姐和老伴儿起了个大早，在白广路街口吃过早饭，穿过马路来到菜百首饰总店大门前。距离开门还有10分钟，她检查了手包里的身份证和现金，确认无误后又把包夹在胳膊下面。 9点30分，马姐和老伴儿被人群簇拥着进入菜百首饰总店的大门。这里位于北京西城区，是菜百股份（605599.SH）的核心门店之一，也是北京消费者购买黄金饰品和投资金条的热门去处。
 
 ## 正文
 
-中新网青海刚察5月15日电 题：青海湖北岸果洛藏贡麻村多业态增“绿”富民 作者 李隽 高原初夏，位于青海湖北岸的青海省海北藏族自治州刚察县沙柳河镇果洛藏贡麻村，一栋栋民宿木屋错落有致，村民们正忙着在营地里摆放各类设施。
+作者：罗文利 封图：现场拍摄 6月11日，马姐和老伴儿起了个大早，在白广路街口吃过早饭，穿过马路来到菜百首饰总店大门前。
 
-“过不了多久，来自各地的游客都会来这里看青海湖和观赏湟鱼洄游，我们得提前准备好。
+距离开门还有10分钟，她检查了手包里的身份证和现金，确认无误后又把包夹在胳膊下面。
 
-”果洛藏贡麻村委会副主任东知布加告诉中新网记者，如今，生态保护成效明显，村里布局了多项产业，村民们实现了家门口就业，吃上了“生态饭”。
+9点30分，马姐和老伴儿被人群簇拥着进入菜百首饰总店的大门。
 
-青海湖曾出现过湖泊萎缩、草地退化、土地沙漠化和生物多样性减少等问题。
+这里位于北京西城区，是菜百股份（605599.SH）的核心门店之一，也是北京消费者购买黄金饰品和投资金条的热门去处。
 
-彼时，果洛藏贡麻村还是个偏远闭塞的纯牧业村，村民散居草场，住土屋、饮河水、走土路。
+乘坐扶梯到达四层后，马姐直奔投资金条柜台。
 
-2014年起，在政府支持下，村民们告别了传统游牧生活，搬进了刚察县城边的牧民集中定居点。
+但还是来晚了一步，马姐排在了第三排“人墙”后面，经现场三四位工作人员的安排后，她排到了队伍中间。
 
-一排排藏式小屋别具一格，一条条村道通达八方，村里借助地理和生态双重优势、结合民族特色发展起乡村旅游业和生态畜牧业。
+马姐判断，这些人应该是看到了前一晚金价跌破“9字头”的消息后来“抄底”的。
 
-“每月我都能领取五千元左右的工资。
+轮到马姐挑选商品，她找工作人员开了一张897元/克的票。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 04:22 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 04:27 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 04:28 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 04:21 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 04:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 04:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 04:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 04:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 04:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 04:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 04:33 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 04:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 04:39 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 04:34 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 04:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 04:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:30 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 04:40 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 04:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 04:14 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [日本 高位逼抢](https://www.share.minike.top/Article/details/82559.shtml)
-- 2026-06-30 04:24 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/49616262390.shtml)
-- 2026-06-30 04:32 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/6409225.shtml)
-- 2026-06-30 04:25 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/90463754.shtml)
-- 2026-06-30 04:16 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/6175421.shtml)
-- 2026-06-30 04:17 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/15422.shtml)
-- 2026-06-30 04:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/186196791.shtml)
-- 2026-06-30 04:09 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/4893343247.shtml)
-- 2026-06-30 04:22 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/2413054.shtml)
-- 2026-06-30 04:17 - [金牌调解](https://www.share.kurohicncr.top/Article/details/222964.shtml)
-- 2026-06-30 04:16 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/9274963.shtml)
-- 2026-06-30 04:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/7530312.shtml)
-- 2026-06-30 04:13 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8839693.shtml)
-- 2026-06-30 04:22 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/60423140.shtml)
-- 2026-06-30 04:35 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/51993137.shtml)
+- 2026-06-30 04:25 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/4758448.shtml)
+- 2026-06-30 04:31 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/97053066.shtml)
+- 2026-06-30 04:36 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/63693591.shtml)
+- 2026-06-30 04:27 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/35072613.shtml)
+- 2026-06-30 04:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/74889.shtml)
+- 2026-06-30 04:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/758381.shtml)
+- 2026-06-30 04:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/97017970470.shtml)
+- 2026-06-30 04:17 - [起风了](http://www.blog.minike.top/Article/details/22486844.shtml)
+- 2026-06-30 04:31 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/980422.shtml)
+- 2026-06-30 04:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/35978.shtml)
+- 2026-06-30 04:17 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/6206873767.shtml)
+- 2026-06-30 04:24 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/2882665.shtml)
+- 2026-06-30 04:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/241607.shtml)
+- 2026-06-30 04:13 - [日本反击率先破门](http://www.blog.minike.top/Article/details/67201.shtml)
+- 2026-06-30 04:19 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/21134111225.shtml)

@@ -1,57 +1,59 @@
-# 西方资产市政高收益基金宣布每股派息0.034美元
+# 创下IPO纪录后 马斯克的SpaceX面临上市后的首次考验
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-派息方案与关键日期 西方资产市政高收益基金（Western Asset Municipal High Income Fund）近日宣布，将维持每月每股0.034美元的派息方案，与前次配息水平保持一致。根据本次公告的派息金额与当前股价估算，该基金的预估年化收益率约为5.9%。 本次派息的股权登记日为2026年5月21日，除息日为同一天，派息日为2026年5月29日。这意味着在5月
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在投资者向这起全球史上最大规模IPO注入750亿美元资金后，SpaceX将于周五在纳斯达克开始交易。投资者押注埃隆·马斯克在太空、通信和人工智能领域的宏大抱负足以支撑其1.77万亿美元的估值。 此次具有里程碑意义的上市，不仅巩固了马斯克作为史上首位万亿富豪的地位，更将SpaceX推入全球最有价值企业之列——
 
 ## 正文
 
-派息方案与关键日期 西方资产市政高收益基金（Western Asset Municipal High Income Fund）近日宣布，将维持每月每股0.034美元的派息方案，与前次配息水平保持一致。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在投资者向这起全球史上最大规模IPO注入750亿美元资金后，SpaceX将于周五在纳斯达克开始交易。
 
-根据本次公告的派息金额与当前股价估算，该基金的预估年化收益率约为5.9%。
+投资者押注埃隆·马斯克在太空、通信和人工智能领域的宏大抱负足以支撑其1.77万亿美元的估值。
 
-本次派息的股权登记日为2026年5月21日，除息日为同一天，派息日为2026年5月29日。
+此次具有里程碑意义的上市，不仅巩固了马斯克作为史上首位万亿富豪的地位，更将SpaceX推入全球最有价值企业之列——尽管该公司去年亏损近50亿美元，且营收仅为估值相近的科技巨头的一小部分。
 
-这意味着在5月21日除权日前一天结算时持有该基金的投资者，将有权参与此次派息。
+“投资者将花费数年时间争论IPO定价是过高还是过低。
 
-稳定的月度派息记录 该基金为月配息型产品，近一年来持续维持每股0.034美元的月度派息水平。
+我预计未来几个月股价将出现大幅波动，”SpaceX的投资者VIDAVisionFund创始人迈克·阿尔维斯表示。
 
-历史数据显示，基金在2026年3月和4月同样派发了每股0.034美元的股息，显示出收益分配政策上的稳定性和延续性。
+该股的表现也将是对所谓“马斯克溢价”的考验，正是这一溢价推动了特斯拉TSLA.O估值突破1万亿美元，尽管在马斯克积极参与唐纳德·特朗普总统政府期间，该溢价曾面临压力。
 
-基金投资策略 西方资产市政高收益基金是一只多元化的封闭式管理投资公司，主要投资于美国各州及地方政府发行的中长期市政债券。
+“要找到可与之相提并论的企业家，我们得回溯100年。
 
-该基金的投资目标是为投资者寻求免缴联邦所得税的高流动性收入，适合有税务规划需求且追求固定收益的投资者。
+他是与众不同的远见者，且执行力极强，”管理着一只投资SpaceX的ETF的ERShares首席执行官乔尔·舒尔曼表示。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 04:12 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 04:08 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 04:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 04:30 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 04:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 04:23 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 04:06 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 04:19 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 04:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 04:19 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 04:39 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 04:13 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 04:38 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 04:37 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 04:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 04:31 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 04:37 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 04:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 04:17 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 04:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 04:38 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/17260566.shtml)
-- 2026-06-30 04:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/8473092789.shtml)
-- 2026-06-30 04:17 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/468603.shtml)
-- 2026-06-30 04:22 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/37172.shtml)
-- 2026-06-30 04:35 - [流金岁月](http://www.blog.minike.top/Article/details/754450799372.shtml)
-- 2026-06-30 04:26 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/5552400.shtml)
-- 2026-06-30 04:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/759752487737.shtml)
-- 2026-06-30 04:09 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/02788357.shtml)
-- 2026-06-30 04:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/045212.shtml)
-- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/88036.shtml)
-- 2026-06-30 04:33 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/00772.shtml)
-- 2026-06-30 04:27 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/6577627486.shtml)
-- 2026-06-30 04:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/834522672.shtml)
-- 2026-06-30 04:32 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/26124710.shtml)
-- 2026-06-30 04:07 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/41695.shtml)
+- 2026-06-30 04:40 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/49399143666.shtml)
+- 2026-06-30 04:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/0461958302.shtml)
+- 2026-06-30 04:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/289762.shtml)
+- 2026-06-30 04:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/688683.shtml)
+- 2026-06-30 04:40 - [日本进球](https://www.share.kurohicncr.top/Article/details/4822710.shtml)
+- 2026-06-30 04:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/16707877526.shtml)
+- 2026-06-30 04:40 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/698075424739.shtml)
+- 2026-06-30 04:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/50440464.shtml)
+- 2026-06-30 04:15 - [女心理师](https://www.blog.kurohicncr.top/Article/details/269496693.shtml)
+- 2026-06-30 04:35 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/3124576066.shtml)
+- 2026-06-30 04:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/884062.shtml)
+- 2026-06-30 04:23 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/66779173707.shtml)
+- 2026-06-30 04:25 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/0064826243.shtml)
+- 2026-06-30 04:27 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/297551066555.shtml)
+- 2026-06-30 04:23 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0442516956.shtml)

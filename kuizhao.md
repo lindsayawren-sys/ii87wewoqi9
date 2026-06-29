@@ -1,56 +1,53 @@
-# 中国黄金国际发布一季度业绩 单季度净利润首次突破两亿美元再创新高
+# 时习之丨守护文明根脉 激活中华文化生命力
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中国黄金国际（02099）发布2026年第一季度业绩，销售收入由2025年同期的2.731亿美元，增加66%至4.532亿美元；矿山经营盈利由2025年同期的矿山经营盈利1.177亿美元，增加1.751亿美元至2.928亿美元；净溢利为2.364亿美元，与2025年同期的8600万美元相比增加1.504亿美元，公司史上首次单季突破两亿美元；经营所得现金流由2025年同期的1.4
+文化遗产见证中华文明，是不可再生的宝贵财富。党的十八大以来，习近平总书记高度重视文化遗产保护工作，强调“要把这些中华文化瑰宝保护好、传承好、传播好”。 6月13日是2026年文化和自然遗产日，让我们一起跟随习近平总书记的脚步，感悟中华文化的独特魅力。 制作：温璐 素材来源：人民日报、新华社、央视新闻等
 
 ## 正文
 
-中国黄金国际（02099）发布2026年第一季度业绩，销售收入由2025年同期的2.731亿美元，增加66%至4.532亿美元；矿山经营盈利由2025年同期的矿山经营盈利1.177亿美元，增加1.751亿美元至2.928亿美元；净溢利为2.364亿美元，与2025年同期的8600万美元相比增加1.504亿美元，公司史上首次单季突破两亿美元；经营所得现金流由2025年同期的1.435亿美元，增加至2.687亿美元。
+文化遗产见证中华文明，是不可再生的宝贵财富。
 
-黄金总产量由2025年同期的44，797盎司减少22%至34，820盎司。
+党的十八大以来，习近平总书记高度重视文化遗产保护工作，强调“要把这些中华文化瑰宝保护好、传承好、传播好”。
 
-铜总产量由2025年同期的3730万磅（约16，911吨）略微增加至3750万磅（约17，030吨）。
+6月13日是2026年文化和自然遗产日，让我们一起跟随习近平总书记的脚步，感悟中华文化的独特魅力。
 
-公司董事会主席兼首席执行官侯晨光先生评论说：“本公司第一季度延续了良好的增长态势，再创下本公司历史上最佳单季净利润水平。
-
-得益于高企的金属价格与稳健的营运，我们实现了强劲的收入增长与盈利水平。
-
-这为全年的战略执行奠定了坚实基础。
-
-本公司将继续专注于提高营运效率，并为股东创造长期价值。
-
-”责任编辑：卢昱君
+制作：温璐 素材来源：人民日报、新华社、央视新闻等
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 04:07 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 04:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 04:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 04:29 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 04:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 04:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 04:34 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 04:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 04:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 04:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 04:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 04:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 04:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 04:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 04:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 04:34 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 04:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 04:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 04:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 04:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 04:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 04:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 04:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/86588.shtml)
-- 2026-06-30 04:16 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/495178520.shtml)
-- 2026-06-30 04:18 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/81825933181.shtml)
-- 2026-06-30 04:07 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/925900.shtml)
-- 2026-06-30 04:19 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/15745555018.shtml)
-- 2026-06-30 04:30 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/334081.shtml)
-- 2026-06-30 04:09 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/276768.shtml)
-- 2026-06-30 04:35 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/64957.shtml)
-- 2026-06-30 04:26 - [巴西绝杀](https://www.share.minike.top/Article/details/110792.shtml)
-- 2026-06-30 04:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/3130478829.shtml)
-- 2026-06-30 04:18 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/044279087.shtml)
-- 2026-06-30 04:06 - [极限挑战第一季](http://www.blog.minike.top/Article/details/5006776.shtml)
-- 2026-06-30 04:08 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/14450.shtml)
-- 2026-06-30 04:09 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/5838306.shtml)
-- 2026-06-30 04:23 - [逃狱兄弟](https://www.blog.minike.top/Article/details/84901646805.shtml)
+- 2026-06-30 04:37 - [日本反击率先破门](https://www.share.minike.top/Article/details/6770330.shtml)
+- 2026-06-30 04:12 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/722280503010.shtml)
+- 2026-06-30 04:32 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/40265.shtml)
+- 2026-06-30 04:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/85439128948.shtml)
+- 2026-06-30 04:19 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/63281.shtml)
+- 2026-06-30 04:16 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/5893756.shtml)
+- 2026-06-30 04:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/78943322.shtml)
+- 2026-06-30 04:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/2738389050.shtml)
+- 2026-06-30 04:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/554867.shtml)
+- 2026-06-30 04:15 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/341381881.shtml)
+- 2026-06-30 04:14 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/737946.shtml)
+- 2026-06-30 04:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/23245790.shtml)
+- 2026-06-30 04:17 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/025299936615.shtml)
+- 2026-06-30 04:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/5477966.shtml)
+- 2026-06-30 04:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/61615.shtml)

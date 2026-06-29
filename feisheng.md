@@ -1,56 +1,60 @@
-# 报道：SpaceX加速IPO时间表，目标6月11日在纳斯达克定价
+# 大暴雨特大暴雨！主雨带将在华南滞留多天 下周江南等地迎降雨集中期
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-据知情人士周五透露，埃隆·马斯克的火箭及卫星制造公司SpaceX计划最早于6月11日为其备受瞩目的首次公开募股（IPO）定价，并已选定纳斯达克上市。 三位知情人士表示，SpaceX已经加快了IPO时间表，目前的目标是最早于下周三（5月20日）公开其招股说明书，路演拟于6月4日启动，最早于6月12日上市交易。 这些知情人士称，加速后的时间表将原本计划在6月下旬（大约埃隆·马斯克生
+随着南海夏季风爆发，西南暖湿急流强劲且源源不断向我国输送水汽，昨天到今晨，南方降雨明显发展加强，暴雨区域从浙江一直延伸到广西，华南龙舟水发力。 今天8时至14时，广东东部出现暖区对流，不仅短时降雨强度大，持续时间也长，其中惠来6小时雨量达到131.6毫米，居全国雨量榜榜首。 接下来，主雨带还要在华南等地滞留3天左右。尤其是广西、广东、福建，因为有大量水汽汇集，再加上冷空气渗透而
 
 ## 正文
 
-据知情人士周五透露，埃隆·马斯克的火箭及卫星制造公司SpaceX计划最早于6月11日为其备受瞩目的首次公开募股（IPO）定价，并已选定纳斯达克上市。
+随着南海夏季风爆发，西南暖湿急流强劲且源源不断向我国输送水汽，昨天到今晨，南方降雨明显发展加强，暴雨区域从浙江一直延伸到广西，华南龙舟水发力。
 
-三位知情人士表示，SpaceX已经加快了IPO时间表，目前的目标是最早于下周三（5月20日）公开其招股说明书，路演拟于6月4日启动，最早于6月12日上市交易。
+今天8时至14时，广东东部出现暖区对流，不仅短时降雨强度大，持续时间也长，其中惠来6小时雨量达到131.6毫米，居全国雨量榜榜首。
 
-这些知情人士称，加速后的时间表将原本计划在6月下旬（大约埃隆·马斯克生日前后）进行的流程向前推进。
+接下来，主雨带还要在华南等地滞留3天左右。
 
-他们补充说，美国证券交易委员会（SEC）对该公司上市申请文件的审核速度快于预期，是推动时间表提前的部分原因。
+尤其是广西、广东、福建，因为有大量水汽汇集，再加上冷空气渗透而下，暴雨会接连来袭。
 
-曾在3月率先报道，SpaceX倾向于在纳斯达克上市，因为该公司希望尽早被纳入纳斯达克100指数。
+广东、广西的沿海地区，夜间可能还有因海陆风变化而触发对流，形成列车效应，不排除局地遭遇特大暴雨。
 
-责任编辑：丁文武
+这是龙舟水在发威！
+
+龙舟水通常是指每年5月下旬到6月中上旬华南地区雨量大且集中的降水。
+
+由于它出没的时间正值端午节龙舟竞渡之时，因此便有了这个名字，后来，气象部门为了方便统计，便将每年5月21日至6月20日之间的降水，都认定为龙舟水。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 04:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 04:18 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 04:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 04:10 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 04:11 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:30 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 04:32 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 04:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 04:09 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:30 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 04:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 04:26 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 04:30 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 04:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 04:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 04:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 04:23 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 04:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 04:27 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:25 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 04:19 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:30 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:40 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 04:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 04:34 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 04:36 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 04:13 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/372172511716.shtml)
-- 2026-06-30 04:29 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/7238881975.shtml)
-- 2026-06-30 04:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/667678981.shtml)
-- 2026-06-30 04:14 - [恋与深空 巧合](http://www.share.minike.top/Article/details/55198.shtml)
-- 2026-06-30 04:26 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/40140370795.shtml)
-- 2026-06-30 04:23 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/238167628.shtml)
-- 2026-06-30 04:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/06920337.shtml)
-- 2026-06-30 04:34 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/6688128.shtml)
-- 2026-06-30 04:07 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/64819189365.shtml)
-- 2026-06-30 04:25 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/820889505.shtml)
-- 2026-06-30 04:30 - [毒液2](http://www.blog.kurohicncr.top/Article/details/992963.shtml)
-- 2026-06-30 04:24 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/18403158968.shtml)
-- 2026-06-30 04:19 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/50387.shtml)
-- 2026-06-30 04:28 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/3573447.shtml)
-- 2026-06-30 04:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/374568.shtml)
+- 2026-06-30 04:39 - [女心理师](http://www.blog.minike.top/Article/details/52802196.shtml)
+- 2026-06-30 04:36 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/848583.shtml)
+- 2026-06-30 04:28 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/8912799189.shtml)
+- 2026-06-30 04:30 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/240245777753.shtml)
+- 2026-06-30 04:29 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/90915.shtml)
+- 2026-06-30 04:30 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/99195322156.shtml)
+- 2026-06-30 04:21 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/719646.shtml)
+- 2026-06-30 04:40 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/61984403.shtml)
+- 2026-06-30 04:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/87553167933.shtml)
+- 2026-06-30 04:13 - [起风了](http://www.share.kurohicncr.top/Article/details/216256248.shtml)
+- 2026-06-30 04:18 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/91521.shtml)
+- 2026-06-30 04:34 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/5127139.shtml)
+- 2026-06-30 04:39 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/0053261.shtml)
+- 2026-06-30 04:36 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/7095653201.shtml)
+- 2026-06-30 04:18 - [送你一朵小红花](https://www.share.minike.top/Article/details/55986.shtml)

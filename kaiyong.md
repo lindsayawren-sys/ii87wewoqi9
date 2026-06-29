@@ -1,56 +1,57 @@
-# 台湾写真：台湾学子迎考试季 文昌宫里祈福忙
+# 福州国际渔博会开幕 逾30个国家和地区企业机构参展参会
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。 位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。宫庙自5月13日起连续三日举行法会，为考生集体祈福。连日来，该
+中新社福州6月12日电 (叶秋云)2026第十八届中国(福州)国际渔业博览会(以下简称“渔博会”)12日在福建福州开幕，吸引俄罗斯、厄瓜多尔、越南、印度尼西亚、土耳其等30余个国家和地区的渔业企业、行业机构参展参会。 渔博会已成为连通全球水产贸易的重要枢纽。本届展会以“全球水产供应链，源头直采选福州”为主题，创新推出双会场办展模式，首次联动华威西营里农产品批发市场，打造“专业展
 
 ## 正文
 
-中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。
+中新社福州6月12日电 (叶秋云)2026第十八届中国(福州)国际渔业博览会(以下简称“渔博会”)12日在福建福州开幕，吸引俄罗斯、厄瓜多尔、越南、印度尼西亚、土耳其等30余个国家和地区的渔业企业、行业机构参展参会。
 
-考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。
+渔博会已成为连通全球水产贸易的重要枢纽。
 
-位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。
+本届展会以“全球水产供应链，源头直采选福州”为主题，创新推出双会场办展模式，首次联动华威西营里农产品批发市场，打造“专业展会+民生市场”融合形态，展览总规模突破10万平方米，创下历届体量新高。
 
-宫庙自5月13日起连续三日举行法会，为考生集体祈福。
+主会场福州海峡会展中心展区面积较上届增长30%，细分为“AI(人工智能)+渔业”先进装备、水产加工、养殖投入品、养殖设备等十大特色板块。
 
-连日来，该宫庙人山人海，宫庙前空地上特意增设数张供品桌，便利民众摆放各式供品。
+在福建现代渔业全产业链体验馆内，十米级大型无人机亮相，为海洋产业高质量发展保驾护航；数智海洋馆内，展示了中国首个市级自建海洋立体观测网，可实现预警信息直达基层和渔民。
 
-在中华传统文化中，文昌帝君掌管学业、考试与功名，倡导勤学向善，千百年来，广受读书人尊崇。
+多款创新产品将自动化控制、人工智能技术深度融入智慧渔业场景。
 
-时至今日，学子赶考前“拜文昌”，祈求考试顺遂、金榜题名，已是两岸民间深入人心的一项传统。
+厄瓜多尔水产品生产企业Exportquilsa(有信)带来的白虾等产品备受欢迎。
 
-走进台北市文昌宫，右侧入口处一幅写有“将相无种凭才德，男儿自强习文章”的对联赫然入目；两侧的柱子上，密密麻麻挂满考生许愿牌，写着对学业与未来的美好祝愿；供品桌上，准考证复印件、考生衣服以及葱、蒜、芹菜、白萝卜、粽子等各式供品整齐摆放。
+祖籍福建福清的厄瓜多尔华人参展商朱亨鹏表示，中国—厄瓜多尔自由贸易协定落地实施以来，关税减免、通关便利等政策红利持续释放，大幅提升了厄瓜多尔白虾对华出口竞争力。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 04:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 04:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 04:21 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 04:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:28 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 04:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 04:06 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 04:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:28 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 04:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 04:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 04:26 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 04:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 04:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 04:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/88076439.shtml)
-- 2026-06-30 04:07 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/925841187296.shtml)
-- 2026-06-30 04:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/32570796824.shtml)
-- 2026-06-30 04:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/574749.shtml)
-- 2026-06-30 04:25 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/340102915864.shtml)
-- 2026-06-30 04:06 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/59003004852.shtml)
-- 2026-06-30 04:14 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/266427921769.shtml)
-- 2026-06-30 04:12 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/5563218.shtml)
-- 2026-06-30 04:06 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/982767601.shtml)
-- 2026-06-30 04:06 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/10173772.shtml)
-- 2026-06-30 04:21 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/6239066.shtml)
-- 2026-06-30 04:31 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/39991752.shtml)
-- 2026-06-30 04:06 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/437319815.shtml)
-- 2026-06-30 04:13 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/9717997.shtml)
-- 2026-06-30 04:06 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/84007898.shtml)
+- 2026-06-30 04:13 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/53328349.shtml)
+- 2026-06-30 04:25 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/908173.shtml)
+- 2026-06-30 04:22 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/522414117545.shtml)
+- 2026-06-30 04:28 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/83453.shtml)
+- 2026-06-30 04:14 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/1265129803.shtml)
+- 2026-06-30 04:18 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/79963089388.shtml)
+- 2026-06-30 04:34 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/92331.shtml)
+- 2026-06-30 04:16 - [日本反击率先破门](http://www.blog.minike.top/Article/details/849322385758.shtml)
+- 2026-06-30 04:38 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/2892718.shtml)
+- 2026-06-30 04:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1352963.shtml)
+- 2026-06-30 04:39 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/8793266.shtml)
+- 2026-06-30 04:34 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/853964782.shtml)
+- 2026-06-30 04:24 - [日本反击率先破门](http://www.blog.minike.top/Article/details/311610.shtml)
+- 2026-06-30 04:31 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/044877584.shtml)
+- 2026-06-30 04:41 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/91583273.shtml)

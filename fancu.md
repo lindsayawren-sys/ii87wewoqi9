@@ -1,58 +1,56 @@
-# CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”
+# 从语言互通到运动交流 东宁全方位搭建中俄青少年友谊桥
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新社上海5月15日电 (记者 缪璐 国璇)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛阶段首场比赛15日晚间在上海打响，上海久事队(简称“上海队”)主场以87:82险胜北京北汽队(简称“北京队”)，收获“开门红”。 本赛季CBA四强球队为上海、广厦、深圳和北京队，上半区为上海队对阵北京队，下半区由广厦队迎战深圳队，这四支队伍也是常规赛排名前四的球队。 半决
+中新网牡丹江6月12日电(姜辉 王万鑫 梅赢方)初夏时节，黑龙江省牡丹江东宁市第三小学校园里，俄罗斯研学团学生在中国老师指导下，认真学习传统戏曲拱手礼、基础水袖动作。2026年是中俄教育年启动之年，东宁市依托边境口岸区位优势、对俄落地免签政策及特色办学资源，围绕俄语交流、文化研学、体育赛事、校园开放四大核心方向，常态化开展各类中俄教育文化交流活动，全方位搭建跨境青少年沟通桥梁。
 
 ## 正文
 
-中新社上海5月15日电 (记者 缪璐 国璇)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛阶段首场比赛15日晚间在上海打响，上海久事队(简称“上海队”)主场以87:82险胜北京北汽队(简称“北京队”)，收获“开门红”。
+中新网牡丹江6月12日电(姜辉 王万鑫 梅赢方)初夏时节，黑龙江省牡丹江东宁市第三小学校园里，俄罗斯研学团学生在中国老师指导下，认真学习传统戏曲拱手礼、基础水袖动作。
 
-本赛季CBA四强球队为上海、广厦、深圳和北京队，上半区为上海队对阵北京队，下半区由广厦队迎战深圳队，这四支队伍也是常规赛排名前四的球队。
+2026年是中俄教育年启动之年，东宁市依托边境口岸区位优势、对俄落地免签政策及特色办学资源，围绕俄语交流、文化研学、体育赛事、校园开放四大核心方向，常态化开展各类中俄教育文化交流活动，全方位搭建跨境青少年沟通桥梁。
 
-半决赛采取五场三胜制。
+东宁市按照“试点先行、全面推广”的思路，实现全市中小学俄语社团全覆盖。
 
-首场比赛，上海队率先取得10:5领先，北京队周琦、威廉姆斯连砍6分实现反超，随后东道主以一波8:0反击，以20:16结束首节。
+各校俄语社团以口语实战为核心，创新开展情景对话、俄语故事分享、中俄民俗互动等趣味活动，极大激发了学生俄语学习热情，让校园成为中俄文化交融、心灵互通的温馨阵地。
 
-第二节，上海队主力外援洛夫顿连续强攻，将分差扩大至10分，北京队接连命中三分“止血”，但在节末再度“断电”，上海队以49:37结束半场。
+文化研学是跨境教育交流的核心载体。
 
-易边再战，北京队仍进攻低迷，上海队一度领先20分，以70:57进入末节。
+近期，俄罗斯研学团到访东宁，开启沉浸式中华文化研学之旅。
 
-周琦、麦基和赵睿联手打出一波9:2顽强追分，随后双方比分紧咬、互飙“三分雨”，上海队张镇麟命中关键三分，顶住北京队反扑。
+在各中小学研学现场，俄方学子近距离品鉴京剧神韵，提笔书写毛笔书法，感受中华传统文化的独特魅力；亲手制作端午粽子、编织五彩绳，直观体悟中华传统民俗的温情底蕴；体验无人机、智能机器人等科创项目，领略中国现代职业教育的发展成果。
 
-上海队最终以87:82在“京沪大战”系列赛中先下一城。
+在体育交流领域，东宁市构建全年不间断的跨境体育交流体系。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 04:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 04:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 04:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 04:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 04:20 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 04:32 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 04:10 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 04:15 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 04:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 04:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 04:13 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 04:15 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 04:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 04:29 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 04:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 04:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 04:35 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 04:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 04:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/304936.shtml)
-- 2026-06-30 04:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/0528881.shtml)
-- 2026-06-30 04:28 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/544505.shtml)
-- 2026-06-30 04:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/53844.shtml)
-- 2026-06-30 04:19 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/3291434.shtml)
-- 2026-06-30 04:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/5584384070.shtml)
-- 2026-06-30 04:20 - [啊啊啊](https://www.blog.minike.top/Article/details/31390769.shtml)
-- 2026-06-30 04:22 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/824851.shtml)
-- 2026-06-30 04:15 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/1783375095.shtml)
-- 2026-06-30 04:06 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/6341787.shtml)
-- 2026-06-30 04:20 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/87543908700.shtml)
-- 2026-06-30 04:34 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/84198.shtml)
-- 2026-06-30 04:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/35831430617.shtml)
-- 2026-06-30 04:13 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/4330130.shtml)
-- 2026-06-30 04:29 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/12097923.shtml)
+- 2026-06-30 04:29 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/3733773.shtml)
+- 2026-06-30 04:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/627075.shtml)
+- 2026-06-30 04:36 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/009908.shtml)
+- 2026-06-30 04:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/3118225.shtml)
+- 2026-06-30 04:36 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/4708635870.shtml)
+- 2026-06-30 04:40 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/28780699076.shtml)
+- 2026-06-30 04:19 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/419848558.shtml)
+- 2026-06-30 04:36 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/733243.shtml)
+- 2026-06-30 04:36 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/887776021.shtml)
+- 2026-06-30 04:32 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/573804505605.shtml)
+- 2026-06-30 04:21 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/27161761634.shtml)
+- 2026-06-30 04:36 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/846689963872.shtml)
+- 2026-06-30 04:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/002559546225.shtml)
+- 2026-06-30 04:19 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/770373856856.shtml)
+- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/243302851.shtml)

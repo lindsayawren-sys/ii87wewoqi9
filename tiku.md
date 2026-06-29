@@ -1,51 +1,60 @@
-# 内蒙古自治区乌兰察布市委原副书记、政法委原书记、组织部原部长李勇严重违纪违法被“双开”
+# 从初创企业到估值1.8万亿美元：当初押注SpaceX的投资者如今收获丰厚回报
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区乌兰察布市委原副书记、政法委原书记、组织部原部长李勇严重违纪违法问题进行了立案审查调查。 经查，李勇丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在干部选拔任用等工作中为他人谋取
+近二十年来，这家火箭企业始终未登陆公开市场，全球一众知名投资人悄然不断增持其股份。 如今埃隆・马斯克旗下公司拟以约 1.8 万亿美元估值启动首次公开募股，这批早期投资有望创下风投史上规模顶尖的账面收益。 此次收益的主要受益者包括资深选股专家罗恩・巴伦、凯瑟琳・伍德旗下方舟投资公司，以及共同基金巨头富达投资。多位风投机构同样将斩获丰厚回报，其中包括创始人基金、红杉资本、安德森・霍
 
 ## 正文
 
-中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区乌兰察布市委原副书记、政法委原书记、组织部原部长李勇严重违纪违法问题进行了立案审查调查。
+近二十年来，这家火箭企业始终未登陆公开市场，全球一众知名投资人悄然不断增持其股份。
 
-经查，李勇丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在干部选拔任用等工作中为他人谋取利益并收受财物；廉洁底线失守、以权谋私，借用管理服务对象钱款长期未还，通过民间借贷获取大额回报，利用职权为他人谋取利益并收受财物；将手中权力异化为谋取私利的工具，为他人在工程承揽、干部选拔任用、岗位调整等方面谋利，并非法收受巨额财物。
+如今埃隆・马斯克旗下公司拟以约 1.8 万亿美元估值启动首次公开募股，这批早期投资有望创下风投史上规模顶尖的账面收益。
 
-李勇严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，特别是在党的二十大后仍不知止，性质严重，影响恶劣，应予严肃处理。
+此次收益的主要受益者包括资深选股专家罗恩・巴伦、凯瑟琳・伍德旗下方舟投资公司，以及共同基金巨头富达投资。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经内蒙古自治区纪委常委会会议研究并报内蒙古自治区党委批准，决定给予李勇开除党籍处分；由自治区监委给予其开除公职处分；终止其乌兰察布市第五次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+多位风投机构同样将斩获丰厚回报，其中包括创始人基金、红杉资本、安德森・霍洛维茨基金，还有 D1 资本伙伴、科图管理等对冲基金。
+
+部分养老基金与捐赠基金也将分得这笔巨额收益。
+
+在 SpaceX 的发展前景明朗之前就入局的投资者，如今收获的回报十分惊人。
+
+巴伦在 2017 年通过员工股份认购计划首次投资这家公司，彼时其估值尚不足 220 亿美元，此后他又参与了该公司 27 轮融资。
+
+截至 3 月底，在规模达 104 亿美元的巴伦合伙人基金中，SpaceX 持仓占比达 33%；在巴伦资产基金中占比为 25.5%，成为该机构最重要的投资标的之一。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 04:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 04:24 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:34 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 04:06 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 04:14 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 04:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 04:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 04:16 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 04:34 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 04:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 04:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 04:21 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 04:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 04:20 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 04:14 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 04:33 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 04:16 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 04:27 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 04:17 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 04:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 04:31 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 04:23 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 04:34 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/5465724.shtml)
-- 2026-06-30 04:13 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/11703620639.shtml)
-- 2026-06-30 04:08 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/06578403396.shtml)
-- 2026-06-30 04:32 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/36111182.shtml)
-- 2026-06-30 04:31 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/0177252514.shtml)
-- 2026-06-30 04:28 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/45984161.shtml)
-- 2026-06-30 04:10 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/485516.shtml)
-- 2026-06-30 04:25 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/307875554397.shtml)
-- 2026-06-30 04:18 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/749476305.shtml)
-- 2026-06-30 04:14 - [时光音乐会](http://www.share.minike.top/Article/details/036619.shtml)
-- 2026-06-30 04:23 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/623062293490.shtml)
-- 2026-06-30 04:06 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/50643.shtml)
-- 2026-06-30 04:25 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/98328121.shtml)
-- 2026-06-30 04:14 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/279625793854.shtml)
-- 2026-06-30 04:17 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/295203341.shtml)
+- 2026-06-30 04:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/5885009712.shtml)
+- 2026-06-30 04:25 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/6176188.shtml)
+- 2026-06-30 04:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/303870.shtml)
+- 2026-06-30 04:14 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/0946060.shtml)
+- 2026-06-30 04:31 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/914332159.shtml)
+- 2026-06-30 04:38 - [金刚川](https://www.blog.kurohicncr.top/Article/details/81969.shtml)
+- 2026-06-30 04:24 - [金牌调解](http://www.share.minike.top/Article/details/33660638.shtml)
+- 2026-06-30 04:20 - [请回答王牌2019](https://www.blog.minike.top/Article/details/10100.shtml)
+- 2026-06-30 04:41 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/535410106.shtml)
+- 2026-06-30 04:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/993054.shtml)
+- 2026-06-30 04:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/2473970470.shtml)
+- 2026-06-30 04:30 - [斗破苍穹](https://www.blog.minike.top/Article/details/241332337954.shtml)
+- 2026-06-30 04:18 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/76584832068.shtml)
+- 2026-06-30 04:39 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/272684668821.shtml)
+- 2026-06-30 04:33 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/936978.shtml)

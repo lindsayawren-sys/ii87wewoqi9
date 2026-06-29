@@ -1,59 +1,60 @@
-# 515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖
+# 钼代钨+AI液冷+地缘缓和！多重利好共振，华宝基金有色ETF（159876）最高飙涨超7%，获资金净申购9460万份！
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于
+周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！ 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。 伴随火热行情，资
 
 ## 正文
 
-专题：515投资者保护！
+周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！
 
-鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。
+热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。
 
-据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于为广大高校学子搭建触达行业前沿理论与实务的学习交流平台，在课程打造方面结合高校需求，以“成体系，有深度”为原则，精准施教，于2025年秋季携手上海证券报、上海财经大学成功举办第五期《基金实战专题》国民教育高质量投教课程，为来自近10所高校的100余位硕士研究生带来了一场体系完备、内容精深的金融实务课。
+伴随火热行情，资金积极进场布局！
 
-该课程延续“成体系、有深度”的核心原则，特邀鹏华基金8位基本面投资专家组成讲师团队，围绕“创新科技、创新消费、创新国粹”三大主题，精心设计了八大核心专题。
+数据显示，有色ETF华宝（159876）全天获资金净申购9460万份。
 
-讲师们凭借扎实的理论功底与丰富的实战经验，将前沿投资理论与市场实践深度融合，助力学子构建从认知到实战的完整知识框架。
+成份股狂掀涨停潮，铜陵有色、洛阳钼业、金钼股份、北方铜业、海亮股份、金田股份、驰宏锌锗7股涨停，锡业股份、云南铜业、江西铜业盘中触板，权重股紫金矿业涨超6%，北方稀土、中国铝业涨逾4%。
 
-课程内容紧密契合国家产业发展趋势，覆盖科技、消费、医药、半导体、化工、AI等重点领域，课程层层递进、脉络清晰，赢得学子广泛好评。
+今日有色金属板块缘何大涨？
 
-第五期课程在传承既往高品质的基础上，进一步优化内容呈现方式，通过专业课件、案例拆解与互动答疑等多种形式，将复杂金融知识转化为生动易懂的教学内容，有效提升了学习体验。
+或可从三个维度进行拆解： 1、宏观层面，美国总统特朗普释放出美国与伊朗“即将达成和平协议”的信号，地缘风险溢价回落，风险偏好显著修复。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 04:31 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 04:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 04:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 04:23 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 04:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 04:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 04:24 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:24 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:30 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 04:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 04:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 04:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 04:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 04:12 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 04:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 04:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 04:34 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 04:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 04:15 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:27 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 04:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/79785.shtml)
-- 2026-06-30 04:22 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/5127701.shtml)
-- 2026-06-30 04:34 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/311208.shtml)
-- 2026-06-30 04:23 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/82357994.shtml)
-- 2026-06-30 04:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/844694698.shtml)
-- 2026-06-30 04:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/89632328436.shtml)
-- 2026-06-30 04:22 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/6296857.shtml)
-- 2026-06-30 04:30 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/882795730409.shtml)
-- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/476918270.shtml)
-- 2026-06-30 04:32 - [日本反击率先破门](http://www.share.minike.top/Article/details/7837292.shtml)
-- 2026-06-30 04:06 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/42237097.shtml)
-- 2026-06-30 04:34 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/1991557.shtml)
-- 2026-06-30 04:13 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4202413.shtml)
-- 2026-06-30 04:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/296125517.shtml)
-- 2026-06-30 04:20 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/84820081.shtml)
+- 2026-06-30 04:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/57505.shtml)
+- 2026-06-30 04:41 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/1023136892.shtml)
+- 2026-06-30 04:12 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/01218807343.shtml)
+- 2026-06-30 04:25 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/6458453.shtml)
+- 2026-06-30 04:35 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/12716.shtml)
+- 2026-06-30 04:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/10668918.shtml)
+- 2026-06-30 04:40 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/80985920.shtml)
+- 2026-06-30 04:15 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/17682974608.shtml)
+- 2026-06-30 04:16 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/5112930.shtml)
+- 2026-06-30 04:22 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/189588675.shtml)
+- 2026-06-30 04:13 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/93843.shtml)
+- 2026-06-30 04:26 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/32941916.shtml)
+- 2026-06-30 04:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/96178.shtml)
+- 2026-06-30 04:13 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/50993149236.shtml)
+- 2026-06-30 04:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/45015793.shtml)

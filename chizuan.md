@@ -1,56 +1,61 @@
-# 侨博士聚穗 广州邀英才筑梦大湾区
+# 日本民众集会 反对高市政权推动扩军修宪
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？那一定是最需要他的地方。”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。 他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。” 从美国、英国、德国、新加坡等国家学成归来的十
+当地时间13日，部分日本民众在东京新宿举行集会。他们手持“反对修宪”“反对战争”等标语，强烈反对高市政权推动扩军修宪、大幅增加防卫费、解禁杀伤性武器出口等一系列危险动向。 集会参加者：日本的粮食自给率本来就非常低。因此，比起武器买卖，更重要的应该是通过与其他国家之间的协商与外交确保粮食供应。 集会参加者：目前对于防卫费增长的制约机制已经越来越弱了。日本过去曾经有一个“防卫费不超
 
 ## 正文
 
-中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？
+当地时间13日，部分日本民众在东京新宿举行集会。
 
-那一定是最需要他的地方。
+他们手持“反对修宪”“反对战争”等标语，强烈反对高市政权推动扩军修宪、大幅增加防卫费、解禁杀伤性武器出口等一系列危险动向。
 
-”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。
+集会参加者：日本的粮食自给率本来就非常低。
 
-他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。
+因此，比起武器买卖，更重要的应该是通过与其他国家之间的协商与外交确保粮食供应。
 
-” 从美国、英国、德国、新加坡等国家学成归来的十余位海外侨博士，当天与海内外广州茶居主理人代表、广州侨界挚友代表等齐聚广东粤港澳大湾区国家纳米科技创新研究院本部园区，共同参加广州茶居·侨博士茶局茶叙。
+集会参加者：目前对于防卫费增长的制约机制已经越来越弱了。
 
-本次活动由广州市归国华侨联合会、广东粤港澳大湾区国家纳米科技创新研究院主办。
+日本过去曾经有一个“防卫费不超过GDP的1%”的限制，但这个限制逐渐被打破，现在已经到了看不到上限的地步。
 
-今年，广州市侨联将参与主办第十五届中国创新创业大赛纳米产业技术创新专业赛，同时，经向工信部申请，本次大赛还将首次增设侨博士精英赛赛道，旨在为海内外侨界英才展现科创成果、匹配全周期创业支持提供重要平台。
+我希望日本政府能够对防卫费的增长设置明确的限制。
 
-广州市侨联党组书记、主席卞勇邀请广大侨博士参与侨博士精英赛以及即将举办的2026“百万英才创在广州”活动。
+集会参加者：对于可能为战争做准备的法案，政府在没有进行充分对话，也没有充分向民众告知相关信息的情况下就作出决定，这让我感到非常强烈的不安和愤怒。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 04:11 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 04:19 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 04:29 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 04:06 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 04:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 04:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 04:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 04:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 04:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 04:16 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 04:22 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 04:34 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 04:31 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 04:33 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 04:22 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 04:34 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 04:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:41 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 04:36 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 04:19 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 04:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 04:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/386204620.shtml)
-- 2026-06-30 04:26 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/212867071124.shtml)
-- 2026-06-30 04:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/891617712.shtml)
-- 2026-06-30 04:15 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/37418871.shtml)
-- 2026-06-30 04:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/3603604.shtml)
-- 2026-06-30 04:17 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/45047753.shtml)
-- 2026-06-30 04:29 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/75227.shtml)
-- 2026-06-30 04:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/37628.shtml)
-- 2026-06-30 04:12 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/891694765824.shtml)
-- 2026-06-30 04:26 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/24709681.shtml)
-- 2026-06-30 04:12 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/47074.shtml)
-- 2026-06-30 04:32 - [世界杯](https://www.share.minike.top/Article/details/35977144404.shtml)
-- 2026-06-30 04:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/05044115135.shtml)
-- 2026-06-30 04:20 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/3580801.shtml)
-- 2026-06-30 04:28 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/993655181944.shtml)
+- 2026-06-30 04:36 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/855882273.shtml)
+- 2026-06-30 04:30 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/881550.shtml)
+- 2026-06-30 04:38 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/497602959.shtml)
+- 2026-06-30 04:20 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/449248106.shtml)
+- 2026-06-30 04:24 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/50271698.shtml)
+- 2026-06-30 04:38 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/30580007948.shtml)
+- 2026-06-30 04:33 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/60682801973.shtml)
+- 2026-06-30 04:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/79730814.shtml)
+- 2026-06-30 04:17 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/6940417305.shtml)
+- 2026-06-30 04:37 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/09396538.shtml)
+- 2026-06-30 04:27 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/79454.shtml)
+- 2026-06-30 04:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/4355043.shtml)
+- 2026-06-30 04:15 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/641815.shtml)
+- 2026-06-30 04:39 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/27737755.shtml)
+- 2026-06-30 04:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/558034225.shtml)

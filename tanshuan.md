@@ -1,56 +1,56 @@
-# 2026公众科学日：中国科学院138家机构单位全国联动向社会开放
+# 传承信仰的力量 经典话剧《红岩》在沪亮相
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电 (记者 孙自法)2026年已是第二十二届的中国科学院公众科学日5月16日如约而至，聚焦“赴科学之约，赋未来之翼”主题，中国科学院位于全国的138家院属研究机构及相关单位联动，向社会公众开放科研场所超过300处，举办约350场科普活动，6000余名科研工作者和志愿者邀约大众共同参与。 本届公众科学日立足中国科学院国家战略科技力量主力军使命定位，集中展示中国
+中新网上海6月12日电 (谢梦圆)12日下午，由中国文联戏剧艺术中心指导、中国国家铁路集团有限公司党组宣传部监制、中国铁路文工团出品的经典话剧《红岩》亮相上海，在同济大学四平路校区礼堂上演。 此次演出的话剧《红岩》改编自同名经典革命历史小说，是中国铁路文工团的经典剧目，经过四次创排，先后在北京、重庆、成都、长沙、南昌等地巡演，生动讲述了在重庆解放前夕，许云峰、江姐、成岗等共产党
 
 ## 正文
 
-中新网北京5月16日电 (记者 孙自法)2026年已是第二十二届的中国科学院公众科学日5月16日如约而至，聚焦“赴科学之约，赋未来之翼”主题，中国科学院位于全国的138家院属研究机构及相关单位联动，向社会公众开放科研场所超过300处，举办约350场科普活动，6000余名科研工作者和志愿者邀约大众共同参与。
+中新网上海6月12日电 (谢梦圆)12日下午，由中国文联戏剧艺术中心指导、中国国家铁路集团有限公司党组宣传部监制、中国铁路文工团出品的经典话剧《红岩》亮相上海，在同济大学四平路校区礼堂上演。
 
-本届公众科学日立足中国科学院国家战略科技力量主力军使命定位，集中展示中国科学院在加快抢占科技制高点、有力支撑科技强国建设中的新进展、新成果、新作为，推动前沿科技从实验室走向公众视野，让更多青少年在亲近科学、体验科学中种下科学梦想的种子，让更多社会公众拥抱科学、理解科学，推动崇尚科学、追求创新在全社会蔚然成风。
+此次演出的话剧《红岩》改编自同名经典革命历史小说，是中国铁路文工团的经典剧目，经过四次创排，先后在北京、重庆、成都、长沙、南昌等地巡演，生动讲述了在重庆解放前夕，许云峰、江姐、成岗等共产党员因叛徒出卖被捕，在狱中顽强斗争，迎接新中国黎明的故事。
 
-在院士领衔发挥科普示范带动作用方面，数十位两院院士围绕多个学科领域开展科普报告和互动交流，讲解最新最前沿的科研成果。
+为进一步弘扬红岩精神、传承信仰力量，中国铁路上海局集团有限公司(简称“上铁集团”)邀请干部职工、同济大学师生等共同观剧，在舞台光影中重温不朽红岩精神，邂逅跨越时代的感动。
 
-开放是中国科学院公众科学日的关键词，一批大科学装置、实验室和野外台站集中向公众开放。
+剧中角色江姐、许云峰、成岗等不畏酷刑、慷慨赴死的坚贞和不屈，深深打动观众，现场不时爆发雷鸣般的掌声。
 
-大科学装置方面，高能物理研究所在北京怀柔和东莞松山湖分别开放同步辐射光源和中国散裂中子源，生物物理研究所首次开放多模态跨尺度生物医学成像设施；国家同步辐射实验室与深空探测、半导体芯片物理与技术、脑认知与类脑智能等全国重点实验室开门迎客；精密测量科学与技术创新研究院、西北高原生物研究所等组织实地体验武汉大地测量、青海海北高寒草地生态系统等国家级野外台站。
+演出结束后，上海动车段调试车间列调一班工长张华，“最美铁路人”、上海机辆段“周恩来号”机车组党支部书记冯剑坚，上海客运段高铁一车队业务员顾蓉等铁路劳模，为现场铁路干部职工和同济大学师生带来“对话《红岩》：穿越时空的信仰传承”情景大思政课，深情讲述新时代铁路人感悟红岩精神、拼搏奋斗追梦的感人故事。
 
-本届公众科学日还专门为科学教师、香港青少年两大群体量身定制探访活动：60位科学教师将参观中国科学院科技成就展，并深入科研院所参与特色实操研学；50位香港青少年代表走进深圳先进技术研究院，参观高端科研平台，参与科普互动体验，与内地科学家面对面交流。
+“这是一场直击心灵的艺术盛宴。
 
-围绕“新质生产力”主题，中国科学院各地院所结合学科特色推出丰富多彩的科普活动。
+我们新时代‘周恩来号’机车组精神‘忠诚热爱、奋斗担当，手握闸把、心系旅客’，是红岩精神在铁路的传承与发展。
 
-新材料领域，过程工程研究所搭建锂资源高值化利用全景科普场景，从盐湖提取、矿石冶炼到高端材料制备与绿色回收，展示“白色石油”全生命周期；国家纳米科学中心开放微纳加工超净室，带领公众近距离了解前沿材料和先进制造技术；新疆理化技术研究所结合区域特色，围绕特色资源高值化利用、新材料研发等内容开展科普活动。
+今后我们将赤诚忠魂融入每一次值乘任务，守护万千旅客归途，让红岩精神随着‘周恩来号’机车在飞驰铁道线上代代相传。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 04:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 04:25 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 04:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 04:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 04:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 04:06 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 04:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 04:33 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 04:38 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 04:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 04:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 04:19 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 04:20 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 04:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 04:39 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 04:40 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/99493.shtml)
-- 2026-06-30 04:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/6297888240.shtml)
-- 2026-06-30 04:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/002644724328.shtml)
-- 2026-06-30 04:15 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/20734125.shtml)
-- 2026-06-30 04:20 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/099708.shtml)
-- 2026-06-30 04:23 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/786577440.shtml)
-- 2026-06-30 04:14 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/69506877.shtml)
-- 2026-06-30 04:24 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/7506746049.shtml)
-- 2026-06-30 04:10 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/67187549.shtml)
-- 2026-06-30 04:19 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/576945343.shtml)
-- 2026-06-30 04:18 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/4335934.shtml)
-- 2026-06-30 04:17 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/79258045.shtml)
-- 2026-06-30 04:34 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/40250683.shtml)
-- 2026-06-30 04:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/29938130.shtml)
-- 2026-06-30 04:27 - [一见倾心](https://www.share.kurohicncr.top/Article/details/4204828.shtml)
+- 2026-06-30 04:35 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/65088338824.shtml)
+- 2026-06-30 04:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/95707855181.shtml)
+- 2026-06-30 04:27 - [孙兴慜道歉](https://www.share.minike.top/Article/details/837666055.shtml)
+- 2026-06-30 04:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/50321.shtml)
+- 2026-06-30 04:38 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/963645.shtml)
+- 2026-06-30 04:16 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/073328907765.shtml)
+- 2026-06-30 04:39 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/452693777.shtml)
+- 2026-06-30 04:25 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/261911197.shtml)
+- 2026-06-30 04:32 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/56805.shtml)
+- 2026-06-30 04:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/829057.shtml)
+- 2026-06-30 04:40 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/05912.shtml)
+- 2026-06-30 04:33 - [极限挑战第一季](http://www.share.minike.top/Article/details/419982509.shtml)
+- 2026-06-30 04:32 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/89002495.shtml)
+- 2026-06-30 04:16 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/55645.shtml)
+- 2026-06-30 04:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/250715704501.shtml)

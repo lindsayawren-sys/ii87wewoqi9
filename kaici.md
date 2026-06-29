@@ -1,57 +1,56 @@
-# 超市标价15元结账收29.9元 阴阳价格陷阱如何防
+# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-“标价15元结账收29.9元”——这则消息最近引发了众多消费者的共鸣和热议。据反映，不少消费者在超市购物时遇到了低价高卖的“阴阳价格”陷阱：结账后发现费用超出预期，仔细核对小票才发现，一些商品的收费金额比货架上价签标注的高出许多。其中最夸张的一例是，一款零食标价15元，结账时竟被收取29.9元，差价接近一倍。这种“看的是一套价、付的是另一套价”的消费陷阱，让越来越多的人开始警惕
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
 
 ## 正文
 
-“标价15元结账收29.9元”——这则消息最近引发了众多消费者的共鸣和热议。
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
 
-据反映，不少消费者在超市购物时遇到了低价高卖的“阴阳价格”陷阱：结账后发现费用超出预期，仔细核对小票才发现，一些商品的收费金额比货架上价签标注的高出许多。
+《宣言》的达成，将发展权正式确立为一项人权。
 
-其中最夸张的一例是，一款零食标价15元，结账时竟被收取29.9元，差价接近一倍。
+《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
 
-这种“看的是一套价、付的是另一套价”的消费陷阱，让越来越多的人开始警惕日常购物中的隐形套路。
+在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
 
-事实上，“阴阳价格”问题在零售行业并非新鲜事。
+气候变化是人类当前面临的最严峻挑战之一。
 
-从大型连锁超市到社区便利店，从线下实体店到线上电商平台，消费者遭遇价格不符的情况时有发生。
+联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
 
-有的超市货架上的促销标签标注的是“会员价”，结账时系统却按非会员价计费；有的商品参与“满减活动”但收银台系统未及时更新，导致实际扣款金额与预期不符；还有的则是纯粹的管理疏忽——价签更换不及时、条码对应错误、促销信息不同步等。
+据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
 
-无论原因是什么，最终吃亏的都是没有仔细核对小票的消费者。
+在此背景下，“气候正义”概念正从边缘走向全球核心议程。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 04:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 04:11 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 04:24 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 04:30 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 04:21 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 04:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 04:10 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 04:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 04:13 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 04:27 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 04:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 04:19 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 04:26 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 04:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:16 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 04:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 04:41 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/311077032.shtml)
-- 2026-06-30 04:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/09259.shtml)
-- 2026-06-30 04:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/87321300.shtml)
-- 2026-06-30 04:11 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/620221.shtml)
-- 2026-06-30 04:22 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/007669025.shtml)
-- 2026-06-30 04:29 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/23941166.shtml)
-- 2026-06-30 04:30 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/219475719.shtml)
-- 2026-06-30 04:21 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/711736.shtml)
-- 2026-06-30 04:21 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/3472243548.shtml)
-- 2026-06-30 04:11 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/535965639198.shtml)
-- 2026-06-30 04:06 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/229816777.shtml)
-- 2026-06-30 04:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/76122125.shtml)
-- 2026-06-30 04:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/35712665126.shtml)
-- 2026-06-30 04:27 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/42282073732.shtml)
-- 2026-06-30 04:24 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/80173140782.shtml)
+- 2026-06-30 04:18 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/067310.shtml)
+- 2026-06-30 04:27 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/77370450.shtml)
+- 2026-06-30 04:20 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/360643.shtml)
+- 2026-06-30 04:28 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/76715272062.shtml)
+- 2026-06-30 04:17 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/044486740708.shtml)
+- 2026-06-30 04:33 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/783243860.shtml)
+- 2026-06-30 04:39 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/66327.shtml)
+- 2026-06-30 04:36 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/94001464793.shtml)
+- 2026-06-30 04:17 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/004301.shtml)
+- 2026-06-30 04:16 - [刘念回应](https://www.blog.minike.top/Article/details/59971.shtml)
+- 2026-06-30 04:40 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/92101.shtml)
+- 2026-06-30 04:17 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/374037.shtml)
+- 2026-06-30 04:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/945286.shtml)
+- 2026-06-30 04:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/279942098004.shtml)
+- 2026-06-30 04:24 - [送你一朵小红花](https://www.blog.minike.top/Article/details/71105027.shtml)

@@ -1,58 +1,57 @@
-# 时政微观察丨习主席深刻阐释“中美建设性战略稳定关系”的核心要义
+# 盘前：航天概念股整体走高 纳指期货涨0.4%
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-应习近平主席邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。 这是中美两国元首继去年10月韩国釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。 中美关系是当今世界最重要的双边关系之一，中美两国的战略选择深刻影响世界历史的演进方向。 去年以来，习近平主席同特朗普总统多次通电话、互致信函，在韩国釜山成功会晤，围绕中美关系和国际形势展开战略沟通，为中美关系掌舵领航。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 随着美国和伊朗即将达成结束战争协议的消息进一步发酵，全球股市和债市持续反弹，油价大幅下跌，比特币走低，黄金上涨。 道琼斯工业平均指数期货上涨0.6%，标普500指数期货上涨0.5%，以科技股为主的纳斯达克指数期货上涨0.4%。此前，三大股指周四全线收高，并录得4月初以来最大单日百分比涨幅。 全球股市普涨 欧
 
 ## 正文
 
-应习近平主席邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 随着美国和伊朗即将达成结束战争协议的消息进一步发酵，全球股市和债市持续反弹，油价大幅下跌，比特币走低，黄金上涨。
 
-这是中美两国元首继去年10月韩国釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+道琼斯工业平均指数期货上涨0.6%，标普500指数期货上涨0.5%，以科技股为主的纳斯达克指数期货上涨0.4%。
 
-中美关系是当今世界最重要的双边关系之一，中美两国的战略选择深刻影响世界历史的演进方向。
+此前，三大股指周四全线收高，并录得4月初以来最大单日百分比涨幅。
 
-去年以来，习近平主席同特朗普总统多次通电话、互致信函，在韩国釜山成功会晤，围绕中美关系和国际形势展开战略沟通，为中美关系掌舵领航。
+全球股市普涨 欧洲股市开盘上涨，跟随美国和亚洲市场走势。
 
-2026年，一个对中美都具有特殊意义的年份。
+泛欧Stoxx 600指数上涨1.2%，消费和工业股领涨；不过，能源股因油价下跌承压。
 
-中国“十五五”开局起步，美国迎来独立250周年。
+德国DAX指数上涨1.2%，伦敦FTSE 100指数上涨0.7%，法国CAC 40指数上涨1.4%。
 
-中美又一次“跨越太平洋的握手”，牵动着世界目光。
+稍早，亚洲股市指数上涨2.8%，韩国KOSPI指数领涨。
 
-构建“中美建设性战略稳定关系” 中美两个大国打交道，最重要的是树立正确的战略认知，要回答好中美到底是对手还是伙伴这个管总的问题。
+日本日经指数上涨2.8%，香港恒生指数上涨1.4%。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 04:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 04:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 04:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 04:17 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 04:28 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 04:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 04:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 04:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 04:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 04:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 04:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 04:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 04:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 04:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 04:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 04:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 04:38 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 04:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 04:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 04:34 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 04:37 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/7051011.shtml)
-- 2026-06-30 04:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/62618.shtml)
-- 2026-06-30 04:22 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/903876.shtml)
-- 2026-06-30 04:36 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/5187262454.shtml)
-- 2026-06-30 04:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/485928.shtml)
-- 2026-06-30 04:12 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/15449410451.shtml)
-- 2026-06-30 04:33 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/269271.shtml)
-- 2026-06-30 04:32 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/241652536.shtml)
-- 2026-06-30 04:14 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/322391.shtml)
-- 2026-06-30 04:34 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/178643975416.shtml)
-- 2026-06-30 04:13 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/50315.shtml)
-- 2026-06-30 04:21 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/038768.shtml)
-- 2026-06-30 04:06 - [一生一世](https://www.share.kurohicncr.top/Article/details/6789613639.shtml)
-- 2026-06-30 04:24 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/715270.shtml)
-- 2026-06-30 04:19 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/066659.shtml)
+- 2026-06-30 04:37 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/25184430807.shtml)
+- 2026-06-30 04:20 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/51553.shtml)
+- 2026-06-30 04:39 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/328784978.shtml)
+- 2026-06-30 04:39 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/6818062.shtml)
+- 2026-06-30 04:30 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/849506128.shtml)
+- 2026-06-30 04:35 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/762799627.shtml)
+- 2026-06-30 04:16 - [沉睡花园](https://www.blog.minike.top/Article/details/594401.shtml)
+- 2026-06-30 04:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/345506084.shtml)
+- 2026-06-30 04:18 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/3324869.shtml)
+- 2026-06-30 04:35 - [金牌调解](https://www.blog.minike.top/Article/details/423521.shtml)
+- 2026-06-30 04:23 - [《共患难》](http://www.share.minike.top/Article/details/35073600483.shtml)
+- 2026-06-30 04:34 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/88566.shtml)
+- 2026-06-30 04:24 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/12218.shtml)
+- 2026-06-30 04:28 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/907627451400.shtml)
+- 2026-06-30 04:16 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/13486169690.shtml)

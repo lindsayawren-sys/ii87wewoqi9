@@ -1,59 +1,60 @@
-# 广西柳州文博旅游艺术月推出近60项活动打造文化与味蕾盛宴
+# 美伊，生变！以色列，突然动手了
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-中新网柳州5月16日电(林馨)5月15日，2026年柳州文博旅游艺术月在广西柳州市博物馆拉开序幕。活动为期一个月，以“来柳州一起玩”为核心主题，打造文化与味蕾的盛宴。 活动由柳州市文化广电和旅游局主办，整合“5·18国际博物馆日”“5·19中国旅游日”“5·23广西全民艺术普及月”“文化和自然遗产日”四大文旅主题日，推出近60项特色鲜明、惠民利民的文旅活动，全面展现柳州市历史底
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】以色列又捣乱 中国基金报记者 泰勒 大家好啊，这个周末没有什么利空消息，美伊谈判这次似乎有谈成的可能，但是，以色列周日又动手了，给周一市场蒙上一层阴影。 周末大事 央行：前五个月社会融资规模增量累计为17.48万亿元 人民币贷款增加9.11万亿元 初步统计，2026年5月末社会融资
 
 ## 正文
 
-中新网柳州5月16日电(林馨)5月15日，2026年柳州文博旅游艺术月在广西柳州市博物馆拉开序幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-活动为期一个月，以“来柳州一起玩”为核心主题，打造文化与味蕾的盛宴。
+来源：中国基金报 【导读】以色列又捣乱 中国基金报记者 泰勒 大家好啊，这个周末没有什么利空消息，美伊谈判这次似乎有谈成的可能，但是，以色列周日又动手了，给周一市场蒙上一层阴影。
 
-活动由柳州市文化广电和旅游局主办，整合“5·18国际博物馆日”“5·19中国旅游日”“5·23广西全民艺术普及月”“文化和自然遗产日”四大文旅主题日，推出近60项特色鲜明、惠民利民的文旅活动，全面展现柳州市历史底蕴、民族风情与城市活力。
+周末大事 央行：前五个月社会融资规模增量累计为17.48万亿元 人民币贷款增加9.11万亿元 初步统计，2026年5月末社会融资规模存量为458.81万亿元，同比增长7.7%。
 
-开幕式现场，真人扮演的“柳宗元”“刘三姐”角色齐聚现场与游客互动，解锁文旅沉浸式新体验。
+2026年前五个月社会融资规模增量累计为17.48万亿元，比上年同期少1.16万亿元。
 
-此外，2026柳州螺蛳创新菜大赛同步启动。
+前五个月人民币贷款增加9.11万亿元。
 
-螺蛳全家福、螺蛳炒粉、螺蛳猪扒、螺蛳面包等约60种柳州螺蛳创新菜现场展出，活动设置免费试吃、互动打卡环节，吸引游客品尝“舌尖上的柳州”。
+5月末，广义货币（M2）余额353.67万亿元，同比增长8.6%。
 
-据悉，2026年柳州文博旅游艺术月期间，全市文博场馆推出20余项文博主题活动，涵盖主题展览、公益讲座、研学实践、非遗文创、互动体验、公益服务、仪式发布等。
+特朗普：美伊定于14日签署协议 美国总统特朗普6月13日在社交媒体发文说，美国和伊朗定于6月14日签署协议，霍尔木兹海峡将在协议签署后立即开放。
 
-柳州市博物馆推出馆藏珍品与紫荆花文化主题展，讲好“柳州故事”；柳州工业博物馆首发全国工业AI研学路线，上线全市首个全场景无障碍导览系统；柳州白莲洞洞穴科学博物馆打造史前生存挑战营；柳州市军事博物园活化红色资源，推出沉浸式互动与研学课程，让文物“活起来”、历史“潮起来”。
+特朗普称，伊朗已不再寻求拥有核武器，也不会购买、自主研发或以任何其他方式获取核武器。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 04:13 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 04:31 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 04:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 04:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 04:14 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 04:15 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 04:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 04:06 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 04:30 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 04:15 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:06 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 04:30 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 04:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 04:39 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 04:27 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 04:17 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 04:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 04:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 04:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:27 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 04:27 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 04:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 04:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 04:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 04:22 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [第一炉香](http://www.share.minike.top/Article/details/23040622.shtml)
-- 2026-06-30 04:08 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/301082.shtml)
-- 2026-06-30 04:12 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/25850230860.shtml)
-- 2026-06-30 04:17 - [天道](https://www.blog.kurohicncr.top/Article/details/55716778.shtml)
-- 2026-06-30 04:07 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/810031759.shtml)
-- 2026-06-30 04:22 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/44923454829.shtml)
-- 2026-06-30 04:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/7275711.shtml)
-- 2026-06-30 04:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/863192948644.shtml)
-- 2026-06-30 04:27 - [日本领先巴西](https://www.share.minike.top/Article/details/964813230.shtml)
-- 2026-06-30 04:23 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/789110155605.shtml)
-- 2026-06-30 04:31 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/9132042287.shtml)
-- 2026-06-30 04:13 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/2361951304.shtml)
-- 2026-06-30 04:20 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/193310.shtml)
-- 2026-06-30 04:27 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/446245740.shtml)
-- 2026-06-30 04:22 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/510196.shtml)
+- 2026-06-30 04:19 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/3373302.shtml)
+- 2026-06-30 04:38 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/91119.shtml)
+- 2026-06-30 04:39 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/624145108055.shtml)
+- 2026-06-30 04:26 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/08759167.shtml)
+- 2026-06-30 04:27 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/75306245375.shtml)
+- 2026-06-30 04:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/70046655009.shtml)
+- 2026-06-30 04:19 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4346036342.shtml)
+- 2026-06-30 04:24 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/31466.shtml)
+- 2026-06-30 04:25 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/1641295359.shtml)
+- 2026-06-30 04:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/92834018.shtml)
+- 2026-06-30 04:14 - [美股](http://www.blog.kurohicncr.top/Article/details/283252352825.shtml)
+- 2026-06-30 04:41 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/169764129.shtml)
+- 2026-06-30 04:36 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/84225213.shtml)
+- 2026-06-30 04:26 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/2123749851.shtml)
+- 2026-06-30 04:35 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/884229061.shtml)

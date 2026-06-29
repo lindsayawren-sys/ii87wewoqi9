@@ -1,57 +1,50 @@
-# 博物馆里的“共同体”叙事
+# 第一太平获Brandes Investment Partners, L.P.增持约176.01万股 每股作价4.89港元
 
-> 更新时间：2026-06-30 04:36:02 UTC+8
+> 更新时间：2026-06-30 04:42:03 UTC+8
 
 ## 摘要
 
-在我国广袤的民族地区，一座座博物馆正日益成为讲好中华民族共同体故事、构筑中华民族共有精神家园的生动课堂。5·18国际博物馆日将至，今年的主题“博物馆：联结世界的桥梁”，恰与博物馆在铸牢中华民族共同体意识中的重要使命相契合——它们是连接历史与当下、推动中华文明与世界对话的纽带，是各族儿女的“精神绿洲”。本期，我们邀请广西、新疆、贵州、宁夏等地博物馆的相关负责人及研究者，分享他们以
+香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。责任编辑：卢昱君
 
 ## 正文
 
-在我国广袤的民族地区，一座座博物馆正日益成为讲好中华民族共同体故事、构筑中华民族共有精神家园的生动课堂。
+香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。
 
-5·18国际博物馆日将至，今年的主题“博物馆：联结世界的桥梁”，恰与博物馆在铸牢中华民族共同体意识中的重要使命相契合——它们是连接历史与当下、推动中华文明与世界对话的纽带，是各族儿女的“精神绿洲”。
+增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。
 
-本期，我们邀请广西、新疆、贵州、宁夏等地博物馆的相关负责人及研究者，分享他们以文物为载体、以历史为脉络，讲好各民族交往交流交融故事的实践与思考。
-
-我们期待，越来越多的文博场馆，能用贴近人心的方式，将中华民族共同体的故事讲得深入、透彻、鲜活，让民族团结的种子，在每一位走近它的人心中，生根、开花。
-
-——编者 文物“开口说话” 陶少艺 广西壮族自治区博物馆是国家一级博物馆，现有藏品近10万件(套)，种类丰富，历史跨度从旧石器时代直到近现代，见证了广西各个时期的历史发展和演变。
-
-如何让这些承载着八桂记忆的珍贵文物“开口说话”，让观众在观展中自觉增进“五个认同”，是我们孜孜以求的展陈目标。
-
-“广西古代文明陈列”是我馆改扩建后举办的首个反映广西古代文明的高水平的通史类陈列。
-
-策划团队秉持“以物证史、以史增信”的理念，在设计之初就紧扣铸牢中华民族共同体意识主线，坚持增进共同性、尊重和包容差异性，跳出单一地域历史叙事，站在中华民族整体视角谋划展览。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 04:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 04:19 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 04:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 04:16 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 04:27 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 04:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 04:22 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 04:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 04:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 04:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 04:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 04:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 04:16 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:19 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 04:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 04:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 04:30 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 04:34 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 04:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 04:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 04:29 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 04:26 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 04:16 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 04:12 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/9988762287.shtml)
-- 2026-06-30 04:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/32675.shtml)
-- 2026-06-30 04:29 - [世界杯](https://www.share.minike.top/Article/details/060864371106.shtml)
-- 2026-06-30 04:36 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/21143562173.shtml)
-- 2026-06-30 04:27 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/78838043008.shtml)
-- 2026-06-30 04:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/841401.shtml)
-- 2026-06-30 04:35 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/87067131037.shtml)
-- 2026-06-30 04:17 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/218428467.shtml)
-- 2026-06-30 04:09 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/948813220135.shtml)
-- 2026-06-30 04:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/123787006127.shtml)
-- 2026-06-30 04:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/12881584016.shtml)
-- 2026-06-30 04:16 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/6261061475.shtml)
-- 2026-06-30 04:33 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/110156607992.shtml)
-- 2026-06-30 04:30 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/9219818.shtml)
-- 2026-06-30 04:16 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/31048.shtml)
+- 2026-06-30 04:34 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/73554.shtml)
+- 2026-06-30 04:14 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/66690.shtml)
+- 2026-06-30 04:16 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/28550237977.shtml)
+- 2026-06-30 04:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/06434612.shtml)
+- 2026-06-30 04:36 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/128464759.shtml)
+- 2026-06-30 04:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/63263560.shtml)
+- 2026-06-30 04:33 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/398768000481.shtml)
+- 2026-06-30 04:35 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/98013.shtml)
+- 2026-06-30 04:37 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/160804210218.shtml)
+- 2026-06-30 04:21 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/7054567.shtml)
+- 2026-06-30 04:40 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/045236.shtml)
+- 2026-06-30 04:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/722981154102.shtml)
+- 2026-06-30 04:12 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/35387007521.shtml)
+- 2026-06-30 04:37 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/453833.shtml)
+- 2026-06-30 04:17 - [天道](http://www.blog.minike.top/Article/details/51344623878.shtml)
