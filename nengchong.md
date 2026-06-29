@@ -1,59 +1,61 @@
-# 受人类承包商训练AI需求推动，Handshake、Mercor营收大幅增长
+# 联泰环保索赔递交立案，财务造假被监管处罚
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-人工智能企业对海量数据的迫切需求，让几家从事行业内 “不起眼” 业务的初创公司销售额大幅攀升 —— 这些公司签约律师、博士及执业医师，由专业人士对 AI 模型生成的答案进行评分审核。 最新案例便是 Handshake，这家拥有 12 年历史的初创公司最初是面向高校毕业生的求职平台。据两位熟悉其财务状况的人士透露，Handshake 来自 AI 训练业务的年化总营收已逼近10 亿
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2024年9月，联泰环保（维权）收到中国证监会广东监管局下发的《行政处罚决定书》，经监管部门查明，联泰环保的违法事实主要围绕实际控制人及其关联方非经营性资金占用展开。 2022年至2023年1月期间，时任副董事长、实际控制人之一黄婉茹组织、指使公司总经理、财务总监等人，通过第三方将公司资金转至关联方得成投资、达濠市政，
 
 ## 正文
 
-人工智能企业对海量数据的迫切需求，让几家从事行业内 “不起眼” 业务的初创公司销售额大幅攀升 —— 这些公司签约律师、博士及执业医师，由专业人士对 AI 模型生成的答案进行评分审核。
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2024年9月，联泰环保（维权）收到中国证监会广东监管局下发的《行政处罚决定书》，经监管部门查明，联泰环保的违法事实主要围绕实际控制人及其关联方非经营性资金占用展开。
 
-最新案例便是 Handshake，这家拥有 12 年历史的初创公司最初是面向高校毕业生的求职平台。
+2022年至2023年1月期间，时任副董事长、实际控制人之一黄婉茹组织、指使公司总经理、财务总监等人，通过第三方将公司资金转至关联方得成投资、达濠市政，用于关联公司生产经营及偿还贷款等。
 
-据两位熟悉其财务状况的人士透露，Handshake 来自 AI 训练业务的年化总营收已逼近10 亿美元；一年前刚开展这项新业务时，年营收仅 500 万至 1000 万美元。
+公司不仅未及时披露上述关联交易，还在2022年半年度报告遗漏披露4.68亿元，年度报告遗漏披露2.88亿元。
 
-在支付给合作承包商费用后，Handshake 的 AI 训练业务净营收仍接近3 亿美元。
+此外，公司在回复上交所2022年年报信息披露监管工作函时，声称不存在其他关联方非经营性资金占用情形，构成虚假记载。
 
-此外，上述人士补充称，其传统高校招聘业务的年化总营收也接近 1.5 亿美元，该老牌软件业务主要向企业雇主出售求职者数据。
+公司及相关责任人合计罚款金额达1260万元，体现了监管层对财务造假和资金占用行为的“零容忍”态度。
 
-Handshake 或将成为近年第四家年化总营收突破 10 亿美元的数据标注初创公司。
+上海沪紫律师事务所刘鹏律师表示根据《证券法》及《最高人民法院关于审理证券市场虚假陈述侵权民事赔偿案件的若干规定》，因联泰环保虚假陈述行为受损的投资者，有权提起民事诉讼要求赔偿损失。
 
-据《The Information》报道，行业龙头 Surge AI 于 2024 年跨过这一门槛；Scale AI 在去年被 Meta 收购近半数股权前，营收也已达到该规模。
+（刘鹏律师专栏） 符合以下任意区间的即可报名索赔：（联泰环保维权入口） （1）2022年8月27日-2024年4月30日期间买入，并在2024年5月1日之后卖出或仍持有而亏损 （2）2022年1月1日-2024年4月30日期间买入，并在2024年5月1日之后卖出或仍持有而亏损 （本文由上海沪紫律师事务所刘鹏律师供稿，不代表新浪财经的观点。
 
-另一家成立仅 3 年的初创公司 Mercor，雇佣数千名承包商参与 AI 模型训练。
+刘鹏律师，专注证券维权19年，自2006年执业以来，成功为中青宝（维权）、国华网安、劲嘉股份（维权）等 300 余家上市公司的中小投资者成功维权，案件在办数量超过 14000 起，胜诉率达 99.2%。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 06:21 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 06:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 06:15 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:57 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:58 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 06:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 05:58 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 06:05 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 06:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 06:11 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 05:58 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:21 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 06:19 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 06:02 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 06:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 06:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 06:17 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 06:22 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 06:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 06:29 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 06:13 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 06:13 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 06:03 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 06:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 06:07 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:28 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 06:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/379364647.shtml)
-- 2026-06-30 06:08 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/763919882470.shtml)
-- 2026-06-30 06:08 - [《贺子珍》](http://www.share.minike.top/Article/details/88684.shtml)
-- 2026-06-30 06:06 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/3176738.shtml)
-- 2026-06-30 06:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/16044597469.shtml)
-- 2026-06-30 06:16 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/16147458732.shtml)
-- 2026-06-30 05:59 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/646688517420.shtml)
-- 2026-06-30 06:16 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/325095915.shtml)
-- 2026-06-30 05:56 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/13441135.shtml)
-- 2026-06-30 06:11 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/449354423.shtml)
-- 2026-06-30 06:02 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/77938.shtml)
-- 2026-06-30 05:54 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/27671685235.shtml)
-- 2026-06-30 06:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/973963.shtml)
-- 2026-06-30 06:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/76439.shtml)
-- 2026-06-30 06:20 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/763081298.shtml)
+- 2026-06-30 06:10 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3080183150.shtml)
+- 2026-06-30 06:27 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/4816427.shtml)
+- 2026-06-30 06:00 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/64681.shtml)
+- 2026-06-30 06:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/77124184.shtml)
+- 2026-06-30 06:08 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/97015990.shtml)
+- 2026-06-30 06:15 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/28514892.shtml)
+- 2026-06-30 06:05 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/84334078302.shtml)
+- 2026-06-30 06:26 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/869967027.shtml)
+- 2026-06-30 06:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6431825736.shtml)
+- 2026-06-30 06:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/74410737693.shtml)
+- 2026-06-30 06:27 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/848851225516.shtml)
+- 2026-06-30 06:12 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/4604719197.shtml)
+- 2026-06-30 06:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/18825857255.shtml)
+- 2026-06-30 06:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/90880932.shtml)
+- 2026-06-30 06:09 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/126086640.shtml)

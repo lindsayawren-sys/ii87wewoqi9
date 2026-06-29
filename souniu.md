@@ -1,52 +1,60 @@
-# 美国检察官突查美联储总部施工区，对鲍威尔调查升级
+# 中核钛白（钛能化学，002145）股民索赔案持续推进
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 据《华盛顿邮报》援引知情人士消息，当地时间14日，美国华盛顿特区联邦检察官珍妮・皮罗办公室的调查人员未事先通报，突然现身美联储总部，要求查看一处施工现场。报道称，此举标志着对美联储调查的进一步升级。据知情人士透露，皮罗办公室的两名检察官与一名特工在与施工人员交涉后，被告知需预先获得许可方可进入，并被转介至美联储法务团队。 报道称，此举表明，美国司法部并未放弃
+上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非
 
 ## 正文
 
-中新网4月15日电 据《华盛顿邮报》援引知情人士消息，当地时间14日，美国华盛顿特区联邦检察官珍妮・皮罗办公室的调查人员未事先通报，突然现身美联储总部，要求查看一处施工现场。
+上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-报道称，此举标志着对美联储调查的进一步升级。
+（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非公开发行A股股票申请获得中国证监会发审委审核通过。
 
-据知情人士透露，皮罗办公室的两名检察官与一名特工在与施工人员交涉后，被告知需预先获得许可方可进入，并被转介至美联储法务团队。
+2022年7月至8月，中信中证向中核钛白实际控制人王泽龙推荐定增多空方案。
 
-报道称，此举表明，美国司法部并未放弃对美联储主席鲍威尔的调查。
+根据方案，“客户通过场外衍生品交易台直接实现定增多空套利，提前结算收益，无需等待六个月的锁定期，通常一个多月时间即可回笼资金和收益”。
 
-此前报道，美国哥伦比亚特区联邦地区法院首席法官博斯伯格4月3日表示，维持撤销针对美国联邦储备委员会主席鲍威尔传票的裁决。
+王泽龙未将自己通过相关交易安排实际参与非公开发行的信息告知上市公司。
 
-1月，美国司法部向鲍威尔发出传票，就美联储总部大楼翻新工程有关问题进行刑事调查。
+2023年2月24日、3月3日，中核钛白公告非公开发行A股股票相关发行情况报告书，称本次非公开发行对象不存在发行人实际控制人通过直接或间接形式参与本次发行认购的情形。
+
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，综合以上违法事实，根据证券法规定，在2023年2月8日到2024年4月13日之间买入中核钛白股票，并且在2024年4月13日后卖出或继续持有股票的投资者，目前还可发起索赔。
+
+（中核钛白维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 06:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 06:05 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 05:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 06:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:00 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 06:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 06:23 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 06:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 06:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 06:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 06:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 06:10 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 06:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 06:28 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 06:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 06:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 06:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 06:28 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 06:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/003492723.shtml)
-- 2026-06-30 06:23 - [千与千寻](https://www.blog.minike.top/Article/details/3410314451.shtml)
-- 2026-06-30 06:16 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/70614582432.shtml)
-- 2026-06-30 06:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/06804442.shtml)
-- 2026-06-30 06:04 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/4414663.shtml)
-- 2026-06-30 05:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/284271025109.shtml)
-- 2026-06-30 05:58 - [日本进球](https://www.blog.minike.top/Article/details/7978051301.shtml)
-- 2026-06-30 06:15 - [沙丘](https://www.share.minike.top/Article/details/893674079.shtml)
-- 2026-06-30 06:00 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/006291979336.shtml)
-- 2026-06-30 05:54 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/67885077.shtml)
-- 2026-06-30 06:12 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/54193.shtml)
-- 2026-06-30 05:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/99334619.shtml)
-- 2026-06-30 06:22 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/401973089.shtml)
-- 2026-06-30 05:57 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6123853254.shtml)
-- 2026-06-30 06:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0762108.shtml)
+- 2026-06-30 06:16 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/70092558.shtml)
+- 2026-06-30 06:08 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/88998031914.shtml)
+- 2026-06-30 06:10 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/69001.shtml)
+- 2026-06-30 06:07 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/94134021986.shtml)
+- 2026-06-30 06:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/257021.shtml)
+- 2026-06-30 06:21 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/39242173214.shtml)
+- 2026-06-30 06:21 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/95523.shtml)
+- 2026-06-30 06:19 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/901769299679.shtml)
+- 2026-06-30 06:27 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/9180350.shtml)
+- 2026-06-30 06:19 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/2877938699.shtml)
+- 2026-06-30 06:20 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/610948816413.shtml)
+- 2026-06-30 06:25 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/5463607220.shtml)
+- 2026-06-30 06:05 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/4494735958.shtml)
+- 2026-06-30 06:03 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/028670.shtml)
+- 2026-06-30 06:23 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/051015.shtml)

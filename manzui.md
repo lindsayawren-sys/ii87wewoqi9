@@ -1,51 +1,56 @@
-# 洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务
+# 电动车主违规拆改电池引火灾致5死
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 20:15 来源：中国新闻网 4月13日，河南洛阳国际牡丹园内的“太空牡丹”开得正盛，吸引了大批游客前来打卡。这些从太空“出差”归来的“花中贵族”被安置在专属区域。由于游客无法随意进入，工作人员在游客一声声“帅哥”的呼唤中当起了“代拍”。(李超庆 段鹏 刘佳莉 视频来源 洛阳广播电视台） 责任编辑：【罗攀】
+中新网6月17日电(记者 邵萌)6月17日，国家消防救援局举行例行新闻发布会，会上介绍，5月24日衡阳祁东县一沿街多业态的商铺综合楼发生火灾，原因是停在门口的电动自行车锂电池热失控引发，造成5人死亡。涉事电动自行车车主两次违规拆改电池。首次拆改把原车的铅酸电池拆掉，改为网购的三元锂电池，后因电池仓不匹配，擅自将原装锂电池拆解重组使用。今年3月23日，这个车辆曾因锂电池热失控发生
 
 ## 正文
 
-发布时间：2026年04月13日 20:15 来源：中国新闻网 4月13日，河南洛阳国际牡丹园内的“太空牡丹”开得正盛，吸引了大批游客前来打卡。
+中新网6月17日电(记者 邵萌)6月17日，国家消防救援局举行例行新闻发布会，会上介绍，5月24日衡阳祁东县一沿街多业态的商铺综合楼发生火灾，原因是停在门口的电动自行车锂电池热失控引发，造成5人死亡。
 
-这些从太空“出差”归来的“花中贵族”被安置在专属区域。
+涉事电动自行车车主两次违规拆改电池。
 
-由于游客无法随意进入，工作人员在游客一声声“帅哥”的呼唤中当起了“代拍”。
+首次拆改把原车的铅酸电池拆掉，改为网购的三元锂电池，后因电池仓不匹配，擅自将原装锂电池拆解重组使用。
 
-(李超庆 段鹏 刘佳莉 视频来源 洛阳广播电视台） 责任编辑：【罗攀】
+今年3月23日，这个车辆曾因锂电池热失控发生火灾。
+
+但遗憾的是，车主第二次把未起火的锂电池和铅酸电池改装串联使用。
+
+这种反复的野蛮拆改，发生问题就成为必然，过了两个月，再次酿成严重的后果。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 06:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 06:00 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 06:08 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 05:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 06:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 06:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 05:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 06:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 06:17 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:07 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 06:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 06:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 06:01 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 06:08 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 06:28 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 06:28 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 06:06 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 06:11 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 06:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 06:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 06:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 06:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 06:05 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/06647.shtml)
-- 2026-06-30 06:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/971785265962.shtml)
-- 2026-06-30 06:05 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/16957474130.shtml)
-- 2026-06-30 06:14 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/0794630481.shtml)
-- 2026-06-30 05:58 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/79461.shtml)
-- 2026-06-30 06:12 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/037612422844.shtml)
-- 2026-06-30 06:17 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/2197680395.shtml)
-- 2026-06-30 05:54 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/7608415594.shtml)
-- 2026-06-30 05:55 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/6378866871.shtml)
-- 2026-06-30 06:04 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/335915990.shtml)
-- 2026-06-30 06:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/6556672187.shtml)
-- 2026-06-30 06:03 - [扬名立万](http://www.share.minike.top/Article/details/297491036.shtml)
-- 2026-06-30 06:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/693320350.shtml)
-- 2026-06-30 06:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/08256.shtml)
-- 2026-06-30 06:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/201236742.shtml)
+- 2026-06-30 06:17 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/970704753840.shtml)
+- 2026-06-30 06:26 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/03812.shtml)
+- 2026-06-30 06:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/2019601292.shtml)
+- 2026-06-30 06:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/206125580.shtml)
+- 2026-06-30 06:14 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/646196349468.shtml)
+- 2026-06-30 06:27 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/756294093.shtml)
+- 2026-06-30 06:16 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/8901950723.shtml)
+- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/799140670365.shtml)
+- 2026-06-30 06:22 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/95353669233.shtml)
+- 2026-06-30 06:13 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/3718609980.shtml)
+- 2026-06-30 06:21 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/69705003.shtml)
+- 2026-06-30 06:16 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/00994447595.shtml)
+- 2026-06-30 06:22 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/1794052991.shtml)
+- 2026-06-30 06:09 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/610141393.shtml)
+- 2026-06-30 06:14 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/886188.shtml)

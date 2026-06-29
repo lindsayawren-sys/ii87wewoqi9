@@ -1,56 +1,49 @@
-# 4月15日美股成交额前20：英伟达推出量子模型，扩大AI布局
+# 网警侦破一起涉世界杯网络赌博推广引流案件
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-周二美股成交额第1名英伟达收高3.78%，成交309.31亿美元。该股连续第十个交易日上涨，创两年来的最长连涨纪录。 英伟达公司正通过推出一系列专为量子计算设计的新开源模型来扩展其人工智能产品组合。 全新的“Ising”模型利用人工智能处理复杂运算，使量子系统更加实用。其中一个模型专注于校准，它允许系统读取来自量子处理器的数据并实时调整其运行方式。另一个模型则用于纠错，有助于提
+中新网6月18日电 据公安部网安局微信公众号消息，近日，广西玉林公安网安部门深入推进“净网—2026”专项行动，成功侦破一起涉世界杯网络赌博推广引流案件，捣毁违法犯罪窝点1个。 广西玉林公安网安部门工作中发现，2026年5月以来，多个互联网社交平台出现大量图文、视频形式的涉赌推广引流广告，诱导网民进入赌博网站参赌。 经查，犯罪嫌疑人陈某某(男，25岁)纠集陈某(男，26岁)、刘
 
 ## 正文
 
-周二美股成交额第1名英伟达收高3.78%，成交309.31亿美元。
+中新网6月18日电 据公安部网安局微信公众号消息，近日，广西玉林公安网安部门深入推进“净网—2026”专项行动，成功侦破一起涉世界杯网络赌博推广引流案件，捣毁违法犯罪窝点1个。
 
-该股连续第十个交易日上涨，创两年来的最长连涨纪录。
+广西玉林公安网安部门工作中发现，2026年5月以来，多个互联网社交平台出现大量图文、视频形式的涉赌推广引流广告，诱导网民进入赌博网站参赌。
 
-英伟达公司正通过推出一系列专为量子计算设计的新开源模型来扩展其人工智能产品组合。
+经查，犯罪嫌疑人陈某某(男，25岁)纠集陈某(男，26岁)、刘某某(女，25岁)等人设立工作室，专门为赌博网站提供引流推广和运维保障，牟取非法利益，该行为严重扰乱网络空间秩序。
 
-全新的“Ising”模型利用人工智能处理复杂运算，使量子系统更加实用。
-
-其中一个模型专注于校准，它允许系统读取来自量子处理器的数据并实时调整其运行方式。
-
-另一个模型则用于纠错，有助于提高量子计算的准确性和稳定性。
-
-这一进展符合英伟达将人工智能作为所有新兴技术基础组成部分的更大战略。
-
-该公司旨在通过将AI融入量子计算工作流，解决量子系统规模化过程中的一些主要问题。
+目前，陈某某等人已被属地公安机关依法刑事拘留，案件正在进一步侦办中。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 06:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 06:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 06:16 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 05:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 06:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 06:08 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 06:13 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 06:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 06:05 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:18 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 06:17 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 06:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 06:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:03 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 06:25 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 06:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 06:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 06:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 06:15 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 06:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/4392095.shtml)
-- 2026-06-30 06:15 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/893786.shtml)
-- 2026-06-30 06:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/091181457252.shtml)
-- 2026-06-30 06:07 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/1101263570.shtml)
-- 2026-06-30 06:23 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/23217.shtml)
-- 2026-06-30 06:07 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/6925256.shtml)
-- 2026-06-30 05:56 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/5584979625.shtml)
-- 2026-06-30 06:04 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/9064224.shtml)
-- 2026-06-30 06:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/16145405149.shtml)
-- 2026-06-30 06:17 - [毒液2](https://www.share.kurohicncr.top/Article/details/05409.shtml)
-- 2026-06-30 06:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/7107127572.shtml)
-- 2026-06-30 06:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/25159576947.shtml)
-- 2026-06-30 05:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/79280699098.shtml)
-- 2026-06-30 06:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/2284310.shtml)
-- 2026-06-30 06:12 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/576949.shtml)
+- 2026-06-30 06:19 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/73528218433.shtml)
+- 2026-06-30 06:28 - [女心理师](http://www.share.minike.top/Article/details/4258359147.shtml)
+- 2026-06-30 06:24 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/72633.shtml)
+- 2026-06-30 06:27 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6842613.shtml)
+- 2026-06-30 06:13 - [急先锋](https://www.blog.kurohicncr.top/Article/details/9473242059.shtml)
+- 2026-06-30 06:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/213573.shtml)
+- 2026-06-30 06:23 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/413686.shtml)
+- 2026-06-30 06:20 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/887111935.shtml)
+- 2026-06-30 06:14 - [扬名立万](http://www.blog.minike.top/Article/details/63583451345.shtml)
+- 2026-06-30 06:24 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/533292.shtml)
+- 2026-06-30 06:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/407148731.shtml)
+- 2026-06-30 06:23 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/85009094664.shtml)
+- 2026-06-30 06:09 - [周生如故](http://www.blog.kurohicncr.top/Article/details/62112888.shtml)
+- 2026-06-30 06:04 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/551344676597.shtml)
+- 2026-06-30 06:03 - [《共患难》](http://www.share.minike.top/Article/details/7114243898.shtml)

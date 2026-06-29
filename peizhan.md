@@ -1,57 +1,59 @@
-# 瑞银上调特斯拉评级至中性，看好长期AI机遇
+# 国台办：两岸越早实现统一，越有利于台胞过上好日子
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。 该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。 分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Opti
+中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。国台办当日在北京举行例行新闻发布会。陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可
 
 ## 正文
 
-瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。
+中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。
 
-该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。
+国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。
 
-分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。
+国台办当日在北京举行例行新闻发布会。
 
-我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Optimus进展缓慢的担忧，已对股价造成压力。
+陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可持续，台湾应主动寻求与大陆谈判两岸统一。
 
-然而，我们确实预计机器人出租车和Optimus最终将取得进展，并继续将特斯拉视为物理AI领域的领导者。
+两岸关系发展历程证明，以对话取代对抗、以合作取代争斗、以双赢取代零和，两岸关系才能行稳致远。
 
-" 特斯拉股价最新上涨逾3%。
+我们愿意在坚持“九二共识”、反对“台独”的共同政治基础上，同台湾各政党、团体和社会各界人士一道，加强交流对话，推进政治谈判，就两岸关系和民族未来开展广泛深入的民主协商。
 
-责任编辑：张俊 SF065
+他指出，近年来，民进党当局及其侧翼以唱衰大陆经济、诋毁大陆发展为能事，为其推动两岸“脱钩断链”、升高两岸对立对抗制造借口。
+
+但不管他们说什么、怎么说，都掩盖不了大陆经济基础稳、优势多、韧性强、潜能大、长期向好、稳定向好的基本面，改变不了两岸实力对比日益悬殊的客观事实，阻挡不了两岸同胞走亲走近、走到一起的大潮流。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 06:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 06:23 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 06:13 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 06:15 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 05:58 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 06:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 05:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 06:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 06:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 06:28 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 06:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 06:09 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 06:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 06:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 06:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 06:25 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 06:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 06:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 06:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 06:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 06:25 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 06:27 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/73305750191.shtml)
-- 2026-06-30 05:59 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/8244036544.shtml)
-- 2026-06-30 05:55 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/30250243.shtml)
-- 2026-06-30 06:23 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/9227925.shtml)
-- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/70443435065.shtml)
-- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/761811331602.shtml)
-- 2026-06-30 05:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/76420958752.shtml)
-- 2026-06-30 06:20 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/85677633.shtml)
-- 2026-06-30 06:13 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/820922717.shtml)
-- 2026-06-30 06:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/555867817.shtml)
-- 2026-06-30 06:09 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5515840383.shtml)
-- 2026-06-30 06:01 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/52803933.shtml)
-- 2026-06-30 06:14 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/25232620010.shtml)
-- 2026-06-30 06:17 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/2921883637.shtml)
-- 2026-06-30 06:12 - [巴西绝杀](https://www.share.minike.top/Article/details/78842.shtml)
+- 2026-06-30 06:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/94566557967.shtml)
+- 2026-06-30 06:09 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/79608466082.shtml)
+- 2026-06-30 06:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/024735614335.shtml)
+- 2026-06-30 06:25 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/466669402.shtml)
+- 2026-06-30 06:09 - [周生如故](https://www.share.kurohicncr.top/Article/details/43804309.shtml)
+- 2026-06-30 06:10 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/582190094.shtml)
+- 2026-06-30 06:18 - [《共患难》](https://www.share.kurohicncr.top/Article/details/729392.shtml)
+- 2026-06-30 06:06 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/6972539.shtml)
+- 2026-06-30 06:19 - [扫黑风暴](http://www.blog.minike.top/Article/details/728009104.shtml)
+- 2026-06-30 06:21 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/70635500377.shtml)
+- 2026-06-30 06:02 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/3428921.shtml)
+- 2026-06-30 06:21 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/649553196.shtml)
+- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/24434167394.shtml)
+- 2026-06-30 06:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/171437898.shtml)
+- 2026-06-30 06:25 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/08784655.shtml)

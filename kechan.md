@@ -1,59 +1,59 @@
-# 刘伟谈创立米哈游：创业失败后被老同学邀请
+# 透过发票数据看经济发展亮点 今年前5个月工业企业销售收入同比增6.8%
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及自己的成长经历，刘伟直言到，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。 刘伟坦言，2005年刚进入上海交通大学时，内心充满惶恐。面对来自大城市的同学在英语和计算机上的优势，他一度感到巨大压力，大学相当长时间里都是循规蹈矩地刷题、刷GPA，甚至在第一次数学分析考试中不
+国家税务总局发布的最新发票数据显示，今年1—5月份，全国工业企业销售收入同比增长6.8%，实现较快增长。 1—5月份，装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。其中，计算机通信设备制造、仪器仪表制造、专用设备制造销售收入同比分别增长15.6%、10.5%和8.8%，制造业高端化进程持续推进。 同时，人工智能赋能工业智能化水平持续提升。1—5
 
 ## 正文
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。
+国家税务总局发布的最新发票数据显示，今年1—5月份，全国工业企业销售收入同比增长6.8%，实现较快增长。
 
-谈及自己的成长经历，刘伟直言到，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。
+1—5月份，装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。
 
-刘伟坦言，2005年刚进入上海交通大学时，内心充满惶恐。
+其中，计算机通信设备制造、仪器仪表制造、专用设备制造销售收入同比分别增长15.6%、10.5%和8.8%，制造业高端化进程持续推进。
 
-面对来自大城市的同学在英语和计算机上的优势，他一度感到巨大压力，大学相当长时间里都是循规蹈矩地刷题、刷GPA，甚至在第一次数学分析考试中不及格。
+同时，人工智能赋能工业智能化水平持续提升。
 
-“我们05级电院正好赶上教改，我选了较难的数学分析，第一次考试就不及格，生活非常灰暗，后来靠着在图书馆狂刷俄罗斯数学家吉米多维奇的四本习题集，才把分数提上来。
+1—5月份，机器人、智能车载设备制造销售收入同比分别增长27.7%和46.3%，同时，高端电子制造加快发展，持续夯实智能制造根基。
 
-” 他自嘲：“在学霸云集的交大电院，我再怎么努力也只是前20%的水平。
+1—5月份，集成电路、光电子器件、半导体器件制造业销售收入同比分别增长57.7%、32.6%和24.4%。
 
-” 但是，事情的转机发生在2009年。
+此外，绿色能源加快转型步伐。
 
-2008年因金融危机未拿到出国offer，刘伟选择直研。
+1—5月份，以风光水核等为代表的清洁能源销售收入同比增长18.9%，占电力生产销售收入的比重为38.1%，占比较去年同期提高4.2个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 05:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 06:09 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 06:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 06:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 05:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 06:22 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 05:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 06:23 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 06:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 06:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 06:05 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 06:10 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 06:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 06:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 06:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 06:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 06:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 06:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:23 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 06:29 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 06:14 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 06:19 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 06:27 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/949372272.shtml)
-- 2026-06-30 06:21 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/76276090.shtml)
-- 2026-06-30 06:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/656944736.shtml)
-- 2026-06-30 06:19 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/20788.shtml)
-- 2026-06-30 06:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/13353372.shtml)
-- 2026-06-30 06:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/12798290820.shtml)
-- 2026-06-30 06:05 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/65106286.shtml)
-- 2026-06-30 05:59 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/42962873.shtml)
-- 2026-06-30 05:57 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/98978404.shtml)
-- 2026-06-30 05:59 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/483829267.shtml)
-- 2026-06-30 06:18 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/2878013000.shtml)
-- 2026-06-30 06:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/755156732867.shtml)
-- 2026-06-30 06:07 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/763958002595.shtml)
-- 2026-06-30 05:58 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/21965736572.shtml)
-- 2026-06-30 06:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/782526.shtml)
+- 2026-06-30 06:18 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/802942398.shtml)
+- 2026-06-30 06:27 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/959424782138.shtml)
+- 2026-06-30 06:24 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/50610517589.shtml)
+- 2026-06-30 06:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/324937661834.shtml)
+- 2026-06-30 06:12 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/883303158227.shtml)
+- 2026-06-30 06:13 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/955086265774.shtml)
+- 2026-06-30 06:00 - [巴西vs日本](http://www.share.minike.top/Article/details/959359395.shtml)
+- 2026-06-30 06:16 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/294407676.shtml)
+- 2026-06-30 06:10 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/009619332.shtml)
+- 2026-06-30 06:17 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/50415094.shtml)
+- 2026-06-30 06:28 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/863631.shtml)
+- 2026-06-30 06:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/25087252.shtml)
+- 2026-06-30 06:07 - [人类...完蛋了...](https://www.share.minike.top/Article/details/010089876.shtml)
+- 2026-06-30 06:05 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/356381252057.shtml)
+- 2026-06-30 06:22 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/75355639.shtml)

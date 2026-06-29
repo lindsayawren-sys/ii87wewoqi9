@@ -1,58 +1,56 @@
-# 多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注
+# 一湖碧水润全城 海外华媒侨领在璧山邂逅“公园之城”
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，A股主要股指走势震荡，沪指先跌后涨，早盘一度下跌0.5%，收盘微涨0.06%，深证成指上涨0.69%，创业板指涨0.8%。板块上来看，玻璃纤维、锂矿概念领涨，此外盐湖提锂、多晶硅、光通信等概念涨幅居前，医疗服务、游戏、保险等概念回调。 多晶硅主力合约午后涨停 4月13日，多晶硅主力合约临近午间休
+中新网重庆6月17日电 (梁钦卿)20余家海外主流华文媒体、10余位知名侨领16日走进重庆璧山区，实地探访秀湖公园，感受当地深耕绿色发展、融合人文底蕴打造“公园之城”的生动实践。 据悉，璧山现已建成秀湖公园、枫香湖儿童公园、东岳体育公园等38座特色主题公园，全域构建起15分钟公园生活圈，整座城市如同一座开放式生态大公园。所有公园免费向公众开放，公厕、休憩座椅、便民驿站等配套设施
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网重庆6月17日电 (梁钦卿)20余家海外主流华文媒体、10余位知名侨领16日走进重庆璧山区，实地探访秀湖公园，感受当地深耕绿色发展、融合人文底蕴打造“公园之城”的生动实践。
 
-4月13日，A股主要股指走势震荡，沪指先跌后涨，早盘一度下跌0.5%，收盘微涨0.06%，深证成指上涨0.69%，创业板指涨0.8%。
+据悉，璧山现已建成秀湖公园、枫香湖儿童公园、东岳体育公园等38座特色主题公园，全域构建起15分钟公园生活圈，整座城市如同一座开放式生态大公园。
 
-板块上来看，玻璃纤维、锂矿概念领涨，此外盐湖提锂、多晶硅、光通信等概念涨幅居前，医疗服务、游戏、保险等概念回调。
+所有公园免费向公众开放，公厕、休憩座椅、便民驿站等配套设施一应俱全，让群众切实共享生态建设成果。
 
-多晶硅主力合约午后涨停 4月13日，多晶硅主力合约临近午间休市快速拉升，午后封死涨停板。
+早年璧山产业粗放发展，一度造成生态受损。
 
-今年以来，多晶硅期货价格持续下滑，上周五（4月10日）最低价较年初最高价下跌48.39%，接近腰斩。
+近年来，当地转变发展思路，着力统筹城山相融、山水相映、林水相依，精心营建兼具城市烟火与乡野清幽的自然景致，系统推进水利治理、全域布局城市公园，走出“因水而兴、向绿而行”的绿色发展之路。
 
-4月13日为该期货今年以来的首次涨停。
+秀湖公园是璧山生态与人文融合的核心名片。
 
-现货方面，据安泰科数据，截至4月8日当周，多晶硅N型复投料成交价格区间为3.5万元—3.7万元/吨，成交均价为3.6万元/吨，环比下滑1.37%；N型颗粒硅成交价格区间为3.4万元—3.6万元/吨，成交均价为3.5万元/吨，环比下滑4.11%。
+园内山水石林相映成趣，因地制宜栽植植物800余种，其中开花品种300多种，四季花开不绝，全年皆可赏花。
 
-多晶硅现货下滑或与行业库存过高有关，据硅业分会统计，3月份国内多晶硅产量为9.26万吨，环比小幅增加9.7%。
+河道间散落千余块景观奇石，太湖石、雅安石、青花石错落排布，增添自然野趣。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 06:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 06:11 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 05:54 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 06:11 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 06:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 06:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 05:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 05:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 06:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 06:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 06:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 06:21 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 06:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 06:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 06:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 06:25 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 06:14 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:11 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/87220654354.shtml)
-- 2026-06-30 05:58 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/29098641818.shtml)
-- 2026-06-30 05:58 - [日本淘汰](https://www.share.minike.top/Article/details/3139905794.shtml)
-- 2026-06-30 06:15 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/32274.shtml)
-- 2026-06-30 06:08 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/50849800467.shtml)
-- 2026-06-30 06:00 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/0231305140.shtml)
-- 2026-06-30 06:06 - [天道](http://www.share.kurohicncr.top/Article/details/80519930425.shtml)
-- 2026-06-30 06:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/54124176.shtml)
-- 2026-06-30 06:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/688219784.shtml)
-- 2026-06-30 06:08 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/2069014352.shtml)
-- 2026-06-30 06:18 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/059187932192.shtml)
-- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/7765508.shtml)
-- 2026-06-30 06:03 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/74934.shtml)
-- 2026-06-30 06:22 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/25600446.shtml)
-- 2026-06-30 06:20 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/9782400581.shtml)
+- 2026-06-30 06:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/843183500474.shtml)
+- 2026-06-30 06:05 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/308137285.shtml)
+- 2026-06-30 06:06 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/58113.shtml)
+- 2026-06-30 06:15 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/472886074.shtml)
+- 2026-06-30 06:22 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/460777367474.shtml)
+- 2026-06-30 06:24 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/758511531901.shtml)
+- 2026-06-30 06:13 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/276222831.shtml)
+- 2026-06-30 06:19 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/998557.shtml)
+- 2026-06-30 06:24 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/49466851409.shtml)
+- 2026-06-30 06:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/5445402.shtml)
+- 2026-06-30 06:01 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/683832829.shtml)
+- 2026-06-30 06:01 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/22203.shtml)
+- 2026-06-30 06:22 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/04883.shtml)
+- 2026-06-30 06:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/99075789.shtml)
+- 2026-06-30 06:25 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/327136757374.shtml)

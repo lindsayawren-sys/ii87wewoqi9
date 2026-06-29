@@ -1,60 +1,45 @@
-# 美国股市：标普500指数接近创纪录新高 受美伊进一步和谈前景提振
+# 保险、银行等金融板块集体下挫 中国太保、新华保险双双跌超7%
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-美股周二飙升，标普500指数收盘距离创纪录高位仅一步之遥，市场对美伊可能进一步举行和谈的乐观情绪推动油价下跌，美国低于预期的批发价格涨幅缓解了对通胀冲击的担忧。 标普500指数继前一日抹去受战争以来的跌幅后，周二收盘上涨1.2%，延续了反弹势头；这是该美股基准指数自2025年4月以来首次连续两个交易日涨幅超过1%。 航空股表现亮眼，提出与美国航空合并可能性的美联航走高。 花旗实
+6月18日金融一线消息，保险、银行、券商等金融股大幅走低，中国太保、新华保险跌超7%，中国平安、中国人寿、厦门银行、齐鲁银行、青岛银行、中国银河、国盛证券等跌超4%。责任编辑：秦艺
 
 ## 正文
 
-美股周二飙升，标普500指数收盘距离创纪录高位仅一步之遥，市场对美伊可能进一步举行和谈的乐观情绪推动油价下跌，美国低于预期的批发价格涨幅缓解了对通胀冲击的担忧。
+6月18日金融一线消息，保险、银行、券商等金融股大幅走低，中国太保、新华保险跌超7%，中国平安、中国人寿、厦门银行、齐鲁银行、青岛银行、中国银河、国盛证券等跌超4%。
 
-标普500指数继前一日抹去受战争以来的跌幅后，周二收盘上涨1.2%，延续了反弹势头；这是该美股基准指数自2025年4月以来首次连续两个交易日涨幅超过1%。
-
-航空股表现亮眼，提出与美国航空合并可能性的美联航走高。
-
-花旗实现十年来最高的季度收入，这家华尔街银行股价上涨。
-
-与此同时，随着油价回落，美国能源股势将回吐特朗普发动对伊朗战争以来的全部涨幅。
-
-科技股在成份股中比重较高的纳斯达克100指数连续第十个交易日上涨，走高1.8%，创自2021年以来最长连涨。
-
-美国和伊朗正寻求在未来几天安排第二轮和谈，而霍尔木兹海峡的对峙加剧了全球能源危机，并使外交前景更加复杂。
-
-知情人士称，目标是在4月7日宣布的停火协议于下周到期前举行进一步会谈。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 06:01 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 05:58 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 06:15 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 06:03 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 06:22 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 06:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 06:15 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 06:07 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 06:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 06:11 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 05:56 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 06:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 06:21 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 06:22 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 06:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 06:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 06:18 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 06:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 06:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 06:25 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 06:18 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 06:21 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 06:29 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [青春环游记第三季](http://www.blog.minike.top/Article/details/092595.shtml)
-- 2026-06-30 06:20 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/298745193.shtml)
-- 2026-06-30 06:12 - [流金岁月](http://www.blog.minike.top/Article/details/936387892369.shtml)
-- 2026-06-30 05:58 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/97623.shtml)
-- 2026-06-30 05:56 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/72397917894.shtml)
-- 2026-06-30 06:23 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/2185115310.shtml)
-- 2026-06-30 06:14 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/52329026887.shtml)
-- 2026-06-30 06:14 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/97709.shtml)
-- 2026-06-30 06:06 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/85964443736.shtml)
-- 2026-06-30 06:05 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/12814.shtml)
-- 2026-06-30 06:23 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/6165455.shtml)
-- 2026-06-30 05:56 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/901393634.shtml)
-- 2026-06-30 06:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/6621674259.shtml)
-- 2026-06-30 06:05 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/008079.shtml)
-- 2026-06-30 06:01 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/4003932422.shtml)
+- 2026-06-30 06:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/195419166908.shtml)
+- 2026-06-30 06:21 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/261792363885.shtml)
+- 2026-06-30 06:03 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/62945.shtml)
+- 2026-06-30 06:12 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/918457072755.shtml)
+- 2026-06-30 06:24 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/709757741.shtml)
+- 2026-06-30 06:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/21333003.shtml)
+- 2026-06-30 06:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/7160168477.shtml)
+- 2026-06-30 06:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/18688198129.shtml)
+- 2026-06-30 06:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/16240.shtml)
+- 2026-06-30 06:15 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/4317884.shtml)
+- 2026-06-30 06:14 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/9886081632.shtml)
+- 2026-06-30 06:03 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/747806.shtml)
+- 2026-06-30 06:03 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/827912013.shtml)
+- 2026-06-30 06:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/976835044312.shtml)
+- 2026-06-30 06:07 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/39993219211.shtml)

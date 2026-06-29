@@ -1,54 +1,50 @@
-# 百度集团-SW午前涨逾4% 近日DuClaw公布新一轮升级
+# 大肠面线、深坑臭豆腐、香葱肉卷……这些台湾小吃亮相北京市集
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-百度集团-SW（09888）早盘一度涨超5%，截至发稿，股价上涨3.91%，现报111.60港元，成交额7.16亿港元。 据市场媒体报道，近日，百度智能云旗下DuClaw公布了新一轮升级，在此前打通小度硬件的基础上，进一步打通百度地图，用户现在通过DuClaw部署小龙虾，只需一条出行指令，就可同步调起小度与百度地图，完成包括日程查询，天气路况及出行规划建议，并通过小度硬件语音交
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。 来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆
 
 ## 正文
 
-百度集团-SW（09888）早盘一度涨超5%，截至发稿，股价上涨3.91%，现报111.60港元，成交额7.16亿港元。
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。
 
-据市场媒体报道，近日，百度智能云旗下DuClaw公布了新一轮升级，在此前打通小度硬件的基础上，进一步打通百度地图，用户现在通过DuClaw部署小龙虾，只需一条出行指令，就可同步调起小度与百度地图，完成包括日程查询，天气路况及出行规划建议，并通过小度硬件语音交互实时反馈给用户。
+现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。
 
-未来，DuClaw计划连接更多服务型垂直软件，如打车出行、水电缴费、电商购物等，通过一键指令打通软硬件，实现更广泛的现实交互。
+来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。
 
-公开资料显示，百度智能云还推出了多款龙虾产品，包括零部署的云端虾（DuClaw）、手机虾（RedClaw）、桌面虾（DuMate）等，并积极推出各类Skills能力包，其中百度搜索Skill在OpenClaw官方技能商店ClawHub中下载量位居榜首。
+徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆市场很大，创业机会也比较多”。
 
-责任编辑：卢昱君
+(姜姿屹 张杨彬 制作 王佳琪） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 06:12 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 05:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 06:12 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 06:07 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 06:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 05:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 05:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 06:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 06:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 05:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 06:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 06:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 06:24 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 06:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 06:04 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 06:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 06:08 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 06:25 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 06:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 06:11 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 06:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/05030124.shtml)
-- 2026-06-30 05:57 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/14286.shtml)
-- 2026-06-30 06:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/8191183382.shtml)
-- 2026-06-30 06:00 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/0038534.shtml)
-- 2026-06-30 05:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/04519250501.shtml)
-- 2026-06-30 06:11 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/803377.shtml)
-- 2026-06-30 06:05 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/274028267.shtml)
-- 2026-06-30 05:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/8057501.shtml)
-- 2026-06-30 06:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/037675.shtml)
-- 2026-06-30 06:22 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/32427175050.shtml)
-- 2026-06-30 06:00 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/551233710.shtml)
-- 2026-06-30 06:17 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/28161372606.shtml)
-- 2026-06-30 06:00 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/231837129375.shtml)
-- 2026-06-30 06:14 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/7979701.shtml)
-- 2026-06-30 06:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/65213446.shtml)
+- 2026-06-30 06:11 - [刘念回应](http://www.blog.minike.top/Article/details/6507057245.shtml)
+- 2026-06-30 06:03 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/121345.shtml)
+- 2026-06-30 06:21 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/77224.shtml)
+- 2026-06-30 06:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/12553076.shtml)
+- 2026-06-30 06:14 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/05766315752.shtml)
+- 2026-06-30 06:26 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/2637900347.shtml)
+- 2026-06-30 06:21 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/0502441.shtml)
+- 2026-06-30 06:14 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/989260672.shtml)
+- 2026-06-30 06:18 - [天道](http://www.share.kurohicncr.top/Article/details/67048416.shtml)
+- 2026-06-30 06:12 - [月亮](https://www.blog.minike.top/Article/details/507543364330.shtml)
+- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/05603437579.shtml)
+- 2026-06-30 06:03 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/18762556.shtml)
+- 2026-06-30 06:16 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/545469546.shtml)
+- 2026-06-30 06:20 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/6499814.shtml)
+- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/64307894487.shtml)

@@ -1,52 +1,57 @@
-# 多部门启动2026年度集体协商“集中要约行动”
+# 山间杨梅如何长“红”？东魁杨梅始祖地以“技”谋发展
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-新华社北京4月14日电(记者樊曦)记者14日从全国总工会了解到，全国总工会、人力资源社会保障部、中国企业联合会/中国企业家协会、全国工商联近日联合印发通知，决定共同开展2026年度集体协商“集中要约行动”，推动已建工会企业普遍开展集体协商。此次“集中要约行动”以推动协商普遍开展、助力企业稳岗增效、促进职工提技增收为核心目标，旨在通过广泛深入的集体协商，进一步稳定就业岗位、保障职
+中新网台州6月17日电(周健)浙江台州黄岩区是“中国优质杨梅之乡”，也是东魁杨梅始祖地。自1959年发掘东魁杨梅这一品种以来，黄岩坚持守护种质本源，将这一优良品种推广至全国多地。 为探索黄岩东魁杨梅全产业链高质量发展新路径，6月17日，2026浙江土特产·“六月杨梅红”、中国农业技术推广协会杨梅产业促进分会科技下乡暨黄岩东魁杨梅季活动在黄岩启幕，业内专家、政企代表、产业商户等齐
 
 ## 正文
 
-新华社北京4月14日电(记者樊曦)记者14日从全国总工会了解到，全国总工会、人力资源社会保障部、中国企业联合会/中国企业家协会、全国工商联近日联合印发通知，决定共同开展2026年度集体协商“集中要约行动”，推动已建工会企业普遍开展集体协商。
+中新网台州6月17日电(周健)浙江台州黄岩区是“中国优质杨梅之乡”，也是东魁杨梅始祖地。
 
-此次“集中要约行动”以推动协商普遍开展、助力企业稳岗增效、促进职工提技增收为核心目标，旨在通过广泛深入的集体协商，进一步稳定就业岗位、保障职工权益、激发创新创造活力，为构建和谐劳动关系、推动经济社会高质量发展提供有力支撑。
+自1959年发掘东魁杨梅这一品种以来，黄岩坚持守护种质本源，将这一优良品种推广至全国多地。
 
-根据通知，行动将推动已建工会企业普遍开展集体协商，力争百人以上企业单独签订集体合同率动态保持在85%以上；重点产业集聚区和工业园区普遍推进行业(区域)集体协商；深化平台劳动规则和算法协商，推动新就业形态劳动者权益协商实现常态化、制度化。
+为探索黄岩东魁杨梅全产业链高质量发展新路径，6月17日，2026浙江土特产·“六月杨梅红”、中国农业技术推广协会杨梅产业促进分会科技下乡暨黄岩东魁杨梅季活动在黄岩启幕，业内专家、政企代表、产业商户等齐聚“东魁始祖地”，集思广益、出谋划策。
 
-此次行动将推进行业性、区域性集体协商纳入行动重点，明确提出针对主导产业、重点发展行业及产业集聚区，围绕劳动定额、最低工资、工资增幅等开展协商。
+据悉，黄岩全区杨梅种植面积达6.1万亩，年产量稳定在4.4万吨，年产值突破5亿元。
 
-此外，还将探索推动产业链、供应链企业在用工规范、劳动报酬、技能等级认定等方面实现协商共决与标准互认。
+“农业要强，科技为要；产业兴旺，技术先行。
 
-针对新就业形态劳动者，行动将深化平台劳动规则和算法协商，落实《平台劳动规则和算法协商指引(试行)》等文件要求，聚焦订单分配、收入抽成、工作时长、考核奖惩等重点问题，以头部平台企业为牵引，开展总部所在地、重点省域和全平台协商，并推动平台用工合作企业开展二次协商，确保协商成果落地见效。
+”活动现场，中国农业技术推广协会会长谢建华点出杨梅产业发展的关键。
+
+他表示，中国农业技术推广协会将与各方一道，组织行业专家、技术骨干下沉一线，通过实地考察、现场指导、学术交流、专题讲座等多种形式，聚焦杨梅优质栽培、品质提升、绿色生产、保鲜加工、品牌运营等核心环节，把前沿种植技术、科学管理经验、市场发展理念送到田间地头、送到生产车间。
+
+事实上，以科技赋能、精耕细作夯实杨梅品质根基，黄岩已久久为功。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 06:11 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 05:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:23 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 05:58 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 05:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 06:08 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 06:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 06:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 06:27 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 06:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 06:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 06:27 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 06:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 06:15 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 06:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 06:21 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 06:15 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 06:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/38137.shtml)
-- 2026-06-30 06:22 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/4999224.shtml)
-- 2026-06-30 06:12 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/7350138.shtml)
-- 2026-06-30 06:13 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/11326297311.shtml)
-- 2026-06-30 05:59 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/0973824.shtml)
-- 2026-06-30 06:12 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/22653881.shtml)
-- 2026-06-30 05:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/02020.shtml)
-- 2026-06-30 06:03 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/23843.shtml)
-- 2026-06-30 06:21 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/19929.shtml)
-- 2026-06-30 06:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/412824497.shtml)
-- 2026-06-30 05:54 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/28196782.shtml)
-- 2026-06-30 05:58 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/38929772552.shtml)
-- 2026-06-30 06:17 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/9826282369.shtml)
-- 2026-06-30 06:05 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/888154139.shtml)
-- 2026-06-30 06:22 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/819596.shtml)
+- 2026-06-30 06:25 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/200332140904.shtml)
+- 2026-06-30 06:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/81136551.shtml)
+- 2026-06-30 06:09 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/84470977.shtml)
+- 2026-06-30 06:13 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/3132128237.shtml)
+- 2026-06-30 06:16 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/0197585.shtml)
+- 2026-06-30 06:10 - [女心理师](http://www.share.kurohicncr.top/Article/details/0783055.shtml)
+- 2026-06-30 06:19 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/3512942.shtml)
+- 2026-06-30 06:20 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/952054.shtml)
+- 2026-06-30 06:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/088319.shtml)
+- 2026-06-30 06:18 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/30640301883.shtml)
+- 2026-06-30 06:27 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/4955979488.shtml)
+- 2026-06-30 06:00 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/3786706.shtml)
+- 2026-06-30 06:13 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/979567471753.shtml)
+- 2026-06-30 06:03 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/277955445397.shtml)
+- 2026-06-30 06:04 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/11239258848.shtml)

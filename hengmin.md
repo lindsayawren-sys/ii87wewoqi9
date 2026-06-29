@@ -1,61 +1,60 @@
-# 长江有色：14日氧化铝期价涨0.3% 今日交易疲弱
+# 2026陆家嘴论坛科创金融大会举办，深化科创、金融双向开放
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-长江有色网4月14日讯，今日氧化铝所有合约携手走强，主力月2605合约窄幅震荡；截止当日15：00收盘，氧化铝主力月2605合约报2641元，涨8元，涨幅0.30%；加权合约累计成交243277手，比前一交易日减少204964手，跌幅45.73%；持仓量525876手增加9225手，涨幅1.79%。 今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月14日氧化铝华南地区
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 金融一线6月18日消息，2026陆家嘴论坛科创金融大会在上海国际会议中心举行，本届大会由上海金融业联合会、陆家嘴金融城理事会联合承办。 上海市政府副秘书长金鹏辉在致辞中表示，近年来上海持续深化科创金融改革试验区建设，推动双中心联动发展取得显著成效。他指出，未来上海将进一步做强科创金融服务体系、提升跨境投融资便利化水平
 
 ## 正文
 
-长江有色网4月14日讯，今日氧化铝所有合约携手走强，主力月2605合约窄幅震荡；截止当日15：00收盘，氧化铝主力月2605合约报2641元，涨8元，涨幅0.30%；加权合约累计成交243277手，比前一交易日减少204964手，跌幅45.73%；持仓量525876手增加9225手，涨幅1.79%。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 金融一线6月18日消息，2026陆家嘴论坛科创金融大会在上海国际会议中心举行，本届大会由上海金融业联合会、陆家嘴金融城理事会联合承办。
 
-今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月14日氧化铝华南地区每吨报2710-2760元之间，与前一交易日报价跌30元；华东地区氧化铝每吨报2700-2740元之间，与前一交易日报价持平；西南地区氧化铝每吨2785-2825元之间，与前一交易日报价跌5元；西北地区氧化铝每吨报2895-2935元之间，与前一交易日报价跌30元。
+上海市政府副秘书长金鹏辉在致辞中表示，近年来上海持续深化科创金融改革试验区建设，推动双中心联动发展取得显著成效。
 
-今日上期所氧化铝期货主力2605合约高开后转窄幅震荡，日间交易收涨0.30%，国内氧化铝现货价格下跌。
+他指出，未来上海将进一步做强科创金融服务体系、提升跨境投融资便利化水平、深化产融精准对接联动，以开放聚资源、以创新谋发展，持续深化科创金融领域务实合作。
 
-宏观层面，美伊局势胶着，特朗普宣布封锁霍尔木兹海峡引发能源供应危机与价格上涨，冲击全球经济，加剧高通胀担忧，牵制美联储降息空间，市场宽松利率预期降温。
+国家金融监督管理总局政策研究司司长郭武平在致辞中表示，总局下一步将聚焦三个发力点，引导金融“活水”精准滴管科创沃土。
 
-不过，今日美元走弱、全球股市反弹提升风险偏好，加之国内宏观经济向好，期货市场氛围偏暖，带动氧化铝期货价格反弹。
+一是发挥投贷保租各类金融机构功能，全力支持上海国际科技创新中心和国际金融中心建设，加强政策体系、产品体系、服务体系建设。
 
-基本面，氧化铝过剩格局延续。
+二是提升科技信贷质效，鼓励银行利用创新积分等信息，研发基于技术流的审批模型，加大信用贷款投放，解决科创科技企业轻资产带来的融资堵点。
 
-国内现货价走弱，运行产能增加，进口补充，供应过剩压力加剧。
+三是强化科技保险保障。
 
-但上期所仓单库存减少 1212 吨，厂库持平，远期合约受成本预期抬升支撑。
+推进临港新片区科技保险创新科技引领区建设，发挥集成电路共保体优势，支持保险公司聚焦上海人工智能、生物医药等优势产业，丰富保险产品，扩大保障范围。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 06:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 06:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 06:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 06:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 06:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 06:23 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 06:02 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 05:54 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 06:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:10 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 06:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 06:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 06:05 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 06:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 06:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 06:06 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 06:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 06:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 06:08 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 06:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 06:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 06:05 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 06:28 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 06:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 06:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 06:22 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/195702683781.shtml)
-- 2026-06-30 06:20 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/55581.shtml)
-- 2026-06-30 06:02 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/91427461.shtml)
-- 2026-06-30 06:16 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/8097471.shtml)
-- 2026-06-30 06:23 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/175940316801.shtml)
-- 2026-06-30 06:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/432038042897.shtml)
-- 2026-06-30 06:19 - [周生如故](https://www.share.minike.top/Article/details/40310997649.shtml)
-- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/18988.shtml)
-- 2026-06-30 05:54 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/644652.shtml)
-- 2026-06-30 06:17 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/538658718990.shtml)
-- 2026-06-30 06:18 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/4676610901.shtml)
-- 2026-06-30 05:59 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/0031961971.shtml)
-- 2026-06-30 06:14 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/9966330175.shtml)
-- 2026-06-30 06:19 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/105237038660.shtml)
-- 2026-06-30 06:19 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/8362512.shtml)
+- 2026-06-30 06:10 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/860075.shtml)
+- 2026-06-30 06:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/1773973.shtml)
+- 2026-06-30 06:01 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/24092310.shtml)
+- 2026-06-30 06:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/7612132.shtml)
+- 2026-06-30 06:05 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/75504801132.shtml)
+- 2026-06-30 06:22 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/8388070153.shtml)
+- 2026-06-30 06:21 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/28646343684.shtml)
+- 2026-06-30 06:10 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/39297280.shtml)
+- 2026-06-30 06:06 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/098585661366.shtml)
+- 2026-06-30 06:00 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/73170.shtml)
+- 2026-06-30 06:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/43860954.shtml)
+- 2026-06-30 06:09 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/357863606.shtml)
+- 2026-06-30 06:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/305036.shtml)
+- 2026-06-30 06:07 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/140260088.shtml)
+- 2026-06-30 06:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/9348559.shtml)

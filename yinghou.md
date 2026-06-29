@@ -1,57 +1,56 @@
-# 植物医生冲刺IPO，“0加盟费”模式的弊端，也藏不住了
+# 青海省卫生健康委发布夏季健康指南
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-来源：镁经 国货护肤品牌植物医生冲击IPO。加盟模式曾助力其快速崛起，如今却使其面临诸多挑战。上市能否成为其破局的关键？ “国货护肤品牌”植物医生，正冲刺“A股美妆单品牌店第一股”。 6月27日，深交所官网显示，北京植物医生化妆品股份有限公司（下称“植物医生”）主板IPO申请已获受理，保荐机构为中信证券股份有限公司。 成立31年的植物医生，在化妆品这条赛道上，走出了一条与众不同
+中新网西宁6月17日电 (记者 孙睿)6月17日，青海省卫生健康委举办“四季安康·健康同行”夏季健康知识新闻发布会，结合夏至节气特点与本地气候、旅游现状，发布多维度健康防护要点。 青海海拔高、紫外线强，是白内障高发区域。专家提醒，该病早期常表现为视物模糊、畏光眩光、夜视力下降，部分老人老花眼突然好转也是病变信号。日常需全年做好眼部防晒，户外佩戴防紫外线墨镜与遮阳帽，规律做眼科检
 
 ## 正文
 
-来源：镁经 国货护肤品牌植物医生冲击IPO。
+中新网西宁6月17日电 (记者 孙睿)6月17日，青海省卫生健康委举办“四季安康·健康同行”夏季健康知识新闻发布会，结合夏至节气特点与本地气候、旅游现状，发布多维度健康防护要点。
 
-加盟模式曾助力其快速崛起，如今却使其面临诸多挑战。
+青海海拔高、紫外线强，是白内障高发区域。
 
-上市能否成为其破局的关键？
+专家提醒，该病早期常表现为视物模糊、畏光眩光、夜视力下降，部分老人老花眼突然好转也是病变信号。
 
-“国货护肤品牌”植物医生，正冲刺“A股美妆单品牌店第一股”。
+日常需全年做好眼部防晒，户外佩戴防紫外线墨镜与遮阳帽，规律做眼科检查。
 
-6月27日，深交所官网显示，北京植物医生化妆品股份有限公司（下称“植物医生”）主板IPO申请已获受理，保荐机构为中信证券股份有限公司。
+针对夏季大众爱食冷饮的习惯，中医师提示，夏季人体外热内寒，过量冰饮、油腻食物易损伤脾胃，引发腹胀、腹泻。
 
-成立31年的植物医生，在化妆品这条赛道上，走出了一条与众不同的路径，在全国开出了4000多家门店。
+养生应以温养脾胃、清暑化湿为主，饮食清淡规律，可搭配姜枣茶、山药粥等食疗方，辅以穴位按摩、温和运动调理身体。
 
-然而，庞大的规模背后，暗藏风险。
+当下时令水果繁多，健康科普专家也为糖尿病患者划定食用标准：空腹血糖7.0mmol/L以下、餐后2小时血糖低于10.0mmol/L，且无明显波动，可少量吃草莓、柚子等低升糖水果，每日总量不超200克，优选两餐之间食用，避开果汁、果干。
 
-翻开招股书，其过度依赖线下加盟模式的隐患、研发投入不足的短板，暴露无遗。
+针对吸烟误区，专家明确：吸烟不存在“安全剂量”，少量吸烟同样损害心肺、增加患病风险。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 06:08 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 06:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 06:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 06:17 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 06:22 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 06:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 05:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 05:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 06:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 06:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 06:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 06:03 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 06:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 06:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:21 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 06:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 06:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:09 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 06:27 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/57388161251.shtml)
-- 2026-06-30 06:19 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/0666890108.shtml)
-- 2026-06-30 06:16 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/08875686716.shtml)
-- 2026-06-30 06:06 - [千香](http://www.share.minike.top/Article/details/683347706983.shtml)
-- 2026-06-30 06:00 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/8974582145.shtml)
-- 2026-06-30 06:05 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/782082.shtml)
-- 2026-06-30 06:13 - [速度与激情9](http://www.share.minike.top/Article/details/3973937502.shtml)
-- 2026-06-30 06:16 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/3310645333.shtml)
-- 2026-06-30 06:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/9507724.shtml)
-- 2026-06-30 06:22 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/618640787349.shtml)
-- 2026-06-30 06:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/48511015025.shtml)
-- 2026-06-30 06:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/94563160272.shtml)
-- 2026-06-30 05:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/29644929771.shtml)
-- 2026-06-30 06:00 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/29785801326.shtml)
-- 2026-06-30 05:59 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/320002.shtml)
+- 2026-06-30 06:27 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/326778.shtml)
+- 2026-06-30 06:12 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/67412.shtml)
+- 2026-06-30 06:04 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/703547088.shtml)
+- 2026-06-30 06:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/59078.shtml)
+- 2026-06-30 06:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/429568906938.shtml)
+- 2026-06-30 06:13 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/3475305.shtml)
+- 2026-06-30 06:09 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/0351517.shtml)
+- 2026-06-30 06:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1689229.shtml)
+- 2026-06-30 06:05 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/58442.shtml)
+- 2026-06-30 06:19 - [千与千寻](http://www.share.minike.top/Article/details/430033626.shtml)
+- 2026-06-30 06:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/903738.shtml)
+- 2026-06-30 06:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/33339678.shtml)
+- 2026-06-30 06:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/71110214518.shtml)
+- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/9935463.shtml)
+- 2026-06-30 06:17 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/39472.shtml)

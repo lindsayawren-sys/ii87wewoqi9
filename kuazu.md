@@ -1,60 +1,57 @@
-# 小涧西余热利用项目启动建设 系山东规模最大垃圾焚烧发电余热利用项目
+# （活力中国调研行）中国北方工业重镇谋转型 机器人产业成“链”
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网青岛4月13日电 (张孝鹏)小涧西余热利用项目的穿越大沽河段工程13日在山东省青岛市胶州市开工，标志着该项目正式启动建设。该项目以垃圾焚烧发电厂为热源点，总余热利用规模130兆瓦，一期建成后可实现90兆瓦余热回收，年输送清洁热能100万吉焦，是目前山东省规模最大的垃圾焚烧发电余热利用项目。 青岛能源发展(胶州)有限公司董事长孙大鹏说，小涧西余热利用项目依托垃圾焚烧发电厂的
+中新社天津6月18日电 (记者 王梦瑶 王恩博 周亚强)中国的传统工业城市正加速布局向“新”转型，北方工业重镇天津就是其中之一。 近年来，天津市瞄准智能机器人这一发展蓝海。据该市工业和信息化局数据，今年1至4月，全市智能机器人产业链延续快速增长态势，规模以上企业产值同比增长12.8%，增加值增长17.5%。目前，该市已培育形成了涵盖智能机器人关键零部件、整机、控制系统、应用服务
 
 ## 正文
 
-中新网青岛4月13日电 (张孝鹏)小涧西余热利用项目的穿越大沽河段工程13日在山东省青岛市胶州市开工，标志着该项目正式启动建设。
+中新社天津6月18日电 (记者 王梦瑶 王恩博 周亚强)中国的传统工业城市正加速布局向“新”转型，北方工业重镇天津就是其中之一。
 
-该项目以垃圾焚烧发电厂为热源点，总余热利用规模130兆瓦，一期建成后可实现90兆瓦余热回收，年输送清洁热能100万吉焦，是目前山东省规模最大的垃圾焚烧发电余热利用项目。
+近年来，天津市瞄准智能机器人这一发展蓝海。
 
-青岛能源发展(胶州)有限公司董事长孙大鹏说，小涧西余热利用项目依托垃圾焚烧发电厂的垃圾焚烧炉开展，内容包括对汽轮机组进行改造、配套建设循环水及烟气余热回收系统等。
+据该市工业和信息化局数据，今年1至4月，全市智能机器人产业链延续快速增长态势，规模以上企业产值同比增长12.8%，增加值增长17.5%。
 
-项目敷设21.5公里热力输送管线，将穿越河流、公路、铁路等节点，把绿色清洁热能平稳输送至青岛市胶州市。
+目前，该市已培育形成了涵盖智能机器人关键零部件、整机、控制系统、应用服务的完整产业链条。
 
-据介绍，小涧西余热利用项目一期投用后，可替代燃煤供热面积300万平方米，每年可节约标煤近5万吨，减排二氧化碳15万吨、硫化物450吨、氮氧化物390吨，对于落实山东省2027年燃煤锅炉清洁替代政策要求、提速胶州市供热清洁化转型有重要意义。
+“具身智能体的相当一部分关节会用到谐波减速器，其中的关键零部件就是圆柱滚子。
 
-小涧西余热利用项目由青岛能源集团、胶州市人民政府、上海康恒环境股份有限公司共同实施。
+”天津创进精工科技有限公司董事长兼首席科学家任成祖介绍，该公司主要生产超高精度轴承滚子研磨设备，目前已将轴承滚子的批直径变动量减小至亚微米量级。
 
-作为胶州市人民政府投资项目，该工程纳入国家、青岛市两级重大项目库。
+任成祖说，更高的精度意味着更高的装配效率，可以让机器人运行得更久、更精密，噪声和发热问题也能得到改善。
 
-作为青岛市首个同时穿越河道、高铁、地铁、航油管线的大口径供热管道工程，项目建设面临诸多挑战。
+具身智能的应用场景大规模落地后，高精度滚子的市场将迎来爆发式增长，现在应做好准备。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 06:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 06:11 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 06:04 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 06:04 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 06:06 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 06:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:01 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 06:10 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 06:12 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 06:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 06:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 06:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 06:12 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 06:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 06:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:23 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 06:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 06:17 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 06:01 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 06:27 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 06:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 06:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 06:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/6032196.shtml)
-- 2026-06-30 06:10 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/14939875.shtml)
-- 2026-06-30 06:10 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/6206218.shtml)
-- 2026-06-30 06:12 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/396194838821.shtml)
-- 2026-06-30 06:07 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/8874220941.shtml)
-- 2026-06-30 06:19 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/97310156667.shtml)
-- 2026-06-30 06:17 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/4137253734.shtml)
-- 2026-06-30 06:19 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/0787520433.shtml)
-- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/073641857.shtml)
-- 2026-06-30 06:22 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/29059469.shtml)
-- 2026-06-30 05:58 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/28610543043.shtml)
-- 2026-06-30 05:55 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/877724649156.shtml)
-- 2026-06-30 06:13 - [人类...完蛋了...](https://www.share.minike.top/Article/details/2872089996.shtml)
-- 2026-06-30 05:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/09011432054.shtml)
-- 2026-06-30 06:11 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/9281839650.shtml)
+- 2026-06-30 06:04 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/516515308.shtml)
+- 2026-06-30 06:26 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0077356.shtml)
+- 2026-06-30 06:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/62291495.shtml)
+- 2026-06-30 06:19 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/0001438791.shtml)
+- 2026-06-30 06:19 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/553692.shtml)
+- 2026-06-30 06:06 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/877806122367.shtml)
+- 2026-06-30 06:15 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/04182537981.shtml)
+- 2026-06-30 06:07 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/136194422095.shtml)
+- 2026-06-30 06:17 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/267434156844.shtml)
+- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/3174734.shtml)
+- 2026-06-30 06:29 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/3142304.shtml)
+- 2026-06-30 06:19 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/36904.shtml)
+- 2026-06-30 06:24 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/525526838397.shtml)
+- 2026-06-30 06:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/43639.shtml)
+- 2026-06-30 06:12 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/1881997.shtml)

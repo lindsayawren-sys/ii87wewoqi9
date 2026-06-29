@@ -1,61 +1,51 @@
-# 黑芝麻智能盘中涨逾5% 近日华山A2000芯片家族系列全新亮相
+# 云顶新耀获主要股东康桥资本增持71.2万股
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-黑芝麻智能（02533）盘中涨逾5%，截至发稿，股价上涨1.47%，现报17.21港元，成交额6026.50万港元。 据黑芝麻智能官微消息，4月11日，在2026智能电动汽车发展高层论坛上，黑芝麻智能创始人兼CEO单记章发表主题演讲，并首次向行业完整展示了华山A2000家族的全新阵容。据介绍，该家族包含四款芯片，全面覆盖从座舱AI化到L4级Robotaxi的全场景算力需求。单记
+云顶新耀（01952）公布，董事会获非执行董事、董事会荣誉主席兼公司主要股东傅唯先生告知，自2026年6月16日至2026年6月17日期间，康桥资本（ 作为公司主要股东 ）于市场购入71.2万股公司普通股，总代价约为1920万港元，平均价格约为每股股份26.99港元。 自2025年12月以来，康桥资本及董事已于市场购入超过516.3万股股份，总代价超过1.725亿港元。董事会认
 
 ## 正文
 
-黑芝麻智能（02533）盘中涨逾5%，截至发稿，股价上涨1.47%，现报17.21港元，成交额6026.50万港元。
+云顶新耀（01952）公布，董事会获非执行董事、董事会荣誉主席兼公司主要股东傅唯先生告知，自2026年6月16日至2026年6月17日期间，康桥资本（ 作为公司主要股东 ）于市场购入71.2万股公司普通股，总代价约为1920万港元，平均价格约为每股股份26.99港元。
 
-据黑芝麻智能官微消息，4月11日，在2026智能电动汽车发展高层论坛上，黑芝麻智能创始人兼CEO单记章发表主题演讲，并首次向行业完整展示了华山A2000家族的全新阵容。
+自2025年12月以来，康桥资本及董事已于市场购入超过516.3万股股份，总代价超过1.725亿港元。
 
-据介绍，该家族包含四款芯片，全面覆盖从座舱AI化到L4级Robotaxi的全场景算力需求。
+董事会认为，购入股份反映公司董事及主要股东对公司未来前景及长远发展的坚定信心。
 
-单记章在演讲中指出，新能源汽车的智能化正从“功能驱动”加速迈向“物理AI驱动”。
+在遵守适用法律及法规的前提下，康桥资本及董事不排除在适当时候进一步增持彼等于公司股份的可能性。
 
-VLA（视觉-语言-动作）模型配合世界模型，将成为高阶智能驾驶的最佳解决方案。
-
-招商证券国际指出，黑芝麻智能25年收入82.2亿元人民币，同比增长73.4%，得益于智驾产品及具身智能放量。
-
-该行指出，行业仍处渗透率提升与技术迭代早期阶段，竞争虽加剧但不改高毛利蓝海赛道属性。
-
-黑芝麻智能正由硬件供应商向端侧AI算力平台升级，旗舰A2000晶片核心指标处于第一梯队，其高性价比精准贴合比亚迪、吉利汽车等龙头主机厂降本诉求，渗透率有望提升。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 05:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 06:08 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 06:10 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:54 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 06:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 05:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 06:04 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 06:06 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 06:07 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:58 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 06:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 06:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 06:06 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 06:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 06:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 06:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 06:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 06:04 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 06:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 06:28 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 06:08 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 06:22 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 06:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/5465653.shtml)
-- 2026-06-30 06:04 - [月亮](http://www.blog.kurohicncr.top/Article/details/18994.shtml)
-- 2026-06-30 06:23 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/5226954.shtml)
-- 2026-06-30 06:01 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/879707.shtml)
-- 2026-06-30 06:14 - [点菜也要教吗](http://www.blog.minike.top/Article/details/31628930665.shtml)
-- 2026-06-30 06:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/8385833233.shtml)
-- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/1179253662.shtml)
-- 2026-06-30 05:59 - [巴西vs日本](https://www.blog.minike.top/Article/details/03911470159.shtml)
-- 2026-06-30 06:21 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/598743625.shtml)
-- 2026-06-30 06:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/20717.shtml)
-- 2026-06-30 06:01 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/2279203.shtml)
-- 2026-06-30 05:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/244136795112.shtml)
-- 2026-06-30 06:01 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/2781177527.shtml)
-- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/936302062461.shtml)
-- 2026-06-30 05:57 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/36632458.shtml)
+- 2026-06-30 06:07 - [美人鱼](https://www.share.kurohicncr.top/Article/details/72824.shtml)
+- 2026-06-30 06:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/7126019485.shtml)
+- 2026-06-30 06:08 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/13300523.shtml)
+- 2026-06-30 06:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/947384.shtml)
+- 2026-06-30 06:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/15848779.shtml)
+- 2026-06-30 06:02 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/24625330.shtml)
+- 2026-06-30 06:09 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/800072328.shtml)
+- 2026-06-30 06:27 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/5776835.shtml)
+- 2026-06-30 06:23 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/25164.shtml)
+- 2026-06-30 06:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/866183858037.shtml)
+- 2026-06-30 06:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/01223741851.shtml)
+- 2026-06-30 06:18 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/7644916339.shtml)
+- 2026-06-30 06:11 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/74769390515.shtml)
+- 2026-06-30 06:28 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/47700875861.shtml)
+- 2026-06-30 06:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/262762494122.shtml)

@@ -1,61 +1,60 @@
-# 欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注
+# *ST赛隆告别A股，退市不影响索赔
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-受有关中东局势可能缓和的报道推动，能源价格下跌，欧洲各期限政府债券收益率周二全线下行。 收益率曲线牛市趋陡。德国和英国两年期国债收益率均下跌11个基点，法国和意大利同期限收益率则下跌12个基点。 交易员下调了对英国央行和欧洲央行进一步收紧货币政策的押注。货币市场目前计入英国央行2026年加息36个基点，欧洲央行加息57个基点。 截至伦敦时间下午4点35分，基准布伦特原油期货下跌
+登录新浪财经APP 搜索【信披】查看更多考评等级 曾经的医药上市公司赛隆药业正式走完了其在A股的旅程。2026年6月17日，*ST赛隆（维权）发布公告称，公司已收到深圳证券交易所关于股票终止上市的决定。 公告显示，由于公司2025年度财务会计报告及财务报告内部控制均被审计机构出具“无法表示意见”的审计报告，公司触及了深交所的终止上市情形。 在退市之前，赛隆药业就已经因信息披露违
 
 ## 正文
 
-受有关中东局势可能缓和的报道推动，能源价格下跌，欧洲各期限政府债券收益率周二全线下行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 曾经的医药上市公司赛隆药业正式走完了其在A股的旅程。
 
-收益率曲线牛市趋陡。
+2026年6月17日，*ST赛隆（维权）发布公告称，公司已收到深圳证券交易所关于股票终止上市的决定。
 
-德国和英国两年期国债收益率均下跌11个基点，法国和意大利同期限收益率则下跌12个基点。
+公告显示，由于公司2025年度财务会计报告及财务报告内部控制均被审计机构出具“无法表示意见”的审计报告，公司触及了深交所的终止上市情形。
 
-交易员下调了对英国央行和欧洲央行进一步收紧货币政策的押注。
+在退市之前，赛隆药业就已经因信息披露违规被监管层警示，这也成为投资者索赔的核心依据。
 
-货币市场目前计入英国央行2026年加息36个基点，欧洲央行加息57个基点。
+2025年1月22日，公司披露《2024年度业绩预告》，预计全年盈利450万至650万元。
 
-截至伦敦时间下午4点35分，基准布伦特原油期货下跌3.7%，报每桶95.7美元左右。
+然而，三个月后的正式年报却显示，公司实际利润总额亏损3491.97万元，归母净利润亏损3314.56万元，营业收入仅为2.64亿元。
 
-此前有报道称，伊朗正考虑短暂停止通过霍尔木兹海峡的运输，以避免直接试探美国封锁并破坏谈判进程。
+盈亏性质的彻底反转，直接触发了退市风险警示，也让在预告期间买入股票的投资者遭受损失。
 
-市场将这一报道解读为和平谈判成功概率上升的信号。
+广东证监局调查后认定，公司业绩预告金额与实际差异巨大，盈亏性质发生变化，且未在会计年度结束后一个月内披露股票可能被实施退市风险警示的提示公告，违反了《上市公司信息披露管理办法》相关规定，并对公司出具了警示函。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 06:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 06:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 06:03 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 05:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 06:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 06:16 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 05:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 06:09 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 06:22 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 06:04 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 06:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 06:00 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 06:12 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 06:19 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 06:28 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 06:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 06:15 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 06:06 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 06:15 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 06:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 06:24 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 06:00 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 06:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 06:04 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 06:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 06:26 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 06:18 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/908050903670.shtml)
-- 2026-06-30 06:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/37715145.shtml)
-- 2026-06-30 06:19 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7616248714.shtml)
-- 2026-06-30 06:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/65317627711.shtml)
-- 2026-06-30 06:21 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/203329818929.shtml)
-- 2026-06-30 06:12 - [锐评T1零封KC](https://www.share.minike.top/Article/details/810281494271.shtml)
-- 2026-06-30 06:23 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/36348.shtml)
-- 2026-06-30 06:22 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/904701286.shtml)
-- 2026-06-30 05:59 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/75223.shtml)
-- 2026-06-30 05:59 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/60710352.shtml)
-- 2026-06-30 06:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/989493464.shtml)
-- 2026-06-30 06:20 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/7624864.shtml)
-- 2026-06-30 06:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/9323437.shtml)
-- 2026-06-30 06:13 - [月亮](http://www.blog.kurohicncr.top/Article/details/1888784003.shtml)
-- 2026-06-30 06:10 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/0835287082.shtml)
+- 2026-06-30 06:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/780129008284.shtml)
+- 2026-06-30 06:08 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/21711949896.shtml)
+- 2026-06-30 06:28 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/449630.shtml)
+- 2026-06-30 06:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/0309288.shtml)
+- 2026-06-30 06:27 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/2812645488.shtml)
+- 2026-06-30 06:18 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/562397889327.shtml)
+- 2026-06-30 06:28 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/09163805162.shtml)
+- 2026-06-30 06:06 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/546323002523.shtml)
+- 2026-06-30 06:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/43568443597.shtml)
+- 2026-06-30 06:18 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/838256503.shtml)
+- 2026-06-30 06:29 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/3600027.shtml)
+- 2026-06-30 06:07 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/24797380.shtml)
+- 2026-06-30 06:02 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/93249.shtml)
+- 2026-06-30 06:28 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/36650.shtml)
+- 2026-06-30 06:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/43972.shtml)

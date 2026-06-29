@@ -1,49 +1,47 @@
-# 伊朗总统赞扬中国等6国反战立场
+# 美国加州和佛州发生林火火灾
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 伊朗总统佩泽希齐扬14日在社交媒体平台上发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。 佩泽希齐扬在帖文中写道：“文明的本质会在关键的历史节点上得以彰显”，他接下来表示，上述6国的反战立场“源自于它们深厚的文化和历史根基”。
+发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-中新网4月15日电 伊朗总统佩泽希齐扬14日在社交媒体平台上发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。
-
-佩泽希齐扬在帖文中写道：“文明的本质会在关键的历史节点上得以彰显”，他接下来表示，上述6国的反战立场“源自于它们深厚的文化和历史根基”。
+发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 06:18 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 06:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 06:08 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 06:01 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 05:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 06:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 06:09 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 06:03 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 06:16 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 05:56 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 06:07 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 05:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 06:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:10 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 06:15 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 06:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 06:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 06:01 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 06:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 06:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 06:15 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 06:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 06:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 06:25 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:12 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 06:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 06:12 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 06:02 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 06:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/438946.shtml)
-- 2026-06-30 05:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/81277.shtml)
-- 2026-06-30 06:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/9333642860.shtml)
-- 2026-06-30 06:22 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/826757396860.shtml)
-- 2026-06-30 05:58 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/4573237357.shtml)
-- 2026-06-30 06:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/554904699629.shtml)
-- 2026-06-30 06:04 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/46467.shtml)
-- 2026-06-30 05:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/1500083.shtml)
-- 2026-06-30 06:00 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/674108962.shtml)
-- 2026-06-30 06:16 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/578455.shtml)
-- 2026-06-30 05:55 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/85210018847.shtml)
-- 2026-06-30 06:17 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/247878392.shtml)
-- 2026-06-30 06:00 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/988752.shtml)
-- 2026-06-30 06:01 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/94448192652.shtml)
-- 2026-06-30 05:56 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/0464558.shtml)
+- 2026-06-30 06:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/396689418.shtml)
+- 2026-06-30 06:07 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/87027009671.shtml)
+- 2026-06-30 06:16 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/1906268941.shtml)
+- 2026-06-30 06:19 - [金牌调解](https://www.share.minike.top/Article/details/5818078636.shtml)
+- 2026-06-30 06:29 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/667105603117.shtml)
+- 2026-06-30 06:16 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/913741426364.shtml)
+- 2026-06-30 06:07 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/678962571.shtml)
+- 2026-06-30 06:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/37703923540.shtml)
+- 2026-06-30 06:10 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/68730342799.shtml)
+- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/93453.shtml)
+- 2026-06-30 06:15 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/4496126.shtml)
+- 2026-06-30 06:20 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/16255639109.shtml)
+- 2026-06-30 06:22 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/4061316.shtml)
+- 2026-06-30 06:11 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/579448020.shtml)
+- 2026-06-30 06:19 - [起风了](http://www.blog.minike.top/Article/details/71199072.shtml)

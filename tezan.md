@@ -1,53 +1,51 @@
-# 特朗普重申伊朗不能拥有核武器
+# 朱鹤新：中国资本项下跨境人民币收付占比升至60%左右
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普在接受采访时表示，他对有关美国谈判代表要求伊朗至少暂停铀浓缩20年的报道感到不满。 “我一直在说他们不能拥有核武器，”特朗普在采访中表示。“所以我不喜欢20年的说法。”责任编辑：李桐
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日上午，2026陆家嘴论坛在上海开幕。中国人民银行副行长、国家外汇管理局局长朱鹤新在发表主题演讲时表示，人民币金融枢纽带功能持续拓展，人民币跨境使用与资本项目开放相互促进，中国资本项下跨境人民币收付占比已上升至60%左右，人民币依托良好信誉、稳定币值、较低融资成本和日趋完善的支付清算网络，为全球主体提供的多元
 
 ## 正文
 
-美国总统唐纳德·特朗普在接受采访时表示，他对有关美国谈判代表要求伊朗至少暂停铀浓缩20年的报道感到不满。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日上午，2026陆家嘴论坛在上海开幕。
 
-“我一直在说他们不能拥有核武器，”特朗普在采访中表示。
+中国人民银行副行长、国家外汇管理局局长朱鹤新在发表主题演讲时表示，人民币金融枢纽带功能持续拓展，人民币跨境使用与资本项目开放相互促进，中国资本项下跨境人民币收付占比已上升至60%左右，人民币依托良好信誉、稳定币值、较低融资成本和日趋完善的支付清算网络，为全球主体提供的多元币种选择和风险分散工具，也为跨境资本流动创造了更加稳定、可预期的金融条件。
 
-“所以我不喜欢20年的说法。
-
-”责任编辑：李桐
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:23 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 06:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 06:00 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 06:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 06:12 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 06:11 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 06:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:05 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 05:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 06:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 06:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:58 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 06:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 06:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 06:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 06:21 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 06:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 06:28 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 06:15 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 06:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 06:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 06:15 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 06:15 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 06:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 06:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 06:29 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/406221102894.shtml)
-- 2026-06-30 06:12 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/315515309.shtml)
-- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/14702217280.shtml)
-- 2026-06-30 06:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/924072330.shtml)
-- 2026-06-30 06:08 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/9012410723.shtml)
-- 2026-06-30 05:59 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/16110.shtml)
-- 2026-06-30 06:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/8045070.shtml)
-- 2026-06-30 05:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/81233910683.shtml)
-- 2026-06-30 06:08 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/74790.shtml)
-- 2026-06-30 06:08 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/960630514.shtml)
-- 2026-06-30 06:11 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/586392900.shtml)
-- 2026-06-30 06:01 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/39537782002.shtml)
-- 2026-06-30 06:17 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/034351.shtml)
-- 2026-06-30 06:12 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/744059475.shtml)
-- 2026-06-30 06:00 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/708882.shtml)
+- 2026-06-30 06:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/7562669.shtml)
+- 2026-06-30 06:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/50416126459.shtml)
+- 2026-06-30 06:26 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/05717.shtml)
+- 2026-06-30 06:06 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/912674063.shtml)
+- 2026-06-30 06:24 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/26712406.shtml)
+- 2026-06-30 06:06 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/157532.shtml)
+- 2026-06-30 06:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/87208270082.shtml)
+- 2026-06-30 06:12 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/73433548.shtml)
+- 2026-06-30 06:03 - [急先锋](http://www.blog.kurohicncr.top/Article/details/397401652213.shtml)
+- 2026-06-30 06:19 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/798640711.shtml)
+- 2026-06-30 06:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/4410894939.shtml)
+- 2026-06-30 06:02 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/87859.shtml)
+- 2026-06-30 06:19 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/4779627.shtml)
+- 2026-06-30 06:22 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/374086555636.shtml)
+- 2026-06-30 06:03 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/73492142.shtml)

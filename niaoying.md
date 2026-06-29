@@ -1,58 +1,56 @@
-# 美国联合航空公司首席执行官提出与竞争对手美国航空合并的可能性
+# 上海发展离岸金融行动出炉 为中资企业“走出去”打造金融避风港
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-媒体周一援引熟悉谈判情况的人士的话报道称，美国联合航空公司首席执行官斯科特-科比（Scott Kirby）提出了与竞争对手美国航空集团合并的可能性。 报道补充说，柯比已向高级政府官员提出了这一想法，但目前还不清楚是否已经作出了任何姿态，也不清楚是否正在进行实际的交易探讨。 美国联合航空公司拒绝发表评论。美国航空公司和白宫没有立即回应置评请求。 潜在的合并将进一步巩固由四家美国航
+6月17日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇管理局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称《行动方案》）。 《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更
 
 ## 正文
 
-媒体周一援引熟悉谈判情况的人士的话报道称，美国联合航空公司首席执行官斯科特-科比（Scott Kirby）提出了与竞争对手美国航空集团合并的可能性。
+6月17日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇管理局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》（以下简称《行动方案》）。
 
-报道补充说，柯比已向高级政府官员提出了这一想法，但目前还不清楚是否已经作出了任何姿态，也不清楚是否正在进行实际的交易探讨。
+《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更深层次、更宽领域推进金融高水平开放具有重要意义。
 
-美国联合航空公司拒绝发表评论。
+上海市经济学会副秘书长邓志超认为，这不仅是首份系统性、全方位阐述上海如何构建离岸金融体系的纲领性文件，更是一份明确了发展目标、实施路径与核心模式的蓝图。
 
-美国航空公司和白宫没有立即回应置评请求。
+《行动方案》不仅是一份“路线图”，更是一份向全球发出“中国金融高水平开放不停步”坚定信号的“任务书”。
 
-潜在的合并将进一步巩固由四家美国航空公司（美国航空、达美航空、联合航空和西南航空）控制的美国国内客运市场。
+明确时间表 为“走出去”的中资企业打造安全可靠的“金融避风港” 《行动方案》明确提出，核心服务对象：一是为“走出去”的中资企业打造安全可靠的“金融避风港”，解决其在全球化经营中面临的境外融资难、资金管理风险高、金融服务受制于人等痛点；二是为“一带一路”共建国家和地区的优质企业提供安全、高效、专业的离岸金融服务，深化国际产能合作与经贸往来。
 
-收盘后，美国航空股价上涨超过 5%，而美国联合航空公司股价持平。
+邓志超认为，《行动方案》将这些具体需求上升至服务人民币国际化、建设强大的国际金融中心和金融强国等宏伟国家战略层面。
 
-责任编辑：王永生
+这意味着，上海离岸金融体系的建设，不是局部的、自发的业务创新，而是承载着国家意志、服务于国家核心利益的战略性布局，其意义远超金融本身。
+
+值得注意的是，《行动方案》还清晰设定了实施的步骤和时间表。
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 06:04 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 06:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 05:57 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 06:10 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 06:21 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 05:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 06:18 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 06:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 06:13 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 06:00 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 06:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 06:23 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 06:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 06:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 06:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 06:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:06 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 06:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 06:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 06:13 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 06:16 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 06:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/6144564122.shtml)
-- 2026-06-30 06:08 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/747210077038.shtml)
-- 2026-06-30 06:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/747136217.shtml)
-- 2026-06-30 06:10 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/522013907288.shtml)
-- 2026-06-30 06:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/227452.shtml)
-- 2026-06-30 06:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/189679953292.shtml)
-- 2026-06-30 06:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/70182.shtml)
-- 2026-06-30 06:21 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/888613.shtml)
-- 2026-06-30 06:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/045753116.shtml)
-- 2026-06-30 06:01 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/3554931.shtml)
-- 2026-06-30 06:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/3050536940.shtml)
-- 2026-06-30 06:04 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/35751.shtml)
-- 2026-06-30 06:14 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/534443.shtml)
-- 2026-06-30 05:57 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/987464.shtml)
-- 2026-06-30 06:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0017727.shtml)
+- 2026-06-30 06:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/638084501800.shtml)
+- 2026-06-30 06:29 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/843622847.shtml)
+- 2026-06-30 06:16 - [绘画区你赢了](http://www.share.minike.top/Article/details/044943.shtml)
+- 2026-06-30 06:27 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/23221358002.shtml)
+- 2026-06-30 06:06 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/982290911.shtml)
+- 2026-06-30 06:09 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/051575405661.shtml)
+- 2026-06-30 06:09 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/67260723640.shtml)
+- 2026-06-30 06:15 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/09015976215.shtml)
+- 2026-06-30 06:16 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/672980.shtml)
+- 2026-06-30 06:20 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/87448409.shtml)
+- 2026-06-30 06:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/3322323.shtml)
+- 2026-06-30 06:25 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/568119106.shtml)
+- 2026-06-30 06:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/304620791562.shtml)
+- 2026-06-30 06:28 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/59208606436.shtml)
+- 2026-06-30 06:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/741662192780.shtml)

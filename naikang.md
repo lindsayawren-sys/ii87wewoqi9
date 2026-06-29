@@ -1,56 +1,53 @@
-# 科学认识把握“党的自我革命重在治权”
+# 吴清：加快培育壮大耐心资本，积极拓宽资金来源，引导养老金、保险资金等加大股权投资力度
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-科学认识把握“党的自我革命重在治权”(深入学习贯彻习近平新时代中国特色社会主义思想) 习近平总书记在二十届中央纪委五次全会上发表重要讲话强调：“党的自我革命重在治权，把权力关进制度笼子是新时代全面从严治党的一项重要任务。”这一重要论述，深化了我们党对党的自我革命的规律性认识，为深入推进党的自我革命和全面从严治党提供了根本遵循、指明了前进方向。 推进党的自我革命，关键是在法治轨道
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛开幕。中国证监会主席吴清就《进一步健全投融资相协调的资本市场功能更好服务新质生产力和经济高质量发展》发表主题演讲。他表示，加快培育壮大耐心资本，积极拓宽资金来源，支持国资基金与社会资本优势互补，引导养老金、保险资金等
 
 ## 正文
 
-科学认识把握“党的自我革命重在治权”(深入学习贯彻习近平新时代中国特色社会主义思想) 习近平总书记在二十届中央纪委五次全会上发表重要讲话强调：“党的自我革命重在治权，把权力关进制度笼子是新时代全面从严治党的一项重要任务。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”这一重要论述，深化了我们党对党的自我革命的规律性认识，为深入推进党的自我革命和全面从严治党提供了根本遵循、指明了前进方向。
+6月17日，2026陆家嘴论坛开幕。
 
-推进党的自我革命，关键是在法治轨道上规范和制约公权力 “党的自我革命重在治权”，是习近平总书记关于党的自我革命的重要思想的重要内容，深刻揭示了“治权”与“党的自我革命”之间的内在联系。
+中国证监会主席吴清就《进一步健全投融资相协调的资本市场功能更好服务新质生产力和经济高质量发展》发表主题演讲。
 
-完善党的自我革命制度规范体系、健全全面从严治党体系，其中一项重要内容在于加强对权力的制约和监督。
+他表示，加快培育壮大耐心资本，积极拓宽资金来源，支持国资基金与社会资本优势互补，引导养老金、保险资金等加大股权投资力度，促进进一步畅通“募投管退”循环。
 
-破解腐败这一最大威胁，推进党的自我革命，关键是在法治轨道上规范和制约公权力。
-
-这深刻表明，推进党的自我革命的重点和关键环节是“治权”。
-
-对党的自我革命内在规律的深刻把握。
-
-腐败的本质是权力滥用，权力一旦脱离有效制约和监督，权力滥用、贪污腐化现象就在所难免。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 06:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 06:23 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 06:20 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 06:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 06:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 06:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 06:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 06:11 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 06:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:10 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 06:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 06:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 06:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 06:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:29 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 06:24 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 06:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 06:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 06:08 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/836054653633.shtml)
-- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/05431923.shtml)
-- 2026-06-30 06:11 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/501404872.shtml)
-- 2026-06-30 06:06 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/134849.shtml)
-- 2026-06-30 06:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/964126.shtml)
-- 2026-06-30 06:07 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/694809.shtml)
-- 2026-06-30 06:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/80046.shtml)
-- 2026-06-30 05:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/35832250.shtml)
-- 2026-06-30 05:57 - [巴西2比1日本](https://www.share.minike.top/Article/details/323784488.shtml)
-- 2026-06-30 06:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/154126.shtml)
-- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/2933479419.shtml)
-- 2026-06-30 06:14 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/108798477423.shtml)
-- 2026-06-30 06:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/447436246119.shtml)
-- 2026-06-30 05:56 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/4877423814.shtml)
-- 2026-06-30 06:14 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/45236.shtml)
+- 2026-06-30 06:20 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/938429.shtml)
+- 2026-06-30 06:20 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/173715537661.shtml)
+- 2026-06-30 06:06 - [绘画区你赢了](https://www.blog.minike.top/Article/details/92800.shtml)
+- 2026-06-30 06:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/0779058.shtml)
+- 2026-06-30 06:00 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/4662688225.shtml)
+- 2026-06-30 06:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/020209680.shtml)
+- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/2515385947.shtml)
+- 2026-06-30 06:12 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/243419971490.shtml)
+- 2026-06-30 06:11 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/74391829543.shtml)
+- 2026-06-30 06:15 - [《共患难》](http://www.blog.minike.top/Article/details/921614801457.shtml)
+- 2026-06-30 06:16 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/159877.shtml)
+- 2026-06-30 06:14 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/842951747.shtml)
+- 2026-06-30 06:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/0156020.shtml)
+- 2026-06-30 06:14 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/43145708236.shtml)
+- 2026-06-30 06:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/3543397.shtml)

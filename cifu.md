@@ -1,60 +1,59 @@
-# 【券商聚焦】兴业证券首予名创优品(09896)“增持”评级 指业绩强劲估值存修复空间
+# 交行行长张宝江：小微企业风控问题需要依托数据赋能来解决
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-金吾财讯 | 兴业证券发布研报指，名创优品(09896)2025年业绩显示同店销售强劲，但利润率有所承压，未来存在修复空间。报告基于公司业绩及未来指引，首次给予公司“增持”评级。报告指出，名创优品2025年收入同比增长26.2%至214.4亿元（人民币，下同），但归母净利润同比下降54.1%至12.0亿元，Non-IFRS归母净利润则同比增长6.9%至28.9亿元。2025年第
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日，交通银行行长张宝江在2026陆家嘴论坛 “全体大会七：提高普惠金融的有效性与精准度”上表示，小微企业的风控问题很难回避，需要依托数据赋能来解决。 “传统的普惠贷款有一个‘不可能三角’，可得性、低成本和高质量三者不可兼得。对接客户需求时，成本非常高，如果好好对接、好好调查，成本很高；如果潦草地做，风险控不住
 
 ## 正文
 
-金吾财讯 | 兴业证券发布研报指，名创优品(09896)2025年业绩显示同店销售强劲，但利润率有所承压，未来存在修复空间。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日，交通银行行长张宝江在2026陆家嘴论坛 “全体大会七：提高普惠金融的有效性与精准度”上表示，小微企业的风控问题很难回避，需要依托数据赋能来解决。
 
-报告基于公司业绩及未来指引，首次给予公司“增持”评级。
+“传统的普惠贷款有一个‘不可能三角’，可得性、低成本和高质量三者不可兼得。
 
-报告指出，名创优品2025年收入同比增长26.2%至214.4亿元（人民币，下同），但归母净利润同比下降54.1%至12.0亿元，Non-IFRS归母净利润则同比增长6.9%至28.9亿元。
+对接客户需求时，成本非常高，如果好好对接、好好调查，成本很高；如果潦草地做，风险控不住。
 
-2025年第四季度，集团GMV及收入分别同比增长26.7%和32.7%，整体同店GMV实现中单位数增长，表现优于公司指引。
+不管是成本高还是风险控不住，最终都会影响可得性。
 
-分地区看，2025年第四季度中国内地miniso收入同比增长25%，同店销售增长(SSSG)为中双位数。
+通过数字技术，有可能解决这个问题。
 
-海外miniso收入同比增长31%，但区域表现不均，北美市场因贯彻直营大店策略，同店销售增长达20-30%低段，而东南亚及拉丁美洲市场同店销售则面临压力。
+”张宝江表示。
 
-潮玩品牌Toptoy季度收入同比大增112%，占集团收入10%，单店年化GMV近600万元。
+张宝江表示，在普惠的大概念中，小型科技企业非常多，交行支持的科技企业中，如果从企业数量而言，小微企业是大头。
 
-盈利能力方面，集团2025年第四季度调整后经营利润同比增长11.7%，但经营利润率同比下降3.2个百分点至17.0%。
+扩面上量的任务发展到一定程度后，下一步是如何提质的问题。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 06:16 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 06:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 05:58 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 05:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 05:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 06:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 06:20 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 05:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 06:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 06:00 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 06:21 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 06:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 06:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 06:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 06:15 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 06:05 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 06:28 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 06:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 06:13 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:06 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 06:10 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 06:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/22829262153.shtml)
-- 2026-06-30 06:01 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/4581175.shtml)
-- 2026-06-30 05:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/700101.shtml)
-- 2026-06-30 05:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/830680.shtml)
-- 2026-06-30 06:19 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/369431234.shtml)
-- 2026-06-30 06:04 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/1788693154.shtml)
-- 2026-06-30 05:58 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/68215258.shtml)
-- 2026-06-30 05:59 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/13953.shtml)
-- 2026-06-30 06:22 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/1929527.shtml)
-- 2026-06-30 05:54 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/423071.shtml)
-- 2026-06-30 05:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/753827.shtml)
-- 2026-06-30 06:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/08308361434.shtml)
-- 2026-06-30 06:22 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/4352629.shtml)
-- 2026-06-30 06:03 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/20872208602.shtml)
-- 2026-06-30 06:10 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/209806280.shtml)
+- 2026-06-30 06:11 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/1619388.shtml)
+- 2026-06-30 06:26 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/7381685.shtml)
+- 2026-06-30 06:30 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/87837849.shtml)
+- 2026-06-30 06:05 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/917122519991.shtml)
+- 2026-06-30 06:24 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/141959157077.shtml)
+- 2026-06-30 06:19 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/17012465032.shtml)
+- 2026-06-30 06:05 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/189545714361.shtml)
+- 2026-06-30 06:11 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/474691.shtml)
+- 2026-06-30 06:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/672219603.shtml)
+- 2026-06-30 06:06 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/66726423755.shtml)
+- 2026-06-30 06:29 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/9766422.shtml)
+- 2026-06-30 06:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/92874.shtml)
+- 2026-06-30 06:01 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/907344968800.shtml)
+- 2026-06-30 06:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/5456371.shtml)
+- 2026-06-30 06:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/974210634.shtml)

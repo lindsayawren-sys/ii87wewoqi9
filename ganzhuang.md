@@ -1,61 +1,58 @@
-# 【财说明白】四年翻了近一倍！驱蚊液为何年年涨价？
+# 中国首条第8.6代AMOLED生产线在成都量产
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新经纬4月14日电 (罗琨 王玉玲)近期，“2026年第一个蚊子包来了”“今年蚊子为啥这么早上岗”等多个话题在微博引发热议。不少网友称3月就“喜提”今年第一个蚊子包，还有网友晒出了自己的驱蚊装备。 家住广东广州的旷女士发现，去年购买的驱蚊液今年再去购买时，已经明显涨价了。“去年买两瓶活动价后是148元，今年一瓶就要115元，活动价后一瓶105元。” 家住深圳的胡女士也发现，她
+中新社成都6月17日电 (单鹏)中国首条、全球首批第8.6代AMOLED生产线17日在成都正式量产。 据悉，该生产线由BOE(京东方)投建，总投资630亿元人民币，总占地面积1388亩，设计产能为每月3.2万片玻璃基板(2290mm×2620mm)。 长期以来，OLED技术大多应用于手机这类小尺寸终端，在笔记本电脑、平板电脑、车载屏幕等中尺寸产品上普及度较低。该产线量产后，将主
 
 ## 正文
 
-中新经纬4月14日电 (罗琨 王玉玲)近期，“2026年第一个蚊子包来了”“今年蚊子为啥这么早上岗”等多个话题在微博引发热议。
+中新社成都6月17日电 (单鹏)中国首条、全球首批第8.6代AMOLED生产线17日在成都正式量产。
 
-不少网友称3月就“喜提”今年第一个蚊子包，还有网友晒出了自己的驱蚊装备。
+据悉，该生产线由BOE(京东方)投建，总投资630亿元人民币，总占地面积1388亩，设计产能为每月3.2万片玻璃基板(2290mm×2620mm)。
 
-家住广东广州的旷女士发现，去年购买的驱蚊液今年再去购买时，已经明显涨价了。
+长期以来，OLED技术大多应用于手机这类小尺寸终端，在笔记本电脑、平板电脑、车载屏幕等中尺寸产品上普及度较低。
 
-“去年买两瓶活动价后是148元，今年一瓶就要115元，活动价后一瓶105元。
+该产线量产后，将主要生产笔记本电脑、平板电脑等高端触控OLED显示屏，消费者未来能够获得更轻薄、更省电、色彩还原更真实的显示效果。
 
-” 家住深圳的胡女士也发现，她2024年夏天购买的某品牌驱蚊液99元三支，如今再买要花129元。
+京东方首席执行官冯强介绍，该产线集成了多项工艺与技术优势，不仅显著提升了成品品质、良率及生产效率，还有效破解了中尺寸OLED面板的经济切割难题。
 
-近年来，驱蚊液的价格一直处于上升通道中。
+在显示体验方面，新品大幅优化了画面流畅度与节能效果，在降低功耗的同时延长了产品使用寿命，能够广泛适配平板电脑、笔记本电脑及车载显示等多种应用场景。
 
-这背后是何原因？
+“这条产线填补了国内高世代中尺寸OLED的产业空白，推动中国柔性显示从‘行业领跑’走向‘定义赛道’。
 
-今年中东能源危机叠加蚊子迎来“史诗级”加强，驱蚊液是否会进一步涨价？
+”冯强表示。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 06:11 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 05:58 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 06:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:00 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 05:56 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 06:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:15 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 06:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 05:56 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 05:59 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 05:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 06:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 06:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 06:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 06:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:15 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 06:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 06:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 06:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 06:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 06:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 06:21 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 06:10 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/128765748675.shtml)
-- 2026-06-30 06:18 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/090131289473.shtml)
-- 2026-06-30 06:16 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/10380404542.shtml)
-- 2026-06-30 06:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/426234.shtml)
-- 2026-06-30 06:20 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/128826993319.shtml)
-- 2026-06-30 06:20 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/44521164576.shtml)
-- 2026-06-30 06:19 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/13682615.shtml)
-- 2026-06-30 05:56 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/7189483.shtml)
-- 2026-06-30 06:17 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/234320225.shtml)
-- 2026-06-30 06:06 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/7857461.shtml)
-- 2026-06-30 06:15 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/0082153.shtml)
-- 2026-06-30 06:21 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/5622090.shtml)
-- 2026-06-30 06:07 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/59113.shtml)
-- 2026-06-30 06:03 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/134771860877.shtml)
-- 2026-06-30 06:16 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/332070.shtml)
+- 2026-06-30 06:10 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/984236121.shtml)
+- 2026-06-30 06:06 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/08345.shtml)
+- 2026-06-30 06:21 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/05053843.shtml)
+- 2026-06-30 06:11 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/54983278714.shtml)
+- 2026-06-30 06:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/9708080.shtml)
+- 2026-06-30 06:19 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/176873878613.shtml)
+- 2026-06-30 06:28 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/18791049856.shtml)
+- 2026-06-30 06:21 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/505384960346.shtml)
+- 2026-06-30 06:27 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/488695763.shtml)
+- 2026-06-30 06:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/69664486400.shtml)
+- 2026-06-30 06:16 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/47061.shtml)
+- 2026-06-30 06:04 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/698286.shtml)
+- 2026-06-30 06:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/749967.shtml)
+- 2026-06-30 06:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/9859654083.shtml)
+- 2026-06-30 06:06 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/13514328748.shtml)

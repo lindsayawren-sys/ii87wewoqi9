@@ -1,59 +1,60 @@
-# 加拿大暂停征收联邦燃油消费税
+# 外交部：日本右翼势力美化731部队 对地区和平稳定构成威胁
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 渥太华消息：加拿大总理马克·卡尼当地时间14日宣布，解决生活成本问题将成为加拿大政府的主要优先事项，暂停征收联邦燃油消费税是首个具体措施。 综合加拿大广播公司(CBC)、《环球邮报》、美联社等媒体报道，该措施规定，2026年4月20日至9月7日期间，暂停征收汽油、柴油和航空燃料的全部联邦消费税。此举预计将使普通汽油价格每升下降约0.1加元(1加元约合0.
+中新网北京6月18日电 (记者 谢雁冰)中国外交部发言人林剑18日主持例行记者会。 有记者提问：近日，新加坡媒体制作播出《揭秘731部队：日本的秘密人体实验》纪录片，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。该纪录片受到广泛关注，在相关视频平台观看量近30万次。网民评论称，面向未来不应遗忘历史，日军暴行惨无人道，不
 
 ## 正文
 
-中新社北京4月15日电 渥太华消息：加拿大总理马克·卡尼当地时间14日宣布，解决生活成本问题将成为加拿大政府的主要优先事项，暂停征收联邦燃油消费税是首个具体措施。
+中新网北京6月18日电 (记者 谢雁冰)中国外交部发言人林剑18日主持例行记者会。
 
-综合加拿大广播公司(CBC)、《环球邮报》、美联社等媒体报道，该措施规定，2026年4月20日至9月7日期间，暂停征收汽油、柴油和航空燃料的全部联邦消费税。
+有记者提问：近日，新加坡媒体制作播出《揭秘731部队：日本的秘密人体实验》纪录片，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。
 
-此举预计将使普通汽油价格每升下降约0.1加元(1加元约合0.73美元)，柴油价格每升下降约0.04加元。
+该纪录片受到广泛关注，在相关视频平台观看量近30万次。
 
-加拿大政府估计，此举将使联邦政府财政收入减少约24亿加元。
+网民评论称，面向未来不应遗忘历史，日军暴行惨无人道，不应逃脱历史审判。
 
-伊朗冲突引发全球油价大幅上涨，最近几周加拿大汽油价格显著攀升。
+发言人对此有何评论？
 
-卡尼称，加拿大新政府一直专注于减轻加拿大人的生活负担。
+林剑：我也注意到了这一纪录片的播出。
 
-此次燃油税减免是一项负责任的临时措施，也是加政府减轻民众负担更广泛议程的一部分。
+二战期间，侵华日军第731部队进行了灭绝人性的活体实验和细菌战，受害者既有大量中国平民，也有苏联战俘、朝鲜劳工、英美被俘军人等。
 
-他还提到2025年加拿大取消消费者碳税，进一步证明政府致力于减轻民众负担。
+日军还在新加坡组建冈字第9420细菌部队，以此为据点在马来西亚、印度尼西亚、菲律宾、泰国、越南等多地建立分支机构，进行非法人体实验和细菌战，犯下了滔天罪行。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 06:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 06:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 06:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 06:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 06:13 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 06:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 06:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 06:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 06:19 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 06:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 05:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 06:08 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 06:23 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 06:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:01 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 06:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:23 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 06:04 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 06:11 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 06:25 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 06:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 06:19 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 06:12 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 06:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 06:02 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/5918158.shtml)
-- 2026-06-30 06:00 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/10881098108.shtml)
-- 2026-06-30 06:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/58544337742.shtml)
-- 2026-06-30 06:18 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2480452.shtml)
-- 2026-06-30 05:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/01552610818.shtml)
-- 2026-06-30 05:58 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/4101890031.shtml)
-- 2026-06-30 06:11 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/377633.shtml)
-- 2026-06-30 06:14 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/47969.shtml)
-- 2026-06-30 05:54 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/441060651378.shtml)
-- 2026-06-30 05:55 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/23384603.shtml)
-- 2026-06-30 06:08 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/64376100.shtml)
-- 2026-06-30 05:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/43182798031.shtml)
-- 2026-06-30 06:18 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/5424261816.shtml)
-- 2026-06-30 05:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/32262.shtml)
-- 2026-06-30 06:15 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/17893255277.shtml)
+- 2026-06-30 06:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/76683368696.shtml)
+- 2026-06-30 06:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/283478924355.shtml)
+- 2026-06-30 06:18 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/0415663.shtml)
+- 2026-06-30 06:13 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/587255918179.shtml)
+- 2026-06-30 06:03 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/73980378.shtml)
+- 2026-06-30 06:27 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/540739472925.shtml)
+- 2026-06-30 06:12 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/58137.shtml)
+- 2026-06-30 06:19 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/022458448.shtml)
+- 2026-06-30 06:06 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/042416494192.shtml)
+- 2026-06-30 06:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/50944394.shtml)
+- 2026-06-30 06:09 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/59313.shtml)
+- 2026-06-30 06:20 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/61905458.shtml)
+- 2026-06-30 06:19 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/7251413214.shtml)
+- 2026-06-30 06:03 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/318767436.shtml)
+- 2026-06-30 06:07 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/041304.shtml)

@@ -1,61 +1,61 @@
-# 中金：维持腾讯控股“跑赢行业”评级 目标价666港元
+# 见证历史，A股市值前十，5只科技股
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持腾讯控股（00700）26、27年盈利预测不变。维持“跑赢行业”评级及目标价666港元，对应20x 26eNon-IFRS P/E，较当前股价有32%上行空间。当前交易于15x/13x 26e/27e Non-IFRS P/E。如果将长周期AI布局看成一场战役，确保不败者，更有概率获胜，该行认为腾讯恰是那个不败者。只要腾讯坚持弱者心态，微信坚持价值创造原则，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股市值榜结构性巨变。 A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。 回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。因此，
 
 ## 正文
 
-中金发布研报称，维持腾讯控股（00700）26、27年盈利预测不变。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-维持“跑赢行业”评级及目标价666港元，对应20x 26eNon-IFRS P/E，较当前股价有32%上行空间。
+A股市值榜结构性巨变。
 
-当前交易于15x/13x 26e/27e Non-IFRS P/E。
+A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。
 
-如果将长周期AI布局看成一场战役，确保不败者，更有概率获胜，该行认为腾讯恰是那个不败者。
+截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。
 
-只要腾讯坚持弱者心态，微信坚持价值创造原则，中国科技巨头不陷入非理性扩张竞争的投资困境，腾讯过度的投资的概率不高。
+回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。
 
-中金主要观点如下： 腾讯布局AI为何看起来“有些慢”？
+因此，在当前拥有数千家上市公司的成熟市场中，5只科技股同时挺进前十，堪称史无前例的历史性突破。
 
-如将布局AI简化为AI组织优先级、资本开支和产品产出，相对于同行，腾讯AI动作看似较慢，该行认为原因可能来自腾讯独特的产品基因（社交），以及偏自下而上的组织架构和文化等因素：本轮AI需要千亿级资本开支、集中式组织调整，高度依赖自上而下的快速决策。
+从具体数据来看，这5只科技巨头分别是宁德时代、工业富联、中际旭创、寒武纪和新易盛。
 
-腾讯AI战略为何首先强调主业韧性？
+其中，宁德时代A股市值超过1.7万亿元，位居A股市值第三；工业富联A股市值超过1.54万亿元，位居第五；中际旭创A股市值超过1.52万亿元，位居第六；寒武纪市值超过9400亿元，位居第九；新易盛A股市值超过8100亿元，位居第十。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 06:17 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 06:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 05:59 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 06:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 05:57 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 06:09 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 06:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 06:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 06:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 06:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 06:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 06:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 06:09 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 06:19 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 06:09 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 06:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 06:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 06:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 06:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 06:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 06:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 06:01 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 06:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 06:00 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 06:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 06:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 06:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/368657868.shtml)
-- 2026-06-30 06:17 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/313229086.shtml)
-- 2026-06-30 06:01 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/39229684634.shtml)
-- 2026-06-30 05:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/22933817.shtml)
-- 2026-06-30 06:14 - [毒液2](http://www.share.kurohicncr.top/Article/details/08816940832.shtml)
-- 2026-06-30 06:20 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/2767171.shtml)
-- 2026-06-30 06:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/88593967.shtml)
-- 2026-06-30 06:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/929282277.shtml)
-- 2026-06-30 06:18 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/074143998.shtml)
-- 2026-06-30 06:10 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/1135997143.shtml)
-- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/30844418956.shtml)
-- 2026-06-30 06:00 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/338004835.shtml)
-- 2026-06-30 06:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/249394418.shtml)
-- 2026-06-30 06:09 - [《贺子珍》](https://www.share.minike.top/Article/details/6219577.shtml)
-- 2026-06-30 06:08 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9321220084.shtml)
+- 2026-06-30 06:20 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/0187959.shtml)
+- 2026-06-30 06:16 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/42629255231.shtml)
+- 2026-06-30 06:11 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/598286866494.shtml)
+- 2026-06-30 06:13 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/88762.shtml)
+- 2026-06-30 06:12 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/837202361.shtml)
+- 2026-06-30 06:08 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/320333.shtml)
+- 2026-06-30 06:13 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/47081355791.shtml)
+- 2026-06-30 06:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/5823232.shtml)
+- 2026-06-30 06:03 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/4790406462.shtml)
+- 2026-06-30 06:27 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/214007.shtml)
+- 2026-06-30 06:13 - [世界杯](http://www.blog.minike.top/Article/details/52429.shtml)
+- 2026-06-30 06:19 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/9330636556.shtml)
+- 2026-06-30 06:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/801037882486.shtml)
+- 2026-06-30 06:07 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/824759683987.shtml)
+- 2026-06-30 06:06 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/1941152852.shtml)

@@ -1,58 +1,58 @@
-# 青藏铁路20年累计运输进出藏货物超1亿吨
+# 追觅推进战略优化，聚焦主业提质增效
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社西宁4月13日电 (祁增蓓 张睿 李荣梅)2026年是青藏铁路通车20周年。中国铁路青藏集团有限公司(以下简称“青藏集团公司”)4月13日发布数据称，截至当日，通过青藏铁路运输进出藏货物总量突破1亿吨。 2006年7月1日，青藏铁路全线通车运营，结束了西藏不通铁路的历史。 二十年来，进出藏铁路货运量从2006年的36.1万吨，跃升至2025年的831.3万吨，年均增长率达
+全球科技创新风起云涌，中国科技企业成长路径正在发生深刻变革。近日，追觅科技传出战略调整消息：未来将全面聚焦智能清洁、全屋智能、智慧出行、具身智能四大核心赛道；同时，将手机、汽车等业务转为研究院形式保留。这一“进”与“退”的战略取舍，不仅是一家高成长企业的自我迭代，更是中国科技制造迈向高质量发展的生动缩影。 在商业世界中，面向前沿领域的试错与探索，是一种极具活力的行为。面对百年未
 
 ## 正文
 
-中新社西宁4月13日电 (祁增蓓 张睿 李荣梅)2026年是青藏铁路通车20周年。
+全球科技创新风起云涌，中国科技企业成长路径正在发生深刻变革。
 
-中国铁路青藏集团有限公司(以下简称“青藏集团公司”)4月13日发布数据称，截至当日，通过青藏铁路运输进出藏货物总量突破1亿吨。
+近日，追觅科技传出战略调整消息：未来将全面聚焦智能清洁、全屋智能、智慧出行、具身智能四大核心赛道；同时，将手机、汽车等业务转为研究院形式保留。
 
-2006年7月1日，青藏铁路全线通车运营，结束了西藏不通铁路的历史。
+这一“进”与“退”的战略取舍，不仅是一家高成长企业的自我迭代，更是中国科技制造迈向高质量发展的生动缩影。
 
-二十年来，进出藏铁路货运量从2006年的36.1万吨，跃升至2025年的831.3万吨，年均增长率达18.0%。
+在商业世界中，面向前沿领域的试错与探索，是一种极具活力的行为。
 
-其中，进藏货物从2006年的34万吨增至2025年的690.8万吨，年均增长17.2%；出藏货物从2006年的2.1万吨增至2025年的140.5万吨，年均增长24.8%，2025年创下历史新高。
+面对百年未有之大变局，在全球市场寻找新增量，彰显了中国创业者的敏锐与魄力。
 
-如今，煤炭、水泥、建材、石油、粮油、百货等各类生产生活物资，通过青藏铁路以最低成本、最快速度抵达高原，高原饮品、青稞制品等特产则借铁路走出西藏，实现产销双向赋能。
+这种探索所沉淀的技术底座、供应链经验与全球化视野，早已转化为中国企业全球化进程中的宝贵经验。
 
-随着货运需求持续增长，青藏铁路格拉段作为核心货运通道，车站数量增至58个，牵引质量提升至2880吨，客货列车运行对数增加至17对；拉(萨)日(喀则)铁路、拉(萨)林(芝)铁路相继与青藏铁路衔接贯通，构建起“Y”型铁路主骨架，西藏境内铁路运营里程突破1000公里。
+事实证明，强健的“基本盘”是企业敢于调整的底气。
 
-此外，青藏集团公司常态化开行48小时内抵达的进藏生活物资班列，2025年运输蔬菜等鲜活货物7215吨；创新自驾游小汽车运输，2025年发运JSQ型车540车、小汽车4519台，同比增幅达26.2%。
+今年一季度，追觅扫地机器人获得全球销量和销额冠军；5月，追觅吹风机中国区销售额同比增长506%；今年1月-5月，追觅割草机器人销额环比增长240%。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 06:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 06:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 05:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 05:55 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 06:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 06:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 06:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 06:13 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 05:57 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 06:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 06:01 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:26 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 06:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:02 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 06:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 06:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 06:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 06:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 06:16 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 06:19 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 06:27 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [绘画区你赢了](https://www.blog.minike.top/Article/details/01338717.shtml)
-- 2026-06-30 06:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/793591.shtml)
-- 2026-06-30 06:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/3784970.shtml)
-- 2026-06-30 05:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/853417075.shtml)
-- 2026-06-30 06:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/247789.shtml)
-- 2026-06-30 05:58 - [速度与激情9](https://www.share.minike.top/Article/details/05948.shtml)
-- 2026-06-30 06:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/03177290653.shtml)
-- 2026-06-30 05:59 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/617116414542.shtml)
-- 2026-06-30 05:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/712762120.shtml)
-- 2026-06-30 06:13 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/947404.shtml)
-- 2026-06-30 06:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/12441.shtml)
-- 2026-06-30 06:16 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/89015445966.shtml)
-- 2026-06-30 06:11 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/247957457.shtml)
-- 2026-06-30 06:12 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/82054670625.shtml)
-- 2026-06-30 05:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/43982.shtml)
+- 2026-06-30 06:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/81518258.shtml)
+- 2026-06-30 06:24 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/23246.shtml)
+- 2026-06-30 06:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/432850973.shtml)
+- 2026-06-30 06:18 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1140876.shtml)
+- 2026-06-30 06:14 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/86426.shtml)
+- 2026-06-30 06:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/9470838.shtml)
+- 2026-06-30 06:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/476264.shtml)
+- 2026-06-30 06:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/43859554.shtml)
+- 2026-06-30 06:08 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/112996778.shtml)
+- 2026-06-30 06:07 - [千香](https://www.blog.kurohicncr.top/Article/details/894935009055.shtml)
+- 2026-06-30 06:25 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/29790353771.shtml)
+- 2026-06-30 06:26 - [月亮](http://www.share.kurohicncr.top/Article/details/1920875.shtml)
+- 2026-06-30 06:00 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/9881750370.shtml)
+- 2026-06-30 06:07 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/860285522.shtml)
+- 2026-06-30 06:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/4120528.shtml)

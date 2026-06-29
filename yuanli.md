@@ -1,51 +1,61 @@
-# 花旗：降绿叶制药目标价至4.3港元 成熟产品降价影响较预期重
+# 异动，连阳，券商酝酿转机？顶流券商ETF华宝（512000）基金经理：“双背离”构筑性价比，修复行情有望继续
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，绿叶制药（02186）成熟产品的降价影响较预期为重，故下调其今明两年收入及纯利预测。管理层指引2026年至2030年纯利复合年均增长率（CAGR）超过25%，这意味着盈利将显著改善，主要受惠于：旗下产品Erozfi在美国的销售加速增长，预计2026年销售额将翻倍至4，000万美元并达到收支平衡；中国新产品持续增长。基于现金流折现（DCF）估值法，将集团目标价由5
+6月17日，券商板块反弹暂歇，中证全指证券公司指数冲高回落，尾盘再度拉升，顽强4连阳。规模374亿元+的顶流券商ETF华宝（512000）震荡收平。个股走势分化，华安证券领涨逾4%，财达证券、华鑫股份涨逾1%。 若拉长至近期表现看，上周五以来券商板块迎来连续上涨，证券公司指数亦明显放量，再度吸引市场目光，关于“券商补涨”的讨论再起。 对此，券商ETF华宝（512000）基金经理
 
 ## 正文
 
-花旗发布研报称，绿叶制药（02186）成熟产品的降价影响较预期为重，故下调其今明两年收入及纯利预测。
+6月17日，券商板块反弹暂歇，中证全指证券公司指数冲高回落，尾盘再度拉升，顽强4连阳。
 
-管理层指引2026年至2030年纯利复合年均增长率（CAGR）超过25%，这意味着盈利将显著改善，主要受惠于：旗下产品Erozfi在美国的销售加速增长，预计2026年销售额将翻倍至4，000万美元并达到收支平衡；中国新产品持续增长。
+规模374亿元+的顶流券商ETF华宝（512000）震荡收平。
 
-基于现金流折现（DCF）估值法，将集团目标价由5港元降至4.3港元，重申“买入”评级。
+个股走势分化，华安证券领涨逾4%，财达证券、华鑫股份涨逾1%。
 
-责任编辑：史丽君
+若拉长至近期表现看，上周五以来券商板块迎来连续上涨，证券公司指数亦明显放量，再度吸引市场目光，关于“券商补涨”的讨论再起。
+
+对此，券商ETF华宝（512000）基金经理丰晨成指出，去年8月至今，在资金面因素影响下，券商板块呈现出“双背离”的状态——板块行情走势与市场交投热度背离，行业基本面与估值水平背离。
+
+年初至今证券公司指数跌超11%，同期沪深300指数上涨6.5%，科创50指数涨超36%。
+
+而从市场高频数据维度看，今年前5个月全市场日均股基交易额保持在31641亿元高位水平，同比增长95.2%，同比增速进一步提速，远超近年同期水平。
+
+两融余额28979亿元，过去一年增长59%。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 06:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 06:11 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 06:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 06:17 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 06:03 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 06:18 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 06:20 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 06:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 06:06 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 06:11 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 06:12 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 06:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 06:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 06:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 06:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 06:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 06:21 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 06:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 06:19 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 06:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 06:06 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 06:00 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 06:14 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/72495361.shtml)
-- 2026-06-30 06:16 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/42364951064.shtml)
-- 2026-06-30 05:55 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/440730994.shtml)
-- 2026-06-30 06:07 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/74789873780.shtml)
-- 2026-06-30 06:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/81179132.shtml)
-- 2026-06-30 06:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/307613.shtml)
-- 2026-06-30 06:06 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/58224.shtml)
-- 2026-06-30 06:18 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/945267412.shtml)
-- 2026-06-30 06:15 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/718057769757.shtml)
-- 2026-06-30 05:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/826013858.shtml)
-- 2026-06-30 05:57 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/654668890732.shtml)
-- 2026-06-30 05:56 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/51593600307.shtml)
-- 2026-06-30 06:21 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/7592560823.shtml)
-- 2026-06-30 06:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/76152274117.shtml)
-- 2026-06-30 06:23 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/118173.shtml)
+- 2026-06-30 06:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/862577570280.shtml)
+- 2026-06-30 06:21 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/0905833371.shtml)
+- 2026-06-30 06:04 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/6942519.shtml)
+- 2026-06-30 06:04 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/96583.shtml)
+- 2026-06-30 06:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/605254713.shtml)
+- 2026-06-30 06:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/1150591812.shtml)
+- 2026-06-30 06:28 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/143162957.shtml)
+- 2026-06-30 06:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/49963.shtml)
+- 2026-06-30 06:03 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/134502.shtml)
+- 2026-06-30 06:29 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/412302.shtml)
+- 2026-06-30 06:03 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/645824.shtml)
+- 2026-06-30 06:01 - [一生一世](https://www.share.minike.top/Article/details/486939006823.shtml)
+- 2026-06-30 06:22 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/06542501291.shtml)
+- 2026-06-30 06:04 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/309464.shtml)
+- 2026-06-30 06:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/29305.shtml)

@@ -1,59 +1,58 @@
-# 扬特色之长，走差异之路（现场评论）
+# 陈茂波：香港投资管理有限公司已形成1元投资拉动8元跟投的耐心资本共感效应
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-人民日报 程 焕 乌蒙山腹地，贵州六盘水，随着滑雪场相继关闭滑雪项目，这个雪季的冰雪旅游暂告段落，迎来春意盎然的新景象。 过去认为，“南方无雪趣”。低纬度地带，何以银装素裹？又何以发展冰雪经济？前不久，笔者深入六盘水，深感走差异化发展之路，是竞逐冰雪赛道的底气所在。发展冰雪经济，关键在冰雪资源。六盘水地处云贵高原阶梯过渡地带，冷暖空气在此交汇，每到冬季便呈现一派“北国风光”。冰
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财政司司长陈茂波表示，依托国家“十五五”规划战略指引，沪港两地将持续发挥差异化优势，从规模扩容迈向质量跃升，以全方位金融协同助力国家高水平双向对外开放。 陈茂波指出，国家“十五五”规划首次明确提出加快建设金融强国，为沪港金融发展锚定了核心方向、赋予了全新使命。在当
 
 ## 正文
 
-人民日报 程 焕 乌蒙山腹地，贵州六盘水，随着滑雪场相继关闭滑雪项目，这个雪季的冰雪旅游暂告段落，迎来春意盎然的新景象。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财政司司长陈茂波表示，依托国家“十五五”规划战略指引，沪港两地将持续发挥差异化优势，从规模扩容迈向质量跃升，以全方位金融协同助力国家高水平双向对外开放。
 
-过去认为，“南方无雪趣”。
+陈茂波指出，国家“十五五”规划首次明确提出加快建设金融强国，为沪港金融发展锚定了核心方向、赋予了全新使命。
 
-低纬度地带，何以银装素裹？
+在当前地缘政治格局复杂多变、全球资产配置格局重塑，叠加人工智能等前沿技术加速重构全球产业与经济竞争格局的大背景下，全球投资者对稳健、优质的资产配置需求持续攀升，既需要稳定的资金“安全锚”，也亟需高潜力的增长新引擎，这为深耕中国市场、互联互通成熟的沪港两大金融中心带来了重大发展机遇。
 
-又何以发展冰雪经济？
+他现场披露了沪港金融市场的亮眼成绩单，印证了国际市场对中国金融开放与发展的高度认可。
 
-前不久，笔者深入六盘水，深感走差异化发展之路，是竞逐冰雪赛道的底气所在。
+2025年香港IPO融资规模重回全球首位，跨境财富管理业务规模创下历史新高，香港国际金融中心排名稳居全球第三，与纽约、伦敦顶尖金融中心的分值差距仅为1至2分。
 
-发展冰雪经济，关键在冰雪资源。
+与此同时，上交所市场市值与交易流动性持续稳步提升，沪港两地资本市场凭借庞大的市场规模、深厚的行业底蕴和充沛的发展潜力，已然成为国际资本配置中国资产的核心枢纽。
 
-六盘水地处云贵高原阶梯过渡地带，冷暖空气在此交汇，每到冬季便呈现一派“北国风光”。
+“一系列亮眼数据的背后，是全球资本用真金白银对中国经济发展、市场开放创新、科创产业突破投出的信任票。
 
-冰雪底子好，让特色产业有了扎根可能。
+”陈茂波表示，香港联通全球资本与国际规则、上海依托内地超大规模市场的独特双向区位优势，叠加两地互联互通机制的持续深化，持续释放强大市场吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:02 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 06:16 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 06:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 06:13 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 06:06 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 06:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 06:13 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 06:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 06:02 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 06:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 06:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 06:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 06:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 06:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 06:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 06:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 06:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 06:14 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 06:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 06:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [毒液2](http://www.blog.minike.top/Article/details/30392433.shtml)
-- 2026-06-30 05:58 - [沙丘](http://www.share.minike.top/Article/details/74536186.shtml)
-- 2026-06-30 06:05 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/4344694.shtml)
-- 2026-06-30 06:04 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/97226520.shtml)
-- 2026-06-30 06:06 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/331144320264.shtml)
-- 2026-06-30 05:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/2256336.shtml)
-- 2026-06-30 05:56 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/70066001.shtml)
-- 2026-06-30 06:15 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/92511933727.shtml)
-- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/89960373.shtml)
-- 2026-06-30 06:10 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/395108465.shtml)
-- 2026-06-30 05:59 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/81820.shtml)
-- 2026-06-30 05:55 - [日本16强魔咒](https://www.share.minike.top/Article/details/11002721330.shtml)
-- 2026-06-30 06:01 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/72121260257.shtml)
-- 2026-06-30 06:01 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/80625863.shtml)
-- 2026-06-30 05:56 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/59799.shtml)
+- 2026-06-30 06:26 - [金刚川](http://www.share.minike.top/Article/details/021658188.shtml)
+- 2026-06-30 06:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/648936633.shtml)
+- 2026-06-30 06:10 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/913850.shtml)
+- 2026-06-30 06:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/85302213282.shtml)
+- 2026-06-30 06:11 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/53729.shtml)
+- 2026-06-30 06:26 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/2244364.shtml)
+- 2026-06-30 06:22 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/8822325.shtml)
+- 2026-06-30 06:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/86320555263.shtml)
+- 2026-06-30 06:20 - [流金岁月](https://www.share.kurohicncr.top/Article/details/18706975.shtml)
+- 2026-06-30 06:01 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/2022947687.shtml)
+- 2026-06-30 06:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/6407044168.shtml)
+- 2026-06-30 06:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/370073.shtml)
+- 2026-06-30 06:06 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/899044541.shtml)
+- 2026-06-30 06:08 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/90471668946.shtml)
+- 2026-06-30 06:16 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/36406460.shtml)

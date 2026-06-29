@@ -1,60 +1,58 @@
-# 标题：两大稀土巨头携手连续七季度提价！稀土ETF华泰柏瑞（516780）助力把握价格上行通道
+# 邱勇：科创成长层占科创板公司总数6% 总市值达到11% 成为资本市场支持科技创新的前沿阵地
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在稀土行业供需格局持续趋紧的背景下，稀土市场正迎来新一轮价格上涨。2026年4月10日，行业两大巨头同步上调二季度稀土精矿关联交易价格，环比涨幅达44.61%。值得关注的是，自2024年第四季度以来，两家巨头的稀土精矿交易价格已连续七个季度调升，涨价趋势持续强化。在此背景下，人气产品——稀土ETF华泰柏瑞（
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。 对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在稀土行业供需格局持续趋紧的背景下，稀土市场正迎来新一轮价格上涨。
+6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。
 
-2026年4月10日，行业两大巨头同步上调二季度稀土精矿关联交易价格，环比涨幅达44.61%。
+对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。
 
-值得关注的是，自2024年第四季度以来，两家巨头的稀土精矿交易价格已连续七个季度调升，涨价趋势持续强化。
+科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆，寒武纪等6家企业首次盈利，实现了从孵化到毕业的闭环。
 
-在此背景下，人气产品——稀土ETF华泰柏瑞（516780）本周以来连续获资金增持，最新规模达30.06亿元，流动性优势较突出。
+目前科创成长层占科创板公司总数6%，总市值达到11%，成为资本市场支持科技创新的前沿阵地。
 
-本轮“涨价潮”的驱动因素，核心在于供给端持续收紧与需求端稳步扩张。
+二是前沿产业集聚效应持续放大，第五套标准重启，禾元生物等3家使用标准企业成功上市，商业航天领域配套规则落地并实现首单受理，人工智能领域的配套规则也在今天要发布。
 
-供给方面，中国不仅在稀土储量和产量上占据全球主导地位，更拥有全球最完备的稀土产业链及垄断性的加工冶炼技术，形成了显著的成本优势。
+预先审阅标杆案例长鑫科技、宇树科技成功过会，引入资深专业机构投资者在未盈利企业增资扩股等配套机制均有案例落地。
 
-与此同时，在贸易环境日趋复杂、地缘冲突频发的背景下，商务部4月9日发布公告，对含有中国成分的部分境外稀土相关物项以及稀土相关技术实施出口管制，进一步构筑了行业的“战略护城河”。
+三是审核效率明显提升，在严把入口关的基础上，不断完善审核流程，科创板IPO审核注册发行环节的平均用时压缩了50%，市场切实感受到科创板速度。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 06:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 05:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 06:16 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 06:21 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 06:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 06:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 05:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 06:01 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 06:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 05:59 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 06:19 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 05:58 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 06:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 06:07 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 06:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 06:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 06:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 06:14 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 06:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 06:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 06:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 06:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:21 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 06:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 06:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/350469813442.shtml)
-- 2026-06-30 06:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/714122474.shtml)
-- 2026-06-30 06:02 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/5976089.shtml)
-- 2026-06-30 06:21 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/4429628156.shtml)
-- 2026-06-30 05:55 - [日本进球](https://www.blog.kurohicncr.top/Article/details/44803621.shtml)
-- 2026-06-30 06:05 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/783123321861.shtml)
-- 2026-06-30 06:02 - [日本16强魔咒](https://www.blog.minike.top/Article/details/394026537.shtml)
-- 2026-06-30 06:11 - [沙丘](https://www.share.minike.top/Article/details/37876.shtml)
-- 2026-06-30 06:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/75881313.shtml)
-- 2026-06-30 06:03 - [《贺子珍》](http://www.share.minike.top/Article/details/341326.shtml)
-- 2026-06-30 06:03 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/82499250514.shtml)
-- 2026-06-30 06:02 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/31013652.shtml)
-- 2026-06-30 06:06 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/754051048.shtml)
-- 2026-06-30 06:13 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/1388863.shtml)
-- 2026-06-30 06:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/18299.shtml)
+- 2026-06-30 06:16 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/164157.shtml)
+- 2026-06-30 06:13 - [巴西2比1日本](http://www.share.minike.top/Article/details/2110936.shtml)
+- 2026-06-30 06:11 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/05638194718.shtml)
+- 2026-06-30 06:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/874429.shtml)
+- 2026-06-30 06:04 - [急先锋](http://www.blog.kurohicncr.top/Article/details/5743616934.shtml)
+- 2026-06-30 06:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/230072.shtml)
+- 2026-06-30 06:07 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/500696.shtml)
+- 2026-06-30 06:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/4903081492.shtml)
+- 2026-06-30 06:11 - [一生一世](http://www.share.minike.top/Article/details/97714015.shtml)
+- 2026-06-30 06:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/36632.shtml)
+- 2026-06-30 06:07 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/73463619.shtml)
+- 2026-06-30 06:03 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/08504.shtml)
+- 2026-06-30 06:24 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/9223528.shtml)
+- 2026-06-30 06:15 - [千与千寻](https://www.share.kurohicncr.top/Article/details/842976113.shtml)
+- 2026-06-30 06:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/799078399675.shtml)

@@ -1,60 +1,60 @@
-# 今年一季度上海口岸汽车出口大幅增长
+# 没有症状就不用复诊……是真是假？
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社上海4月14日电 (记者 姜煜)上海海关14日发布的统计数据显示，今年一季度，上海口岸汽车出口大幅增长。 今年一季度，凭借外高桥港区与临港新片区南港码头两个主要汽车出口码头的“双轮驱动”，叠加海关便利化举措，中国国产汽车在上海口岸以更快速度“驶向”全球市场。 据统计，今年一季度，上海海关所属上海外高桥港区海关监管出口汽车38.6万辆，同比增长15.9%，其中新能源车占比高
+没有症状就不用复诊……是真是假？丨谣言终结站 对于复诊，不少人存在认知误区：没有身体不适，就没必要去医院复诊。但实际上，这种说法并不准确，患者在什么情况下需要复诊，取决于他们的健康状况和治疗需求。 复诊是指患者在初次就医后，根据医生的建议，定期或不定期返回医疗机构接受进一步的评估、监测和治疗。这是维护个人健康的关键环节，有助于监测疾病进展、评估治疗效果、提供健康建议，并确保患者
 
 ## 正文
 
-中新社上海4月14日电 (记者 姜煜)上海海关14日发布的统计数据显示，今年一季度，上海口岸汽车出口大幅增长。
+没有症状就不用复诊……是真是假？
 
-今年一季度，凭借外高桥港区与临港新片区南港码头两个主要汽车出口码头的“双轮驱动”，叠加海关便利化举措，中国国产汽车在上海口岸以更快速度“驶向”全球市场。
+丨谣言终结站 对于复诊，不少人存在认知误区：没有身体不适，就没必要去医院复诊。
 
-据统计，今年一季度，上海海关所属上海外高桥港区海关监管出口汽车38.6万辆，同比增长15.9%，其中新能源车占比高达68.5%。
+但实际上，这种说法并不准确，患者在什么情况下需要复诊，取决于他们的健康状况和治疗需求。
 
-同期，南港码头完成外贸出口车辆20.7万辆，同比增长111%，其中新能源车出口13.8万辆，同比增长176%。
+复诊是指患者在初次就医后，根据医生的建议，定期或不定期返回医疗机构接受进一步的评估、监测和治疗。
 
-面对出口车辆快速增长的通关需求，上海海关通过制度创新与技术赋能，为汽车出口铺设“快车道”。
+这是维护个人健康的关键环节，有助于监测疾病进展、评估治疗效果、提供健康建议，并确保患者得到适当的医疗照顾。
 
-3月31日，外高桥港区5艘外贸船装载完车辆后分别前往巴西、南非等地区。
+如果医生建议需要复诊，患者应按照医生的建议行事，以确保健康状况得到充分关注和管理。
 
-据上海外高桥港区海关查验九科副科长何翌介绍，海关专门开辟了汽车出口通关查验绿色窗口，叠加“提前申报”“运抵验放”等便利措施，利用大数据分析优化检查流程，为汽车通关提速增效。
+延伸阅读 一次就医通常难以解决患者的所有问题，复诊成为维护个人健康的一个重要环节。
 
-在上海自贸区临港新片区，上海海关所属洋山海关聚焦智慧监管，将监管环节“无感”嵌入物流链，以专业、优质、高效的服务，促进汽车出口链路提质、降本、增效。
+那么，在什么情况下患者需要复诊呢？
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 06:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 05:56 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 06:10 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 06:09 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 06:20 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 06:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 06:03 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:17 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 06:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 06:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 06:12 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 06:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 06:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 06:17 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 06:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 06:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 06:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 06:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 06:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 06:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 06:20 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 06:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 06:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 06:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 06:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 06:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/952437218.shtml)
-- 2026-06-30 06:11 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/94424.shtml)
-- 2026-06-30 06:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/24081729.shtml)
-- 2026-06-30 06:01 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/54484621464.shtml)
-- 2026-06-30 06:05 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/26176.shtml)
-- 2026-06-30 06:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/554616671344.shtml)
-- 2026-06-30 05:55 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/672809130762.shtml)
-- 2026-06-30 05:56 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/69080858264.shtml)
-- 2026-06-30 05:57 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/897105535.shtml)
-- 2026-06-30 06:22 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/18825485968.shtml)
-- 2026-06-30 06:12 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/731390356436.shtml)
-- 2026-06-30 06:01 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/40141657266.shtml)
-- 2026-06-30 06:14 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/4570001518.shtml)
-- 2026-06-30 06:16 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/951764.shtml)
-- 2026-06-30 06:05 - [周生如故](https://www.blog.minike.top/Article/details/45302062681.shtml)
+- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/3606300.shtml)
+- 2026-06-30 06:13 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/09038400.shtml)
+- 2026-06-30 06:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7081963041.shtml)
+- 2026-06-30 06:14 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/0451479.shtml)
+- 2026-06-30 06:07 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/53523.shtml)
+- 2026-06-30 06:03 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/0925568877.shtml)
+- 2026-06-30 06:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/28645140.shtml)
+- 2026-06-30 06:16 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/131066272651.shtml)
+- 2026-06-30 06:01 - [日本进球](https://www.blog.kurohicncr.top/Article/details/12486358.shtml)
+- 2026-06-30 06:11 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/16057312384.shtml)
+- 2026-06-30 06:20 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/974558.shtml)
+- 2026-06-30 06:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/145403.shtml)
+- 2026-06-30 06:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/28841169.shtml)
+- 2026-06-30 06:08 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/644937.shtml)
+- 2026-06-30 06:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/62786309296.shtml)

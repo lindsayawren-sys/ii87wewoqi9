@@ -1,59 +1,60 @@
-# 3月M2和M1增速边际放缓，企业债券融资大增
+# 进出口银行王春英：在引领、赋能、开放三维度持续发力支持科技金融
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-华夏时报记者 刘佳 北京报道 金融数据为观察经济运行提供了重要参考。 4月13日，央行发布了一季度金融统计数据。数据显示，3月新增人民币贷款2.99万亿元；3月新增社会融资规模为52260亿元。 与此同时，3月末，广义货币（M2）同比增长8.5%，增速比上月末低0.5个百分点；狭义货币（M1）同比增长5.1%，增速较上月末低0.8个百分点。 在业内人士看来，3月信贷增长季节性回
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开，中国进出口银行副董事长、行长王春英出席“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”并发言。 王春英表示，科技创新是决定国家兴衰的关键力量，科技自立自强关乎未来竞争和发展主动权、主导权。当前，在各方的共同努力下，我国科技金融政策体系不断完善
 
 ## 正文
 
-华夏时报记者 刘佳 北京报道 金融数据为观察经济运行提供了重要参考。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开，中国进出口银行副董事长、行长王春英出席“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”并发言。
 
-4月13日，央行发布了一季度金融统计数据。
+王春英表示，科技创新是决定国家兴衰的关键力量，科技自立自强关乎未来竞争和发展主动权、主导权。
 
-数据显示，3月新增人民币贷款2.99万亿元；3月新增社会融资规模为52260亿元。
+当前，在各方的共同努力下，我国科技金融政策体系不断完善，资金保障更加有力，服务质效明显提升。
 
-与此同时，3月末，广义货币（M2）同比增长8.5%，增速比上月末低0.5个百分点；狭义货币（M1）同比增长5.1%，增速较上月末低0.8个百分点。
+与此同时，在金融支持基础研究、重大科技项目攻关、科技型企业早期识别介入、成果转化和产业应用等方面，仍然需要不断转变观念，优化机制。
 
-在业内人士看来，3月信贷增长季节性回升，但冲量力度减弱。
+据王春英介绍，近年来，进出口银行进一步聚焦服务国家发展，主要是做商业性金融干不了、干不好的业务。
 
-整体上，一季度信贷增长呈现出更加平稳均衡的特征，有利于提高金融支持实体经济的可持续性，也更加注重信贷高质量投放，强化供需匹配。
+在科技金融领域，开局破题，谋事布局，以“护航、启航、远航”的三航机制加速科技创新向现实生产力转化。
 
-“从融资结构上看，伴随金融体系持续深化、经济转型升级加快，在政策优化和融资成本低位运行下，债券市场正成为企业重要融资渠道，在拓宽企业资金来源、支持企业高质量发展中发挥着更加重要的作用。
+第一，做好重大项目的护航，强化科技金融的供给。
 
-”民生银行首席经济学家温彬表示。
+第二，扶持科创企业启航，破解资质门槛难题。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 06:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 06:02 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 06:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 06:12 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:01 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 06:11 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 06:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 05:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 06:24 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 06:21 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 06:18 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 06:00 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 06:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 06:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 06:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 06:11 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 06:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 06:20 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 06:14 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 06:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 06:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 06:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/628086.shtml)
-- 2026-06-30 06:20 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/954297.shtml)
-- 2026-06-30 06:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/37228754335.shtml)
-- 2026-06-30 06:13 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/072635462932.shtml)
-- 2026-06-30 06:17 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/669938093504.shtml)
-- 2026-06-30 05:54 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/5253745.shtml)
-- 2026-06-30 06:08 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/841586307.shtml)
-- 2026-06-30 06:22 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/384438871.shtml)
-- 2026-06-30 05:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/6283568511.shtml)
-- 2026-06-30 06:11 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/0431829400.shtml)
-- 2026-06-30 06:13 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/13224766005.shtml)
-- 2026-06-30 05:55 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/482924501.shtml)
-- 2026-06-30 06:14 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/850972.shtml)
-- 2026-06-30 05:56 - [逃狱兄弟](http://www.share.minike.top/Article/details/96346294.shtml)
-- 2026-06-30 06:01 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/980683727.shtml)
+- 2026-06-30 06:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/13851283.shtml)
+- 2026-06-30 06:01 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/31178274.shtml)
+- 2026-06-30 06:15 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/48985.shtml)
+- 2026-06-30 06:03 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/4423664636.shtml)
+- 2026-06-30 06:10 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/306218.shtml)
+- 2026-06-30 06:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/251717955.shtml)
+- 2026-06-30 06:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/2256876.shtml)
+- 2026-06-30 06:00 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/54672.shtml)
+- 2026-06-30 06:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/18309.shtml)
+- 2026-06-30 06:21 - [《共患难》](https://www.share.kurohicncr.top/Article/details/65243798.shtml)
+- 2026-06-30 06:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/067163732.shtml)
+- 2026-06-30 06:02 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/2520422.shtml)
+- 2026-06-30 06:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/57500136.shtml)
+- 2026-06-30 06:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/63025.shtml)
+- 2026-06-30 06:09 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/6617099680.shtml)

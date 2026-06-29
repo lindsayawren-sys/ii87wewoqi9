@@ -1,46 +1,48 @@
-# 习言道｜必须实事求是、求真务实、真抓实干
+# 6月18日央行开展2480亿元7天期逆回购操作
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。他指出——
+中新网6月18日电 据央行网站消息，6月18日中国人民银行以固定利率、数量招标方式开展了2480亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。
+中新网6月18日电 据央行网站消息，6月18日中国人民银行以固定利率、数量招标方式开展了2480亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-他指出——
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 06:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 06:20 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 06:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 06:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 06:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 06:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 06:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 05:55 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 06:16 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 06:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 06:14 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 06:25 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 06:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 06:13 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 06:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 06:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 06:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 06:13 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 06:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 06:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 06:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 06:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 06:04 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 06:19 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/4063122.shtml)
-- 2026-06-30 06:21 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/03171105.shtml)
-- 2026-06-30 05:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/71429.shtml)
-- 2026-06-30 06:14 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/0419567.shtml)
-- 2026-06-30 06:19 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/317593355.shtml)
-- 2026-06-30 05:55 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/00818.shtml)
-- 2026-06-30 06:06 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/18017.shtml)
-- 2026-06-30 06:09 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/50597747729.shtml)
-- 2026-06-30 05:56 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/65356668613.shtml)
-- 2026-06-30 06:13 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/009811802263.shtml)
-- 2026-06-30 05:58 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/1669473.shtml)
-- 2026-06-30 05:56 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/0551712.shtml)
-- 2026-06-30 06:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/4069284.shtml)
-- 2026-06-30 06:05 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/31978.shtml)
-- 2026-06-30 05:59 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/2278849.shtml)
+- 2026-06-30 06:13 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/02058775.shtml)
+- 2026-06-30 06:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/172012361.shtml)
+- 2026-06-30 06:23 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/48584952.shtml)
+- 2026-06-30 06:18 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/05164325244.shtml)
+- 2026-06-30 06:01 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/80728756.shtml)
+- 2026-06-30 06:17 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/449491984.shtml)
+- 2026-06-30 06:01 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1806521.shtml)
+- 2026-06-30 06:14 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/393635.shtml)
+- 2026-06-30 06:25 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/259614264.shtml)
+- 2026-06-30 06:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/8801364.shtml)
+- 2026-06-30 06:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/577442803951.shtml)
+- 2026-06-30 06:09 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/78859087593.shtml)
+- 2026-06-30 06:05 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/565247323597.shtml)
+- 2026-06-30 06:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/50832.shtml)
+- 2026-06-30 06:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/133962708.shtml)

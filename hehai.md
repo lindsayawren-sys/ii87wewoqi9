@@ -1,56 +1,54 @@
-# 让老人颐养天年 “一站式”暖心服务阵地让民生温度在烟火气中接力传递
+# 存储芯片涨价潮延续！港股半导体板块逆市上涨，兆易创新股价创历史新高
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-央视网消息：“民以食为天”。对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。老人“以菜换餐” 共享食堂吃饭无忧 一大
+港股半导体板块逆市上涨，兆易创新盘中涨9%股价创历史新高，英诺赛科、天数智芯涨超7%，澜起科技、纳芯微涨超5%。 消息面上，根据ComputerBase对内存、HDD和SSD三大存储品类的价格追踪数据，当前的存储紧缺危机远未结束，6月中旬HDD价格大幅上涨，内存及SSD价格也在上涨。最新数据显示，内存的价格水平依然处于极端高位，较上个月再度小幅上涨，以2025年9月为基准，DD
 
 ## 正文
 
-央视网消息：“民以食为天”。
+港股半导体板块逆市上涨，兆易创新盘中涨9%股价创历史新高，英诺赛科、天数智芯涨超7%，澜起科技、纳芯微涨超5%。
 
-对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。
+消息面上，根据ComputerBase对内存、HDD和SSD三大存储品类的价格追踪数据，当前的存储紧缺危机远未结束，6月中旬HDD价格大幅上涨，内存及SSD价格也在上涨。
 
-随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。
+最新数据显示，内存的价格水平依然处于极端高位，较上个月再度小幅上涨，以2025年9月为基准，DDR5内存的平均价格已上涨288%，较一个月前的282%进一步扩大。
 
-破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。
+此外，行业人士称字节跳动正与天数智芯讨论采购至少5万颗AI芯片，主要用于推理工作。
 
-老人“以菜换餐” 共享食堂吃饭无忧 一大早，浙江省衢州江山市石门镇溪底村的几位村民，提着刚从地里采摘的新鲜蔬菜来到共享食堂，准备用菜换“饭钱”。
+若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动的第三家GPU供应商。
 
-鸡蛋、油麦菜、苋菜，这些村民自家产的农产品，共享食堂会按不低于市场价折现，充值进他们的就餐卡中。
-
-今年71岁的姜春亮在共享食堂就餐，每顿需4.5元。
-
-通过“以菜换餐”，他只需将自家地里的蔬菜送到食堂就能抵扣饭钱。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 06:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 06:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 06:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 05:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 06:04 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 06:05 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 06:02 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 06:05 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 06:18 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 06:05 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 06:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 06:26 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 06:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 06:18 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 06:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 06:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 06:24 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 06:25 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 06:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 06:11 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 06:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [第一炉香](https://www.share.minike.top/Article/details/1441469.shtml)
-- 2026-06-30 06:18 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5706116.shtml)
-- 2026-06-30 06:16 - [沉睡花园](http://www.share.minike.top/Article/details/441208587711.shtml)
-- 2026-06-30 06:19 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/7156004491.shtml)
-- 2026-06-30 06:01 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/926225053.shtml)
-- 2026-06-30 06:14 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/12375019.shtml)
-- 2026-06-30 06:13 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/218482962741.shtml)
-- 2026-06-30 06:20 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/93100.shtml)
-- 2026-06-30 06:02 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/275193531264.shtml)
-- 2026-06-30 05:55 - [毒液2](http://www.share.minike.top/Article/details/8805195607.shtml)
-- 2026-06-30 06:13 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/184191.shtml)
-- 2026-06-30 06:01 - [千与千寻](https://www.share.kurohicncr.top/Article/details/322243964.shtml)
-- 2026-06-30 06:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/738511.shtml)
-- 2026-06-30 06:17 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/866408188088.shtml)
-- 2026-06-30 06:15 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/06526113599.shtml)
+- 2026-06-30 06:27 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/9061441942.shtml)
+- 2026-06-30 06:00 - [逃狱兄弟](http://www.share.minike.top/Article/details/55549.shtml)
+- 2026-06-30 06:17 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/562699524.shtml)
+- 2026-06-30 06:21 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/24182715368.shtml)
+- 2026-06-30 06:09 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/06413.shtml)
+- 2026-06-30 06:10 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/881421118020.shtml)
+- 2026-06-30 06:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/01153.shtml)
+- 2026-06-30 06:19 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/55918111.shtml)
+- 2026-06-30 06:23 - [小娘惹](http://www.blog.minike.top/Article/details/97871098443.shtml)
+- 2026-06-30 06:03 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/42553367282.shtml)
+- 2026-06-30 06:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/6627574388.shtml)
+- 2026-06-30 06:10 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/4057086950.shtml)
+- 2026-06-30 06:17 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/0544300048.shtml)
+- 2026-06-30 06:03 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/224096.shtml)
+- 2026-06-30 06:14 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/592265888.shtml)

@@ -1,59 +1,61 @@
-# 深港澳三地共绘“中华民族一家亲”暖心画卷
+# 沃什“掀桌”：不降息、不指引、不预测——美联储首秀让华尔街集体懵圈
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月13日电 (记者 索有为)“当好东道主 喜迎APEC——‘万象中华·潮起福田’多彩民族深港澳春茗荟暨《民族团结进步促进法》宣传活动”，4月11日至12日在深圳市福田区水围文化广场举办。活动旨在深入宣传贯彻《民族团结进步促进法》，进一步促进粤港澳大湾区各民族交往交流交融，为即将在深圳举办的APEC会议营造良好氛围。 本次活动由深圳市及福田区相关政府部门指导，福田街道
+汇通财经APP讯——周四（6月18日）亚洲时段，美元指数温和调整，当前运行于100.30附近，上一个交易日美元指数创两个月新高至100.57。美联储释放的偏鹰政策信号为美元带来强力基本面支撑。 美联储新任主席凯文·沃什于2026年6月17日周三主持首次联邦公开市场委员会（FOMC）会议，迅速开启政策新阶段。 在通胀仍显著高于目标的背景下，委员会一致决定维持联邦基金利率目标区间在
 
 ## 正文
 
-中新网深圳4月13日电 (记者 索有为)“当好东道主 喜迎APEC——‘万象中华·潮起福田’多彩民族深港澳春茗荟暨《民族团结进步促进法》宣传活动”，4月11日至12日在深圳市福田区水围文化广场举办。
+汇通财经APP讯——周四（6月18日）亚洲时段，美元指数温和调整，当前运行于100.30附近，上一个交易日美元指数创两个月新高至100.57。
 
-活动旨在深入宣传贯彻《民族团结进步促进法》，进一步促进粤港澳大湾区各民族交往交流交融，为即将在深圳举办的APEC会议营造良好氛围。
+美联储释放的偏鹰政策信号为美元带来强力基本面支撑。
 
-本次活动由深圳市及福田区相关政府部门指导，福田街道、深圳市民族团结发展促进会、福田区民族团结进步协会联合主办，并得到了香港中华民族团结进步协会、中华民族团结促进会(澳门)等港澳社团，以及本地企业和行业协会的协办支持。
+美联储新任主席凯文·沃什于2026年6月17日周三主持首次联邦公开市场委员会（FOMC）会议，迅速开启政策新阶段。
 
-活动融合普法宣传、非遗展示、美食品鉴、文艺演出与产业交流于一体，成为深港澳三地各族同胞深化情感、增进认同的平台。
+在通胀仍显著高于目标的背景下，委员会一致决定维持联邦基金利率目标区间在3.50%-3.75%不变，同时发布大幅精简的政策声明，取消前瞻指引，并宣布启动雄心勃勃的改革审查项目。
 
-活动开幕式上，深港澳各界嘉宾与民众共同观看了深圳市及福田区的城市民族工作宣传片。
+这一组合举措标志着美联储在沟通风格和政策运作上的重要转变。
 
-一场融合了非遗大鼓、傣族舞、蒙古族民歌、白族山歌、藏族舞蹈、民族童声合唱等多元民族艺术元素的文艺演出接连上演，最终在全体合唱《爱我中华》的激昂歌声中达到高潮，生动展现了中华文化的多彩魅力与各民族的情感共鸣。
+利率决策维持稳定 释放明确鹰派信号 沃什上月正式接掌美联储后，在其主持的首次FOMC会议中展现出卓越的领导凝聚力，推动全体官员达成高度一致的决策意见。
 
-现场，香港中华民族团结进步协会、中华民族团结促进会(澳门)、深圳市民族团结发展促进会及福田区民族团结进步协会四方，正式结为深港澳“铸牢中华民族共同体意识”友好共建单位。
+尽管特朗普政府倾向推行低利率以刺激经济增长的政治压力不小，但沃什始终坚持以经济数据和长期稳定为决策核心，会议最终决定维持联邦基金利率目标区间在3.50%-3.75%不变。
 
-这一举措标志着相关工作从以往单个城市的探索实践，迈向了深港澳三地协同联动、集群发展的新阶段，为粤港澳大湾区深化民族团结、凝聚社会共识提供了新的合作框架。
+这一稳健决策清晰传递出美联储不愿受短期外部干扰的独立姿态，有效维护了央行的政策信誉。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 05:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 05:56 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 05:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:15 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 05:55 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 06:00 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 06:22 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 06:20 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 06:15 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 05:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 06:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 06:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 06:08 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 06:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:05 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:14 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 06:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 06:22 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 06:28 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 06:27 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 06:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 06:04 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 06:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 06:02 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/3956359810.shtml)
-- 2026-06-30 06:23 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/18257.shtml)
-- 2026-06-30 06:15 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/087807.shtml)
-- 2026-06-30 05:56 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/24467.shtml)
-- 2026-06-30 06:12 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/69343042.shtml)
-- 2026-06-30 06:07 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/0201078.shtml)
-- 2026-06-30 06:12 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/496256583.shtml)
-- 2026-06-30 05:54 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/840448915.shtml)
-- 2026-06-30 05:56 - [恋与深空 巧合](http://www.share.minike.top/Article/details/44204797094.shtml)
-- 2026-06-30 06:14 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/78322073.shtml)
-- 2026-06-30 06:04 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/3279301.shtml)
-- 2026-06-30 06:11 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0184220.shtml)
-- 2026-06-30 06:09 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/00123.shtml)
-- 2026-06-30 06:19 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/52637229.shtml)
-- 2026-06-30 06:16 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/34122870.shtml)
+- 2026-06-30 06:03 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/593897.shtml)
+- 2026-06-30 06:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/98404.shtml)
+- 2026-06-30 06:26 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/49842.shtml)
+- 2026-06-30 06:05 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/353558287310.shtml)
+- 2026-06-30 06:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/454575004.shtml)
+- 2026-06-30 06:06 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/19648028.shtml)
+- 2026-06-30 06:08 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/226372418580.shtml)
+- 2026-06-30 06:17 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/558201976011.shtml)
+- 2026-06-30 06:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/82943737166.shtml)
+- 2026-06-30 06:07 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/402845899.shtml)
+- 2026-06-30 06:26 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/69894.shtml)
+- 2026-06-30 06:04 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/99913.shtml)
+- 2026-06-30 06:09 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/035702.shtml)
+- 2026-06-30 06:21 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/8108840.shtml)
+- 2026-06-30 06:18 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/33139.shtml)

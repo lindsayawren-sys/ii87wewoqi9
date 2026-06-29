@@ -1,52 +1,56 @@
-# 政策与算力协同发力 郑州探索“AI+微短剧”融合发展路径
+# 美股上周上涨，高位再平衡
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，郑州高新区发布微短剧产业与算力产业支持政策，推出郑州首个算力产业OPC专项政策，同步上线AI短剧制作平台及产业社区，加快推动“AI+微短剧”产业发展。 据介绍，此次发布的政策从内容创作、技术研发、产业载体等方面加大支持力度，并通过算力补贴降低企业生产成本。同时，依托AIGC技术，相关平台已实现从剧本生成
+美国宏观经济方面，5月CPI同比4.2%，环比0.5%，均符合预期，显示总通胀重新站上4%以上；但核心CPI同比2.9%、环比0.2%，其中环比低于预期的0.3%，说明这一轮通胀再抬头仍主要由能源价格冲击驱动，而不是需求全面再加速。 5月美国PPI同比6.5%、环比1.1%，明显高于市场预期，反映生产端成本压力更强；不过核心PPI同比4.9%、环比0.4%低于预期，说明上游涨价
 
 ## 正文
 
-发布时间：2026年04月15日 10:22 来源：中国新闻网 4月14日，郑州高新区发布微短剧产业与算力产业支持政策，推出郑州首个算力产业OPC专项政策，同步上线AI短剧制作平台及产业社区，加快推动“AI+微短剧”产业发展。
+美国宏观经济方面，5月CPI同比4.2%，环比0.5%，均符合预期，显示总通胀重新站上4%以上；但核心CPI同比2.9%、环比0.2%，其中环比低于预期的0.3%，说明这一轮通胀再抬头仍主要由能源价格冲击驱动，而不是需求全面再加速。
 
-据介绍，此次发布的政策从内容创作、技术研发、产业载体等方面加大支持力度，并通过算力补贴降低企业生产成本。
+5月美国PPI同比6.5%、环比1.1%，明显高于市场预期，反映生产端成本压力更强；不过核心PPI同比4.9%、环比0.4%低于预期，说明上游涨价尚未全面扩散。
 
-同时，依托AIGC技术，相关平台已实现从剧本生成到视频合成的自动化生产流程，推动微短剧产业向智能化、规模化方向发展。
+截至6月6日当周，美国初请失业金人数22.9万人，高于预期的21.9万-22.0万人，续请失业金179.5万人也高于预期，意味着劳动力市场在强非农之后出现一定边际降温。
 
-(记者 范晓恒 韩章云） 责任编辑：【周驰】
+6月密歇根大学消费者信心初值48.9，高于预期46.0，也高于前值44.8；但其绝对水平仍处历史低位，仅说明“悲观略有修复”，不意味着居民部门已明显转强。
+
+二、主要指数相关情况 一周指数表现 上周（6月8日-12日），标普油气指数整周下跌0.43%，纳斯达克100指数整周上涨2.34%，标普500指数整周上涨0.65%，其覆盖的11个行业板块有9个上涨，其中标普500材料领涨3.00%，标普500通信设备领跌1.90%。
+
+数据来源：Wind 美股：美股上周在“地缘风险—通胀再定价—AI拥挤交易松动”三重冲击下完成了一次高位再平衡；小盘价值显著跑赢大盘成长，反映资金并未撤离美股，而是在从高估值、长久期、纯预期驱动的科技环节，转向更具业绩支撑的半导体硬件、金融、工业和部分防御板块。
+
+5月美国CPI同比4.2%符合预期、核心CPI环比0.2%低于预期，但PPI同比6.5%高于预期，显示输入型通胀和上游成本压力仍在；再叠加美伊局势从上周初交火传闻到上周末“框架协议”预期快速切换，油价与风险偏好同步剧烈摆动，使得市场在美联储6月会议前有望倾向于交易“6月不动、但宽松偏向被移除，且更高利率维持更久”这一框架。
+
+博时标普500ETF（513500）是国内跟踪美国标普500指数的ETF产品。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 06:05 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 06:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 06:21 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 06:08 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 06:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 06:15 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 06:06 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 06:04 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 06:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 06:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 06:16 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:01 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 06:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 06:00 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 06:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 06:23 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 06:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 06:05 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 06:23 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 06:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 06:04 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 06:28 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 06:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/83516.shtml)
-- 2026-06-30 06:14 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/19684080.shtml)
-- 2026-06-30 06:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/30378.shtml)
-- 2026-06-30 05:57 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/077230618017.shtml)
-- 2026-06-30 05:59 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/90598934.shtml)
-- 2026-06-30 06:17 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/67510.shtml)
-- 2026-06-30 05:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/153203915896.shtml)
-- 2026-06-30 06:12 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/1729467630.shtml)
-- 2026-06-30 06:05 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/5880913739.shtml)
-- 2026-06-30 06:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/6425110.shtml)
-- 2026-06-30 06:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/217483328.shtml)
-- 2026-06-30 06:08 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5338336674.shtml)
-- 2026-06-30 05:55 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/050659.shtml)
-- 2026-06-30 06:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/991253.shtml)
-- 2026-06-30 06:19 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/0211686481.shtml)
+- 2026-06-30 06:12 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/69620781736.shtml)
+- 2026-06-30 06:26 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/35879.shtml)
+- 2026-06-30 06:02 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/3959494340.shtml)
+- 2026-06-30 06:06 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/18892334.shtml)
+- 2026-06-30 06:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/725591.shtml)
+- 2026-06-30 06:00 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/344576.shtml)
+- 2026-06-30 06:17 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/38748018555.shtml)
+- 2026-06-30 06:18 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/434358173.shtml)
+- 2026-06-30 06:09 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/294671.shtml)
+- 2026-06-30 06:10 - [我和我的家乡](http://www.blog.minike.top/Article/details/05389443.shtml)
+- 2026-06-30 06:06 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/9261298.shtml)
+- 2026-06-30 06:04 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/691561361549.shtml)
+- 2026-06-30 06:04 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/3947433156.shtml)
+- 2026-06-30 06:29 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/829511699.shtml)
+- 2026-06-30 06:28 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/242272623.shtml)

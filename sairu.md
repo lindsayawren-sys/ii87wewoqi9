@@ -1,55 +1,57 @@
-# 2026海峡两岸（湖南）青年交流发展大会即将举办 国台办回应
+# 破解债市钱荒负反馈，央行拟用互换机制“兜底”非银紧急流动性
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问：2026海峡两岸(湖南)青年交流发展大会即将举办，引发两岸青年朋友关注。请介绍有关情况。 国台办发言人陈斌华表示，2026海峡两岸(湖南)青年交流发展大会开幕式将于4月16日在长沙举办，大会以“友好湖南 青春‘湘’约”为主题，依托湖南建设年轻人友好省份政策红利、完备产业基础、良好营商环境、深厚文化底蕴和“低
+6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上明确表态，央行正研究设立特定情景下非银流动性支持宏观审慎工具。当债券等市场出现系统性压力，正常流动性渠道受阻，机构群体性面临流动性危机且可能引发系统性风险时，通过互换方式向非银机构提供紧急流动性。 这一制度构想并非首次提出。回溯至2025年10月，潘功胜在2025年金融街论坛年会开幕式上便已释放政策信号，称人民银行将综合平
 
 ## 正文
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
+6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上明确表态，央行正研究设立特定情景下非银流动性支持宏观审慎工具。
 
-有记者问：2026海峡两岸(湖南)青年交流发展大会即将举办，引发两岸青年朋友关注。
+当债券等市场出现系统性压力，正常流动性渠道受阻，机构群体性面临流动性危机且可能引发系统性风险时，通过互换方式向非银机构提供紧急流动性。
 
-请介绍有关情况。
+这一制度构想并非首次提出。
 
-国台办发言人陈斌华表示，2026海峡两岸(湖南)青年交流发展大会开幕式将于4月16日在长沙举办，大会以“友好湖南 青春‘湘’约”为主题，依托湖南建设年轻人友好省份政策红利、完备产业基础、良好营商环境、深厚文化底蕴和“低成本创业、高品质生活”地区优势，进一步促进湘台青年交流交往，深化两地各领域交流交融。
+回溯至2025年10月，潘功胜在2025年金融街论坛年会开幕式上便已释放政策信号，称人民银行将综合平衡维护金融市场稳定运行和防范金融市场道德风险，探索在特定情景下向非银机构提供流动性的机制安排。
 
-陈斌华指出，大会期间，将举办2026两岸企业家携手青年创新创业交流、“春在湘江”湘台两岸艺术交流周、两岸青年电竞音乐潮流文化交流营等活动，并推介支持台湾青年来湘学习生活、就业创业的有关政策措施，为广大台青来湖南学习、实习、就业、创业提供全方位支持。
+此次陆家嘴论坛上，央行进一步细化工具适用场景与实施路径，标志着该项宏观审慎工具从框架构思迈入落地研究阶段。
+
+近年来，随着非银产品规模快速扩张，其内部所面临的流动性风险也容易通过机构行为，放大为整个市场的冲击，典型案例包括2022年末的理财赎回负反馈，2025年三季度债基产品的集中降久期，两段风波中，10年期国债收益率的上行幅度均超过20bp。
+
+兴业证券首席经济学家刘郁表示，在传统的货币工具体系下，央行向非银输送“兜底”流动性，通常需要经过商业银行等中间节点。
+
+2024年10月，央行正式创设证券、基金、保险公司互换便利工具（SFISF），非银机构可以通过质押债券、股票ETF、沪深300成分股等方式向央行获取紧急流动性。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 05:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 05:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 06:03 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 06:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 06:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 06:13 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 05:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 06:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 05:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 05:57 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 06:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 05:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 06:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 06:22 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 06:11 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 06:16 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 06:07 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 06:29 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:20 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 06:06 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 06:16 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/27178654540.shtml)
-- 2026-06-30 06:13 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/28024.shtml)
-- 2026-06-30 06:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/98428.shtml)
-- 2026-06-30 06:17 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/08492.shtml)
-- 2026-06-30 06:21 - [巴西扳平比分](http://www.blog.minike.top/Article/details/49252612222.shtml)
-- 2026-06-30 06:21 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/844383.shtml)
-- 2026-06-30 06:14 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/93937.shtml)
-- 2026-06-30 06:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/278474.shtml)
-- 2026-06-30 06:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/980742469.shtml)
-- 2026-06-30 06:05 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/719183560479.shtml)
-- 2026-06-30 06:01 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/706115.shtml)
-- 2026-06-30 06:11 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/52948716.shtml)
-- 2026-06-30 06:15 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/3635010530.shtml)
-- 2026-06-30 06:23 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/85428135.shtml)
-- 2026-06-30 06:15 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/1589120379.shtml)
+- 2026-06-30 06:11 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/756436838823.shtml)
+- 2026-06-30 06:16 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/06901099.shtml)
+- 2026-06-30 06:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/520649.shtml)
+- 2026-06-30 06:22 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/5359391983.shtml)
+- 2026-06-30 06:05 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/745470438.shtml)
+- 2026-06-30 06:06 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/2622959751.shtml)
+- 2026-06-30 06:19 - [一生一世](https://www.blog.minike.top/Article/details/8148082693.shtml)
+- 2026-06-30 06:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/58378.shtml)
+- 2026-06-30 06:24 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/3776959589.shtml)
+- 2026-06-30 06:23 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/1302198747.shtml)
+- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/39317748733.shtml)
+- 2026-06-30 06:01 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/96365.shtml)
+- 2026-06-30 06:22 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/6993666722.shtml)
+- 2026-06-30 06:23 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/900249729.shtml)
+- 2026-06-30 06:01 - [急先锋](https://www.share.minike.top/Article/details/6512177234.shtml)

@@ -1,59 +1,56 @@
-# 诺奖得主对话香港中学生：成功没有捷径
+# 新晋“第三大产业”不敢飘，上海软信业用17.3%速度坐稳位子
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社香港4月14日电 (记者 邱兆翔)“获得诺贝尔奖时，我收到了一张祝贺卡片，上面写着：成功没有捷径，你必须一步一个脚印往上走。”2020年诺贝尔生理学或医学奖得主哈维·阿尔特(Harvey J. Alter)说。 4月14日，“我与科学家在一起”主题活动在香港培侨中学举行。两位诺贝尔奖得主哈维·阿尔特、康斯坦丁·诺沃肖洛夫(Konstantin Novoselov)与图灵奖
+继2025年超过批发与零售业、跃升为上海第三大产业之后，上海信息传输、软件和信息技术服务业(下称“软信业”)持续发力。市经信委最新数据显示：今年一季度，上海市软信业实现营收4658亿元，同比增长17.3%，较全国平均水平高出4.8个百分点。更可喜的是，同期上海软信业占全市GDP的比重再创新高，提升至13.9%，第三大产业地位获巩固。算力需求井喷，是拉动上海软信业高速增长的核心引
 
 ## 正文
 
-中新社香港4月14日电 (记者 邱兆翔)“获得诺贝尔奖时，我收到了一张祝贺卡片，上面写着：成功没有捷径，你必须一步一个脚印往上走。
+继2025年超过批发与零售业、跃升为上海第三大产业之后，上海信息传输、软件和信息技术服务业(下称“软信业”)持续发力。
 
-”2020年诺贝尔生理学或医学奖得主哈维·阿尔特(Harvey J. Alter)说。
+市经信委最新数据显示：今年一季度，上海市软信业实现营收4658亿元，同比增长17.3%，较全国平均水平高出4.8个百分点。
 
-4月14日，“我与科学家在一起”主题活动在香港培侨中学举行。
+更可喜的是，同期上海软信业占全市GDP的比重再创新高，提升至13.9%，第三大产业地位获巩固。
 
-两位诺贝尔奖得主哈维·阿尔特、康斯坦丁·诺沃肖洛夫(Konstantin Novoselov)与图灵奖得主阿维·威格森(Avi Wigderson)走进中学校园，与香港培侨中学、澳门培正中学等校的师生们分享科学研究的经验与心得。
+算力需求井喷，是拉动上海软信业高速增长的核心引擎。
 
-作为美国病毒学家，哈维凭借在发现丙型肝炎病毒(HCV)过程中作出的贡献，在2020年与迈克尔·霍顿(Michael Houghton)和查尔斯·赖斯(Charles M. Rice)共同获得诺贝尔生理学或医学奖。
+今年1至3月，上海实现智算云营业收入239.7亿元，同比增长69.4%。
 
-面对台下的香港学生，哈维坦言，任何科研工作都需循序渐进、持续积累，这如同爬楼梯般一步一个脚印，稳步前行。
+大模型高频迭代、智能体从“能聊天”向“会干活”演进，正带动上游算力需求几何式增长。
 
-然而，道路总有起伏，失败与挫折也不可避免。
+为托举“泼天流量”，上海超前布局了浦东新区、松江两大智算中心重镇，以及金山、青浦等N个智算中心，实现“2+N”联动协同，目前以智算为导向的数据中心超过160家。
 
-回望过往，哈维的肩膀轻轻一耸，笑称自己的“失败”自从事科学研究之前便已出现。
+截至去年底，上海智算规模突破12万PFLOPS(每秒千万亿次浮点运算)，在全国占比约8%，是国家算力网络的绝对关键节点。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 06:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 06:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 05:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 06:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 06:00 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 06:01 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 06:03 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 06:02 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 06:09 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 06:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 05:59 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 06:05 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 06:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 06:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 06:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 06:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 06:22 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 06:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 06:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 06:27 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/24487933687.shtml)
-- 2026-06-30 06:16 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/009791714.shtml)
-- 2026-06-30 06:22 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/258090299.shtml)
-- 2026-06-30 06:14 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/800012537.shtml)
-- 2026-06-30 06:14 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/277510.shtml)
-- 2026-06-30 06:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/63118370.shtml)
-- 2026-06-30 06:04 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/428380786527.shtml)
-- 2026-06-30 06:07 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/14351710.shtml)
-- 2026-06-30 06:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/39341.shtml)
-- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/16161.shtml)
-- 2026-06-30 06:06 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/81414328462.shtml)
-- 2026-06-30 06:20 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/3885259434.shtml)
-- 2026-06-30 06:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/137059.shtml)
-- 2026-06-30 06:00 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/1651128012.shtml)
-- 2026-06-30 06:21 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/615837145088.shtml)
+- 2026-06-30 06:27 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/86229191533.shtml)
+- 2026-06-30 06:28 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/5798905945.shtml)
+- 2026-06-30 06:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/90257.shtml)
+- 2026-06-30 06:26 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/565012.shtml)
+- 2026-06-30 06:20 - [一生一世](http://www.blog.minike.top/Article/details/9671533684.shtml)
+- 2026-06-30 06:01 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/4133079.shtml)
+- 2026-06-30 06:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/01652824106.shtml)
+- 2026-06-30 06:17 - [千与千寻](http://www.blog.minike.top/Article/details/308710.shtml)
+- 2026-06-30 06:00 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/3866603685.shtml)
+- 2026-06-30 06:09 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/29371023786.shtml)
+- 2026-06-30 06:26 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/883784006117.shtml)
+- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/00087756803.shtml)
+- 2026-06-30 06:18 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/121167450.shtml)
+- 2026-06-30 06:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/513784.shtml)
+- 2026-06-30 06:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/793176610.shtml)

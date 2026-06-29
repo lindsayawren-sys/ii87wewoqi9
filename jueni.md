@@ -1,57 +1,45 @@
-# 美国债市：国债走高 受到油价涨幅收窄的提振
+# 王毅将出席第十六次金砖国家安全事务高级代表会议
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。随着油价日内涨幅收窄，美债获得支撑。尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。 纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。长期国债收益率跌幅更小，
+外交部发言人宣布： 应印度国家安全顾问多瓦尔邀请，中共中央政治局委员、中央外办主任王毅将于6月22日至23日出席在印度举行的第十六次金砖国家安全事务高级代表会议。 （总台央视记者 王晨 赵超逸） 责任编辑：刘万里 SF014
 
 ## 正文
 
-美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。
+外交部发言人宣布： 应印度国家安全顾问多瓦尔邀请，中共中央政治局委员、中央外办主任王毅将于6月22日至23日出席在印度举行的第十六次金砖国家安全事务高级代表会议。
 
-随着油价日内涨幅收窄，美债获得支撑。
-
-尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。
-
-美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。
-
-纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。
-
-长期国债收益率跌幅更小，推动5年和30年期国债收益率日内扩大近2个基点。
-
-WTI在亚洲早盘一度接近106美元/桶后回落。
-
-标普500指数在现货收盘前上涨约0.5%，该指数周一低开。
+（总台央视记者 王晨 赵超逸） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 06:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:19 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 05:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 06:19 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:04 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 06:16 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 06:19 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 06:18 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 06:20 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 06:18 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 06:21 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 06:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 06:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 06:07 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 06:10 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 06:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 06:16 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 06:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/9757640.shtml)
-- 2026-06-30 06:12 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/475604411545.shtml)
-- 2026-06-30 06:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/849806502102.shtml)
-- 2026-06-30 06:22 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/82521351.shtml)
-- 2026-06-30 06:17 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/88913449.shtml)
-- 2026-06-30 06:09 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/5224671.shtml)
-- 2026-06-30 06:08 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/119819.shtml)
-- 2026-06-30 06:23 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/2054721544.shtml)
-- 2026-06-30 06:11 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/80928948661.shtml)
-- 2026-06-30 06:09 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/633743511275.shtml)
-- 2026-06-30 05:56 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/2034953.shtml)
-- 2026-06-30 06:15 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/73488.shtml)
-- 2026-06-30 05:59 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/146522386902.shtml)
-- 2026-06-30 06:22 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/6857308103.shtml)
-- 2026-06-30 05:56 - [森保一 保守](https://www.blog.minike.top/Article/details/059414803274.shtml)
+- 2026-06-30 06:16 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/41236247.shtml)
+- 2026-06-30 06:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/19938883.shtml)
+- 2026-06-30 06:26 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/493550105.shtml)
+- 2026-06-30 06:16 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/9674635.shtml)
+- 2026-06-30 06:19 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/237356246.shtml)
+- 2026-06-30 06:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/266652.shtml)
+- 2026-06-30 06:03 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/170919.shtml)
+- 2026-06-30 06:13 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/15800330.shtml)
+- 2026-06-30 06:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/61523.shtml)
+- 2026-06-30 06:03 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/17935167.shtml)
+- 2026-06-30 06:29 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/9337607.shtml)
+- 2026-06-30 06:28 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/535885510510.shtml)
+- 2026-06-30 06:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/311265525.shtml)
+- 2026-06-30 06:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/61707902.shtml)
+- 2026-06-30 06:06 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/164546450854.shtml)

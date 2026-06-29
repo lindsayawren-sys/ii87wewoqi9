@@ -1,60 +1,61 @@
-# 中国国民党主席郑丽文率国民党访问团在大陆参访备受关注 国台办回应
+# “大空头”伯里：想做空SpaecX，但太贵了
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问：中国国民党主席郑丽文率国民党访问团在大陆参访备受关注，请问如何评价郑丽文一行此访？取得哪些成果？对今后两岸关系发展将产生哪些影响？国台办发言人陈斌华表示，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。 陈斌华称，国共两党在坚持“九二共识”、反对“台独”的共同政治基础上，加强交流对话
+因成功预测2008年美国房地产市场崩盘而闻名的投资者迈克尔·伯里周二表示，他曾想做空埃隆·马斯克的SpaceX公司，但最终还是放弃了这个想法，原因是看跌期权成本过高，但他仍对该公司高达2.7万亿美元的估值提出了质疑。 伯里在Substack平台发帖称：“我现在已经与SpaceX毫无瓜葛，既未做空，也未做多。” 伯里指出，在他撰写这篇帖子时，一份2028年12月到期、行权价为10
 
 ## 正文
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
+因成功预测2008年美国房地产市场崩盘而闻名的投资者迈克尔·伯里周二表示，他曾想做空埃隆·马斯克的SpaceX公司，但最终还是放弃了这个想法，原因是看跌期权成本过高，但他仍对该公司高达2.7万亿美元的估值提出了质疑。
 
-有记者问：中国国民党主席郑丽文率国民党访问团在大陆参访备受关注，请问如何评价郑丽文一行此访？
+伯里在Substack平台发帖称：“我现在已经与SpaceX毫无瓜葛，既未做空，也未做多。
 
-取得哪些成果？
+” 伯里指出，在他撰写这篇帖子时，一份2028年12月到期、行权价为100美元的看跌期权报价约为25美元，而SpaceX目前股价超过200美元。
 
-对今后两岸关系发展将产生哪些影响？
+伯里补充说，一份2026年12月到期、报价为6.75美元的看跌期权也引起了他的注意，但他最终决定不进行交易。
 
-国台办发言人陈斌华表示，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。
+“确实有点心动，但还是算了。
 
-陈斌华称，国共两党在坚持“九二共识”、反对“台独”的共同政治基础上，加强交流对话，保持良性互动，坚持以正确认同促进心灵契合，坚持以和平发展守护共同家园，坚持以交流融合增进民生福祉，坚持以团结奋斗实现中华民族伟大复兴，符合历史发展大势，符合两岸同胞共同心声，符合中华民族整体利益，有利于为两岸谋和平、为同胞谋福祉、为民族谋复兴，把两岸关系的未来牢牢掌握在中国人自己手中。
+”这位投资者说道，并补充说他认为该股最终会稳定在200美元区间的中段，届时看跌期权链的交易量将会大幅下降。
 
-不论国际形势、台海形势如何风云变幻，人类发展进步的大方向不会改变，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。
+与此同时，SpaceX的股价在IPO后继续上涨，周二盘中一度触及225.64美元的高点。
 
-这是历史定律，我们有充分的自信。
+SpaceX公司目前仍未盈利，该公司2025年营收为187亿美元，而周二其市值一度达到了2.8万亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 05:56 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 06:06 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 06:10 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 06:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 06:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 06:05 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 06:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 05:54 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 06:17 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 06:03 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 06:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 06:24 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 06:22 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 06:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 06:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 06:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 06:07 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 06:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 06:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 06:26 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 06:01 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 06:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 06:18 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/05121415.shtml)
-- 2026-06-30 06:03 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/081017484.shtml)
-- 2026-06-30 06:09 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/12066.shtml)
-- 2026-06-30 06:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/765095287000.shtml)
-- 2026-06-30 06:09 - [金刚川](http://www.share.kurohicncr.top/Article/details/6753888177.shtml)
-- 2026-06-30 06:15 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/394899.shtml)
-- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/0976495309.shtml)
-- 2026-06-30 06:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/646532.shtml)
-- 2026-06-30 06:12 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/52033.shtml)
-- 2026-06-30 06:18 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/10466334882.shtml)
-- 2026-06-30 05:57 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/716825848262.shtml)
-- 2026-06-30 06:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/7902212.shtml)
-- 2026-06-30 06:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/86133981158.shtml)
-- 2026-06-30 05:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/90244.shtml)
-- 2026-06-30 06:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/27856.shtml)
+- 2026-06-30 06:02 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/448281.shtml)
+- 2026-06-30 06:24 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/676180354.shtml)
+- 2026-06-30 06:04 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/596813.shtml)
+- 2026-06-30 06:21 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/474534783810.shtml)
+- 2026-06-30 06:16 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/39033532604.shtml)
+- 2026-06-30 06:21 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/216391429.shtml)
+- 2026-06-30 06:10 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/99131331.shtml)
+- 2026-06-30 06:17 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/747243772.shtml)
+- 2026-06-30 06:06 - [起风了](http://www.blog.kurohicncr.top/Article/details/16822960418.shtml)
+- 2026-06-30 06:11 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/5618088.shtml)
+- 2026-06-30 06:15 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/5811371.shtml)
+- 2026-06-30 06:01 - [月亮](https://www.blog.minike.top/Article/details/297380.shtml)
+- 2026-06-30 06:24 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/40105369.shtml)
+- 2026-06-30 06:24 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/666879.shtml)
+- 2026-06-30 06:19 - [一生一世](https://www.blog.minike.top/Article/details/8449317.shtml)

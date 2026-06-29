@@ -1,57 +1,60 @@
-# 法治引航 共筑上海民营经济发展沃土
+# 中国官方：中美禁毒合作成效明显，禁毒部门保持良好合作关系
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网上海4月14日电 (范宇斌)13日，上海市委统战部、上海市工商联联合召开“法治引航 共话发展”民营经济法治营商环境建设专题圆桌会，加强政企沟通，进一步凝聚共识、汇集智慧。上海市委常委、统战部部长陈通出席会议并讲话。圆桌会是2026上海民营经济高质量发展服务月重点活动。上海全市全面落实民营经济促进法和上海市民营经济促进条例、优化营商环境条例，健全完善“公检法司”合作机制，共
+中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。”魏晓军说，中方与
 
 ## 正文
 
-中新网上海4月14日电 (范宇斌)13日，上海市委统战部、上海市工商联联合召开“法治引航 共话发展”民营经济法治营商环境建设专题圆桌会，加强政企沟通，进一步凝聚共识、汇集智慧。
+中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。
 
-上海市委常委、统战部部长陈通出席会议并讲话。
+“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。
 
-圆桌会是2026上海民营经济高质量发展服务月重点活动。
+”魏晓军说，中方与美国缉毒署、联邦调查局和移民海关执法局等执法部门联合侦办多起案件，合作遣返涉毒逃犯。
 
-上海全市全面落实民营经济促进法和上海市民营经济促进条例、优化营商环境条例，健全完善“公检法司”合作机制，共同营造市场化、法治化、国际化一流营商环境，为上海民营经济高质量发展提供了坚实的法治保障。
+在积极合作应对非列管化学品流入北美制毒渠道方面，2025年11月，商务部等五部委联合发布公告，将13种芬太尼类物质前体化学品和美国、墨西哥、加拿大分别增列到《向特定国家(地区)出口易制毒化学品管理目录》《特定国家(地区)目录》，今年5月又针对上述三国增列了3种芬太尼类物质前体化学品。
 
-会议指出，要落实建设法治化营商环境的政策措施，聚焦公平准入，依法保障民营企业平等参与市场竞争；聚焦权益保护，依法保护民营企业和企业家合法权益；聚焦执法监督，持续规范涉企行政执法行为。
+此外，针对国内少数不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品的情况，中国禁毒部门在全国范围内多轮次部署开展打击管控专项行动，全面强化案件侦办。
 
-要协调司法、行政、法律服务等资源，针对企业破产保护、知识产权保护、涉外法治服务、网络法治生态等重点方面，提供有力法治服务保障。
+“今年以来，美方在多个场合积极评价中美禁毒合作，并向中方表示感谢；美国的一些专家学者还在《科学》等权威期刊上发表文章，肯定中方的禁毒工作成效。
 
-要强化企业合规经营，完善公司治理结构，弘扬企业家精神，不断提升企业科学管理水平，持续促进“两个健康”，共同为促进上海民营经济发展壮大作出新的更大贡献。
+”魏晓军表示，通过合作，中方还根据美方提供的信息和线索侦办了一些案件，对提升中国国内毒品问题治理起到了一定的积极作用。
 
-会议还指出，推动上海法治营商环境建设，要汇聚民营经济法治营商环境建设的强大合力，积极探索建立信息共享、问题会商、联合调研、普法联动等多层次协作机制，构建完善的法治保障体系。
+他表示，当前，中美禁毒部门保持着良好合作关系，这样的局面来之不易，需要双方继续相向而行、共同维护。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:11 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 06:09 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 06:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 06:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 06:03 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 06:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 06:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 06:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 06:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 06:11 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:04 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 06:07 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 06:02 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 06:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:26 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 06:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 06:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 06:10 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 06:01 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 06:08 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 06:14 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 06:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 06:00 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:10 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/50545037.shtml)
-- 2026-06-30 06:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/0797797893.shtml)
-- 2026-06-30 05:58 - [美人鱼](http://www.blog.minike.top/Article/details/312831382.shtml)
-- 2026-06-30 06:11 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/5598264.shtml)
-- 2026-06-30 06:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/005649150487.shtml)
-- 2026-06-30 06:10 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/17187795.shtml)
-- 2026-06-30 05:58 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/15999131.shtml)
-- 2026-06-30 06:14 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/26135.shtml)
-- 2026-06-30 06:09 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/8536058254.shtml)
-- 2026-06-30 06:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/22314.shtml)
-- 2026-06-30 06:20 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/873761814803.shtml)
-- 2026-06-30 06:08 - [森保一 保守](https://www.share.minike.top/Article/details/818700697420.shtml)
-- 2026-06-30 06:06 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/33251077.shtml)
-- 2026-06-30 06:17 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/679568175.shtml)
-- 2026-06-30 06:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/75995184973.shtml)
+- 2026-06-30 06:08 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/71542237339.shtml)
+- 2026-06-30 06:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/07882798.shtml)
+- 2026-06-30 06:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/522615376.shtml)
+- 2026-06-30 06:11 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/661345855243.shtml)
+- 2026-06-30 06:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/423945765287.shtml)
+- 2026-06-30 06:23 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/149960551.shtml)
+- 2026-06-30 06:05 - [扬名立万](http://www.share.minike.top/Article/details/527426.shtml)
+- 2026-06-30 06:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/288619.shtml)
+- 2026-06-30 06:10 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/035870.shtml)
+- 2026-06-30 06:12 - [恋与深空回应争议](https://www.share.minike.top/Article/details/124453766386.shtml)
+- 2026-06-30 06:03 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/2772284710.shtml)
+- 2026-06-30 06:08 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/493936084633.shtml)
+- 2026-06-30 06:18 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/10871593657.shtml)
+- 2026-06-30 06:21 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/329382250.shtml)
+- 2026-06-30 06:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/682107.shtml)

@@ -1,57 +1,42 @@
-# 酒价内参4月14日价格发布 五粮液普五八代上涨4元/瓶
+# 中非中阿开启外交关系70周年：加强规划对接 加大新兴领域合作
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月14日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日下跌7元。市场仍呈现分化走势，整体价格仍以区间调整为主。 今日白酒市场11大单品五涨五跌一平。上涨方面，习酒君品上涨5元/瓶，涨幅居前，价格创下近20
+发布时间：2026年06月18日 15:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月14日整体小幅回落。
-
-如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日下跌7元。
-
-市场仍呈现分化走势，整体价格仍以区间调整为主。
-
-今日白酒市场11大单品五涨五跌一平。
-
-上涨方面，习酒君品上涨5元/瓶，涨幅居前，价格创下近20天新高；五粮液普五八代上涨4元/瓶；青花郎上涨2元/瓶；国窖1573、水晶剑南春均上涨1元/瓶。
-
-下跌方面，洋河梦之蓝M6+下跌6元/瓶，跌幅居前，终端促销力度有所加大；青花汾20、古井贡古20均下跌4元/瓶；飞天茅台、精品茅台均下跌3元/瓶。
-
-五粮液1618价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+发布时间：2026年06月18日 15:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 06:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 06:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 06:20 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 06:20 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 06:02 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 06:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 05:59 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 05:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 06:20 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 06:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 06:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 06:26 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 06:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 06:02 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 06:06 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 06:08 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 06:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 06:24 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:19 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/09236068.shtml)
-- 2026-06-30 06:01 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/888997826381.shtml)
-- 2026-06-30 06:06 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/039449.shtml)
-- 2026-06-30 06:17 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/414461013338.shtml)
-- 2026-06-30 06:10 - [千香](http://www.share.minike.top/Article/details/159257048956.shtml)
-- 2026-06-30 06:05 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/6368579238.shtml)
-- 2026-06-30 06:13 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/63829421408.shtml)
-- 2026-06-30 05:56 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/98976463.shtml)
-- 2026-06-30 06:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/31414.shtml)
-- 2026-06-30 06:02 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/1217109197.shtml)
-- 2026-06-30 06:23 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/70298135.shtml)
-- 2026-06-30 06:06 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/4210252163.shtml)
-- 2026-06-30 06:17 - [毒液2](http://www.blog.kurohicncr.top/Article/details/810368409.shtml)
-- 2026-06-30 05:57 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/560644239.shtml)
-- 2026-06-30 06:04 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/1961025143.shtml)
+- 2026-06-30 06:16 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/794084919321.shtml)
+- 2026-06-30 06:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/769785574170.shtml)
+- 2026-06-30 06:18 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/42084755.shtml)
+- 2026-06-30 06:17 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/90025910.shtml)
+- 2026-06-30 06:29 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/31638757.shtml)
+- 2026-06-30 06:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/34895232.shtml)
+- 2026-06-30 06:11 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/5133400.shtml)
+- 2026-06-30 06:03 - [送你一朵小红花](https://www.blog.minike.top/Article/details/0015985141.shtml)
+- 2026-06-30 06:03 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/791687563.shtml)
+- 2026-06-30 06:27 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/250294827217.shtml)
+- 2026-06-30 06:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/02765851.shtml)
+- 2026-06-30 06:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/360225613324.shtml)
+- 2026-06-30 06:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/75729654374.shtml)
+- 2026-06-30 06:18 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/7256142.shtml)
+- 2026-06-30 06:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/1826436831.shtml)

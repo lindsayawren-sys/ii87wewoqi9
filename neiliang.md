@@ -1,60 +1,59 @@
-# 李强同西班牙首相桑切斯会谈
+# 美股三大期指全线走高，存储芯片盘前大涨，英特尔涨超9%，三倍做多半导体ETF飙涨11%
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 4月14日下午，中国国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。 李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。越是形势变乱交织，中西两国越要加强务
+6月18日下午，美股三大指数期货全线上涨，截至17点，道指期货涨0.42%，纳指期货涨1.36%，标普500指数期货涨0.77%。 美股半导体及存储概念股在盘前全面走高：英特尔涨超9%，据财联社报道，特朗普表示苹果将与英特尔合作进行芯片设计和生产；西部数据涨超5%，美光科技、迈威尔科技、ARM、希捷科技涨超4%，闪迪涨近4%，AMD涨近3%。此外，三倍做多半导体ETF（SOXL
 
 ## 正文
 
-中新社北京4月14日电 4月14日下午，中国国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。
+6月18日下午，美股三大指数期货全线上涨，截至17点，道指期货涨0.42%，纳指期货涨1.36%，标普500指数期货涨0.77%。
 
-李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。
+美股半导体及存储概念股在盘前全面走高：英特尔涨超9%，据财联社报道，特朗普表示苹果将与英特尔合作进行芯片设计和生产；西部数据涨超5%，美光科技、迈威尔科技、ARM、希捷科技涨超4%，闪迪涨近4%，AMD涨近3%。
 
-中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。
+此外，三倍做多半导体ETF（SOXL）盘前大涨11%，报259美元。
 
-越是形势变乱交织，中西两国越要加强务实合作，相互赋能、相互成就。
+光通信股同步上涨，康宁、应用光电、Coherent涨超3%，Lumentum涨超2%。
 
-今天上午，习近平主席同首相先生举行会晤，就深化两国关系擘画了蓝图。
+其他大型科技股盘前多数上涨，英伟达涨超1%，SpaceX重拾涨势，涨约1%，谷歌、微软、特斯拉、甲骨文、亚马逊均小幅走高。
 
-中方愿同西班牙进一步对接发展战略，推动双方全方位合作不断走深走实，实现更高水平的互利共赢。
+大宗商品方面，黄金白银价格在昨日美联储好议息会议后重挫，今日小幅走高，黄金报4284美元/盎司，日内涨0.63%，此前一度涨近2%，现货白银报68.48美元/盎司，日内涨0.84%。
 
-李强指出，中方愿同西班牙更好发挥经济互补优势，深挖合作潜力，推动两国贸易扩容提质、平衡发展。
+昨日国际油价持续下挫，纽约原油跌2.57%，报74.06美元/桶；布伦特原油跌2.09%，报77.57美元/桶。
 
-中方愿进口西班牙更多优质产品，鼓励更多有实力的中资企业赴西班牙投资。
+消息面上，据新华社报道，伊朗官方媒体17日公布了同美国达成的谅解备忘录条款内容。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 06:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 06:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 05:55 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:17 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 06:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 06:18 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 05:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 06:19 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 06:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 06:05 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 05:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 05:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 06:22 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 06:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 06:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 06:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 06:26 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 06:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 06:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 06:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 06:21 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 06:09 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 06:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/19306351560.shtml)
-- 2026-06-30 06:23 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/57899910.shtml)
-- 2026-06-30 06:04 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/381773.shtml)
-- 2026-06-30 05:58 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/9405300347.shtml)
-- 2026-06-30 06:09 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/940771900.shtml)
-- 2026-06-30 06:05 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/465499070.shtml)
-- 2026-06-30 06:05 - [张凌赫 客串](https://www.blog.minike.top/Article/details/8470935.shtml)
-- 2026-06-30 06:09 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/25811.shtml)
-- 2026-06-30 06:14 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/08774532888.shtml)
-- 2026-06-30 06:17 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/011684.shtml)
-- 2026-06-30 06:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/52905.shtml)
-- 2026-06-30 06:06 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/15603.shtml)
-- 2026-06-30 06:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/31803535.shtml)
-- 2026-06-30 06:23 - [千香](https://www.share.kurohicncr.top/Article/details/822814179310.shtml)
-- 2026-06-30 06:16 - [逃狱兄弟](https://www.share.minike.top/Article/details/5081830.shtml)
+- 2026-06-30 06:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/49203007889.shtml)
+- 2026-06-30 06:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/08088.shtml)
+- 2026-06-30 06:02 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/1134076.shtml)
+- 2026-06-30 06:13 - [青春环游记第三季](https://www.share.minike.top/Article/details/714735514778.shtml)
+- 2026-06-30 06:07 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/690358.shtml)
+- 2026-06-30 06:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/1876873.shtml)
+- 2026-06-30 06:16 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/173766154.shtml)
+- 2026-06-30 06:07 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/1199653397.shtml)
+- 2026-06-30 06:19 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/527608.shtml)
+- 2026-06-30 06:29 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/13965608212.shtml)
+- 2026-06-30 06:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/14816.shtml)
+- 2026-06-30 06:04 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/378252081.shtml)
+- 2026-06-30 06:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/164223.shtml)
+- 2026-06-30 06:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/07444312731.shtml)
+- 2026-06-30 06:16 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/710378520605.shtml)

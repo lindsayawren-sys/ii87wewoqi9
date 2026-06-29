@@ -1,48 +1,52 @@
-# Revolution Medicines胰腺癌药物取得成功
+# #AI支付#上热搜 网友：辛辛苦苦赚点钱就是给自己花的，没必要AI花
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。责任编辑：张俊 SF065
+6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。 据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。 不
 
 ## 正文
 
-Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。
+6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。
 
-责任编辑：张俊 SF065
+据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。
+
+6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。
+
+不少网友质疑AI支付的必要性，有网友直言：“辛辛苦苦赚点钱就是给自己花的，没必要AI花”，还有网友打趣称该功能没必要，“除非花的钱是AI的不是我的”。
+
+另有不少网友补充，“目前还没想到什么让AI帮我花钱的需求”，“啥时候出一个AI赚钱”。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 06:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 06:02 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 06:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 06:20 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 06:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 06:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 06:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 05:59 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 06:02 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 06:02 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 06:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 06:17 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 06:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 06:07 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 06:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 06:18 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 06:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 06:04 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 06:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 06:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/872553.shtml)
-- 2026-06-30 06:16 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/977627.shtml)
-- 2026-06-30 06:12 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/1822007985.shtml)
-- 2026-06-30 05:56 - [日本进球](http://www.blog.kurohicncr.top/Article/details/945680739719.shtml)
-- 2026-06-30 06:13 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/426450791.shtml)
-- 2026-06-30 06:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/99786.shtml)
-- 2026-06-30 06:17 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/965472227.shtml)
-- 2026-06-30 06:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/66174693.shtml)
-- 2026-06-30 05:55 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/074644851180.shtml)
-- 2026-06-30 06:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/352203540519.shtml)
-- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/26167946.shtml)
-- 2026-06-30 06:22 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/427612080.shtml)
-- 2026-06-30 06:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/714459.shtml)
-- 2026-06-30 05:57 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/7846718.shtml)
-- 2026-06-30 05:54 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/75053586.shtml)
+- 2026-06-30 06:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/48233612758.shtml)
+- 2026-06-30 06:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/5301697704.shtml)
+- 2026-06-30 06:16 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/1435279.shtml)
+- 2026-06-30 06:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/38634.shtml)
+- 2026-06-30 06:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/983122127363.shtml)
+- 2026-06-30 06:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/38219.shtml)
+- 2026-06-30 06:11 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2198060649.shtml)
+- 2026-06-30 06:23 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/921113582.shtml)
+- 2026-06-30 06:18 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/55871.shtml)
+- 2026-06-30 06:19 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/142519308036.shtml)
+- 2026-06-30 06:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/223103882238.shtml)
+- 2026-06-30 06:07 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/415216.shtml)
+- 2026-06-30 06:14 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/7789254853.shtml)
+- 2026-06-30 06:08 - [锐评T1零封KC](http://www.share.minike.top/Article/details/0022923.shtml)
+- 2026-06-30 06:00 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/9593955.shtml)

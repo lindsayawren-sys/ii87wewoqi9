@@ -1,61 +1,57 @@
-# 东兴海关综合技术服务中心2026年5至6月政府采购意向公开
+# 非法收受财物1.52亿余元 中国海油原副总经理袁光宇一审被判死缓
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！驱蚊液为何年年涨价？中新网评：“封号收租”的小红书，还有多少信任可透支？辽宁一动植物园非洲狮丧偶后不进食？园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍
+2026年6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。 经审理查明：2001年至2022年，被告人袁光宇利用担任中海石油北方钻井公司总经理，中海油田服务有限公司总经理、总裁
 
 ## 正文
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！
+2026年6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。
 
-驱蚊液为何年年涨价？
+经审理查明：2001年至2022年，被告人袁光宇利用担任中海石油北方钻井公司总经理，中海油田服务有限公司总经理、总裁，中海石油(中国)有限公司天津分公司总经理，中国海洋石油渤海石油管理局局长，中国海洋石油有限公司执行副总裁、总裁，中国海洋石油集团有限公司党组成员、副总经理等职务上的便利，为相关单位和个人在项目承揽、企业经营、职务调整等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.52亿余元。
 
-中新网评：“封号收租”的小红书，还有多少信任可透支？
+徐州市中级人民法院认为，被告人袁光宇的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
 
-辽宁一动植物园非洲狮丧偶后不进食？
+鉴于其归案后如实供述自己罪行，主动交代监察机关尚未掌握的部分犯罪事实，认罪悔罪，积极退赃，受贿所得及孳息已全部追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
 
-园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍尔木兹海峡，美伊的筹码博弈何时结束？
+法庭遂作出上述判决。
 
-中国一季度进出口超11万亿元 季度增速达近五年新高苏林访华，为何从北京直奔雄安？
+据悉，徐州市中级人民法院于2026年3月19日公开开庭审理了该案。
 
-从亲密关系到百亿生意 年轻人为何愿意为“陪伴”买单国家安全“大事”，跟普通人有什么关系？
+庭审中，检察机关出示了相关证据，被告人袁光宇及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，袁光宇进行了最后陈述，并当庭表示认罪悔罪。
 
-郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情AI可以成为老辈子们的“数字拐杖”吗？
+人大代表、政协委员和各界群众40余人旁听了庭审。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 06:13 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 06:14 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 06:12 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 06:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 06:02 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 06:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 06:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 06:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 06:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 06:23 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 06:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 05:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 06:10 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 06:05 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 06:28 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 06:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 06:10 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 06:26 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 06:19 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 06:02 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 06:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 06:23 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:19 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/35628.shtml)
-- 2026-06-30 06:19 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/754475902313.shtml)
-- 2026-06-30 06:07 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/9115883.shtml)
-- 2026-06-30 06:18 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/97503968.shtml)
-- 2026-06-30 05:58 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/221166972.shtml)
-- 2026-06-30 06:00 - [毒液2](http://www.blog.minike.top/Article/details/363319020672.shtml)
-- 2026-06-30 06:18 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/687868061.shtml)
-- 2026-06-30 06:22 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/150870241.shtml)
-- 2026-06-30 06:06 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/065899.shtml)
-- 2026-06-30 06:06 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/915009756290.shtml)
-- 2026-06-30 05:59 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/620835854714.shtml)
-- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/23435472.shtml)
-- 2026-06-30 06:07 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/8346507302.shtml)
-- 2026-06-30 06:07 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/1331415941.shtml)
-- 2026-06-30 06:17 - [天道](http://www.share.minike.top/Article/details/617084380524.shtml)
+- 2026-06-30 06:20 - [扫黑风暴](https://www.blog.minike.top/Article/details/219468718363.shtml)
+- 2026-06-30 06:00 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/54111360349.shtml)
+- 2026-06-30 06:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/601776.shtml)
+- 2026-06-30 06:04 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/539131.shtml)
+- 2026-06-30 06:08 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/044765824.shtml)
+- 2026-06-30 06:06 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/32679685.shtml)
+- 2026-06-30 06:04 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/198361.shtml)
+- 2026-06-30 06:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/8079379953.shtml)
+- 2026-06-30 06:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/58198311504.shtml)
+- 2026-06-30 06:07 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/261414.shtml)
+- 2026-06-30 06:10 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/06202776.shtml)
+- 2026-06-30 06:00 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/420819.shtml)
+- 2026-06-30 06:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/197900103.shtml)
+- 2026-06-30 06:27 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/65182.shtml)
+- 2026-06-30 06:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/79156.shtml)

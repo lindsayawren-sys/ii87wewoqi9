@@ -1,57 +1,56 @@
-# 永辉超市38亿追债成功，王健林连带承压
+# 资本项目开放明确方向、QDII提额......陆家嘴论坛官宣新一轮政策红利
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-记者丨唐唯珂 2026年4月14日晚间，永辉超市（601933.SH）一纸公告，将一桩拖延逾两年的巨额股权纠纷推向终局。 上海国际经济贸易仲裁委员会作出终局裁决：大连御锦贸易有限公司须向永辉支付剩余股份转让款36.39亿元、加速到期违约金2.18亿元，叠加律师费、保全费等，合计约38.6亿元；万达集团董事长王健林、一方集团孙喜双及大连一方集团对上述全部债务承担连带保证责任，并需
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 “十五五”规划提出“提升资本项目开放水平”。资本项目开放是国家高水平对外开放的重要内容。 6月17日，在2026陆家嘴论坛上，中国人民银行副行长、国家外汇管理局局长朱鹤新重磅发言，围绕全球资本流动新格局、中国资本项目开放分享他的观点。 （中国人民银行副行长、国家外汇管理局局长朱鹤新。摄影记者/第一财经 吴军） 论坛上
 
 ## 正文
 
-记者丨唐唯珂 2026年4月14日晚间，永辉超市（601933.SH）一纸公告，将一桩拖延逾两年的巨额股权纠纷推向终局。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 “十五五”规划提出“提升资本项目开放水平”。
 
-上海国际经济贸易仲裁委员会作出终局裁决：大连御锦贸易有限公司须向永辉支付剩余股份转让款36.39亿元、加速到期违约金2.18亿元，叠加律师费、保全费等，合计约38.6亿元；万达集团董事长王健林、一方集团孙喜双及大连一方集团对上述全部债务承担连带保证责任，并需在裁决生效20日内履行完毕。
+资本项目开放是国家高水平对外开放的重要内容。
 
-这不仅是A股史上罕见的大额仲裁胜诉，更是传统零售与民营地产两大困境行业的一次激烈碰撞——一边是连续五年亏损、负债率极高、急需“回血”续命的永辉；另一边是三年甩卖超80座广场、仍扛着巨额负债、流动性紧绷的万达与王健林。
+6月17日，在2026陆家嘴论坛上，中国人民银行副行长、国家外汇管理局局长朱鹤新重磅发言，围绕全球资本流动新格局、中国资本项目开放分享他的观点。
 
-38亿裁决书的背后，是双方财务危局的集中暴露，更是民营资本在周期退潮中“互保互困”的典型样本。
+（中国人民银行副行长、国家外汇管理局局长朱鹤新。
 
-缘起：45亿股权断臂 一切始于2023年末的资产处置。
+摄影记者/第一财经 吴军） 论坛上，朱鹤新官宣了新增推出“一揽子”增量政策，发挥存量和增量政策集成效应，释放在更高层次、更高质量上推进开放的政策信号。
 
-彼时永辉超市深陷转型亏损、现金流承压，为盘活存量资产、回笼资金，决定出售早年战略投资的万达商管3.89亿股股份，交易对手为王健林关联企业大连御锦贸易有限公司，总作价45.3亿元，约定分八期现金支付。
+“上海是金融高水平开放的承载地、试验田。
 
-2023年12月首期付款如约到账，交易看似顺利推进。
+”值得一提的是，他同时强调要以更大力度支持上海国际金融中心建设，“下一步，将支持上海开展更加灵活的贸易外汇结算试点、实施跨境再保险收入境外投资便利化试点、推广跨国公司资金集中运营管理等政策，提升制度集成创新效能。
 
-而2024年4—7月，风险暴露。
+” 来自国家外汇管理局的统计数据显示，今年以来，上海跨境贸易高水平开放试点规模占全市经常项目外汇收支比例达1/4。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 06:09 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 06:03 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 06:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 06:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 06:09 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 06:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 06:17 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 06:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:57 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 06:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 06:10 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 06:04 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 06:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 06:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 06:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 06:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 06:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 06:07 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/52440.shtml)
-- 2026-06-30 06:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/7603883350.shtml)
-- 2026-06-30 06:05 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/358984614.shtml)
-- 2026-06-30 06:09 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/05249.shtml)
-- 2026-06-30 06:15 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/983713203.shtml)
-- 2026-06-30 06:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/74194415.shtml)
-- 2026-06-30 06:10 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/6556330.shtml)
-- 2026-06-30 06:13 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/967324218448.shtml)
-- 2026-06-30 06:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/875174664573.shtml)
-- 2026-06-30 06:19 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/63771.shtml)
-- 2026-06-30 05:57 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/4023593.shtml)
-- 2026-06-30 06:20 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/85182.shtml)
-- 2026-06-30 05:58 - [沉睡花园](https://www.share.minike.top/Article/details/6384644420.shtml)
-- 2026-06-30 06:12 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/55571.shtml)
-- 2026-06-30 06:18 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/7406476.shtml)
+- 2026-06-30 06:12 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/69126948.shtml)
+- 2026-06-30 06:11 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/26986432.shtml)
+- 2026-06-30 06:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/937617901969.shtml)
+- 2026-06-30 06:25 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/534172497.shtml)
+- 2026-06-30 06:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/38124632.shtml)
+- 2026-06-30 06:23 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/92176442.shtml)
+- 2026-06-30 06:10 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/71951785346.shtml)
+- 2026-06-30 06:02 - [日本进球](https://www.blog.minike.top/Article/details/667162478.shtml)
+- 2026-06-30 06:13 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/9760040440.shtml)
+- 2026-06-30 06:23 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/64494.shtml)
+- 2026-06-30 06:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/95774049485.shtml)
+- 2026-06-30 06:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/593917.shtml)
+- 2026-06-30 06:10 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/60573530.shtml)
+- 2026-06-30 06:14 - [起风了](https://www.blog.minike.top/Article/details/13253.shtml)
+- 2026-06-30 06:16 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/31922.shtml)

@@ -1,46 +1,51 @@
-# 新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元
+# MHMarkets迈汇:长线买盘仍在等待
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月8日，First Beijing Investment Limited减持新东方-S（09901）67万股，每股均价46.1216港元，总金额约为3090.15万港元。减持后最新持股数目约为1.71亿股，最新持股比例为9.98%。责任编辑：卢昱君
+6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。 从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。 这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可
 
 ## 正文
 
-香港联交所最新资料显示，4月8日，First Beijing Investment Limited减持新东方-S（09901）67万股，每股均价46.1216港元，总金额约为3090.15万港元。
+6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。
 
-减持后最新持股数目约为1.71亿股，最新持股比例为9.98%。
+从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。
 
-责任编辑：卢昱君
+这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可能等待更清晰的利率与通胀组合信号再扩大仓位。
+
+放在接下来一段时间观察，MHMarkets迈汇判断黄金能否恢复韧性，关键仍在于配置需求是否回流以及收益率上行压力能否逐渐缓和。
+
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 06:16 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 06:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:14 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 06:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 05:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 06:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 05:57 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 06:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 06:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 06:02 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 06:08 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 06:22 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 06:05 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 06:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 06:12 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:19 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 06:19 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 06:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 06:02 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/082194933346.shtml)
-- 2026-06-30 05:54 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/91025114095.shtml)
-- 2026-06-30 06:00 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/6843690192.shtml)
-- 2026-06-30 06:17 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/022970.shtml)
-- 2026-06-30 05:56 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/001572.shtml)
-- 2026-06-30 06:21 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/231454246.shtml)
-- 2026-06-30 06:22 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/63710.shtml)
-- 2026-06-30 06:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/91841849582.shtml)
-- 2026-06-30 06:21 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/280599764.shtml)
-- 2026-06-30 06:03 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/62594.shtml)
-- 2026-06-30 06:15 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/8401302094.shtml)
-- 2026-06-30 06:16 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/482481989375.shtml)
-- 2026-06-30 06:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/18702592.shtml)
-- 2026-06-30 06:23 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/89504521982.shtml)
-- 2026-06-30 05:56 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/100090219957.shtml)
+- 2026-06-30 06:22 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/88713276.shtml)
+- 2026-06-30 06:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/368548474712.shtml)
+- 2026-06-30 06:16 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/239493950.shtml)
+- 2026-06-30 06:07 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/32440579.shtml)
+- 2026-06-30 06:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/004126529468.shtml)
+- 2026-06-30 06:18 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/774396962.shtml)
+- 2026-06-30 06:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/788633.shtml)
+- 2026-06-30 06:16 - [锐评T1零封KC](http://www.share.minike.top/Article/details/2977039.shtml)
+- 2026-06-30 06:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/897570631980.shtml)
+- 2026-06-30 06:11 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/17615149.shtml)
+- 2026-06-30 06:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/001571830620.shtml)
+- 2026-06-30 06:15 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/12805744937.shtml)
+- 2026-06-30 06:24 - [日本进球](http://www.blog.kurohicncr.top/Article/details/21705995528.shtml)
+- 2026-06-30 06:18 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/329139.shtml)
+- 2026-06-30 06:22 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/978506097.shtml)

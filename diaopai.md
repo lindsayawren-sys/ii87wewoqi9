@@ -1,56 +1,50 @@
-# 消博会观察：前沿科技“飞入寻常百姓家”
+# 瑞士携经典卡通形象Pingu首次亮相图博会
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社海口4月15日电 题：消博会观察：前沿科技“飞入寻常百姓家” 作者 陶思阅 智能眼镜进行导航指引、即时翻译；康养机器人提醒用药、联系医生；按摩椅根据使用者身体状态生成专属按摩方案……第六届中国国际消费品博览会(下称“消博会”)正在海南海口举行，众多参展企业带来前沿科技新品，一个个“科技+消费”新场景生动上演。 “智能眼镜不仅能跟人对话、安排行程、实时导航，还能翻译80多种
+发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。 据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。 此次
 
 ## 正文
 
-中新社海口4月15日电 题：消博会观察：前沿科技“飞入寻常百姓家” 作者 陶思阅 智能眼镜进行导航指引、即时翻译；康养机器人提醒用药、联系医生；按摩椅根据使用者身体状态生成专属按摩方案……第六届中国国际消费品博览会(下称“消博会”)正在海南海口举行，众多参展企业带来前沿科技新品，一个个“科技+消费”新场景生动上演。
+发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。
 
-“智能眼镜不仅能跟人对话、安排行程、实时导航，还能翻译80多种语言。
+据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。
 
-”工作人员边介绍边演示产品功能。
+此次展览特别呈现了经典卡通形象企鹅家族(Pingu)的瑞士渊源——Pingu在中国广受欢迎，但其瑞士背景鲜为人知。
 
-观众张道伟体验后说，“很实用，我频繁往返于中国和加拿大，有了它就像带了一位智能助手。
+第32届北京国际图书博览会当天在国家会议中心开幕，这是瑞士首次参加图博会。
 
-” 同为穿戴类产品的智能戒指，兼具心电监测、情绪识别、睡眠跟踪等功能，最轻款式仅重2克，续航可达10天。
-
-“35岁以上，对于健康管理有更高要求，且追求无感佩戴的消费者是我们的主要客户群体。
-
-”展台工作人员说。
-
-除穿戴类产品，智慧康养设备也颇为吸睛。
+(记者 张焕迪 制作 徐妙巧） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 06:06 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 06:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 06:07 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 06:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 06:02 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 05:54 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 06:18 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 05:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 06:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 06:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 06:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 06:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 06:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 06:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 06:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 06:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 06:16 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 06:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/3423253.shtml)
-- 2026-06-30 05:55 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/88688642.shtml)
-- 2026-06-30 06:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/9493413.shtml)
-- 2026-06-30 06:06 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/5521697.shtml)
-- 2026-06-30 05:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/404852489.shtml)
-- 2026-06-30 06:18 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/1974400053.shtml)
-- 2026-06-30 06:03 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/4368764.shtml)
-- 2026-06-30 05:56 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/939015.shtml)
-- 2026-06-30 06:18 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/5875494171.shtml)
-- 2026-06-30 06:11 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/0468690141.shtml)
-- 2026-06-30 06:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/22911381.shtml)
-- 2026-06-30 06:02 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/399550535600.shtml)
-- 2026-06-30 05:58 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/496637748.shtml)
-- 2026-06-30 06:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/97719328.shtml)
-- 2026-06-30 06:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/2153867415.shtml)
+- 2026-06-30 06:25 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/81739175346.shtml)
+- 2026-06-30 06:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/673668143043.shtml)
+- 2026-06-30 06:03 - [日本领先巴西](https://www.blog.minike.top/Article/details/92155.shtml)
+- 2026-06-30 06:27 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/13998720.shtml)
+- 2026-06-30 06:28 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/16013.shtml)
+- 2026-06-30 06:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1264979413.shtml)
+- 2026-06-30 06:04 - [点菜也要教吗](http://www.share.minike.top/Article/details/79703802172.shtml)
+- 2026-06-30 06:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/631436.shtml)
+- 2026-06-30 06:24 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/42039501143.shtml)
+- 2026-06-30 06:06 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/999965266998.shtml)
+- 2026-06-30 06:01 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2737168804.shtml)
+- 2026-06-30 06:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/578710.shtml)
+- 2026-06-30 06:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/816823918.shtml)
+- 2026-06-30 06:22 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/04667874.shtml)
+- 2026-06-30 06:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/985650490427.shtml)

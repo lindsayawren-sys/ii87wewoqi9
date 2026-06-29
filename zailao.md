@@ -1,56 +1,59 @@
-# 岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”
+# 指数调仓后，人形机器人含量飙升，这只机器人ETF更“硬核”了
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网4月14日电(燕新台)中国国民党主席郑丽文结束为期6天的大陆参访行程，于12日率团返回台湾。岛内舆论对郑丽文大陆之行所取得的成果普遍给予正面评价，同时批评民进党当局对待大陆只有对抗逻辑，呼吁其为岛内百姓做实事，而非一味操弄政治斗争。据台湾《经济日报》13日报道，郑丽文返台后在机场受访时表示，此次大陆之行，国民党踏出成功的第一步，后面还有九十九步要走，事情认真办好了一件，后
+6月15日，国证机器人产业指数完成定期调样，安培龙、浙江荣泰、峰岹科技、伟创电气四家公司正式纳入，博实股份、金奥博、禾川科技、利元亨被剔除。 如果你是刚开始关注投资理财的新手，可能会觉得“指数调样”有点专业。简单理解就是：指数会按规则定期调整自己的成份股，把更符合当前产业趋势、代表性更强的公司纳入进来，同时把不那么匹配指数方向的公司剔除出去。 从新纳入的公司看，安培龙布局力矩传
 
 ## 正文
 
-中新网4月14日电(燕新台)中国国民党主席郑丽文结束为期6天的大陆参访行程，于12日率团返回台湾。
+6月15日，国证机器人产业指数完成定期调样，安培龙、浙江荣泰、峰岹科技、伟创电气四家公司正式纳入，博实股份、金奥博、禾川科技、利元亨被剔除。
 
-岛内舆论对郑丽文大陆之行所取得的成果普遍给予正面评价，同时批评民进党当局对待大陆只有对抗逻辑，呼吁其为岛内百姓做实事，而非一味操弄政治斗争。
+如果你是刚开始关注投资理财的新手，可能会觉得“指数调样”有点专业。
 
-据台湾《经济日报》13日报道，郑丽文返台后在机场受访时表示，此次大陆之行，国民党踏出成功的第一步，后面还有九十九步要走，事情认真办好了一件，后面还有更多事情要办好。
+简单理解就是：指数会按规则定期调整自己的成份股，把更符合当前产业趋势、代表性更强的公司纳入进来，同时把不那么匹配指数方向的公司剔除出去。
 
-郑丽文感谢中共中央台办当日宣布十项促进两岸交流合作的政策措施，希望国民党提供的相关渠道，让岛内民众直接感受到两岸和平发展红利。
+从新纳入的公司看，安培龙布局力矩传感器，峰岹科技专注电机驱动控制芯片，伟创电气深耕伺服系统，浙江荣泰切入灵巧手和丝杠等精密传动部件，均聚焦于人形机器人关节驱动和感知层的核心环节。
 
-中国国民党副主席张荣恭12日在北京受访时说，这些措施聚焦两岸交流合作，特别是增进民生福祉，国共两党对此有高度共识。
+据测算，此次调样后，国证机器人产业指数约90%权重集中在人形机器人相关标的，领先其他同类指数。
 
-台湾“中时新闻网”13日报道称，郑丽文此次“和平之旅”收获丰富，已让其在党内影响力大增。
+目前市场上机器人相关ETF主要跟踪两条指数：国证机器人产业指数与中证机器人指数。
 
-郑丽文勇于说出“我是中国人”、坚持“九二共识”、反对“台独”，把国民党理应坚持的价值说清楚，让她能顺利打通两岸僵局，为两岸关系带来和平稳定的可能。
+两者虽同属机器人赛道，但在选股范围的“半径”上具有明显区别。
 
-也有岛内舆论指出，民进党对郑丽文急切到近乎失态的抹黑，暴露了其“台独”路线在国际现实前的窘境，也恰恰证明郑丽文触碰到民进党“神主牌”的痛点。
+国证机器人产业指数聚焦机器人本体制造与核心零部件，优先选取整机制造、关节、传感、驱动等核心环节公司，前十大成份股合计权重约41%，持仓相对均衡。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 06:09 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 06:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 06:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 06:05 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 06:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 05:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 06:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 06:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 06:01 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 06:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 06:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 06:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 06:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:26 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 06:17 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 06:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 06:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 06:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 06:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 06:23 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 06:05 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/7533038.shtml)
-- 2026-06-30 05:57 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/839791645490.shtml)
-- 2026-06-30 05:55 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/9044556.shtml)
-- 2026-06-30 06:10 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/639429229180.shtml)
-- 2026-06-30 06:17 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/1906302.shtml)
-- 2026-06-30 06:02 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/47502.shtml)
-- 2026-06-30 06:03 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/32802377402.shtml)
-- 2026-06-30 05:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/207406240.shtml)
-- 2026-06-30 06:03 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/32066508411.shtml)
-- 2026-06-30 05:55 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/594531020.shtml)
-- 2026-06-30 06:06 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/15056.shtml)
-- 2026-06-30 06:20 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/702286689.shtml)
-- 2026-06-30 06:09 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/8319013490.shtml)
-- 2026-06-30 05:55 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/599176259406.shtml)
-- 2026-06-30 06:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/8309715.shtml)
+- 2026-06-30 06:11 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/9977083335.shtml)
+- 2026-06-30 06:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/80170765.shtml)
+- 2026-06-30 06:17 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/00134317147.shtml)
+- 2026-06-30 06:00 - [速度与激情9](https://www.share.minike.top/Article/details/161246302585.shtml)
+- 2026-06-30 06:02 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/34053278.shtml)
+- 2026-06-30 06:22 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/294527161277.shtml)
+- 2026-06-30 06:11 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/842062637.shtml)
+- 2026-06-30 06:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/1269763.shtml)
+- 2026-06-30 06:03 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/51772.shtml)
+- 2026-06-30 06:08 - [金刚川](https://www.blog.kurohicncr.top/Article/details/47305939499.shtml)
+- 2026-06-30 06:04 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/975724.shtml)
+- 2026-06-30 06:11 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/850535312305.shtml)
+- 2026-06-30 06:21 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/7233494.shtml)
+- 2026-06-30 06:07 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/278096422419.shtml)
+- 2026-06-30 06:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/6189634313.shtml)

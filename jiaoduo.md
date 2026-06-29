@@ -1,61 +1,58 @@
-# 美联储理事米兰预计一年后通胀率将回到目标水平附近
+# 潘功胜最新发言划重点！将在上海自贸区开展离岸人民币外汇交易试点
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-美联储理事斯蒂芬·米兰表示，伊朗战争引发的能源冲击尚未对长期通胀预期产生影响，预计通胀将在一年的时间里恢复到央行目标水平。 米兰周二在华盛顿的一次活动上发表讲话称，“迄今为止，没有证据表明通胀预期上升。劳动力市场已经持续降温约三年，因此不太可能出现工资-物价螺旋式上涨。所以，到目前为止，央行不应对模型冲击的传统做法在我看来是合理的。” 米兰表示，有证据表明，在能源冲击期间，价格
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛开幕式上发表主旨演讲，主要内容包括： ①在上海自贸区开展离岸人民币外汇交易试点，授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。 ②将逐步健全适应离岸金融的业务规则、风险管理、营商环境等制度体系。
 
 ## 正文
 
-美联储理事斯蒂芬·米兰表示，伊朗战争引发的能源冲击尚未对长期通胀预期产生影响，预计通胀将在一年的时间里恢复到央行目标水平。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛开幕式上发表主旨演讲，主要内容包括： ①在上海自贸区开展离岸人民币外汇交易试点，授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
 
-米兰周二在华盛顿的一次活动上发表讲话称，“迄今为止，没有证据表明通胀预期上升。
+②将逐步健全适应离岸金融的业务规则、风险管理、营商环境等制度体系。
 
-劳动力市场已经持续降温约三年，因此不太可能出现工资-物价螺旋式上涨。
+③衡量一个国家的金融竞争力和国际金融中心的影响力，传统金融机构的规模固然是一个重要的指标，金融市场的发达程度、金融市场的辐射能力、金融市场的业态丰富性更加重要。
 
-所以，到目前为止，央行不应对模型冲击的传统做法在我看来是合理的。
+④目前我国金融体系以银行为主的特征仍然比较突出，需要进一步丰富金融市场的业态，提升金融市场的深度和广度，为境内外投资者提供丰富、安全、流动性强的金融资产。
 
-” 米兰表示，有证据表明，在能源冲击期间，价格往往会快速波动，但随后会停止波动，从而限制通胀影响。
+⑤在经济结构转型的背景下，加快发展金融市场，也是金融业自身转型和高质量发展的必然要求。
 
-“展望一年后，我认为通胀率将非常接近我们的目标，”他补充道。
+⑥研究设立特定情景非银流动性支持宏观审慎工具。
 
-米兰还被问及他对一项提案的看法，该提案允许稳定币的提供者向持有者支付利息。
+⑦机制的设置将综合权衡维护金融市场稳定运行和防范金融市场的道德风险。
 
-这一想法已获得特朗普政府的一些支持，但遭到一些银行集团强烈反对，担心这会导致银行储户流失。
+⑧轻资产行业一般对应低负债，经济增长所需要的银行贷款相应下降。
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 05:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 06:08 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 06:04 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 05:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 06:02 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 05:54 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 06:05 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 05:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 06:20 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 06:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 06:17 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 06:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 06:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 05:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 06:06 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:03 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:20 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 06:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 06:17 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 06:04 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 06:19 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 06:28 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 06:14 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 06:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 06:17 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 06:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/41578778140.shtml)
-- 2026-06-30 06:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/7542160532.shtml)
-- 2026-06-30 06:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/596965034167.shtml)
-- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/7784210805.shtml)
-- 2026-06-30 06:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/60615748.shtml)
-- 2026-06-30 06:05 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/28783321.shtml)
-- 2026-06-30 06:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/10065732813.shtml)
-- 2026-06-30 05:57 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/3841392.shtml)
-- 2026-06-30 06:10 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/58735492.shtml)
-- 2026-06-30 06:16 - [巴西扳平比分](http://www.blog.minike.top/Article/details/1480116942.shtml)
-- 2026-06-30 06:22 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/233653841960.shtml)
-- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/8309437.shtml)
-- 2026-06-30 06:21 - [金刚川](https://www.blog.kurohicncr.top/Article/details/964486880.shtml)
-- 2026-06-30 06:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/974775258544.shtml)
-- 2026-06-30 05:55 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/1526808.shtml)
+- 2026-06-30 06:12 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/41002.shtml)
+- 2026-06-30 06:26 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/41733.shtml)
+- 2026-06-30 06:15 - [小娘惹](https://www.share.minike.top/Article/details/31128640069.shtml)
+- 2026-06-30 06:03 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/548483153.shtml)
+- 2026-06-30 06:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/3737579400.shtml)
+- 2026-06-30 06:02 - [周生如故](https://www.share.kurohicncr.top/Article/details/2176039307.shtml)
+- 2026-06-30 06:21 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/330904281916.shtml)
+- 2026-06-30 06:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/091442765069.shtml)
+- 2026-06-30 06:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/2599082.shtml)
+- 2026-06-30 06:19 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/46910429224.shtml)
+- 2026-06-30 06:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/66785.shtml)
+- 2026-06-30 06:06 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/14834.shtml)
+- 2026-06-30 06:07 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/339979473954.shtml)
+- 2026-06-30 06:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/66193.shtml)
+- 2026-06-30 06:08 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/7990600862.shtml)

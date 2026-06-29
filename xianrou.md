@@ -1,61 +1,58 @@
-# 港交所官宣，新增两项科技类指数！ETF同步推进！
+# 43年前那杯苦涩咖啡，逼出了今天的极地强者
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-4月13日，香港交易所宣布推出全新科技类指数，进一步拓展跨境投资工具体系，丰富香港市场指数生态。 与此同时，多家中资资管机构的海外子公司已获得指数授权，拟在监管批准后推出挂钩ETF产品，跨市场科技主题产品布局加速推进。 业内人士认为，在互联互通机制持续深化背景下，跨境指数与ETF产品的创新落地，有望为境内外投资者提供更多元的资产配置工具，并进一步提升香港市场的国际资产配置枢纽功
+1983年9月，中国南极考察事业开拓者郭琨在澳大利亚堪培拉喝下了人生中最苦涩的一杯咖啡。 彼时，他正以中国代表团团长身份带队参加在堪培拉举行的《南极条约》第12次协商国会议。可这场会议上，他和同事们却遭遇了被“请出”会场的尴尬。 当会议讨论到实质性内容、进入表决议程时，中国代表却被请出会场喝咖啡，原因只有一个——中国仅获得缔约国身份而非协商国身份，没有表决权。 这一刻，让郭琨倍
 
 ## 正文
 
-4月13日，香港交易所宣布推出全新科技类指数，进一步拓展跨境投资工具体系，丰富香港市场指数生态。
+1983年9月，中国南极考察事业开拓者郭琨在澳大利亚堪培拉喝下了人生中最苦涩的一杯咖啡。
 
-与此同时，多家中资资管机构的海外子公司已获得指数授权，拟在监管批准后推出挂钩ETF产品，跨市场科技主题产品布局加速推进。
+彼时，他正以中国代表团团长身份带队参加在堪培拉举行的《南极条约》第12次协商国会议。
 
-业内人士认为，在互联互通机制持续深化背景下，跨境指数与ETF产品的创新落地，有望为境内外投资者提供更多元的资产配置工具，并进一步提升香港市场的国际资产配置枢纽功能。
+可这场会议上，他和同事们却遭遇了被“请出”会场的尴尬。
 
-港交所推出两项科技类指数 4月13日，香港交易所宣布其指数组合新增两项科技类指数，包括香港交易所韩国交易所半导体指数和香港交易所科技及美国科技100指数。
+当会议讨论到实质性内容、进入表决议程时，中国代表却被请出会场喝咖啡，原因只有一个——中国仅获得缔约国身份而非协商国身份，没有表决权。
 
-作为香港交易所与韩国交易所首只联合冠名指数，香港交易所韩国交易所半导体指数追踪符合港股通资格的香港上市半导体公司，以及代表韩国半导体龙头企业的韩国交易所半导体15指数（KRX Semiconductor Top 15 Index）的表现。
+这一刻，让郭琨倍感屈辱，以至于几十年后，暮年的他在镜头前谈及往事时，依然会流泪：“中国没有表决权，为什么？
 
-香港交易所科技及美国科技100指数则追踪香港交易所科技100指数的所有成份股以及在纳斯达克上市的100家市值最大科技公司（包括美股七巨头）的表现。
+没有南极科考站！
 
-从结构上看，两项指数均符合港股通资格的香港上市公司权重约占60%，海外上市公司占比约40%，旨在推动市场开发更多交易所交易基金（ETF）纳入南向ETF通，为投资者提供更多元的跨市场机遇。
+” 43年后的今天，五座中国的科考站已经屹立在南极，当年的一杯苦咖啡把中国人逼成了极地强者。
 
-沪上一位基金评价人士分析称，此次新增有助于进一步提升香港交易所指数的全球代表性与资产配置效率。
+从空白到南极建站史奇迹 南极，这片占地球陆地面积近十分之一的白色大陆，蕴含有全球70%的淡水资源、丰富的矿产与生物资源，是气候演变、海洋环流、空间物理等前沿科学的天然实验室。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 05:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 06:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 06:18 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 06:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 06:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 05:57 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:21 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 05:54 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 06:21 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 06:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 06:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 06:20 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 05:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 06:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 06:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 06:02 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 06:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 06:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 06:28 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:06 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 06:14 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 06:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 06:11 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 06:10 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/846484.shtml)
-- 2026-06-30 05:59 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/942084479.shtml)
-- 2026-06-30 06:02 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/650376.shtml)
-- 2026-06-30 06:00 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/457110.shtml)
-- 2026-06-30 06:22 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/3067844291.shtml)
-- 2026-06-30 06:10 - [极限挑战第一季](https://www.blog.minike.top/Article/details/476434688367.shtml)
-- 2026-06-30 05:55 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/4210162070.shtml)
-- 2026-06-30 06:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/945175.shtml)
-- 2026-06-30 06:06 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/7645158762.shtml)
-- 2026-06-30 06:16 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/530206425.shtml)
-- 2026-06-30 06:16 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/540733797986.shtml)
-- 2026-06-30 05:56 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/084148194015.shtml)
-- 2026-06-30 06:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/033650876370.shtml)
-- 2026-06-30 06:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/62489067.shtml)
-- 2026-06-30 06:04 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/94370420.shtml)
+- 2026-06-30 06:03 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/14524.shtml)
+- 2026-06-30 06:21 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/006418836391.shtml)
+- 2026-06-30 06:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/8293232.shtml)
+- 2026-06-30 06:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/67355302214.shtml)
+- 2026-06-30 06:27 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/5804082.shtml)
+- 2026-06-30 06:17 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/210669067.shtml)
+- 2026-06-30 06:28 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/97130787.shtml)
+- 2026-06-30 06:15 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/4742605.shtml)
+- 2026-06-30 06:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/9892448.shtml)
+- 2026-06-30 06:03 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/56182.shtml)
+- 2026-06-30 06:27 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/0035886.shtml)
+- 2026-06-30 06:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/5971395.shtml)
+- 2026-06-30 06:25 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/070481.shtml)
+- 2026-06-30 06:13 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/19828364699.shtml)
+- 2026-06-30 06:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/32428.shtml)

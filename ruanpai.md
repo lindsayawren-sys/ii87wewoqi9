@@ -1,58 +1,55 @@
-# 柳化股份业绩预盈变巨亏3628万！退市风险警示在即，投资者索赔开启
+# 2026年全国轮椅篮球锦标赛在京举办
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-公司是一家以化工生产销售为一体的制造企业，目前主要产品为双氧水。公司拥有便利的地理优势。 根据申万行业分类（2021），柳化股份（维权）属于基础化工-化学原料-其他化学原料。 2026年1月21日，公司披露《2025年年度业绩预减公告》：预计2025年年度实现归属于上市公司股东的净利润628万元，与上年同期（法定披露数据）相比，将减少2389.53万元，同比下降79.19%。
+发布时间：2026年06月17日 20:38 来源：中国新闻网 近日，2026年“匹克杯”全国轮椅篮球锦标赛在位于北京的中国残疾人体育运动管理中心举办。本次赛事吸引了全国8个省市代表队踊跃参与，参赛规模达到240人。赛事期间依次开展三人制、五人制轮椅篮球竞技项目，全面展现中国轮椅篮球运动员的竞技水平与精神风貌。 亚大区轮椅篮球联合会副主席薛亮介绍，此次比赛是中国残奥委会一年一度
 
 ## 正文
 
-公司是一家以化工生产销售为一体的制造企业，目前主要产品为双氧水。
+发布时间：2026年06月17日 20:38 来源：中国新闻网 近日，2026年“匹克杯”全国轮椅篮球锦标赛在位于北京的中国残疾人体育运动管理中心举办。
 
-公司拥有便利的地理优势。
+本次赛事吸引了全国8个省市代表队踊跃参与，参赛规模达到240人。
 
-根据申万行业分类（2021），柳化股份（维权）属于基础化工-化学原料-其他化学原料。
+赛事期间依次开展三人制、五人制轮椅篮球竞技项目，全面展现中国轮椅篮球运动员的竞技水平与精神风貌。
 
-2026年1月21日，公司披露《2025年年度业绩预减公告》：预计2025年年度实现归属于上市公司股东的净利润628万元，与上年同期（法定披露数据）相比，将减少2389.53万元，同比下降79.19%。
+亚大区轮椅篮球联合会副主席薛亮介绍，此次比赛是中国残奥委会一年一度的全国锦标赛，在新的全运周期为各省市运动员搭建相互交流、相互学习、共同提高的赛事。
 
-2026年4月11日，公司披露了《2025年年度业绩预告更正暨股票可能被实施退市风险警示的风险提示公告》：更正后的业绩预告情况：预计2025年归属于上市公司股东的净利润为-3000万元，归属于上市公司股东的扣除非经常性损益后的净利润为-3020万元；预计2025年实现营业收入1.37亿元，低于3亿元。
+同时，借此检验第一阶段国家队运动员的训练成果，为备战今年的轮椅篮球世锦赛和名古屋亚残运会打下坚实基础。
 
-4月11日前的股票交易情况如下图。
-
-索赔条件为：2026年1月21日到2026年4月10日之间买入，且2026年4月11日后卖出或继续持有股票的投资者，包括个人投资者和机构投资者。
-
-（本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
+(记者 董泽宇) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 06:17 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 06:19 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 06:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 06:02 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 06:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 06:20 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 06:02 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 06:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 06:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 06:12 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 06:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 06:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 06:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 06:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 06:27 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 06:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 06:10 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 06:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 06:10 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 06:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 06:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/366733885.shtml)
-- 2026-06-30 06:14 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5867491140.shtml)
-- 2026-06-30 06:02 - [流金岁月](http://www.share.minike.top/Article/details/3440922.shtml)
-- 2026-06-30 05:59 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/60905721.shtml)
-- 2026-06-30 06:10 - [速度与激情9](https://www.blog.minike.top/Article/details/2776655.shtml)
-- 2026-06-30 06:14 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/142713614809.shtml)
-- 2026-06-30 06:13 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/50470.shtml)
-- 2026-06-30 06:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/638608041.shtml)
-- 2026-06-30 06:12 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/87667975013.shtml)
-- 2026-06-30 06:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/507633389574.shtml)
-- 2026-06-30 06:10 - [美股](http://www.share.kurohicncr.top/Article/details/96543835910.shtml)
-- 2026-06-30 06:10 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/739903932976.shtml)
-- 2026-06-30 06:18 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/5262011155.shtml)
-- 2026-06-30 05:56 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/19659599.shtml)
-- 2026-06-30 05:54 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/858983.shtml)
+- 2026-06-30 06:08 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/037965.shtml)
+- 2026-06-30 06:03 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/23441063314.shtml)
+- 2026-06-30 06:21 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/28418058675.shtml)
+- 2026-06-30 06:15 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/17531.shtml)
+- 2026-06-30 06:03 - [极限挑战第一季](https://www.share.minike.top/Article/details/722981292302.shtml)
+- 2026-06-30 06:08 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/14388257.shtml)
+- 2026-06-30 06:20 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/25901585632.shtml)
+- 2026-06-30 06:17 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/1120170737.shtml)
+- 2026-06-30 06:18 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/39301.shtml)
+- 2026-06-30 06:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/299515149441.shtml)
+- 2026-06-30 06:04 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/8549193993.shtml)
+- 2026-06-30 06:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/8842382195.shtml)
+- 2026-06-30 06:15 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/425757.shtml)
+- 2026-06-30 06:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/427600155.shtml)
+- 2026-06-30 06:27 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/94666328125.shtml)

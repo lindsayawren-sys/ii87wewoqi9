@@ -1,59 +1,57 @@
-# 京东工业午前涨超12% 工业AI大模型跃升至2.0阶段
+# 专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。 4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同
+中新网北京6月17日电(记者 赵方园 左雨晴)携程被处罚！这次是数据出境踩了“红线”。 据上海市网信办6月13日的通报：针对上海携程商务有限公司未落实数据出境安全评估要求、违法出境个人信息等行为，依据《个人信息保护法》，予以罚款1000万元的行政处罚，并责令企业限期改正。 对于违法行为是否已造成用户数据泄露、出境数据是否存在被滥用风险、具体整改措施等问题，中新网记者向携程方面求
 
 ## 正文
 
-京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。
+中新网北京6月17日电(记者 赵方园 左雨晴)携程被处罚！
 
-4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。
+这次是数据出境踩了“红线”。
 
-京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同。
+据上海市网信办6月13日的通报：针对上海携程商务有限公司未落实数据出境安全评估要求、违法出境个人信息等行为，依据《个人信息保护法》，予以罚款1000万元的行政处罚，并责令企业限期改正。
 
-国内首个工业供应链垂直AI大模型JoyIndustrial，将再次引领行业技术和应用升级。
+对于违法行为是否已造成用户数据泄露、出境数据是否存在被滥用风险、具体整改措施等问题，中新网记者向携程方面求证，截至发稿时未获回应。
 
-京东工业技术负责人表示，京东工业AI能力已经基本完成AI工具的建设和应用布局，在内外部业务实践中取得了扎实的成果，目前正处于向AI专家跃迁的过程中。
+“从公开信息来看，此次携程被罚存在‘未落实数据出境安全评估要求、违法出境个人信息’这一违法行为，并且存在‘情节严重’的特点。
 
-面向未来，京东工业认为AI专家会跃迁到3.0阶段的AI超脑，即可以实现生态进化，全链协同，和工业大模型构建数智化的供应链大脑，通过AI需求大脑、AI商品大脑、AI履约大脑等产品和服务，根本性地提升工业供应链水平。
+”工业和信息化智慧法治工信部重点实验室执行主任赵精武在接受中新网记者采访时指出，携程在数据安全管理方面可能并未全面履行《个人信息保护法》《数据安全法》等法律法规明确规定的法定义务，未能对出境数据的安全性、合法性进行全面的风险评估和合规审计。
 
-责任编辑：卢昱君
+值得一提的是，携程在个人信息保护领域早有“前科”。
+
+2021年，浙江绍兴消费者胡女士以携程采集其个人非必要信息、进行“大数据杀熟”为由诉至法院。
 
 ## 相关推荐
 
-- 2026-06-30 06:14 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 06:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 06:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 06:00 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 06:14 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 06:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 06:05 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 06:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 06:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 06:05 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 06:20 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 06:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 05:59 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 06:14 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 06:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 06:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 06:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 06:11 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 06:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 06:14 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 06:20 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 06:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 06:07 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 06:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 06:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/71438987.shtml)
-- 2026-06-30 06:10 - [日本淘汰](https://www.blog.minike.top/Article/details/18155.shtml)
-- 2026-06-30 06:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/8327668522.shtml)
-- 2026-06-30 06:00 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/06258960783.shtml)
-- 2026-06-30 05:58 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/927227.shtml)
-- 2026-06-30 06:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/77140340.shtml)
-- 2026-06-30 06:12 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/02976158931.shtml)
-- 2026-06-30 05:56 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/4184318.shtml)
-- 2026-06-30 06:19 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/00294255.shtml)
-- 2026-06-30 06:21 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/49372579.shtml)
-- 2026-06-30 06:05 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/93041356869.shtml)
-- 2026-06-30 05:54 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/533356795.shtml)
-- 2026-06-30 06:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/319804.shtml)
-- 2026-06-30 06:09 - [天道](https://www.blog.minike.top/Article/details/14863.shtml)
-- 2026-06-30 06:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/899200.shtml)
+- 2026-06-30 06:02 - [张凌赫 客串](http://www.share.minike.top/Article/details/845668197.shtml)
+- 2026-06-30 06:25 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/69761829.shtml)
+- 2026-06-30 06:19 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/022006015932.shtml)
+- 2026-06-30 06:29 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/553859913040.shtml)
+- 2026-06-30 06:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/8520679.shtml)
+- 2026-06-30 06:20 - [扫黑风暴](https://www.share.minike.top/Article/details/32368022.shtml)
+- 2026-06-30 06:04 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/052057599.shtml)
+- 2026-06-30 06:27 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/4450016985.shtml)
+- 2026-06-30 06:15 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/64355909.shtml)
+- 2026-06-30 06:10 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/412737.shtml)
+- 2026-06-30 06:02 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/77431786.shtml)
+- 2026-06-30 06:11 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/24528.shtml)
+- 2026-06-30 06:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/7534068531.shtml)
+- 2026-06-30 06:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/306696658772.shtml)
+- 2026-06-30 06:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/14840156452.shtml)

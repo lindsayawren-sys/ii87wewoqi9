@@ -1,58 +1,58 @@
-# 韩国3月ICT出口额达435亿美元，同比增长逾一倍
+# 超强信号，寒武纪猛攻12%站上新高！费率较低的科创芯片ETF华宝（589190）涨超3%连续突破
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。 根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。 进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。 韩国科技信息通信部在一份声明
+6月18日，科创芯片延续攻势，全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）场内价格现涨超3%，续创上市以来新高！芯片龙头带头突破，寒武纪涨超12%站上新高，芯原股份涨超7%，海光信息涨超6%，华虹宏力涨超5%。 消息面上，有报道称字节跳动正与上海AI芯片企业天数智芯洽谈采购AI芯片，主要用于推理任务。若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动
 
 ## 正文
 
-韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。
+6月18日，科创芯片延续攻势，全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）场内价格现涨超3%，续创上市以来新高！
 
-根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。
+芯片龙头带头突破，寒武纪涨超12%站上新高，芯原股份涨超7%，海光信息涨超6%，华虹宏力涨超5%。
 
-进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。
+消息面上，有报道称字节跳动正与上海AI芯片企业天数智芯洽谈采购AI芯片，主要用于推理任务。
 
-韩国科技信息通信部在一份声明中表示：“上个月，ICT出口占韩国出口总额861.3亿美元的50.5%，再次巩固了该行业作为韩国经济核心增长引擎的地位。
+若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动的第三家GPU供应商。
 
-” 按产品划分，半导体出口额同比增长151%，从去年同期的130.6亿美元增至328.4亿美元，主要得益于全球人工智能数据中心强劲的需求。
+华源证券指出，AI大模型迭代、智算中心规模化建设与边缘智能场景全面渗透，持续推高国内AI算力市场需求。
 
-智能手机出口额在3月份同比增长57%，达到15.4亿美元，主要受新推出的高端机型销售强劲的推动。
+整体来看，国内算力芯片行业呈现头部企业盈利稳固、二线厂商减亏甚至扭亏提速、梯队化成长格局清晰的特征。
 
-计算机及相关设备的出口额几乎增长了两倍，从去年同期的13.1亿美元增至35.9亿美元，这反映出人工智能数据中心对固态硬盘（SSD）的需求不断增长。
+开源证券表示，阿里、腾讯等国内CSP均表示将加大资本开支，下游需求旺盛。
 
-相比之下，显示面板的出口额下降了9.3%，至14.9亿美元，主要原因是IT行业对有机发光二极管（OLED）产品的需求疲软。
+并且随着国产芯片供应的逐步释放，算力供应局面能得到改善，国产算力迎来新机遇。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 05:58 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 06:22 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 06:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:14 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 06:05 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 06:00 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 06:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 06:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 06:02 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 06:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:05 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 06:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 06:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 06:15 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 06:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 06:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 06:09 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 06:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 06:13 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 06:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/27241829.shtml)
-- 2026-06-30 06:00 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/78631.shtml)
-- 2026-06-30 06:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/162543955.shtml)
-- 2026-06-30 06:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/395056028291.shtml)
-- 2026-06-30 06:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/8757764.shtml)
-- 2026-06-30 06:22 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/2453411.shtml)
-- 2026-06-30 06:04 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/555236.shtml)
-- 2026-06-30 06:01 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/72998157046.shtml)
-- 2026-06-30 06:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/84214.shtml)
-- 2026-06-30 06:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/4360917.shtml)
-- 2026-06-30 06:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/848880195.shtml)
-- 2026-06-30 05:54 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/5707590.shtml)
-- 2026-06-30 06:20 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/1403306998.shtml)
-- 2026-06-30 06:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/43125438.shtml)
-- 2026-06-30 06:04 - [周生如故](http://www.blog.minike.top/Article/details/5298424306.shtml)
+- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/774948973474.shtml)
+- 2026-06-30 06:17 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/1338068.shtml)
+- 2026-06-30 06:18 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/898414857360.shtml)
+- 2026-06-30 06:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/516101.shtml)
+- 2026-06-30 06:06 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/3059797.shtml)
+- 2026-06-30 06:13 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/84888.shtml)
+- 2026-06-30 06:02 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/1450683.shtml)
+- 2026-06-30 06:08 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/9842620275.shtml)
+- 2026-06-30 06:15 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/349292.shtml)
+- 2026-06-30 06:05 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/37835.shtml)
+- 2026-06-30 06:27 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/95011.shtml)
+- 2026-06-30 06:20 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/446802925035.shtml)
+- 2026-06-30 06:04 - [刘念回应](https://www.blog.minike.top/Article/details/8315426.shtml)
+- 2026-06-30 06:19 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/1221126665.shtml)
+- 2026-06-30 06:14 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/18974184386.shtml)

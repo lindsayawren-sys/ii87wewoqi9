@@ -1,56 +1,60 @@
-# 广州农商行甩卖超2万笔不良资产，要求“不暴力催收”
+# 欧洲5月电动汽车需求持续增长，油价上涨加快转型步伐
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 这个4月，广州农商行有一个重要的任务—— 完成一批个人不良贷款的转让。 从上个月底开始，广州农商行已经陆续公开披露关于2026年第1期个人不良贷款（个人经营性贷款）转让项目、关于2026年第2期个人不良贷款（个人经营性贷款）转让项目。 这两个项目均为个人经营性不良贷款项目，第1期未偿本息总额6606．68万元、3723笔资产，第2期未偿本息总额6115．13
+行业数据显示，伊朗冲突引发的油价上涨推高了欧洲各地对新旧电动汽车的需求。但一些企业高管警告称，如果汽油价格下跌，这种需求可能会减弱。 业内专家表示，充电基础设施的改善以及包括中国品牌在内的众多价格更亲民的车型的推出，正推动电动汽车走向主流市场，从而支撑了市场需求。 美国和伊朗已同意延长停火，但航运中断意味着霍尔木兹海峡的石油运输可能需要数周时间才能恢复正常，燃油价格可能在未来数
 
 ## 正文
 
-文/瑞财经 许淑敏 这个4月，广州农商行有一个重要的任务—— 完成一批个人不良贷款的转让。
+行业数据显示，伊朗冲突引发的油价上涨推高了欧洲各地对新旧电动汽车的需求。
 
-从上个月底开始，广州农商行已经陆续公开披露关于2026年第1期个人不良贷款（个人经营性贷款）转让项目、关于2026年第2期个人不良贷款（个人经营性贷款）转让项目。
+但一些企业高管警告称，如果汽油价格下跌，这种需求可能会减弱。
 
-这两个项目均为个人经营性不良贷款项目，第1期未偿本息总额6606．68万元、3723笔资产，第2期未偿本息总额6115．13万元、4464笔资产，竞价时间是4月8日。
+业内专家表示，充电基础设施的改善以及包括中国品牌在内的众多价格更亲民的车型的推出，正推动电动汽车走向主流市场，从而支撑了市场需求。
 
-从4月10日开始，在银登网上，广州农商行陆续披露了4个关于个人不良贷款（信用卡透支）转让的项目。
+美国和伊朗已同意延长停火，但航运中断意味着霍尔木兹海峡的石油运输可能需要数周时间才能恢复正常，燃油价格可能在未来数月内保持高位。
 
-比较早进行竞价的是广州农商行2026年第5期个人不良贷款（信用卡透支）转让项目，竞价时间为4月17日。
+研究机构New Automotive和行业组织E-Mobility Europe的数据显示，今年5月份，在覆盖欧盟和欧洲自由贸易联盟90%以上汽车销量的17个市场中，电动汽车新车注册量同比增长34%。
 
-这一项目未偿本金总额9643．61万元，未偿利息总额1．69亿元，未偿本息总额2．66亿元，共1729笔资产，加权平均逾期1939.8天，借款人加权平均年龄40.09岁。
+在这些市场，纯电动车型几乎占新车注册量的四分之一。
 
-随之，广州农商行2026年第3、4、6期个人不良贷款（信用卡透支）将同时于4月20日进行竞价转让。
+雷诺首席执行官弗朗索瓦·普罗沃斯特上周表示，自2月底伊朗冲突爆发以来，雷诺在一些国家的电动汽车订单量增长了50%。
 
-具体看： 第3期：未偿本金总额2．47亿元，未偿利息总额1．2亿元，未偿本息总额3．67亿元，5141笔资产，加权平均逾期728.62天，借款人加权平均年龄44.33岁。
+但他预测，如果油价下跌，增长“将会放缓”。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 06:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 06:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 06:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 06:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 06:00 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 06:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 05:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 06:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 06:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 06:05 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 06:17 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 06:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 06:15 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 06:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 06:28 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:02 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 06:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 06:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 06:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 06:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 06:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 06:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/8158073098.shtml)
-- 2026-06-30 06:04 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/191159645.shtml)
-- 2026-06-30 06:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/39886763.shtml)
-- 2026-06-30 06:19 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/581217074.shtml)
-- 2026-06-30 06:06 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/225465.shtml)
-- 2026-06-30 06:06 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/923543797.shtml)
-- 2026-06-30 06:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/710284358946.shtml)
-- 2026-06-30 06:18 - [速度与激情9](https://www.blog.minike.top/Article/details/548256.shtml)
-- 2026-06-30 06:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/1957996781.shtml)
-- 2026-06-30 05:56 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/9661433.shtml)
-- 2026-06-30 06:23 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/176589.shtml)
-- 2026-06-30 05:56 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/9015556407.shtml)
-- 2026-06-30 06:09 - [金刚川](http://www.blog.kurohicncr.top/Article/details/1011495523.shtml)
-- 2026-06-30 06:05 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/52610904028.shtml)
-- 2026-06-30 06:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/813389.shtml)
+- 2026-06-30 06:25 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/54881.shtml)
+- 2026-06-30 06:19 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/4291298.shtml)
+- 2026-06-30 06:09 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/3524293403.shtml)
+- 2026-06-30 06:11 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/5053302.shtml)
+- 2026-06-30 06:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/71288328914.shtml)
+- 2026-06-30 06:14 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/3590651949.shtml)
+- 2026-06-30 06:14 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/804690.shtml)
+- 2026-06-30 06:09 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/5563238187.shtml)
+- 2026-06-30 06:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/34828815.shtml)
+- 2026-06-30 06:21 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/9034939024.shtml)
+- 2026-06-30 06:06 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/85788370081.shtml)
+- 2026-06-30 06:08 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/05001.shtml)
+- 2026-06-30 06:18 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/212921878451.shtml)
+- 2026-06-30 06:25 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/123911823918.shtml)
+- 2026-06-30 06:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/38573667214.shtml)

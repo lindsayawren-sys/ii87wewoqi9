@@ -1,56 +1,61 @@
-# 老铺黄金午后涨逾6% 花旗重申“买入”评级
+# 首趟陕西洛川苹果出口尼泊尔铁路冷链专列开行
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-老铺黄金（06181）盘中涨超6%，截至发稿，股价上涨5.71%，现报666港元，成交额6.76亿港元。 4月8日，老铺黄金在招聘平台发布北京、上海、杭州等地驻店客服经理岗位，该岗位要求候选人具备6年以上航空公司空乘工作经验，其中3年以上乘务长岗位经验。 近日，花旗发布研报称，老铺黄金（06181）管理层对短期、长期的销售前景展现出强烈信心，认为尽管近期金价回调，但观察到客户行
+中新网延安6月17日电(记者 张远)17日，满载10万斤洛川苹果的37119次货物列车，从中国铁路西安局集团有限公司(下称西安铁路局)黄陵东站货场缓缓驶出，一路向西经日喀则西站，由公路转运至吉隆口岸换装出境，最终运往尼泊尔加德满都。这是西安铁路局联合洛川县政府开行的首趟洛川苹果出口尼泊尔铁路冷链专列，标志着当地苹果正式开启“铁路冷链+铁公联运”多式联运出口新模式，为助力陕北革命
 
 ## 正文
 
-老铺黄金（06181）盘中涨超6%，截至发稿，股价上涨5.71%，现报666港元，成交额6.76亿港元。
+中新网延安6月17日电(记者 张远)17日，满载10万斤洛川苹果的37119次货物列车，从中国铁路西安局集团有限公司(下称西安铁路局)黄陵东站货场缓缓驶出，一路向西经日喀则西站，由公路转运至吉隆口岸换装出境，最终运往尼泊尔加德满都。
 
-4月8日，老铺黄金在招聘平台发布北京、上海、杭州等地驻店客服经理岗位，该岗位要求候选人具备6年以上航空公司空乘工作经验，其中3年以上乘务长岗位经验。
+这是西安铁路局联合洛川县政府开行的首趟洛川苹果出口尼泊尔铁路冷链专列，标志着当地苹果正式开启“铁路冷链+铁公联运”多式联运出口新模式，为助力陕北革命老区乡村振兴、推进现代物流网建设注入新动能。
 
-近日，花旗发布研报称，老铺黄金（06181）管理层对短期、长期的销售前景展现出强烈信心，认为尽管近期金价回调，但观察到客户行为令人鼓舞，短期销售前景仍正面。
+洛川县位于陕西省延安市南部，平均海拔在1000米以上，昼夜温差大，光照充足，得天独厚的自然条件十分适宜苹果生长。
 
-长远而言，从入门级到超高净值客户的客户群均有充足扩张空间，预示销售有进一步上升潜力。
+全县苹果种植面积稳定在53万亩，年产量超百万吨，洛川也素有“中国苹果之乡”的美誉。
 
-花旗重申老铺“买入”评级，并列为中国珠宝行业的首选股，目标价1，162港元。
+本次专列发货方为当地苹果出口龙头企业——洛川优洛有机果业有限责任公司，该企业年苹果产销约4500吨，其中出口占比超55%，产品远销尼泊尔、越南、泰国、印尼、阿联酋等多个国家和地区。
 
-责任编辑：卢昱君
+长期以来，该企业发往尼泊尔的苹果一直依靠公路运输，全程里程约3800公里。
+
+路途遥远、高原路况复杂，叠加雨雪、颠簸等因素，不仅推高了物流成本，还增加了果品的损耗。
+
+“为更好地服务地方经济，我们前期多次走访洛川当地果品企业摸排需求，了解到企业跨境运输存在不少痛点。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 06:13 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 05:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 06:02 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 06:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 06:04 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:11 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 06:17 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 06:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 06:00 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 06:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 06:01 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 06:13 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 06:18 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 06:05 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 06:00 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 06:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 06:11 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 06:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 06:20 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 06:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 06:08 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 06:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 06:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 06:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 06:08 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:02 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 06:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 06:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/689461.shtml)
-- 2026-06-30 06:07 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/56701.shtml)
-- 2026-06-30 06:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/2169098099.shtml)
-- 2026-06-30 05:59 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/779083.shtml)
-- 2026-06-30 06:22 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/4853199878.shtml)
-- 2026-06-30 06:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/2738397823.shtml)
-- 2026-06-30 06:14 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/3449754312.shtml)
-- 2026-06-30 06:03 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/816542.shtml)
-- 2026-06-30 06:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/259854.shtml)
-- 2026-06-30 06:11 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/0407396.shtml)
-- 2026-06-30 05:54 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/825437300.shtml)
-- 2026-06-30 06:04 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/019151371807.shtml)
-- 2026-06-30 06:06 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/59255654.shtml)
-- 2026-06-30 06:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/5385682.shtml)
-- 2026-06-30 05:56 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/67848871115.shtml)
+- 2026-06-30 06:23 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/05710803563.shtml)
+- 2026-06-30 06:05 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/0278797.shtml)
+- 2026-06-30 06:27 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/4237072823.shtml)
+- 2026-06-30 06:06 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/0047679.shtml)
+- 2026-06-30 06:05 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/2857933.shtml)
+- 2026-06-30 06:25 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/725158.shtml)
+- 2026-06-30 06:10 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/719288854883.shtml)
+- 2026-06-30 06:00 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/40308141110.shtml)
+- 2026-06-30 06:19 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/554287577.shtml)
+- 2026-06-30 06:26 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/60149879783.shtml)
+- 2026-06-30 06:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6194549.shtml)
+- 2026-06-30 06:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/114854863.shtml)
+- 2026-06-30 06:11 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/376722612.shtml)
+- 2026-06-30 06:12 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/701826666.shtml)
+- 2026-06-30 06:05 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/4030710680.shtml)

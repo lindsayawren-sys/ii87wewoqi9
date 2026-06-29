@@ -1,61 +1,52 @@
-# 消博手记 | 打工人有救了？消博会上那张让人“抖睡”的椅子，居然是航天员同款
+# 2026年高考“云咨询周”活动将于6月22日至28日举行
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-专题：第六届中国国际消费品博览会 文 | 新浪财经 徐苑蕾 发自海口 4月13日，第六届消博会正式开馆。这是海南自贸港封关后的第一届消博会，开幕第一天只有半天的逛展时间，而我的第一选择是1号馆的科技消费展区，主要想看看今年哪些大厂带着“黑科技”来了，结果确实还是有一些惊喜。 进馆没多久，就看到了B站那一抹熟悉的粉色，说实话，来之前没想到会在消博会上看到B站。这是B站首次参展，展
+中新网6月18日电 据教育部官方微信消息，根据教育部“2026高考护航行动”有关部署，结合全国各省(区、市)高考志愿填报时间安排，2026年高考“云咨询周”活动将于6月22日至28日在教育部“阳光高考”信息平台举行。活动形式 活动期间，平台将提供文字问答和视频直播两种方式，文字问答咨询时间为9点至17点，鼓励各高校采用视频直播等方式开展多样化的招生政策宣传和志愿填报方法指导，切
 
 ## 正文
 
-专题：第六届中国国际消费品博览会 文 | 新浪财经 徐苑蕾 发自海口 4月13日，第六届消博会正式开馆。
+中新网6月18日电 据教育部官方微信消息，根据教育部“2026高考护航行动”有关部署，结合全国各省(区、市)高考志愿填报时间安排，2026年高考“云咨询周”活动将于6月22日至28日在教育部“阳光高考”信息平台举行。
 
-这是海南自贸港封关后的第一届消博会，开幕第一天只有半天的逛展时间，而我的第一选择是1号馆的科技消费展区，主要想看看今年哪些大厂带着“黑科技”来了，结果确实还是有一些惊喜。
+活动形式 活动期间，平台将提供文字问答和视频直播两种方式，文字问答咨询时间为9点至17点，鼓励各高校采用视频直播等方式开展多样化的招生政策宣传和志愿填报方法指导，切实为考生和家长提供科学准确、周到细致的指导和咨询服务。
 
-进馆没多久，就看到了B站那一抹熟悉的粉色，说实话，来之前没想到会在消博会上看到B站。
+参与方式 考生和家长可通过教育部“阳光高考”信息平台网页、“阳光高考”信息平台微信公众号等参与“云咨询周”活动，获取各高校招生宣传及视频直播具体安排。
 
-这是B站首次参展，展位C位上立着一台机甲，是UP主孙世前自己做的，目测超过2米高，不少参展观众都来拍照打卡。
+“阳光高考”信息平台网址 https://gaokao.chsi.com.cn “阳光志愿”信息服务系统 2026年“阳光志愿”信息服务系统依托招生、学籍、就业、毕业生跟踪调查等海量权威数据，继续为考生和家长提供免费、优质的志愿填报公共服务。
 
-不止机甲，何同学的几款自制黑科技产品也摆在一旁。
+考生可借助该系统全面了解高校专业、就业等相关信息，并结合个人兴趣、特长，把握国家战略、社会需要，做好生涯发展规划，科学理性地填报志愿。
 
-B站工作人员告诉我：“B站不生产科技产品，为什么会在1号馆这里？
-
-”对方说：“消费科技的核心人群大多在B站，来消博会主要是为了展示青年人当下的消费生态。
-
-”这么说就懂了，B站不是来卖货的，是来告诉大家，年轻人眼里的科技和潮流长啥样。
+“阳光志愿”信息服务系统网址 https://gaokao.chsi.com.cn/zyck/
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 05:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 06:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 06:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 06:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 06:14 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 06:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 06:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 06:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 06:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 05:56 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 06:10 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 06:12 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 06:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 06:10 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 06:21 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 06:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:26 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 06:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 06:26 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 06:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 06:10 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 06:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 06:00 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 06:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/7219924265.shtml)
-- 2026-06-30 06:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/20593.shtml)
-- 2026-06-30 06:19 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/711336087146.shtml)
-- 2026-06-30 06:14 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/265406.shtml)
-- 2026-06-30 06:14 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/1132992202.shtml)
-- 2026-06-30 06:05 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/704854448124.shtml)
-- 2026-06-30 06:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/22522603345.shtml)
-- 2026-06-30 06:10 - [内马尔替补](https://www.blog.minike.top/Article/details/8970341.shtml)
-- 2026-06-30 06:09 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/31439808994.shtml)
-- 2026-06-30 06:18 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/981149.shtml)
-- 2026-06-30 05:55 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/98529492.shtml)
-- 2026-06-30 06:14 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/071807337.shtml)
-- 2026-06-30 06:12 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/10449548.shtml)
-- 2026-06-30 06:18 - [天道](http://www.share.kurohicncr.top/Article/details/49477.shtml)
-- 2026-06-30 06:17 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/3662005191.shtml)
+- 2026-06-30 06:00 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/519606.shtml)
+- 2026-06-30 06:18 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/584900.shtml)
+- 2026-06-30 06:25 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/8940469.shtml)
+- 2026-06-30 06:25 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/482303720989.shtml)
+- 2026-06-30 06:23 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/5389511.shtml)
+- 2026-06-30 06:08 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/84498.shtml)
+- 2026-06-30 06:22 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/45890.shtml)
+- 2026-06-30 06:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8025403137.shtml)
+- 2026-06-30 06:08 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/49653.shtml)
+- 2026-06-30 06:21 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/1282412663.shtml)
+- 2026-06-30 06:12 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/957476.shtml)
+- 2026-06-30 06:19 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/262486898853.shtml)
+- 2026-06-30 06:20 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/121446737.shtml)
+- 2026-06-30 06:24 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/46138419.shtml)
+- 2026-06-30 06:01 - [日本领先巴西](https://www.share.minike.top/Article/details/6699637052.shtml)

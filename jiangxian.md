@@ -1,57 +1,61 @@
-# 浙江桐乡：“数字工厂+AI”激活制造业新动能
+# 看图学习丨当好粮食安全“压舱石” 总书记嘱托粮食大省扛稳重任
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！驱蚊液为何年年涨价？中新网评：“封号收租”的小红书，还有多少信任可透支？辽宁一动植物园非洲狮丧偶后不进食？园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍
+民为国基，谷为民命。党的十八大以来，习近平总书记把粮食安全作为治国理政的头等大事，强调粮食安全必须靠我们自己保证，中国人的饭碗应该主要装中国粮。在地方考察调研时，总书记经常深入田间地头，对做好粮食生产作出一系列重要指示，凝聚起粮食大省齐抓共保的强大合力，为端稳、端牢中国饭碗构筑起坚实防线。 仲夏时节，各地正抢抓农时，开启夏收、夏种、夏管的农忙模式，积极助力粮食稳产丰收。农业农村
 
 ## 正文
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！
+民为国基，谷为民命。
 
-驱蚊液为何年年涨价？
+党的十八大以来，习近平总书记把粮食安全作为治国理政的头等大事，强调粮食安全必须靠我们自己保证，中国人的饭碗应该主要装中国粮。
 
-中新网评：“封号收租”的小红书，还有多少信任可透支？
+在地方考察调研时，总书记经常深入田间地头，对做好粮食生产作出一系列重要指示，凝聚起粮食大省齐抓共保的强大合力，为端稳、端牢中国饭碗构筑起坚实防线。
 
-辽宁一动植物园非洲狮丧偶后不进食？
+仲夏时节，各地正抢抓农时，开启夏收、夏种、夏管的农忙模式，积极助力粮食稳产丰收。
 
-园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍尔木兹海峡，美伊的筹码博弈何时结束？
+农业农村部小麦机收进度显示，全国夏粮小麦收获进度近87%。
 
-中国一季度进出口超11万亿元 季度增速达近五年新高苏林访华，为何从北京直奔雄安？
+其中，安徽、江苏等地麦收已结束，山东进度过八成半。
 
-从亲密关系到百亿生意 年轻人为何愿意为“陪伴”买单国家安全“大事”，跟普通人有什么关系？
+同时，黑龙江、内蒙古春播作物超六成已出苗，辽宁、吉林出苗过九成，已出苗作物长势良好。
 
-郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情AI可以成为老辈子们的“数字拐杖”吗？
+一起来学习！
 
 ## 相关推荐
 
-- 2026-06-30 06:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 06:11 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 05:57 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 06:09 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 06:18 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 05:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 06:03 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 06:17 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 05:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 06:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:03 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 06:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 06:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 06:16 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 06:10 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:12 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 06:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 06:02 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 06:27 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 06:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 06:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 06:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 06:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 06:05 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/8694747.shtml)
-- 2026-06-30 06:00 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/5085193.shtml)
-- 2026-06-30 06:13 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/2882708.shtml)
-- 2026-06-30 06:17 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/4158810124.shtml)
-- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/05638738.shtml)
-- 2026-06-30 06:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/07494.shtml)
-- 2026-06-30 06:14 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/2286240566.shtml)
-- 2026-06-30 06:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/990500328724.shtml)
-- 2026-06-30 06:23 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/94607.shtml)
-- 2026-06-30 06:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/0457550925.shtml)
-- 2026-06-30 06:13 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/20232536582.shtml)
-- 2026-06-30 05:58 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/103296458708.shtml)
-- 2026-06-30 06:03 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/13381.shtml)
-- 2026-06-30 06:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/568307974981.shtml)
-- 2026-06-30 06:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/98559638829.shtml)
+- 2026-06-30 06:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/9551555276.shtml)
+- 2026-06-30 06:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/1064669.shtml)
+- 2026-06-30 06:02 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/04688239873.shtml)
+- 2026-06-30 06:07 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/8083306.shtml)
+- 2026-06-30 06:26 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/011381.shtml)
+- 2026-06-30 06:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/685417649.shtml)
+- 2026-06-30 06:14 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/7987608.shtml)
+- 2026-06-30 06:02 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/35910726.shtml)
+- 2026-06-30 06:10 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/41482927402.shtml)
+- 2026-06-30 06:11 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/84476218.shtml)
+- 2026-06-30 06:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/7330278.shtml)
+- 2026-06-30 06:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/9937282.shtml)
+- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/131430870.shtml)
+- 2026-06-30 06:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/59078962.shtml)
+- 2026-06-30 06:10 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3353682.shtml)

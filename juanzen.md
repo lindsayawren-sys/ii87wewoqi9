@@ -1,57 +1,56 @@
-# 重庆海关业务网络优化与安全运维服务采购项目比选公告
+# 前5月经济成绩单出炉，如何看待平稳中的“波动”？
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-重庆海关对业务网络优化与安全运维服务采购项目进行比选，现邀请符合资格条件的供应商参加本项目比选。 一、项目基本情况(详见第五章项目需求) 二、供应商资格要求 满足《中华人民共和国政府采购法》第二十二条规定； 特定资格条件：无。 三、行业类型：软件和信息技术服务业 四、比选文件的获取 获取时间：2026年4月14日起至提交响应文件截止时间前。 获取方式：在重庆海关官方网站 (ht
+原标题：经济热点快评｜前5月经济成绩单出炉，如何看待平稳中的“波动”？ 生产供给稳中有升、就业物价总体稳定，外贸韧性持续彰显……6月16日，前5月中国经济成绩单显示：今年1至5月，尽管国际环境复杂多变，国民经济延续总体平稳、向新向优的发展态势，发展韧性持续彰显。 与此同时，不少人注意到，在一系列数据中，投资、消费等需求端指标出现波动。比如，1至5月，全国固定资产投资同比下降4.
 
 ## 正文
 
-重庆海关对业务网络优化与安全运维服务采购项目进行比选，现邀请符合资格条件的供应商参加本项目比选。
+原标题：经济热点快评｜前5月经济成绩单出炉，如何看待平稳中的“波动”？
 
-一、项目基本情况(详见第五章项目需求) 二、供应商资格要求 满足《中华人民共和国政府采购法》第二十二条规定； 特定资格条件：无。
+生产供给稳中有升、就业物价总体稳定，外贸韧性持续彰显……6月16日，前5月中国经济成绩单显示：今年1至5月，尽管国际环境复杂多变，国民经济延续总体平稳、向新向优的发展态势，发展韧性持续彰显。
 
-三、行业类型：软件和信息技术服务业 四、比选文件的获取 获取时间：2026年4月14日起至提交响应文件截止时间前。
+与此同时，不少人注意到，在一系列数据中，投资、消费等需求端指标出现波动。
 
-获取方式：在重庆海关官方网站 (http://chongqing.customs.gov.cn)自行下载本项目的比选文件、答疑、补遗等与本项目有关的所有资料，并随时关注本项目相关修改或补充内容。
+比如，1至5月，全国固定资产投资同比下降4.1%；5月份，社会消费品零售总额同比下降0.6%。
 
-无论供应商下载与否，采购人都视为供应商已收到以上资料并全部知晓有关比选采购过程和事宜，由此产生的一切后果由供应商自负。
+对于这些“波动”，我们要理性客观看待，才能更好把握中国经济全貌和发展前景。
 
-售价：无。
+观察中国经济，既要看到总量、规模的变化，更要注重结构、质量的优化。
 
-五、响应文件的递交 凡有意参加的供应商，请于2026年4月21日12：00(北京时间)前，采取邮寄方式，将响应文件送达采购人(送达时间以采购人签收时间为准)，文件一正一副，并在封面右上角注明。
+先看投资。
 
-采购人收件信息：杨老师，023-67709604，重庆市渝北区龙山一路1号重庆海关。
+尽管前5月整体增速有所下降，但新兴产业投资实现了快速增长。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 06:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 06:19 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 06:01 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 06:08 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 06:20 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 06:13 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 06:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 05:54 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 06:11 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 05:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 06:16 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 06:20 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 06:14 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 06:23 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 06:04 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 06:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 06:26 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 06:17 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 06:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/38341.shtml)
-- 2026-06-30 06:19 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/59552426407.shtml)
-- 2026-06-30 06:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/615154.shtml)
-- 2026-06-30 05:56 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/9855639.shtml)
-- 2026-06-30 06:21 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/054072360432.shtml)
-- 2026-06-30 06:13 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/89564159521.shtml)
-- 2026-06-30 05:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/979744715.shtml)
-- 2026-06-30 06:10 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/695227572191.shtml)
-- 2026-06-30 06:03 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/54847413041.shtml)
-- 2026-06-30 06:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/872339.shtml)
-- 2026-06-30 06:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/9362956732.shtml)
-- 2026-06-30 06:02 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/8732571289.shtml)
-- 2026-06-30 06:07 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/64778349.shtml)
-- 2026-06-30 06:03 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/8684593.shtml)
-- 2026-06-30 06:11 - [沙丘](https://www.share.kurohicncr.top/Article/details/966983.shtml)
+- 2026-06-30 06:23 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/21830936172.shtml)
+- 2026-06-30 06:15 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/732112462229.shtml)
+- 2026-06-30 06:21 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/33105803424.shtml)
+- 2026-06-30 06:08 - [千香](http://www.share.kurohicncr.top/Article/details/630323711499.shtml)
+- 2026-06-30 06:18 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/34371957447.shtml)
+- 2026-06-30 06:23 - [巴西2比1日本](http://www.blog.minike.top/Article/details/2029223.shtml)
+- 2026-06-30 06:20 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/03449.shtml)
+- 2026-06-30 06:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/257868061605.shtml)
+- 2026-06-30 06:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/97203244.shtml)
+- 2026-06-30 06:07 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/916013.shtml)
+- 2026-06-30 06:17 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/71522981.shtml)
+- 2026-06-30 06:15 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/262928047253.shtml)
+- 2026-06-30 06:15 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/22419.shtml)
+- 2026-06-30 06:25 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/1836027.shtml)
+- 2026-06-30 06:07 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/3671450.shtml)

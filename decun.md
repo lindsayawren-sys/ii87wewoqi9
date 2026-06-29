@@ -1,57 +1,60 @@
-# 燃烧瓶+枪击接连上门，OpenAI CEO成了AI时代第一个被极端盯上的科技大佬
+# 太原汾河龙舟公开赛挥桨开赛
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：TechWeb 4月14日消息，据外媒报道，美国警方称，就在一名男子因涉嫌向 OpenAI 首席执行官萨姆・奥尔特曼位于旧金山的住所投掷燃烧瓶被捕两天后，其住宅再度遭枪击。奥尔特曼似乎成了AI时代第一个被极端人群盯上的科技大佬。 旧金山警方表示，周日凌晨，有两人涉嫌从一辆车内朝奥尔特曼住所开枪，警方已
+特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？十届南博会，一叶清茶何以架起文明对话之桥？中国沙漠治理经验，如何与世界共享？人工智能如何向善而行？为什么不能总挖鼻孔？专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
 
-来源：TechWeb 4月14日消息，据外媒报道，美国警方称，就在一名男子因涉嫌向 OpenAI 首席执行官萨姆・奥尔特曼位于旧金山的住所投掷燃烧瓶被捕两天后，其住宅再度遭枪击。
+十届南博会，一叶清茶何以架起文明对话之桥？
 
-奥尔特曼似乎成了AI时代第一个被极端人群盯上的科技大佬。
+中国沙漠治理经验，如何与世界共享？
 
-旧金山警方表示，周日凌晨，有两人涉嫌从一辆车内朝奥尔特曼住所开枪，警方已将这两人逮捕。
+人工智能如何向善而行？
 
-警方通报，25 岁的阿曼达・汤姆与 23 岁的穆罕默德・塔里克・侯赛因在旧金山另一处住所被顺利抓获，警方对该住所执行搜查令，查获三支枪支。
+为什么不能总挖鼻孔？
 
-目前尚不清楚嫌疑人是否刻意针对奥尔特曼住所作案。
+专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了1000块钱”“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
 
-据旧金山警方与 OpenAI 方面消息，周日这起枪击案发生前，奥尔特曼的住宅刚于上周五（4 月 10 日）遭遇燃烧瓶袭击。
+斯坦利·约翰逊：为何要重走马可·波罗之路？
 
-警方介绍，周五凌晨 4 时左右，有人向该住宅投掷纵火破坏性装置，导致外部门栏起火，所幸无人受伤。
+多边主义保障世界人权面临何种挑战与机遇？
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 06:14 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 05:59 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 06:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 06:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 06:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 05:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 06:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 06:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 06:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 06:28 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 06:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 06:09 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 06:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 06:28 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 06:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 06:21 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 06:20 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 06:09 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/71766515.shtml)
-- 2026-06-30 06:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/66441.shtml)
-- 2026-06-30 06:13 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/1446218.shtml)
-- 2026-06-30 06:03 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/877849.shtml)
-- 2026-06-30 05:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/566845873.shtml)
-- 2026-06-30 06:15 - [青春环游记第三季](https://www.blog.minike.top/Article/details/897775868386.shtml)
-- 2026-06-30 06:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/116096904582.shtml)
-- 2026-06-30 06:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/382061.shtml)
-- 2026-06-30 05:56 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/3825176226.shtml)
-- 2026-06-30 06:16 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/54592.shtml)
-- 2026-06-30 06:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/87756128.shtml)
-- 2026-06-30 06:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/780156675.shtml)
-- 2026-06-30 05:57 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/734384573.shtml)
-- 2026-06-30 06:17 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/800301546.shtml)
-- 2026-06-30 06:07 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/246813062525.shtml)
+- 2026-06-30 06:21 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/874424597.shtml)
+- 2026-06-30 06:05 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/69560408195.shtml)
+- 2026-06-30 06:21 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/659819545298.shtml)
+- 2026-06-30 06:18 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/67807051.shtml)
+- 2026-06-30 06:04 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/7916876709.shtml)
+- 2026-06-30 06:22 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/84513538.shtml)
+- 2026-06-30 06:17 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/411822850.shtml)
+- 2026-06-30 06:22 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/15676.shtml)
+- 2026-06-30 06:15 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/47566237.shtml)
+- 2026-06-30 06:17 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/9628999421.shtml)
+- 2026-06-30 06:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/64399853.shtml)
+- 2026-06-30 06:24 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/75427.shtml)
+- 2026-06-30 06:24 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/0353047880.shtml)
+- 2026-06-30 06:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/125821.shtml)
+- 2026-06-30 06:13 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/35996816859.shtml)

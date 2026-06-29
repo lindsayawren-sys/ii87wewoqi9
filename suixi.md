@@ -1,61 +1,58 @@
-# 长江有色：14日铝价大涨 下游畏高情绪明显
+# 联想拟择机回购股份 主动管理资本结构与摊薄影响
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-CCMN国际市场：今日伦铝触底反弹，LME三个月北京时间15：07报于3646.5美元/吨，较上一交易日结算价涨21.5美元/吨，涨幅0.59%。 国内期货：今日沪铝主力月2605合约早盘跳空高开拉升，午后盘面涨势放缓；开盘价报24840元/吨，盘中最高25110元/吨，最低24770元/吨，昨日结算24685元/吨，尾盘收至24870元/吨，涨185元，涨幅0.75%；沪铝主
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日晚间消息，联想集团晚间发布公告称，在计划发行新可换股债券的同时，公司拟同步回购部分或全部于2029年到期的6.75亿美元2.50%可换股债券，并有意在相关交易完成后，于市场上择机进行股份回购。 公告显示，联想计划利用新可转债发行所得款项，回购现有2029年可转债的部分或全部未偿还本金金额。公司已委
 
 ## 正文
 
-CCMN国际市场：今日伦铝触底反弹，LME三个月北京时间15：07报于3646.5美元/吨，较上一交易日结算价涨21.5美元/吨，涨幅0.59%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-国内期货：今日沪铝主力月2605合约早盘跳空高开拉升，午后盘面涨势放缓；开盘价报24840元/吨，盘中最高25110元/吨，最低24770元/吨，昨日结算24685元/吨，尾盘收至24870元/吨，涨185元，涨幅0.75%；沪铝主力月2605合约全天成交量224529手增加9510手，持仓量200610手减少3296手。
+6月17日晚间消息，联想集团晚间发布公告称，在计划发行新可换股债券的同时，公司拟同步回购部分或全部于2029年到期的6.75亿美元2.50%可换股债券，并有意在相关交易完成后，于市场上择机进行股份回购。
 
-CCMN现货市场评述：今日长江现货成交价格24730-24770元/吨，涨300元，贴水145-贴水105，跌5元；广东现货24615-24665元/吨，涨280元，贴水195-贴水145，跌30元；上海地区24720-24760元/吨，涨300元，贴水155-贴水115，跌5元。
+公告显示，联想计划利用新可转债发行所得款项，回购现有2029年可转债的部分或全部未偿还本金金额。
 
-宏观面：地缘局势复杂，市场情绪回暖 宏观层面，尽管周末在伊斯兰堡的美伊高层和平谈判已告破裂，但停火协议在技术上仍处于生效状态。
+公司已委任J.P． Morgan Securities （Asia Pacific） Limited及香港上海汇丰银行有限公司作为交易经办人，协助收集现有债券持有人的出售意向。
 
-美国副总统万斯表示，美方谈判已取得进展，目前“球在伊朗一边”。
+更值得关注的是，联想明确表示，为确保对现有股东权益不造成稀释影响，公司拟在建议债券发行及同步回购完成后，不时于市场上进行股份回购，回购规模将以不触发收购守则下全面要约责任为限。
 
-自2月28日战争爆发以来，霍尔木兹海峡的能源运输严重受阻，引发了全球能源供应的剧烈中断。
+公司也将在未来股东周年大会上寻求一般股份回购授权，以便在新可转债到期日前保留持续回购空间。
 
-这场战争不仅冲击实体经济，也正在颠覆全球各国央行的货币政策走向。
+市场人士认为，联想此次安排不仅是一次融资交易，更体现出公司在资本结构管理上的主动性。
 
-政策制定者正努力评估其对经济增长的负面影响及对通胀的刺激程度，市场对“滞胀”的担忧加剧。
+通过新债发行、旧债回购和股份回购相结合，联想有望在补充长期资本、支持AI及ISG等重点业务增长的同时，平衡潜在摊薄影响，进一步维护股东权益并提升资本使用效率。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 06:09 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 06:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 06:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 05:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 06:08 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 06:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 06:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 06:08 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 06:13 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 06:17 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 06:20 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 06:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 06:07 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 06:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 06:08 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 06:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 06:29 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 06:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 06:04 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 06:02 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 06:14 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 06:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 06:29 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/19382.shtml)
-- 2026-06-30 05:57 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/922453825.shtml)
-- 2026-06-30 06:14 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/452248281.shtml)
-- 2026-06-30 06:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/30966990.shtml)
-- 2026-06-30 06:11 - [天道](https://www.blog.kurohicncr.top/Article/details/4751696509.shtml)
-- 2026-06-30 05:56 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/31067.shtml)
-- 2026-06-30 05:57 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/284636704705.shtml)
-- 2026-06-30 06:13 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/350902.shtml)
-- 2026-06-30 06:01 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/04792.shtml)
-- 2026-06-30 06:12 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/967741.shtml)
-- 2026-06-30 06:08 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/153352604283.shtml)
-- 2026-06-30 05:59 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/605641748825.shtml)
-- 2026-06-30 06:08 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/060938.shtml)
-- 2026-06-30 05:57 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/0761563.shtml)
-- 2026-06-30 06:08 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/31862918.shtml)
+- 2026-06-30 06:16 - [爱很美味](https://www.share.minike.top/Article/details/6266499092.shtml)
+- 2026-06-30 06:07 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/60540944986.shtml)
+- 2026-06-30 06:05 - [极限挑战第一季](http://www.blog.minike.top/Article/details/45269058.shtml)
+- 2026-06-30 06:26 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/219359220.shtml)
+- 2026-06-30 06:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/04905.shtml)
+- 2026-06-30 06:19 - [月亮](http://www.blog.minike.top/Article/details/0894001.shtml)
+- 2026-06-30 06:00 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/97727870.shtml)
+- 2026-06-30 06:25 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/7787574.shtml)
+- 2026-06-30 06:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/605004.shtml)
+- 2026-06-30 06:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/18934605.shtml)
+- 2026-06-30 06:07 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/69361611830.shtml)
+- 2026-06-30 06:04 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/135648.shtml)
+- 2026-06-30 06:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/220331.shtml)
+- 2026-06-30 06:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/500713.shtml)
+- 2026-06-30 06:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/1002091451.shtml)

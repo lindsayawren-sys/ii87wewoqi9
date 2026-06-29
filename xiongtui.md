@@ -1,57 +1,57 @@
-# 探馆消博会：从39.9元到20万元，AI智能设备“立等可买”
+# 欧洲央行行长拉加德发出警告 称AI对金融稳定构成巨大风险
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网海口4月14日电 (记者 王晓斌)第六届中国国际消费品博览会(下称消博会)正在海口举办，60多个国家和地区超过3400个品牌参展。记者走进展馆，发现今年现场的AI智能设备有一个共同的特征：贴着价签，立等可买。从每月几十元的订阅服务，到售价约20万元的商用机器人，AI相关产品正在招揽不同需求的消费者。 记者在现场看到的最低门槛，是39.9元一个月。 中国移动今年推出的“灵犀
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。 “即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的
 
 ## 正文
 
-中新网海口4月14日电 (记者 王晓斌)第六届中国国际消费品博览会(下称消博会)正在海口举办，60多个国家和地区超过3400个品牌参展。
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。
 
-记者走进展馆，发现今年现场的AI智能设备有一个共同的特征：贴着价签，立等可买。
+“即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。
 
-从每月几十元的订阅服务，到售价约20万元的商用机器人，AI相关产品正在招揽不同需求的消费者。
+“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。
 
-记者在现场看到的最低门槛，是39.9元一个月。
+” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的动荡。
 
-中国移动今年推出的“灵犀屏”，是一款可以在家中随意移动的屏幕终端，整合了电视、音箱、平板、云电脑和视频电话功能。
+拉加德表示：“在近代史上，有一种力量摧毁的就业岗位、吞噬的储蓄比科技还要多，这种力量就是金融危机。
 
-该公司杭州研发中心品牌运营张晓艺介绍，用户对着屏幕说想看什么节目、想视频通话，内置智能体都能响应，“以前的智能设备是固定在某个地方的，这个可以屏随人走”。
+”“随着这些系统变得更加强大，它们正在越来越深入地扩展到经济之中。
 
-相关产品资费39.9元/月，可现场办理。
+” 拉加德表示，我们这个时代的重大问题，是理解这项新技术可能对金融稳定意味着什么，以及如何保护居民和企业。
 
-往上走，不到500元可以买一副AI耳机。
+欧洲央行已经让109家银行接受了一项重大网络攻击情景测试，所发现的大多数弱点已经得到解决。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 06:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 06:08 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 05:55 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 05:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 06:11 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 06:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 05:56 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 06:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 06:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 06:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 06:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:17 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 06:21 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 06:22 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 06:10 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 06:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 06:09 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 06:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 06:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 06:24 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/46594795.shtml)
-- 2026-06-30 06:07 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/0526965.shtml)
-- 2026-06-30 05:56 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/6063595.shtml)
-- 2026-06-30 06:18 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/314861120697.shtml)
-- 2026-06-30 05:58 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/86335438436.shtml)
-- 2026-06-30 06:20 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/93549581484.shtml)
-- 2026-06-30 06:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/81810.shtml)
-- 2026-06-30 06:21 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/58016177.shtml)
-- 2026-06-30 05:58 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/98904927483.shtml)
-- 2026-06-30 06:21 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/406605440651.shtml)
-- 2026-06-30 06:00 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6257916.shtml)
-- 2026-06-30 06:23 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/74369.shtml)
-- 2026-06-30 06:13 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/744337.shtml)
-- 2026-06-30 06:01 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/27232772125.shtml)
-- 2026-06-30 06:03 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/439826833.shtml)
+- 2026-06-30 06:29 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/21688658505.shtml)
+- 2026-06-30 06:10 - [极限挑战第一季](https://www.share.minike.top/Article/details/677488418962.shtml)
+- 2026-06-30 06:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/903527464981.shtml)
+- 2026-06-30 06:28 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/99213163.shtml)
+- 2026-06-30 06:21 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/27156059673.shtml)
+- 2026-06-30 06:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/59708243233.shtml)
+- 2026-06-30 06:24 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/5927920.shtml)
+- 2026-06-30 06:06 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/84550388920.shtml)
+- 2026-06-30 06:03 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/308572.shtml)
+- 2026-06-30 06:05 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/91459.shtml)
+- 2026-06-30 06:25 - [金牌调解](http://www.share.minike.top/Article/details/52256558568.shtml)
+- 2026-06-30 06:01 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/141869.shtml)
+- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/377143330446.shtml)
+- 2026-06-30 06:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/72948.shtml)
+- 2026-06-30 06:05 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/59821403145.shtml)

@@ -1,49 +1,55 @@
-# 科大讯飞（002230）：中标西安市教育考试中心采购项目，中标金额为128.00万元
+# 港股黄金股普跌，潼关黄金跌超7%，美联储放鹰美元站上100关口
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-同壁财经讯，企查查数据显示，根据《西安市教育考试中心初中学业水平考试阅卷服务中标（成交）结果公告》，科大讯飞股份有限公司于2026年4月15日公告中标西安市教育考试中心采购项目，中标金额为128.00万元。相关上市公司：科大讯飞(002230.SZ)同壁财经小贴士：科大讯飞（002230.SZ）2024年营业收入为233.43亿元，营业收入增长率为18.79%，归属母公司净利润
+6月18日消息，港股黄金股集体下跌，其中，潼关黄金、招金矿业跌超7%，中国黄金国际、山东黄金、赤峰黄金、灵宝黄金、紫金黄金国际跌超6%。 消息上，北京时间今日凌晨，美联储连续第四次维持基准利率在3.50%-3.75%区间不变，但点阵图释放出明显鹰派信号。19位决策官员中已有9人认为今年需要加息，中位数预测将2026年利率路径从降息转为加息。新任主席沃什的表态被认为比前任鲍威尔更
 
 ## 正文
 
-同壁财经讯，企查查数据显示，根据《西安市教育考试中心初中学业水平考试阅卷服务中标（成交）结果公告》，科大讯飞股份有限公司于2026年4月15日公告中标西安市教育考试中心采购项目，中标金额为128.00万元。
+6月18日消息，港股黄金股集体下跌，其中，潼关黄金、招金矿业跌超7%，中国黄金国际、山东黄金、赤峰黄金、灵宝黄金、紫金黄金国际跌超6%。
 
-相关上市公司：科大讯飞(002230.SZ)同壁财经小贴士：科大讯飞（002230.SZ）2024年营业收入为233.43亿元，营业收入增长率为18.79%，归属母公司净利润为5.60亿元，归属母公司净利润增长率为-14.78%，净资产收益率为3.21%。
+消息上，北京时间今日凌晨，美联储连续第四次维持基准利率在3.50%-3.75%区间不变，但点阵图释放出明显鹰派信号。
 
-2025年上半年公司营业收入为109.11亿元，营业收入增长率为17.01%，归属母公司净利润为-2.39亿元，归属母公司净利润增长率为40.37%。
+19位决策官员中已有9人认为今年需要加息，中位数预测将2026年利率路径从降息转为加息。
 
-目前公司属于信息技术行业，主要产品类型为互联网服务、教育培训服务、其他消费电子产品，2024年报主营构成为教育产品和服务:30.97%;开放平台:22.16%;智能硬件产品:8.67%;运营商大数据:8.14%;信息工程:7.21%;数字政府行业应用:5.12%;智慧汽车:4.24%;智慧政法行业应用:3.16%;互联网运营服务:2.96%;智慧医疗:2.96%;智慧金融产品和解决方案:2.75%;其他:1.38%;其他业务:0.28%。
+新任主席沃什的表态被认为比前任鲍威尔更加鹰派，直接导致美元指数站上100关口。
+
+受此影响，COMEX 8月黄金期货收跌近4.7%，创2020年11月以来主力合约最大单日跌幅，报1774.80美元/盎司，创4月30日以来收盘新低。
+
+现货黄金一度跌超2%触及4219美元的低点。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 06:00 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 06:00 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 06:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 05:58 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 06:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 05:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 06:06 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 06:15 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 06:13 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 06:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 06:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 06:08 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 06:14 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 06:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 06:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 06:28 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 06:21 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 06:05 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 06:00 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/59344106.shtml)
-- 2026-06-30 06:06 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/05748119.shtml)
-- 2026-06-30 05:56 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/146414193.shtml)
-- 2026-06-30 06:22 - [一生一世](https://www.share.kurohicncr.top/Article/details/630048.shtml)
-- 2026-06-30 06:23 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/171271056.shtml)
-- 2026-06-30 06:01 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/390599531.shtml)
-- 2026-06-30 06:17 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/205876.shtml)
-- 2026-06-30 06:14 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/89386207429.shtml)
-- 2026-06-30 06:04 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/4029310.shtml)
-- 2026-06-30 06:10 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/02036.shtml)
-- 2026-06-30 05:58 - [小娘惹](https://www.share.minike.top/Article/details/949136100.shtml)
-- 2026-06-30 06:15 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/4222801994.shtml)
-- 2026-06-30 06:08 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/96335212918.shtml)
-- 2026-06-30 05:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/346607595127.shtml)
-- 2026-06-30 06:22 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/287738299420.shtml)
+- 2026-06-30 06:17 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/67669.shtml)
+- 2026-06-30 06:17 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/398235752.shtml)
+- 2026-06-30 06:11 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/43063.shtml)
+- 2026-06-30 06:12 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/536978.shtml)
+- 2026-06-30 06:11 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/01557138858.shtml)
+- 2026-06-30 06:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/20444758.shtml)
+- 2026-06-30 06:28 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/003275443.shtml)
+- 2026-06-30 06:23 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/11410692762.shtml)
+- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/28461579438.shtml)
+- 2026-06-30 06:03 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/03118272460.shtml)
+- 2026-06-30 06:22 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/1064550521.shtml)
+- 2026-06-30 06:02 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/18076345445.shtml)
+- 2026-06-30 06:04 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/9949813.shtml)
+- 2026-06-30 06:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/60941367.shtml)
+- 2026-06-30 06:15 - [绘画区你赢了](http://www.blog.minike.top/Article/details/414653.shtml)

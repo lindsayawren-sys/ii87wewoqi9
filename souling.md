@@ -1,49 +1,55 @@
-# 伊朗总统赞扬中国等6国反战立场
+# “上海—苏黎世”直飞航线开通 搭建中欧互联新通道
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月14日电 伊朗总统佩泽希齐扬14日在社交媒体发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。 佩泽希齐扬在帖文中说，“文明的本质会在关键的历史节点上得以彰显”。上述6国的立场“源于它们深厚的文化和历史根基”。
+6月18日1时55分，东航MU255航班从上海浦东国际机场起飞，首航飞赴瑞士苏黎世。 据悉，东航“上海—苏黎世”航线每周二、四、日执飞。去程航班MU255计划于北京时间01:55从上海浦东国际机场起飞，当地时间07:55抵达苏黎世国际机场；回程航班MU256于当地时间14:05起飞，北京时间次日06:40抵达上海。 据了解，本次“上海—苏黎世”直飞航线的开通，是东航继2025年
 
 ## 正文
 
-新华社德黑兰4月14日电 伊朗总统佩泽希齐扬14日在社交媒体发文，赞扬西班牙、中国、俄罗斯、土耳其、意大利、埃及6国所展现的反战立场。
+6月18日1时55分，东航MU255航班从上海浦东国际机场起飞，首航飞赴瑞士苏黎世。
 
-佩泽希齐扬在帖文中说，“文明的本质会在关键的历史节点上得以彰显”。
+据悉，东航“上海—苏黎世”航线每周二、四、日执飞。
 
-上述6国的立场“源于它们深厚的文化和历史根基”。
+去程航班MU255计划于北京时间01:55从上海浦东国际机场起飞，当地时间07:55抵达苏黎世国际机场；回程航班MU256于当地时间14:05起飞，北京时间次日06:40抵达上海。
+
+据了解，本次“上海—苏黎世”直飞航线的开通，是东航继2025年开通“上海—日内瓦”航线后执飞的第二条瑞士航线，是推动中瑞两国经贸协作、文化互鉴、旅游互通的重要窗口，为中欧双向交流注入全新动力与活力。
+
+(总台央视记者 曹丹 肖冰毅)
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 06:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 06:21 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 06:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 05:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 06:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 06:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 06:03 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 06:23 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 06:03 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 06:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 06:22 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 06:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 06:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 06:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 06:10 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 06:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 06:08 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 06:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 06:06 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 06:14 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 06:23 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 06:22 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:06 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 06:22 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/95469643.shtml)
-- 2026-06-30 06:14 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/30942746080.shtml)
-- 2026-06-30 05:58 - [85花告别古偶](https://www.blog.minike.top/Article/details/70397858.shtml)
-- 2026-06-30 06:21 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/81779.shtml)
-- 2026-06-30 06:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/903775599.shtml)
-- 2026-06-30 06:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/67102431996.shtml)
-- 2026-06-30 06:00 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/530213493884.shtml)
-- 2026-06-30 05:56 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/25257425.shtml)
-- 2026-06-30 06:23 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/039911247194.shtml)
-- 2026-06-30 06:13 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/7194235.shtml)
-- 2026-06-30 05:57 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/4970741.shtml)
-- 2026-06-30 06:09 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/0133033.shtml)
-- 2026-06-30 06:01 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/91029790040.shtml)
-- 2026-06-30 05:54 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/786471.shtml)
-- 2026-06-30 06:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/478270314271.shtml)
+- 2026-06-30 06:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/659030813.shtml)
+- 2026-06-30 06:23 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/6028777.shtml)
+- 2026-06-30 06:17 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/250956727923.shtml)
+- 2026-06-30 06:08 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/2813454.shtml)
+- 2026-06-30 06:12 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/6189142673.shtml)
+- 2026-06-30 06:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/87884.shtml)
+- 2026-06-30 06:10 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/244406680168.shtml)
+- 2026-06-30 06:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/290516130894.shtml)
+- 2026-06-30 06:06 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/6509275.shtml)
+- 2026-06-30 06:19 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/00054470457.shtml)
+- 2026-06-30 06:04 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/950860927599.shtml)
+- 2026-06-30 06:24 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/26236022.shtml)
+- 2026-06-30 06:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/297128.shtml)
+- 2026-06-30 06:12 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/3097138662.shtml)
+- 2026-06-30 06:06 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/051938.shtml)

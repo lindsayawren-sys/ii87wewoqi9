@@ -1,58 +1,57 @@
-# 第139届广交会开幕在即 布展工作有序进行
+# 新加坡电子产品出口创历史最高增速 得益于人工智能相关需求旺盛
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 22:12 来源：中国新闻网 第139届中国进出口商品交易会(广交会)将于4月15日至5月5日在广州分三期举办。4月13日，记者走进广交会展馆看到，工作人员穿梭于各展区之间，进行布展、调试设备等工作。据介绍，本届广交会展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家，均超往届水平。其中，约3900家企业首次亮相。本届广交会展
+受全球对人工智能AI相关设备强劲需求的推动，新加坡上个月的电子产品出口额创下历史最大增幅。 据新加坡企业发展局周三的数据，5月份出货金额较一年前增长近95%，至71亿新元（55亿美元）。集成电路仍是主要驱动力，增幅近81%。这个城市国家的非石油国内出口总额增长了38%。 今年对半导体、电子产品和其他AI相关产品的需求激增，推动了包括韩国、日本等亚洲经济体的发展。 责任编辑：江学
 
 ## 正文
 
-发布时间：2026年04月13日 22:12 来源：中国新闻网 第139届中国进出口商品交易会(广交会)将于4月15日至5月5日在广州分三期举办。
+受全球对人工智能AI相关设备强劲需求的推动，新加坡上个月的电子产品出口额创下历史最大增幅。
 
-4月13日，记者走进广交会展馆看到，工作人员穿梭于各展区之间，进行布展、调试设备等工作。
+据新加坡企业发展局周三的数据，5月份出货金额较一年前增长近95%，至71亿新元（55亿美元）。
 
-据介绍，本届广交会展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家，均超往届水平。
+集成电路仍是主要驱动力，增幅近81%。
 
-其中，约3900家企业首次亮相。
+这个城市国家的非石油国内出口总额增长了38%。
 
-本届广交会展品专区增至179个，首次增设智能穿戴、显示技术、消费级无人机、集成房屋及庭院设施等9个专区。
+今年对半导体、电子产品和其他AI相关产品的需求激增，推动了包括韩国、日本等亚洲经济体的发展。
 
-本届广交会拥有专精特新、单项冠军等称号的优质企业超1.1万家，增长5.1%，超往届水平。
-
-其中，61%的企业在生产或服务中应用了工业互联网、人工智能、5G、绿色低碳等新技术新模式。
-
-此外，本届广交会将举办超600场新品发布活动、9场主题论坛、15场“贸易之桥”供采对接活动、15场“好宝好妮探广交”，为企业搭建交流合作、拓展市场的平台。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 06:12 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 06:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 05:57 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 05:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 06:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 05:57 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 06:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 06:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 06:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 06:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 06:08 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 06:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 06:19 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 06:18 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 06:15 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 06:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 06:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 06:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 06:15 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 06:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 06:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 06:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 06:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 06:22 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/8255028527.shtml)
-- 2026-06-30 06:16 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/992100130.shtml)
-- 2026-06-30 06:00 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/39011522.shtml)
-- 2026-06-30 06:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/91331559192.shtml)
-- 2026-06-30 06:09 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/65593.shtml)
-- 2026-06-30 06:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/07533.shtml)
-- 2026-06-30 06:06 - [恋与深空回应争议](http://www.share.minike.top/Article/details/4730590109.shtml)
-- 2026-06-30 05:54 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/324732986.shtml)
-- 2026-06-30 06:01 - [苗族银饰](http://www.share.minike.top/Article/details/6005216245.shtml)
-- 2026-06-30 06:12 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/77473534.shtml)
-- 2026-06-30 06:04 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/476898549140.shtml)
-- 2026-06-30 06:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/3728112530.shtml)
-- 2026-06-30 05:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/15375872499.shtml)
-- 2026-06-30 06:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/8878943050.shtml)
-- 2026-06-30 06:09 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/9350984680.shtml)
+- 2026-06-30 06:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/56888072.shtml)
+- 2026-06-30 06:29 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/954512.shtml)
+- 2026-06-30 06:13 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/06261.shtml)
+- 2026-06-30 06:12 - [千香](https://www.blog.minike.top/Article/details/83592592.shtml)
+- 2026-06-30 06:24 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/79349862.shtml)
+- 2026-06-30 06:09 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/9714681313.shtml)
+- 2026-06-30 06:16 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/881679660821.shtml)
+- 2026-06-30 06:26 - [急先锋](http://www.share.minike.top/Article/details/38738.shtml)
+- 2026-06-30 06:23 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/01164369239.shtml)
+- 2026-06-30 06:01 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/97368042065.shtml)
+- 2026-06-30 06:06 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/89727.shtml)
+- 2026-06-30 06:25 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/480195171233.shtml)
+- 2026-06-30 06:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/61690306523.shtml)
+- 2026-06-30 06:20 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/73128.shtml)
+- 2026-06-30 06:10 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/860242628.shtml)

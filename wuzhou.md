@@ -1,57 +1,58 @@
-# 随着钻井平台恢复作业，Borr Drilling预计业务量将增加
+# 从“特许经营”到“品牌拥有”：百胜中国12亿美元买断必胜客中国大陆所有权
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-海上钻井承包商Borr Drilling表示，随着该公司在东南亚获得一份新合同，其在中东的数座钻井平台在近期中断后正在恢复作业。 该公司表示，Arabia III号自升式钻井平台已于3月底在沙特阿拉伯近海恢复作业，而位于卡塔尔的Groa号和位于阿拉伯联合酋长国的Arabia II号预计将于4月内重启。 该地区的第四座钻井平台Forseti号也正准备在第三方租约下恢复在卡塔尔的作
+2026年6月16日，中国最大的餐饮集团百胜中国控股有限公司（纽交所代码：YUMC；港交所代码：9987）宣布，已与Yum！ Brands签署最终协议，以12亿美元现金对价收购必胜客品牌在中国大陆的所有权。 同日，Yum！ Brands宣布以总计27亿美元的价格分两笔交易出售必胜客业务——私募股权公司LongRange Capital以约15亿美元收购除中国大陆以外的必胜客全球
 
 ## 正文
 
-海上钻井承包商Borr Drilling表示，随着该公司在东南亚获得一份新合同，其在中东的数座钻井平台在近期中断后正在恢复作业。
+2026年6月16日，中国最大的餐饮集团百胜中国控股有限公司（纽交所代码：YUMC；港交所代码：9987）宣布，已与Yum！
 
-该公司表示，Arabia III号自升式钻井平台已于3月底在沙特阿拉伯近海恢复作业，而位于卡塔尔的Groa号和位于阿拉伯联合酋长国的Arabia II号预计将于4月内重启。
+Brands签署最终协议，以12亿美元现金对价收购必胜客品牌在中国大陆的所有权。
 
-该地区的第四座钻井平台Forseti号也正准备在第三方租约下恢复在卡塔尔的作业。
+同日，Yum！
 
-在美洲湾，因额外维护工作而延迟后，Odin钻井平台目前预计将于4月开始履行与Cantium的合同。
+Brands宣布以总计27亿美元的价格分两笔交易出售必胜客业务——私募股权公司LongRange Capital以约15亿美元收购除中国大陆以外的必胜客全球业务。
 
-在东南亚，Borr Drilling的Skald钻井平台已收到一家未披露运营商的有约束力的授标函，项目预计将于2026年第二季度启动，持续约六个月。
+两项交易预计将于2026年第三季度完成。
 
-该公司表示，其2026年全年的合同覆盖率为70%，平均日费约为13.4万美元，其中上半年覆盖率为78%，下半年为62%。
+受此消息影响，Yum！
 
-Borr Drilling首席执行官布鲁诺·莫兰德表示：“近期事件持续营造出一种环境，大宗商品价格高企以及对能源安全的新关注预计将加速钻井平台的活动。
+Brands美股上涨2.06%，百胜中国下跌2.1%。
 
-我们近期与客户的讨论证实了这一趋势的早期迹象，我们观察到在授予现有招标和推进某些钻探计划方面出现了一种更强的紧迫感。
+交易完成后，百胜中国将从必胜客品牌在中国大陆的“独家特许经营商”正式转变为“品牌所有者”。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 06:18 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 06:14 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 06:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 06:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 06:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 06:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 05:55 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 05:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 06:15 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 06:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 06:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 06:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 06:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 06:15 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 06:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 06:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 06:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 06:20 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 06:20 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 06:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 06:10 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 06:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/704367519055.shtml)
-- 2026-06-30 05:59 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/90814685583.shtml)
-- 2026-06-30 05:58 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/205917.shtml)
-- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/91348135118.shtml)
-- 2026-06-30 06:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/031111.shtml)
-- 2026-06-30 06:04 - [恋与深空 日服](http://www.share.minike.top/Article/details/43194275615.shtml)
-- 2026-06-30 06:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/3790529.shtml)
-- 2026-06-30 06:13 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/8622730252.shtml)
-- 2026-06-30 06:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/27893362362.shtml)
-- 2026-06-30 06:09 - [送你一朵小红花](http://www.share.minike.top/Article/details/22129350.shtml)
-- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/19933957316.shtml)
-- 2026-06-30 06:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/787533056.shtml)
-- 2026-06-30 06:16 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/999601.shtml)
-- 2026-06-30 06:22 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/50887963739.shtml)
-- 2026-06-30 06:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/50201825.shtml)
+- 2026-06-30 06:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/375795746986.shtml)
+- 2026-06-30 06:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/0482958.shtml)
+- 2026-06-30 06:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/598013.shtml)
+- 2026-06-30 06:24 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/6969286.shtml)
+- 2026-06-30 06:29 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/438400375878.shtml)
+- 2026-06-30 06:15 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/45110296458.shtml)
+- 2026-06-30 06:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/09344230831.shtml)
+- 2026-06-30 06:09 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/386222.shtml)
+- 2026-06-30 06:09 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/026966061.shtml)
+- 2026-06-30 06:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/83619258.shtml)
+- 2026-06-30 06:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/52288698.shtml)
+- 2026-06-30 06:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/19358058.shtml)
+- 2026-06-30 06:25 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/77560642301.shtml)
+- 2026-06-30 06:18 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/81934.shtml)
+- 2026-06-30 06:20 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/46691856235.shtml)

@@ -1,61 +1,59 @@
-# 在沪台青走进上海京剧传习馆 感受中华文化之美
+# 国家禁毒办：2025年破获毒品犯罪案件2.7万起
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新网上海4月14日电 (范宇斌)近日，上海市台联、上海中华文化学院、上海京剧院联合举办“在沪台青台生中华文化行——走进上海京剧传习馆”主题活动。本次活动是“台联四季情”系列活动之一，吸引近50名来自各行各业的在沪青年台胞及高校台生参与。 活动期间，在沪台青台生走进上海新天地，在石库门里弄与摩天楼宇古今交融的景致中，触摸老上海的历史肌理，感受新时代城市发展脉搏；参访太平洋新天地
+中新网北京6月17日电(记者 国璇) 国家禁毒办17日在北京召开新闻发布会，发布《2025年中国毒情形势报告》。报告显示，2025年禁毒工作取得显著成效，全国毒情形势持续稳中向好，全年共破获毒品犯罪案件2.7万起、抓获犯罪嫌疑人4.1万名，同比分别下降27.6%、33%；缴获毒品33.5吨，同比上升25.4%；查处吸毒人员13.4万人次，同比下降30.3%。国家禁毒办常务副主任
 
 ## 正文
 
-中新网上海4月14日电 (范宇斌)近日，上海市台联、上海中华文化学院、上海京剧院联合举办“在沪台青台生中华文化行——走进上海京剧传习馆”主题活动。
+中新网北京6月17日电(记者 国璇) 国家禁毒办17日在北京召开新闻发布会，发布《2025年中国毒情形势报告》。
 
-本次活动是“台联四季情”系列活动之一，吸引近50名来自各行各业的在沪青年台胞及高校台生参与。
+报告显示，2025年禁毒工作取得显著成效，全国毒情形势持续稳中向好，全年共破获毒品犯罪案件2.7万起、抓获犯罪嫌疑人4.1万名，同比分别下降27.6%、33%；缴获毒品33.5吨，同比上升25.4%；查处吸毒人员13.4万人次，同比下降30.3%。
 
-活动期间，在沪台青台生走进上海新天地，在石库门里弄与摩天楼宇古今交融的景致中，触摸老上海的历史肌理，感受新时代城市发展脉搏；参访太平洋新天地观光厅，俯瞰城市天际线，切身感受这座国际大都市蓬勃的发展活力。
+国家禁毒办常务副主任、公安部禁毒局局长魏晓军在会上介绍说，2025年，全国禁毒部门统筹境内境外两条战线、网上网下两个战场，深入开展“清源断流”专项行动。
 
-互动交流环节，在沪台青台生通过趣味闯关游戏，在欢声笑语中增进彼此默契、缔结深厚情谊，现场氛围融洽热烈。
+深化“净边”行动，严密陆海空邮毒品查缉体系，有力遏制毒品走私入境，缴获来自“金三角”地区毒品18.7吨；深化“除冰肃毒”行动，破获国内制毒案件134起，缴获毒品5.3吨，规模化制毒活动得到有效遏制。
 
-在沪台青台生还走进上海京剧传习馆，聆听悠扬京韵、品味国粹之美，沉浸式欣赏《贵妃醉酒》《三岔口》等经典京剧选段。
+在毒品滥用治理方面，截至2025年底，全国现有吸毒人员65.8万名，同比下降11.9%；戒断三年以上未发现复吸人员440.3万名，同比上升2.7%，治理成果持续巩固。
 
-大家还在专业演员的指导下习身段、舞刀剑，近距离感受非遗魅力。
+在防范青少年药物滥用方面，魏晓军指出，青少年防范药物滥用的认知能力明显提升，2025年新发现35岁以下青少年吸毒人数同比下降41.6%。
 
-一整天内容丰富的沉浸式体验，让在沪台青台生纷纷表示活动充实有趣、氛围轻松融洽，在行走中读懂上海，在体验中感悟中华优秀传统文化。
+国家禁毒办副主任、公安部禁毒局副局长高伟表示，为促进广大人民群众尤其是青少年进一步提升识毒防毒拒毒能力，国家禁毒委员会部署从今年6月至12月在全国开展“你我参与 守护未来 防范青少年药物滥用”集中宣传教育活动。
 
-此次京剧传习馆之行，既是一场特色艺术体验，更是一次深刻的文化溯源之旅，帮助在沪台青台生深入领略国粹艺术的博大精深，真切体会两岸同根同源的文化根脉，主动走近、了解并参与中华优秀传统文化的传承与弘扬。
+发布会还公布了2025年公安禁毒部门打击毒品犯罪十大典型案例，包括中泰美侦破“集盛轮”特大海上走私毒品案、辽宁侦破“部目标2025-49”号毒品案件和上海侦破“部目标2021-87”号毒品案件等。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 05:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 06:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 06:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 06:14 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 06:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 06:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 06:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 06:19 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 05:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 05:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 06:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 05:57 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 06:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 06:17 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 06:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 06:00 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 06:03 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 06:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 06:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 06:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 06:08 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 06:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 06:06 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 06:13 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 06:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [巴西2比1日本](https://www.share.minike.top/Article/details/4749096.shtml)
-- 2026-06-30 06:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/88405852347.shtml)
-- 2026-06-30 06:12 - [森保一 保守](https://www.share.minike.top/Article/details/953411.shtml)
-- 2026-06-30 06:16 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/42340246869.shtml)
-- 2026-06-30 06:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/7456312.shtml)
-- 2026-06-30 06:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/66390.shtml)
-- 2026-06-30 06:12 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/0958082059.shtml)
-- 2026-06-30 05:55 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/5598519.shtml)
-- 2026-06-30 06:22 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/3162993.shtml)
-- 2026-06-30 05:55 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/564036283.shtml)
-- 2026-06-30 06:13 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/9599834300.shtml)
-- 2026-06-30 06:18 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/823328350659.shtml)
-- 2026-06-30 05:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/61503.shtml)
-- 2026-06-30 06:00 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/24642469.shtml)
-- 2026-06-30 06:00 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/2809931.shtml)
+- 2026-06-30 06:00 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/3854285890.shtml)
+- 2026-06-30 06:20 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/272708.shtml)
+- 2026-06-30 06:07 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/939375.shtml)
+- 2026-06-30 06:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/11713007.shtml)
+- 2026-06-30 06:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/814835040280.shtml)
+- 2026-06-30 06:09 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/21564237337.shtml)
+- 2026-06-30 06:06 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/95275.shtml)
+- 2026-06-30 06:07 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/8868751421.shtml)
+- 2026-06-30 06:21 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/37290.shtml)
+- 2026-06-30 06:11 - [一生一世](http://www.share.kurohicncr.top/Article/details/60057482.shtml)
+- 2026-06-30 06:22 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/03790.shtml)
+- 2026-06-30 06:06 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/5057083546.shtml)
+- 2026-06-30 06:17 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/75747923689.shtml)
+- 2026-06-30 06:23 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/844314323.shtml)
+- 2026-06-30 06:26 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/4278942253.shtml)

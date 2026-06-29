@@ -1,56 +1,56 @@
-# 干货，业绩连续3年高增长股出炉，最强牛股已涨超37倍
+# 长江有色：17日氧化铝期价收涨0.73% 下游刚需成交偏弱
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！年报季大幕拉开，一批公司展现出连续3年净利润高增长的强劲势头，凸显其穿越周期的经营韧性。 沪电股份股价涨停 创历史新高 4月14日早盘，沪电股份（002463）股价大幅高开，开盘20分钟内封住涨停板，涨停板封单一度超过20万手，最新股价创历史新高。该公司为PCB龙头，2025年实现净利润38.22亿元，同比
+长江有色金属网 长江有色网6月17日讯，今日氧化铝所有合约涨跌不一，主力2609合约早盘高开走弱，午后盘面反弹走强；截止当日15：00收盘，氧化铝主力月2609合约报2914元，涨21元，涨幅0.73%；加权合约累计成交389165手，比前一交易日增加20466手，涨幅5.55%；持仓量417203手增加6625手，涨幅1.61%。 今日国内氧化铝现货价格部分地区上涨；据长江有
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色金属网 长江有色网6月17日讯，今日氧化铝所有合约涨跌不一，主力2609合约早盘高开走弱，午后盘面反弹走强；截止当日15：00收盘，氧化铝主力月2609合约报2914元，涨21元，涨幅0.73%；加权合约累计成交389165手，比前一交易日增加20466手，涨幅5.55%；持仓量417203手增加6625手，涨幅1.61%。
 
-年报季大幕拉开，一批公司展现出连续3年净利润高增长的强劲势头，凸显其穿越周期的经营韧性。
+今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，6月17日氧化铝华南地区每吨报2700-2750元之间，与前一交易日报价持平；华东地区氧化铝每吨报2740-2780元之间，与前一交易日报价涨20元；西南地区氧化铝每吨2755-2795元之间，与前一交易日报价持平；西北地区氧化铝每吨报3070-3110元之间，与前一交易日报价涨10元。
 
-沪电股份股价涨停 创历史新高 4月14日早盘，沪电股份（002463）股价大幅高开，开盘20分钟内封住涨停板，涨停板封单一度超过20万手，最新股价创历史新高。
+今日上期所氧化铝期货主力2609合约先抑后扬，日间交易收涨0.73%，国内氧化铝现货价格部分地区上涨； 宏观层面，美伊临时和平协议即将签署，能源供应冲击与通胀担忧继续降温，美元避险买需受抑，但美联储周三议息（沃什首秀）前市场偏谨慎，全球股市分化、风险偏好不稳。
 
-该公司为PCB龙头，2025年实现净利润38.22亿元，同比增长47.74%。
+山西部分氧化铝厂受赤泥库隐患排查影响短暂停限产，几内亚铝土矿出口配额细则出台预期继续扰动盘面，氧化铝期价相对有韧性；但整体过剩及高库存格局未改，短期仍面临区间调整压力。
 
-就在4月13日晚间，沪电股份发布2026年一季度业绩预告，公司预计今年一季度净利润为11.8亿元至12.6亿元，同比增长54.76 %至65.25%。
+基本面多空交织。
 
-报告期内，受益于高速运算服务器、人工智能等新兴计算场景对印制电路板的结构性需求，依托平衡的产品布局以及深耕多年的中高阶产品与量产技术，公司营业收入和净利润较上年同期均将有所增长。
+供给端：前期检修产能部分恢复与广西新产能投产爬坡，全国氧化铝运行产能增至9230万吨/年，周产量169.8万吨，总库存环比大增13.9万吨至702.4万吨（港口同步累积、海外货源持续到港施压）；上期所仓单高位且6月临期仓单超15万吨无法转抛远月、现货抛压隐现。
 
-业绩连续3年高增长股出炉 随着2026年4月中旬的到来，A股市场正式步入2025年年报披露的高峰期。
+潜在支撑：几内亚铝土矿出口配额传闻（上限1.5亿吨/年）及山西非煤矿山、赤泥库隐患排查（涉及约200万吨/年产能）提供低位情绪支撑，但短期难改宽松格局。
 
-在宏观经济环境复杂多变的背景下，那些能够持续实现业绩高速增长的企业尤为引人注目。
+需求端：国内电解铝运行产能逼近4500万吨天花板、开工率近99%，对氧化铝形成刚性消耗托底；受铝价高位震荡、冶炼利润环比收窄影响，铝厂采购趋保守，以执行长单刚需为主，现货无集中补库。
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 06:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 06:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 06:11 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 05:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 05:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 06:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 06:04 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 06:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 06:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 06:17 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 06:20 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 06:09 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 06:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 06:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 06:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 06:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 06:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 06:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/5099516547.shtml)
-- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/123486808666.shtml)
-- 2026-06-30 06:14 - [美股](https://www.blog.kurohicncr.top/Article/details/1151037.shtml)
-- 2026-06-30 06:15 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/7325812799.shtml)
-- 2026-06-30 06:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/18365227026.shtml)
-- 2026-06-30 06:02 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/828873.shtml)
-- 2026-06-30 05:55 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/63006705.shtml)
-- 2026-06-30 06:18 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/26726364.shtml)
-- 2026-06-30 06:06 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/60558110.shtml)
-- 2026-06-30 06:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/64891889.shtml)
-- 2026-06-30 06:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/007094494.shtml)
-- 2026-06-30 06:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/7547552125.shtml)
-- 2026-06-30 06:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/77917508.shtml)
-- 2026-06-30 06:09 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/45053009001.shtml)
-- 2026-06-30 06:15 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/660162548269.shtml)
+- 2026-06-30 06:15 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/30112.shtml)
+- 2026-06-30 06:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/5226019.shtml)
+- 2026-06-30 06:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0591055.shtml)
+- 2026-06-30 06:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/43380.shtml)
+- 2026-06-30 06:04 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/49613136900.shtml)
+- 2026-06-30 06:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/24964.shtml)
+- 2026-06-30 06:20 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/706342845.shtml)
+- 2026-06-30 06:27 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/6369479587.shtml)
+- 2026-06-30 06:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/48261.shtml)
+- 2026-06-30 06:06 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/61359.shtml)
+- 2026-06-30 06:03 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/64714.shtml)
+- 2026-06-30 06:29 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/8147620.shtml)
+- 2026-06-30 06:08 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/411307309886.shtml)
+- 2026-06-30 06:16 - [日本进球](https://www.share.kurohicncr.top/Article/details/81345537293.shtml)
+- 2026-06-30 06:08 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/649355.shtml)

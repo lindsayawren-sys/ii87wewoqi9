@@ -1,56 +1,58 @@
-# 赵乐际会见西班牙首相桑切斯
+# 2026年宁夏全民数字素养与技能提升月正式启幕
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 全国人大常委会委员长赵乐际4月14日下午在北京会见西班牙首相桑切斯。 赵乐际表示，今天上午，习近平主席同首相先生举行会见并达成重要共识，为下阶段两国关系发展作出规划引领。中方愿同西班牙一道，落实两国领导人重要共识，巩固政治互信，推动全方位互利合作，携手打造更有战略定力、更富发展活力、更具国际影响力的中西全面战略伙伴关系。中国全国人大愿同西班牙议会一道，密
+中新网银川6月17日电 (记者 李佩珊)6月17日，2026年宁夏全民数字素养与技能提升月启动仪式暨银川市“网络强村直播带货实训营”在宁夏农垦大厦举办。本次活动由宁夏党委网信办牵头，联合18个部门共同主办，活动以“数智赋能 全民共享”为主题，系列数字科普、技能培训活动将持续开展一个月，助力“数字宁夏”建设。 启动仪式上，宁夏党委网信办相关负责人表示，全民数字素养是区域数字化发展
 
 ## 正文
 
-中新社北京4月14日电 全国人大常委会委员长赵乐际4月14日下午在北京会见西班牙首相桑切斯。
+中新网银川6月17日电 (记者 李佩珊)6月17日，2026年宁夏全民数字素养与技能提升月启动仪式暨银川市“网络强村直播带货实训营”在宁夏农垦大厦举办。
 
-赵乐际表示，今天上午，习近平主席同首相先生举行会见并达成重要共识，为下阶段两国关系发展作出规划引领。
+本次活动由宁夏党委网信办牵头，联合18个部门共同主办，活动以“数智赋能 全民共享”为主题，系列数字科普、技能培训活动将持续开展一个月，助力“数字宁夏”建设。
 
-中方愿同西班牙一道，落实两国领导人重要共识，巩固政治互信，推动全方位互利合作，携手打造更有战略定力、更富发展活力、更具国际影响力的中西全面战略伙伴关系。
+启动仪式上，宁夏党委网信办相关负责人表示，全民数字素养是区域数字化发展的重要根基。
 
-中国全国人大愿同西班牙议会一道，密切立法机构交往，加强立法、监督和治国理政经验交流，为两国务实合作营造良好法治环境。
+宁夏将以本次提升月为抓手，推动数字技术、线上资源下沉乡镇乡村，让民众切实享受数字发展带来的便利与增收红利。
 
-桑切斯表示，西班牙坚定恪守一个中国原则。
+活动现场，葡萄酒企业、牛羊肉加工企业负责人与村党支部书记依次上台分享实践经历，讲述依托直播带货、线上运营拓宽农产品销路、带动村民增收致富的真实案例，赢得现场阵阵掌声。
 
-希望加强经贸、投资、人文、教育、旅游等各领域合作，促进立法机构交流，维护多边主义，推动西中、欧中关系健康稳定发展。
+本次提升月重点打造的“网络强村直播带货实训营”将在宁夏五市同步开课。
 
-(完)
+课程面向乡村从业者，涵盖直播基础操作、短视频内容策划、账号运营全流程教学，手把手指导村民运营线上电商，助力本地特色农产品走出乡村。
+
+提升月期间，市民可近距离沉浸式体验人工智能技术。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 06:13 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 06:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 05:55 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 06:12 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 06:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 06:00 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 06:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 06:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 06:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 06:15 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 06:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 06:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 06:13 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 06:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 06:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:09 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 06:27 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 06:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 06:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 06:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 06:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/536607313643.shtml)
-- 2026-06-30 06:14 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/732677002.shtml)
-- 2026-06-30 06:21 - [孙兴慜道歉](https://www.share.minike.top/Article/details/931407.shtml)
-- 2026-06-30 06:10 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/8929179117.shtml)
-- 2026-06-30 06:15 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/35973236.shtml)
-- 2026-06-30 06:20 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/69049406994.shtml)
-- 2026-06-30 05:56 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/376517365.shtml)
-- 2026-06-30 06:08 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/26558.shtml)
-- 2026-06-30 06:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/7183571992.shtml)
-- 2026-06-30 06:17 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/365778.shtml)
-- 2026-06-30 06:18 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/0692945140.shtml)
-- 2026-06-30 06:22 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/89913.shtml)
-- 2026-06-30 06:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/77679946575.shtml)
-- 2026-06-30 06:06 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/883435649985.shtml)
-- 2026-06-30 06:13 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/10199.shtml)
+- 2026-06-30 06:29 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/980947.shtml)
+- 2026-06-30 06:03 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/704497.shtml)
+- 2026-06-30 06:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/6253662.shtml)
+- 2026-06-30 06:03 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/73598076.shtml)
+- 2026-06-30 06:12 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/446043815.shtml)
+- 2026-06-30 06:15 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/82605449675.shtml)
+- 2026-06-30 06:21 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/00219.shtml)
+- 2026-06-30 06:19 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/87383230.shtml)
+- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/656172713.shtml)
+- 2026-06-30 06:13 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/790592977526.shtml)
+- 2026-06-30 06:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/47827110.shtml)
+- 2026-06-30 06:23 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/96865600.shtml)
+- 2026-06-30 06:21 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/99595.shtml)
+- 2026-06-30 06:28 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/85094372.shtml)
+- 2026-06-30 06:24 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/081969.shtml)

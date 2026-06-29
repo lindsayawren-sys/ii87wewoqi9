@@ -1,56 +1,56 @@
-# 桑切斯清华演讲，为何反复提到一幅地图？
+# 美联储预测2026年将加息，主席沃什可能投了弃权票
 
-> 更新时间：2026-06-30 06:24:02 UTC+8
+> 更新时间：2026-06-30 06:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 15:33 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。演讲中，他多次提及一幅地图——1583年，意大利传教士利玛窦携带一幅欧洲地图远涉重洋抵达中国内地。桑切斯由此切入，指出这幅地图虽比例准确、细节精湛，却以欧洲为中心、亚洲被置于边缘，存在明显的视角偏差。 桑切斯认为，当今世界多
+专题：美联储维持利率不变，精简声明以移除降息偏向 美联储最新的经济预测显示，2026年将有一次加息，但由于一位决策者显然缺席了预测，这一前景变得复杂——该缺席者可能是美联储主席凯文·沃什。 在18位官员中，有9位预测联邦基金利率到2026年底将高于目前3.5%至3.75%的区间。然而，预测数据中似乎缺少了一名参与者的数据。尽管美联储并未指明是谁未提交预测，但一些美联储观察人士此
 
 ## 正文
 
-发布时间：2026年04月14日 15:33 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。
+专题：美联储维持利率不变，精简声明以移除降息偏向 美联储最新的经济预测显示，2026年将有一次加息，但由于一位决策者显然缺席了预测，这一前景变得复杂——该缺席者可能是美联储主席凯文·沃什。
 
-演讲中，他多次提及一幅地图——1583年，意大利传教士利玛窦携带一幅欧洲地图远涉重洋抵达中国内地。
+在18位官员中，有9位预测联邦基金利率到2026年底将高于目前3.5%至3.75%的区间。
 
-桑切斯由此切入，指出这幅地图虽比例准确、细节精湛，却以欧洲为中心、亚洲被置于边缘，存在明显的视角偏差。
+然而，预测数据中似乎缺少了一名参与者的数据。
 
-桑切斯认为，当今世界多极格局正在加速形成，这既是权力的多极，也是繁荣的多极。
+尽管美联储并未指明是谁未提交预测，但一些美联储观察人士此前曾猜测，主席凯文·沃什可能不会提供个人的利率预测。
 
-他呼吁强化多边主义，构建更加平衡、公平的贸易体系，敦促大国承担起供给全球公共产品的责任。
+目前，利率预测的中位数显示，联邦基金利率到2026年底将达到3.8%。
 
-随后，桑切斯与中外师生合影留念，并与多位学生一一握手，亲切询问他们在校学习情况，现场气氛友好热烈。
+这一数字高于美联储3月份经济预测摘要（SEP）中给出的3.4%，也比当前的目标区间高出0.25个百分点。
 
-据悉，这是桑切斯自2023年以来第四次访华。
+刚刚接任美联储主席的沃什已释放出希望彻底改革央行沟通策略的信号。
 
-(记者 郎佳慧 曾玥 北京报道） 责任编辑：【罗攀】
+他认为，官员们可能提供了过多的前瞻指引，并在规划未来货币政策路径上倾注了过多的精力。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 06:00 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 06:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 06:23 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 06:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 05:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 06:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 05:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 05:57 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 06:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 06:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 06:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 06:26 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 06:16 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 06:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 06:26 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 06:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 06:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 06:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 06:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/24796623.shtml)
-- 2026-06-30 06:16 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/5866897.shtml)
-- 2026-06-30 06:17 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/276439.shtml)
-- 2026-06-30 05:54 - [日本反击率先破门](https://www.blog.minike.top/Article/details/967406.shtml)
-- 2026-06-30 06:08 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/65457729.shtml)
-- 2026-06-30 05:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/992326681.shtml)
-- 2026-06-30 06:23 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/5361954.shtml)
-- 2026-06-30 06:07 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/182544561854.shtml)
-- 2026-06-30 06:16 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/21632642470.shtml)
-- 2026-06-30 06:20 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/11415.shtml)
-- 2026-06-30 05:56 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/03605216.shtml)
-- 2026-06-30 05:54 - [恋与深空 巧合](https://www.share.minike.top/Article/details/698508100.shtml)
-- 2026-06-30 05:59 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/58953866416.shtml)
-- 2026-06-30 06:10 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/0449812.shtml)
-- 2026-06-30 06:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/88981.shtml)
+- 2026-06-30 06:09 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/644160319.shtml)
+- 2026-06-30 06:06 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/955173413.shtml)
+- 2026-06-30 06:03 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/99845.shtml)
+- 2026-06-30 06:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/877475782728.shtml)
+- 2026-06-30 06:17 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/63153454.shtml)
+- 2026-06-30 06:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/17378.shtml)
+- 2026-06-30 06:17 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/92640994722.shtml)
+- 2026-06-30 06:28 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/6302082390.shtml)
+- 2026-06-30 06:02 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/55079.shtml)
+- 2026-06-30 06:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/122184098140.shtml)
+- 2026-06-30 06:02 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/35910.shtml)
+- 2026-06-30 06:11 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/1855255.shtml)
+- 2026-06-30 06:20 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/34206804610.shtml)
+- 2026-06-30 06:19 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/80330641.shtml)
+- 2026-06-30 06:07 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/08208855.shtml)
