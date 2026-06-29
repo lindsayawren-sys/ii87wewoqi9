@@ -1,57 +1,56 @@
-# 英伟达五年来首次发行投资级债券 认购额高达850亿美元
+# 中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。 据知情人士透露，此次债券发行吸引的认购额高达850亿美元。另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。 知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。该人士还表示，此次发
+中新网北京5月8日电(记者 查志远 实习生 贾圣仪 ) 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。 视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。 5月5日，鸿蒙智行回
 
 ## 正文
 
-芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。
+中新网北京5月8日电(记者 查志远 实习生 贾圣仪 ) 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。
 
-据知情人士透露，此次债券发行吸引的认购额高达850亿美元。
+视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。
 
-另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。
+男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。
 
-知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。
+虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。
 
-该人士还表示，此次发债募集的资金将用于再融资现有债务等用途。
+5月5日，鸿蒙智行回应称，经技术核验，视频场景未达到防夹功能触发阈值，并非功能失效，并披露了多重安全防护机制。
 
-这将是英伟达五年来首次发行的债券。
+“针对大家反馈的宝贵建议，我们已纳入产品专项优化计划。
 
-随着建设数据中心以及其他支撑人工智能快速发展的基础设施，Alphabet Inc．和亚马逊等企业正通过大规模发行债券涌入债务市场，融资规模累计已达数千亿美元。
+” 从技术层面看，鸿蒙智行的解释有合理的地方。
 
-截至目前，投资者顺利消化了这些债券供应。
+零重力座椅的防夹功能依赖于压力传感器对受力变化的实时识别，当外力达到预设阈值时才触发停止和回弹。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:43 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 20:09 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 19:55 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 20:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 19:42 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 20:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 20:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 19:48 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 19:46 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 20:02 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 20:08 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 20:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 20:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 19:59 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:01 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 20:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 20:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 19:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:50 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/33872073.shtml)
-- 2026-06-29 20:06 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/648796.shtml)
-- 2026-06-29 19:44 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/89459.shtml)
-- 2026-06-29 19:53 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/638620449548.shtml)
-- 2026-06-29 19:54 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/3793780.shtml)
-- 2026-06-29 20:04 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/61057380084.shtml)
-- 2026-06-29 19:52 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/3740555.shtml)
-- 2026-06-29 19:45 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/332029808535.shtml)
-- 2026-06-29 19:49 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/332052177611.shtml)
-- 2026-06-29 19:57 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/9947334.shtml)
-- 2026-06-29 19:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/753649.shtml)
-- 2026-06-29 20:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/05907266290.shtml)
-- 2026-06-29 19:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/3198717.shtml)
-- 2026-06-29 19:47 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/8206048336.shtml)
-- 2026-06-29 19:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/125836296424.shtml)
+- 2026-06-29 20:08 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/847689695.shtml)
+- 2026-06-29 19:57 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/10467046.shtml)
+- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/7066145.shtml)
+- 2026-06-29 19:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/32392430809.shtml)
+- 2026-06-29 20:12 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/249530.shtml)
+- 2026-06-29 20:11 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/18330305.shtml)
+- 2026-06-29 20:17 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/411766.shtml)
+- 2026-06-29 20:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/7333547955.shtml)
+- 2026-06-29 19:58 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/159405.shtml)
+- 2026-06-29 19:56 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/95379600.shtml)
+- 2026-06-29 19:48 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/824502352229.shtml)
+- 2026-06-29 19:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/408933696791.shtml)
+- 2026-06-29 20:14 - [AG 宫斗](http://www.blog.minike.top/Article/details/048160109.shtml)
+- 2026-06-29 20:03 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/89754319.shtml)
+- 2026-06-29 20:15 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/975014.shtml)

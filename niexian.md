@@ -1,59 +1,61 @@
-# 艺术8奖得主雅诗·依玛用画布定格一个巴黎人眼中的京剧
+# 宁夏探索夜间公共服务新模式：青年有去处 就业有出路
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 应妮)上妆、换装，一个现代京剧演员即将登台，走进四百多年前的故事当中……这样一个奇妙的“穿越”时刻，被法国艺术家雅诗·依玛(Esther Imard)用画笔定格在画布上。 作为2025艺术8法国青年艺术家奖得主之一，雅诗·依玛于今年四月来到北京艺术8驻地创作。住在胡同里，学中文、逛公园、看京剧，这个巴黎人过上了“老北京”的日子。 热爱舞台艺术的雅
+中新网银川5月7日电 题：宁夏探索夜间公共服务新模式：青年有去处 就业有出路 中新网记者 于晶 当白日的忙碌落幕，宁夏的夜晚正变得愈发生动。从乡村文化馆传出的琴声，到城市商圈涌动的人流，一场以青年为核心、以服务为纽带的夜间公共服务创新，正在这片土地上悄然铺开，让“八小时之外”的时光兼具生活的温度与成长的希望。 “下班不再只刷手机，每周都有了新的期待。”海原县“青年夜校”里，电子
 
 ## 正文
 
-中新网北京6月15日电 (记者 应妮)上妆、换装，一个现代京剧演员即将登台，走进四百多年前的故事当中……这样一个奇妙的“穿越”时刻，被法国艺术家雅诗·依玛(Esther Imard)用画笔定格在画布上。
+中新网银川5月7日电 题：宁夏探索夜间公共服务新模式：青年有去处 就业有出路 中新网记者 于晶 当白日的忙碌落幕，宁夏的夜晚正变得愈发生动。
 
-作为2025艺术8法国青年艺术家奖得主之一，雅诗·依玛于今年四月来到北京艺术8驻地创作。
+从乡村文化馆传出的琴声，到城市商圈涌动的人流，一场以青年为核心、以服务为纽带的夜间公共服务创新，正在这片土地上悄然铺开，让“八小时之外”的时光兼具生活的温度与成长的希望。
 
-住在胡同里，学中文、逛公园、看京剧，这个巴黎人过上了“老北京”的日子。
+“下班不再只刷手机，每周都有了新的期待。
 
-热爱舞台艺术的雅诗·依玛第一次接触京剧是看电影《霸王别姬》，还在巴黎吉美国立亚洲艺术博物馆观看了京剧《赵氏孤儿》的现场演出。
+”海原县“青年夜校”里，电子琴、吉他、摄影等课堂座无虚席。
 
-“那是个感人的故事，还有演员动人的唱腔、美丽的服装和精致的妆容——我被舞台上的一切深深打动了！
+曾经闲置的夜间场馆，如今变身青年充电的“精神驿站”。
 
-”去年十月她获得艺术8·法国奖，终于有机会来北京驻地。
+2025年海原县率先创办青年夜校，首期400个名额“秒空”；2026年二期课程扩容，全程免费开放，让年轻人从“宅家躺平”转向“奔赴热爱”。
 
-五月初，国家京剧院在梅兰芳大剧院上演经典剧目《大保国·探皇陵·二进宫》，她不仅观看了现场演出，更走进后台与演员交流、看他们上妆，感受京剧幕后的工作状态。
+如果说青年夜校滋养精神世界，那么银川市探索升级的“技能夜校”，则正致力于让劳动者“好就业”更要“就好业”。
 
-“氛围很熟悉，但又很不同，这种似曾相识特别奇妙。
+针对企业职工和灵活就业人群“工学矛盾”突出的痛点，银川在宁夏率先打造“夜间技能充电站”，推出健康照护、无人机驾驶、人工智能训练等20多个市场急需工种的“点单式”培训。
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 19:58 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 19:51 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:42 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 19:54 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 20:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 19:48 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 20:10 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 19:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 20:03 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 19:49 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 19:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 20:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 19:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 20:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 20:02 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 19:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 19:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 20:07 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:48 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 19:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 19:52 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 20:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:04 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/25366134258.shtml)
-- 2026-06-29 20:09 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/883850348.shtml)
-- 2026-06-29 20:07 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/19899.shtml)
-- 2026-06-29 19:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/558271859000.shtml)
-- 2026-06-29 20:06 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/24605808302.shtml)
-- 2026-06-29 19:54 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/136446459.shtml)
-- 2026-06-29 19:56 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/604524120207.shtml)
-- 2026-06-29 20:00 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/011283.shtml)
-- 2026-06-29 19:46 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/40972117019.shtml)
-- 2026-06-29 20:00 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/410682.shtml)
-- 2026-06-29 19:58 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/431852002824.shtml)
-- 2026-06-29 20:10 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/4768654.shtml)
-- 2026-06-29 19:54 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/29536070068.shtml)
-- 2026-06-29 20:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/28209829898.shtml)
-- 2026-06-29 19:43 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/67100173.shtml)
+- 2026-06-29 19:55 - [极限挑战第一季](http://www.blog.minike.top/Article/details/335794.shtml)
+- 2026-06-29 20:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/830516672.shtml)
+- 2026-06-29 20:01 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/8656933.shtml)
+- 2026-06-29 19:53 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/39083.shtml)
+- 2026-06-29 20:13 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/961749991.shtml)
+- 2026-06-29 20:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/183677705963.shtml)
+- 2026-06-29 19:56 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/505637.shtml)
+- 2026-06-29 19:58 - [女心理师](https://www.share.minike.top/Article/details/052643674597.shtml)
+- 2026-06-29 20:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/668953949838.shtml)
+- 2026-06-29 19:59 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/56705193.shtml)
+- 2026-06-29 19:55 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/39709.shtml)
+- 2026-06-29 19:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/7211936303.shtml)
+- 2026-06-29 20:17 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/990482776490.shtml)
+- 2026-06-29 20:11 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/797755.shtml)
+- 2026-06-29 20:02 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/0487630.shtml)

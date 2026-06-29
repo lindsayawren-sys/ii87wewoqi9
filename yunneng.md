@@ -1,59 +1,56 @@
-# 中国空间科学卫星的“微笑”
+# 共话中国经济新机遇｜专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-原标题：中国空间科学卫星的“微笑”(创新谈) 仰望星空、探索不止，随着更多科学卫星星座加速布局、组网运行，我国空间科学的自主底座将愈发坚实，支持深空探索向更深更远处挺进 不久前，中欧联合研制的“微笑”卫星成功发射、顺利进入预定轨道。该卫星凭借全球首创的地球磁层软X射线全景成像能力，开启日地空间探测全新篇章。作为中国科学院空间科学(二期)先导专项的收官重器，这颗肩负日地空间探测使
+新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。 20
 
 ## 正文
 
-原标题：中国空间科学卫星的“微笑”(创新谈) 仰望星空、探索不止，随着更多科学卫星星座加速布局、组网运行，我国空间科学的自主底座将愈发坚实，支持深空探索向更深更远处挺进 不久前，中欧联合研制的“微笑”卫星成功发射、顺利进入预定轨道。
+新华社雅温得5月7日电专访：期待与中国伙伴共拓发展新机遇——访喀麦隆经济、计划和领土整治部长梅伊 新华社记者王泽欧阳子英 喀麦隆经济、计划和领土整治部长阿拉明·奥斯曼·梅伊日前在喀麦隆首都雅温得接受新华社记者专访时说，近年来，喀麦隆和中国在基础设施建设，特别是港口、公路和能源等领域取得重要合作成果，希望进一步加强对华经贸合作，欢迎中国投资者参与喀麦隆建设，共拓发展新机遇。
 
-该卫星凭借全球首创的地球磁层软X射线全景成像能力，开启日地空间探测全新篇章。
+2026年是喀麦隆与中国建交55周年。
 
-作为中国科学院空间科学(二期)先导专项的收官重器，这颗肩负日地空间探测使命的卫星，补齐了空间探测的短板，也见证了中国空间科学卫星从单点突围到集群成势的蜕变。
+梅伊表示，喀麦隆政府和企业通过中非经贸博览会、广交会等平台，与中方伙伴加强交流，建立更紧密的投资和贸易关系，推动双边经贸往来持续深入。
 
-空间科学是深空探索的前沿赛道，也是国家科技实力的重要标志。
+他说，希望喀中企业进一步加强合作，鼓励更多中小企业参与基础设施建设，促进技能和技术经验转移，更好支持喀麦隆经济社会发展。
 
-过去，我国空间科学探测基础相对薄弱，没有自研的高端探测卫星，也缺少自主观测数据，研究工作大多依靠国外公开资料，不仅受到限制，诸多前沿研究更是难以推进。
+谈及中国对53个非洲建交国全面实施零关税举措时，梅伊说，“这是一项具有历史意义的决定”，为喀麦隆提供了进入中国广阔市场的机会。
 
-自2011年起，我国开启系统布局空间科学卫星专项任务。
+当前，喀麦隆对华出口的农产品以初级大宗商品为主，主要包括原棉、木材和可可等。
 
-10余年来，陆续发射“悟空”“墨子号”“慧眼”“夸父一号”等系列科学卫星，在不同前沿领域单点破局、实现突破。
+梅伊表示，喀方希望进一步加强生产性投资，特别是在原材料本地加工领域的投入，以提升产品质量和附加值。
 
-“悟空”号常年捕捉宇宙高能粒子，持续搜寻暗物质踪迹，为人类破解宇宙起源谜题提供了关键数据；“墨子号”率先实现千公里级星地量子通信，让中国在量子太空应用领域领跑全球；“慧眼”紧盯宇宙极端天象，精准捕捉黑洞、中子星的爆发信号，取得多项重大原创成果……一颗颗科学卫星各司其职、各展所长，我国在多个领域实现“从零起步”到“领跑前沿”的跨越，不断夯实深空探测的技术根基。
+梅伊表示，喀麦隆正采取多种措施，积极推动由资源依赖型经济向生产型经济转型。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 20:09 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 20:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 19:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 19:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:07 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 20:08 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 20:00 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 20:00 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 19:47 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 19:49 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 19:44 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 20:03 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 19:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 20:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 20:05 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 20:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 19:54 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 19:59 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 20:00 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 20:01 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/867335480.shtml)
-- 2026-06-29 20:11 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/922638.shtml)
-- 2026-06-29 20:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/46836107.shtml)
-- 2026-06-29 19:43 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/95161970681.shtml)
-- 2026-06-29 19:44 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/20293141727.shtml)
-- 2026-06-29 20:06 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/218421083909.shtml)
-- 2026-06-29 19:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/4128847.shtml)
-- 2026-06-29 19:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/93820292.shtml)
-- 2026-06-29 20:00 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/94599492.shtml)
-- 2026-06-29 19:49 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/423091070732.shtml)
-- 2026-06-29 19:42 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/33969476.shtml)
-- 2026-06-29 19:47 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/817348425.shtml)
-- 2026-06-29 19:54 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/5669314513.shtml)
-- 2026-06-29 19:54 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/116916430401.shtml)
-- 2026-06-29 19:50 - [温网](https://www.blog.kurohicncr.top/Article/details/79150.shtml)
+- 2026-06-29 20:10 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/590389575820.shtml)
+- 2026-06-29 20:09 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/709271.shtml)
+- 2026-06-29 19:57 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/29124703013.shtml)
+- 2026-06-29 20:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/44184247290.shtml)
+- 2026-06-29 19:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/0415472.shtml)
+- 2026-06-29 20:17 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/7000414088.shtml)
+- 2026-06-29 19:54 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/7741554627.shtml)
+- 2026-06-29 20:14 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/97988092330.shtml)
+- 2026-06-29 20:02 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/108131.shtml)
+- 2026-06-29 20:07 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/5834172.shtml)
+- 2026-06-29 19:51 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/167515.shtml)
+- 2026-06-29 19:51 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/9386270.shtml)
+- 2026-06-29 19:49 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/709640051349.shtml)
+- 2026-06-29 19:48 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/5657284717.shtml)
+- 2026-06-29 19:50 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/3146078927.shtml)

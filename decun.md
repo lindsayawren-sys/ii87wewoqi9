@@ -1,57 +1,61 @@
-# 酒价内参6月15日价格发布：精品茅台上涨6元/瓶，且成交量明显放大
+# 盘前：纳指期货涨0.1% 布油连续第三天下跌
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均
+周四美国股指期货维持涨势，布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 标普 500 指数期货上涨0.2%，该基准指数已连续两个交易日创下纪录新高。道琼斯工业平均指数期货上涨 0.2%。以科技股为主的纳斯达克指数盘前上涨 0.1%。 MSCI 全球所有国家指数上涨 0.23%，逼近纪录高位。欧洲股市下跌
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。
+周四美国股指期货维持涨势，布伦特原油连续第三天下跌。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。
+交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
 
-市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均上涨或持平，带动总价进一步向9950元一线逼近。
+标普 500 指数期货上涨0.2%，该基准指数已连续两个交易日创下纪录新高。
 
-今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
+道琼斯工业平均指数期货上涨 0.2%。
 
-上涨方面，古井贡古20涨幅居前，上涨8元/瓶，价格升至进入六月以来次高位；青花郎上涨7元/瓶，重新登上700元关口，创进入六月以来最高；精品茅台上涨6元/瓶，且成交量明显放大；国窖1573与习酒君品均上涨5元/瓶，其中前者连续两日反弹，重返890元关口，后者连续两日修复，平近半个月最高价格纪录；五粮液普五八代与青花汾20均上涨4元/瓶；飞天茅台上涨2元/瓶，终结此前四连阴。
+以科技股为主的纳斯达克指数盘前上涨 0.1%。
 
-下跌方面，洋河梦之蓝M6+与水晶剑南春均小幅下跌1元/瓶。
+MSCI 全球所有国家指数上涨 0.23%，逼近纪录高位。
 
-五粮液1618价格环比保持不变，仍平近一月最低价纪录。
+欧洲股市下跌 0.3%，投资者正在关注大量企业财报。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+英国富时 100 指数下跌 0.7%，受到壳牌拖累；此前壳牌削减了股票回购规模。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 19:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:55 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 19:46 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 20:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:09 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:58 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 20:06 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 19:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 20:04 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 19:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 20:00 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 20:07 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 19:55 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 20:07 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 20:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 20:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 19:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 19:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 19:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 20:14 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:55 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 20:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 20:00 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 19:58 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/336572385.shtml)
-- 2026-06-29 19:55 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/72742288.shtml)
-- 2026-06-29 19:42 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/589555986.shtml)
-- 2026-06-29 19:47 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/25188783.shtml)
-- 2026-06-29 19:52 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/705013943.shtml)
-- 2026-06-29 19:57 - [逃狱兄弟](https://www.blog.minike.top/Article/details/2497841947.shtml)
-- 2026-06-29 20:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/30141.shtml)
-- 2026-06-29 19:46 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/34579.shtml)
-- 2026-06-29 19:46 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/84688812308.shtml)
-- 2026-06-29 19:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/77583188679.shtml)
-- 2026-06-29 20:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/49540515855.shtml)
-- 2026-06-29 20:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/170403513476.shtml)
-- 2026-06-29 20:09 - [乔家的儿女](https://www.blog.minike.top/Article/details/18101006.shtml)
-- 2026-06-29 20:01 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/8961095.shtml)
-- 2026-06-29 19:56 - [当我回母校教书](http://www.blog.minike.top/Article/details/626235470.shtml)
+- 2026-06-29 19:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/015321283927.shtml)
+- 2026-06-29 20:12 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/6958728.shtml)
+- 2026-06-29 20:07 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/219832082600.shtml)
+- 2026-06-29 20:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/4315919.shtml)
+- 2026-06-29 20:01 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/07619.shtml)
+- 2026-06-29 19:55 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/981183871398.shtml)
+- 2026-06-29 19:59 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/334678648060.shtml)
+- 2026-06-29 20:10 - [速度与激情9](https://www.blog.minike.top/Article/details/064050678.shtml)
+- 2026-06-29 19:56 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/044857428.shtml)
+- 2026-06-29 20:09 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/0842938.shtml)
+- 2026-06-29 19:50 - [周生如故](http://www.share.kurohicncr.top/Article/details/060377.shtml)
+- 2026-06-29 19:54 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/403644.shtml)
+- 2026-06-29 20:08 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/215099879.shtml)
+- 2026-06-29 19:52 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/21389780.shtml)
+- 2026-06-29 20:01 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/456449054.shtml)

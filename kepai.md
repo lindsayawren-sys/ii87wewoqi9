@@ -1,61 +1,57 @@
-# 两大北京市重点实验室通过认定，北京数据集团夯实“数算模用”创新底座
+# 史上罕见，全球科技巨头不惜重金“拉拢”海力士 以抢占芯片供应资源
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团
+据知情人士透露，SK海力士正受到全球大型科技公司的积极拉拢，这些公司纷纷提出投资其新的生产线并资助其购买昂贵的制造工具，以抢占存储芯片供应资源。 这些合作邀约在全球存储芯片行业是前所未有的，凸显出全球存储芯片严重短缺的现状。在人工智能热潮下，芯片厂商难以跟上激增的市场需求。存储芯片是人工智能数据中心、智能手机、个人电脑等领域的核心关键零部件。 据多位知情人士透露，客户已向这家韩
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据知情人士透露，SK海力士正受到全球大型科技公司的积极拉拢，这些公司纷纷提出投资其新的生产线并资助其购买昂贵的制造工具，以抢占存储芯片供应资源。
 
-来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。
+这些合作邀约在全球存储芯片行业是前所未有的，凸显出全球存储芯片严重短缺的现状。
 
-由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。
+在人工智能热潮下，芯片厂商难以跟上激增的市场需求。
 
-两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团深耕“数算模用”一体化布局的重要阶段性成果，为北京建设全球数字经济标杆城市提供支撑。
+存储芯片是人工智能数据中心、智能手机、个人电脑等领域的核心关键零部件。
 
-聚焦AI治理：构建安全合规的评测基础设施 人工智能伦理与法治评测实验室由北京市经济和信息化局指导，中国政法大学牵头，联合京数公司、蚂蚁集团以及北京中关村学院共建，致力于打造智能体时代的系统性安全治理基础设施。
+据多位知情人士透露，客户已向这家韩国芯片制造商提出了一系列方案，包括投资建设专用存储器生产线。
 
-实验室依托京数公司运营的全国首个人工智能数据沙盒，研发多模态评测智能体、可计算法律规则编译等核心技术，打通“规则—数据—评测—应用”全链条。
+另有三位知情人士表示，另一项方案是客户为SK海力士购买芯片生产设备提供融资，例如阿斯麦的极紫外光刻机。
 
-京数公司从三个维度提供关键支撑： 一是依托北京数据先行区政策优势，提供海量合规数据用于伦理对齐训练；二是输出自主研发的可信数据空间与安全治理工具，实现数据从匿名化到开发利用的闭环支撑；三是开放金融反欺诈、医疗数据匿名化等真实场景，为模型合规压力测试提供工程化验证环境。
+这种设备用于在硅晶圆上印刷电路，价值数亿美元。
 
-夯实数据底座：破解智能原生系统核心瓶颈 智能原生数据系统实验室由北京航空航天大学牵头，北京数据集团及北京航天情报与信息研究所共建，重点破解多模态数据治理难、高质量训练数据不足、智能数据库自主化水平低等瓶颈。
+但据两位知情人士透露，这家资金充裕的芯片制造商对接受客户的财务承诺持谨慎态度，因为此类交易可能会使其受制于特定买家，并要求其以更低的价格供应芯片，以换取“更长期、更稳定的收入保证”。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 19:48 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 19:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 19:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 19:50 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 19:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 19:57 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 19:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 19:48 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 20:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 20:10 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 20:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 20:03 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:54 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 19:58 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 20:11 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 20:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 20:02 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 19:54 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 20:00 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 20:11 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 19:48 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/121579977700.shtml)
-- 2026-06-29 19:55 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/868703865789.shtml)
-- 2026-06-29 19:46 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/0104774.shtml)
-- 2026-06-29 20:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/0410783.shtml)
-- 2026-06-29 19:46 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/03427565043.shtml)
-- 2026-06-29 20:04 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/06846992.shtml)
-- 2026-06-29 19:43 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/0880788901.shtml)
-- 2026-06-29 19:49 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6863311.shtml)
-- 2026-06-29 20:11 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/69789637626.shtml)
-- 2026-06-29 20:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/115009976462.shtml)
-- 2026-06-29 19:54 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/822418349041.shtml)
-- 2026-06-29 19:56 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/03875.shtml)
-- 2026-06-29 20:06 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/27303375658.shtml)
-- 2026-06-29 20:01 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/004547832764.shtml)
-- 2026-06-29 20:02 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/909262047.shtml)
+- 2026-06-29 20:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/87661338.shtml)
+- 2026-06-29 19:53 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/66643131.shtml)
+- 2026-06-29 19:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/906226941806.shtml)
+- 2026-06-29 19:55 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/652008.shtml)
+- 2026-06-29 20:17 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/399258.shtml)
+- 2026-06-29 20:06 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/08036512.shtml)
+- 2026-06-29 20:15 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/5122681812.shtml)
+- 2026-06-29 20:02 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/75839.shtml)
+- 2026-06-29 19:56 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/548072433.shtml)
+- 2026-06-29 19:51 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/559182072538.shtml)
+- 2026-06-29 19:48 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/4815538.shtml)
+- 2026-06-29 20:04 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/91791700.shtml)
+- 2026-06-29 20:09 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/715080020.shtml)
+- 2026-06-29 20:00 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/8739188883.shtml)
+- 2026-06-29 20:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/908611643830.shtml)

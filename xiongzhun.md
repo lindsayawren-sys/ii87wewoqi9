@@ -1,59 +1,58 @@
-# 资金悄然加仓！华宝基金电力ETF（159146）放量上涨，吸金9500万份！算力叠加高温，催化用电需求
+# 全系标配华为智能 宝骏全尺寸SUV华境S明晚上市：有望15万起售
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-6月15日早盘，电力板块再获资金增持！热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）放量飘红，实时成交超1亿元，资金净申购9500万份！成份股方面，广西能源领涨超6%，大唐发电、晋控电力、协鑫能科、豫能控股等多股大涨超4%。 当前算力+高温共振，电力需求持续提升。 当前算力需求正成为电力需求新的重要结构性增量。根据国家能源局数据，2025 年我国算力中
+快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识
 
 ## 正文
 
-6月15日早盘，电力板块再获资金增持！
+快科技5月7日消息，上汽通用五菱宝骏华境S将于明晚上市，该车是五菱与华为深化战略合作的首款旗舰车型，但价格会有惊喜，从网上吹风看，起售价大概率会在15万元左右。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）放量飘红，实时成交超1亿元，资金净申购9500万份！
+该车基于天域架构L平台打造，采用了典型的新能源设计风格，同样使用了贯通式头灯，但没有配备分体式灯组，且保留大尺寸的六边形格栅，看起来很有气势。
 
-成份股方面，广西能源领涨超6%，大唐发电、晋控电力、协鑫能科、豫能控股等多股大涨超4%。
+贯穿式车灯样式很独特，尤其是两侧灯腔内部的折线造型，还集合了转向灯，点亮后辨识度相当强。
 
-当前算力+高温共振，电力需求持续提升。
+侧面保持了传统SUV的设计，拥有黑色轮拱以及大尺寸的轮圈，翼子板上设有摄像头模组，同时还是用了传统样式的电子+机械一体门把手。
 
-当前算力需求正成为电力需求新的重要结构性增量。
+其长宽高5235*1999*1800mm，轴距为3105mm，采用了六座布局，定位家用，六座满员状态下后备箱仍有423L容积，主打量大管饱。
 
-根据国家能源局数据，2025 年我国算力中心总量达1700 亿千瓦时，占全社会用电量的1.6%，到2030 年预计达8000 亿千瓦时，占全社会用电量6%左右，且AIDC 用电具备持续性、稳定性和高耗能特征，与传统季节性负荷不同，其对电力系统的影响更偏中长期、结构性。
+车尾也配有贯穿灯组，灯腔内部的光源同样采用了折线设计，点亮后会形成酷似闪电的图案效果，与车头相呼应。
 
-5月份以来全国多地陆续进入高温季，根据国家发改委5 月新闻发布会，今夏全国大部分地区气温较常年同期偏高，高温天气将大幅增加空调降温用电需求，综合研判今夏全国最高用电负荷将达到16亿千瓦左右，较去年增加9000 万千瓦左右。
+内饰为鸿蒙座舱，提供檀香棕、象牙米两款内饰颜色，采用环抱式设计，平直的中控台线条搭配全液晶仪表、悬浮式中控屏以及双拼色多功能方向盘，同时提供后排双侧小桌板、吸顶屏以及副驾驶老板键等。
 
-高温天气叠加厄尔尼诺催化，电力量价弹性有望同步释放。
+华境S搭载华为舱内激光视觉（Limera）方案，标配乾崑ADS Pro增强版，首批上市即支持城区领航辅助NCA，标配华为乾崑全维主动安全系统，还有哨兵模式、星闪数字钥匙、全场景云服务等。
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 20:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 19:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 20:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 19:55 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 20:08 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 19:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 20:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 19:50 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 20:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 20:10 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 19:58 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 20:10 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 20:17 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:57 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:52 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 20:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 19:54 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 20:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 19:53 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 19:56 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 20:08 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 20:15 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:43 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/808744757.shtml)
-- 2026-06-29 19:59 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/6140036813.shtml)
-- 2026-06-29 19:46 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/859690.shtml)
-- 2026-06-29 20:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/56401616.shtml)
-- 2026-06-29 19:55 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/5478526423.shtml)
-- 2026-06-29 20:10 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/930337426.shtml)
-- 2026-06-29 19:58 - [啊啊啊](http://www.blog.minike.top/Article/details/77156965664.shtml)
-- 2026-06-29 19:47 - [当我回母校教书](http://www.blog.minike.top/Article/details/7920443.shtml)
-- 2026-06-29 20:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/2021158105.shtml)
-- 2026-06-29 19:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/4834918.shtml)
-- 2026-06-29 20:05 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/19634.shtml)
-- 2026-06-29 20:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/627897084282.shtml)
-- 2026-06-29 19:49 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/52379697.shtml)
-- 2026-06-29 19:46 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/14577706.shtml)
-- 2026-06-29 19:48 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/885322004.shtml)
+- 2026-06-29 20:04 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/620127136606.shtml)
+- 2026-06-29 20:15 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/16879.shtml)
+- 2026-06-29 20:11 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/432297718018.shtml)
+- 2026-06-29 19:57 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/748250.shtml)
+- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/61370641.shtml)
+- 2026-06-29 20:02 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/209279297.shtml)
+- 2026-06-29 20:08 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/05380322245.shtml)
+- 2026-06-29 20:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/0298351003.shtml)
+- 2026-06-29 19:49 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/34013357.shtml)
+- 2026-06-29 20:13 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/724317.shtml)
+- 2026-06-29 20:09 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/2165733688.shtml)
+- 2026-06-29 20:10 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/1915611.shtml)
+- 2026-06-29 19:48 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/92885744.shtml)
+- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/5166031.shtml)
+- 2026-06-29 20:15 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/10325163917.shtml)

@@ -1,57 +1,61 @@
-# 当AI深度融入生活，人与AI如何和谐相处？看看他们怎么做
+# 对接“十五五”规划 粤港澳高校代表研讨“澳门研发+横琴转化”
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-当下，AI已深度融入人们的日常生活。在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。 6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术
+中新网澳门5月7日电 “薪传四十五载·智汇湾区新程——澳门城市大学45周年校庆粤港澳大湾区高校拓展交流论坛”7日在澳门城市大学举行。大湾区高校领导及青年代表齐聚一堂，共商高等教育融合发展。 本次论坛聚焦大湾区研究生培养创新与协同育人模式，设有主旨演讲、专家交流和专题分享等多个环节。 澳门城市大学副校长周万雷致辞指出，粤港澳大湾区正全力建设国际教育示范区，澳琴国际教育(大学)城将
 
 ## 正文
 
-当下，AI已深度融入人们的日常生活。
+中新网澳门5月7日电 “薪传四十五载·智汇湾区新程——澳门城市大学45周年校庆粤港澳大湾区高校拓展交流论坛”7日在澳门城市大学举行。
 
-在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。
+大湾区高校领导及青年代表齐聚一堂，共商高等教育融合发展。
 
-如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。
+本次论坛聚焦大湾区研究生培养创新与协同育人模式，设有主旨演讲、专家交流和专题分享等多个环节。
 
-6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。
+澳门城市大学副校长周万雷致辞指出，粤港澳大湾区正全力建设国际教育示范区，澳琴国际教育(大学)城将于今年9月启动研究生教学，带来区域高等教育一体化历史性机遇。
 
-今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术，让AI成为生活、工作的得力助手，更呼吁大家在享受便利的同时，守住安全伦理底线，共同探索人与AI和谐相处的“新智序”。
+期待通过此次论坛与大湾区兄弟城市高校共建育人新生态，落实“澳门研发+横琴转化”模式，培育支撑新质生产力的高层次人才。
 
-来自不同年龄、不同行业的普通市民走上讲台，分享了他们与人工智能相处的真实故事。
+专家交流环节，与会嘉宾分别分享了产教融合改革实践、特色研究生培养模式、“4I”教育理念与教学创新、科教融合与产学研合作、招生培养学位体系改革等领域的宝贵经验，并勉励青年学子厚植科研情怀、潜心深耕学术。
 
-从学生、社区志愿者到内容创作者，他们用各自的方式探索着与AI的相处之道。
+澳门城市大学副校长叶桂平主持专题分享时说，澳门高校应立足“一国两制”独特优势，对接国家“十五五”规划与《教育强国建设规划纲要(2024-2035年)》，重点推进三方面工作：深化澳琴教育协同，推进澳琴国际教育(大学)城建设；构建跨境产学研协同创新体系，融入湾区国际科创中心建设；推进人才政策与服务一体化衔接，落实“澳门+横琴”一体化引才机制。
 
-和AI做朋友，塑造独立思考能力来自华师永德学校的董逸飞，带来了他告别AI依赖、与AI携手成长的“破瘾”故事。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 19:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 20:11 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 20:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 20:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 19:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 19:51 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 19:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 19:44 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 20:00 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 20:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 20:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 20:15 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 19:49 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:09 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 19:54 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 20:05 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 20:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 19:57 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 19:52 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 19:54 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 19:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 20:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 20:13 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 20:15 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 20:07 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:03 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/892835103489.shtml)
-- 2026-06-29 19:42 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/0478318550.shtml)
-- 2026-06-29 19:50 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/696738704.shtml)
-- 2026-06-29 19:59 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/276607044.shtml)
-- 2026-06-29 19:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/13703613.shtml)
-- 2026-06-29 19:49 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/1105529.shtml)
-- 2026-06-29 19:52 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/969328697807.shtml)
-- 2026-06-29 19:57 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/44676690342.shtml)
-- 2026-06-29 19:45 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/725807.shtml)
-- 2026-06-29 20:09 - [啊啊啊](https://www.blog.minike.top/Article/details/5071278411.shtml)
-- 2026-06-29 20:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/627103309029.shtml)
-- 2026-06-29 20:09 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/133738.shtml)
-- 2026-06-29 19:59 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/337955650129.shtml)
-- 2026-06-29 19:46 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/1921901972.shtml)
-- 2026-06-29 20:09 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/935194.shtml)
+- 2026-06-29 20:17 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/13159240.shtml)
+- 2026-06-29 19:48 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/54645738577.shtml)
+- 2026-06-29 20:01 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/41694.shtml)
+- 2026-06-29 20:10 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/57795431373.shtml)
+- 2026-06-29 19:51 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/394695870906.shtml)
+- 2026-06-29 19:48 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/0620775837.shtml)
+- 2026-06-29 19:50 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/00060205605.shtml)
+- 2026-06-29 20:00 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/94258.shtml)
+- 2026-06-29 20:16 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/25400691.shtml)
+- 2026-06-29 20:05 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/052747274238.shtml)
+- 2026-06-29 20:04 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/572291.shtml)
+- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/11982976495.shtml)
+- 2026-06-29 19:56 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/2284382.shtml)
+- 2026-06-29 20:04 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/21888.shtml)
+- 2026-06-29 19:49 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/28719.shtml)

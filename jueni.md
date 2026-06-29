@@ -1,46 +1,61 @@
-# 揭秘直播间里的“特供酒”新骗局 生产车间随意堆放杂物 更无正规酿造窖池
+# 多轮疑似干预难破僵局！155关口久攻不破，日元升值行情蒙上阴影
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:19 来源：央视新闻 责任编辑：【王祎】
+在日本政府多次疑似入市干预后，日元兑美元汇率始终未能突破155关口，市场开始质疑此轮日元升值行情能否持续。 自4月30日以来，日元历经多轮大幅反弹，但每次都在触及155关口前涨势衰竭，随后回吐部分涨幅。尽管日本当局拥有充足外汇储备以持续入市干预，但汇率走势表明，市场对美元需求依然强劲，日本政府扭转日元弱势的能力有限。 当前宏观经济基本面仍支撑美元走强。即便市场预期伊朗局势有望缓
 
 ## 正文
 
-发布时间：2026年06月15日 10:19 来源：央视新闻 责任编辑：【王祎】
+在日本政府多次疑似入市干预后，日元兑美元汇率始终未能突破155关口，市场开始质疑此轮日元升值行情能否持续。
+
+自4月30日以来，日元历经多轮大幅反弹，但每次都在触及155关口前涨势衰竭，随后回吐部分涨幅。
+
+尽管日本当局拥有充足外汇储备以持续入市干预，但汇率走势表明，市场对美元需求依然强劲，日本政府扭转日元弱势的能力有限。
+
+当前宏观经济基本面仍支撑美元走强。
+
+即便市场预期伊朗局势有望缓和，能源价格仍居高不下。
+
+日本央行距离潜在加息时点至少还有一个月的时间，而美联储降息周期也迟迟未见启动迹象。
+
+华侨银行策略师Moh Siong Sim表示：“关键问题在于，日本财务省是会继续捍卫日元汇率，还是已动用足够弹药进行干预。
+
+”策略师指出，仅靠干预不太可能扭转日元贬值的整体趋势。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 19:47 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 19:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 19:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:57 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 19:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 19:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 19:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 19:45 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 20:10 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 19:46 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 19:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 20:09 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 19:42 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 20:16 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 20:03 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 20:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 19:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 19:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 20:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 20:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 19:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 20:06 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 19:57 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 20:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 20:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/062392149568.shtml)
-- 2026-06-29 20:08 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/0423930.shtml)
-- 2026-06-29 19:50 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/324099681986.shtml)
-- 2026-06-29 19:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/677667.shtml)
-- 2026-06-29 19:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/36569239.shtml)
-- 2026-06-29 19:53 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/26232896.shtml)
-- 2026-06-29 20:09 - [韩国小学生都来吐槽了](http://www.blog.minike.top/Article/details/39817637.shtml)
-- 2026-06-29 19:45 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/640987636.shtml)
-- 2026-06-29 19:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/465190434.shtml)
-- 2026-06-29 19:46 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/526402.shtml)
-- 2026-06-29 19:50 - [《贺子珍》](https://www.blog.minike.top/Article/details/43762.shtml)
-- 2026-06-29 19:42 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/29556148647.shtml)
-- 2026-06-29 19:43 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/99515686.shtml)
-- 2026-06-29 20:02 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/809311529.shtml)
-- 2026-06-29 19:44 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/48181.shtml)
+- 2026-06-29 19:58 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/20501857012.shtml)
+- 2026-06-29 19:51 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5244382739.shtml)
+- 2026-06-29 19:53 - [东方风云榜](http://www.share.minike.top/Article/details/768981.shtml)
+- 2026-06-29 20:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/003807.shtml)
+- 2026-06-29 20:14 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/44784279.shtml)
+- 2026-06-29 19:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/1880041629.shtml)
+- 2026-06-29 20:04 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/542711.shtml)
+- 2026-06-29 19:59 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/4258004.shtml)
+- 2026-06-29 20:01 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/612555.shtml)
+- 2026-06-29 20:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/01785.shtml)
+- 2026-06-29 19:51 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/41411.shtml)
+- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/948016753.shtml)
+- 2026-06-29 20:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8548114166.shtml)
+- 2026-06-29 20:06 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/787096870189.shtml)
+- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/2785427159.shtml)

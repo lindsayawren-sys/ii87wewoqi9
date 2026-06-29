@@ -1,60 +1,61 @@
-# 2026年粤港澳大湾区龙舟邀请赛（阳山站）在清远举行
+# 美国最高法院拒绝暂缓苹果藐视法庭令，苹果与Epic纠纷再升级
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。 当日，醒狮表演、桨板巡游轮番上演。龙头点睛仪式举行
+美国最高法院拒绝了苹果公司提出的紧急请求，后者要求暂缓执行下级法院认定其在Epic Games反垄断诉讼中存在藐视法庭行为的命令。 大法官埃琳娜·卡根代表法院作出了这一决定，并未将苹果的申请提交全体大法官审议。这意味着苹果必须回到加州奥克兰的地区法院，就其通过外部链接完成的交易可合法收取多少佣金接受进一步审理。 Epic Games起初在2020年起诉苹果，指控其App Sto
 
 ## 正文
 
-中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。
+美国最高法院拒绝了苹果公司提出的紧急请求，后者要求暂缓执行下级法院认定其在Epic Games反垄断诉讼中存在藐视法庭行为的命令。
 
-18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。
+大法官埃琳娜·卡根代表法院作出了这一决定，并未将苹果的申请提交全体大法官审议。
 
-数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。
+这意味着苹果必须回到加州奥克兰的地区法院，就其通过外部链接完成的交易可合法收取多少佣金接受进一步审理。
 
-当日，醒狮表演、桨板巡游轮番上演。
+Epic Games起初在2020年起诉苹果，指控其App Store政策违反反垄断法。
 
-龙头点睛仪式举行，嘉宾们手持朱砂笔为龙舟点睛，一笔落下，万象更新，祈愿山河无恙、风调雨顺、国泰民安。
+虽然苹果在该诉讼中“大体上获胜”，但法院在2021年发布禁令，要求苹果允许开发者在应用中添加链接，引导用户使用非苹果支付方式。
 
-活动现场，随着一声令下，激昂的锣鼓声响彻连江两岸，平静的江面瞬间沸腾。
+苹果随后实施了新的限制，包括对通过外部支付系统完成的购买收取高达27%的佣金。
 
-一艘艘龙舟如蛟龙出水、踏浪腾空，参赛队员们身姿挺拔、士气高昂，伴随着整齐划一的鼓点节奏，挥桨击水、起落同步，桨影翻飞划破碧波，浪花飞溅激荡江流。
+Epic Games声称，这套新的27%佣金方案无视了此前的禁令。
 
-经过激烈的角逐，小江镇龙舟队斩获本地组冠军，广州市增城区新塘镇龙舟协会龙舟队获得邀请组冠军。
+2025年，一名联邦法官认定苹果藐视法庭，第九巡回上诉法院随后维持了这一认定。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 19:51 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:44 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 19:47 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 19:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 19:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 19:47 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 19:53 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 19:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 20:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 20:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 19:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 20:10 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 20:03 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 20:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 20:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 20:09 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 20:05 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 20:17 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 20:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 20:09 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 20:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 20:05 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 20:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 19:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 19:59 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/16613836.shtml)
-- 2026-06-29 20:03 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/65412358166.shtml)
-- 2026-06-29 20:04 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/28028297923.shtml)
-- 2026-06-29 19:55 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/3191573.shtml)
-- 2026-06-29 19:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/433173231.shtml)
-- 2026-06-29 19:58 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/36697578004.shtml)
-- 2026-06-29 19:43 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/79150879.shtml)
-- 2026-06-29 19:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/1924812.shtml)
-- 2026-06-29 19:44 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/31347493.shtml)
-- 2026-06-29 20:07 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.minike.top/Article/details/24159.shtml)
-- 2026-06-29 19:48 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/1182884906.shtml)
-- 2026-06-29 19:45 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/779384011.shtml)
-- 2026-06-29 20:10 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/1546675420.shtml)
-- 2026-06-29 20:05 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/46493114015.shtml)
-- 2026-06-29 19:57 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/51376.shtml)
+- 2026-06-29 20:07 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/091160517528.shtml)
+- 2026-06-29 20:15 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/503047.shtml)
+- 2026-06-29 19:52 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/1751111.shtml)
+- 2026-06-29 20:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/12070057047.shtml)
+- 2026-06-29 19:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/60690186.shtml)
+- 2026-06-29 19:48 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/216887.shtml)
+- 2026-06-29 19:52 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/943613.shtml)
+- 2026-06-29 19:54 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/5898177.shtml)
+- 2026-06-29 20:13 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/374935006.shtml)
+- 2026-06-29 19:50 - [周生如故](http://www.blog.minike.top/Article/details/91655627.shtml)
+- 2026-06-29 20:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/989845836.shtml)
+- 2026-06-29 19:50 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/1917489822.shtml)
+- 2026-06-29 19:55 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/106855738.shtml)
+- 2026-06-29 20:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/3113136969.shtml)
+- 2026-06-29 19:59 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/9684564100.shtml)

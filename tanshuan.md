@@ -1,59 +1,52 @@
-# 为何美伊协议对美联储而言未必是鸽派信号？
+# 报道：霍尔木兹海峡航运通行量骤降至近乎归零
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-文章来源：华尔街见闻 美伊和平协议消息令美债大涨、降息预期升温，但美国银行泼下冷水：市场的鸽派解读可能大错特错。若协议推动WTI原油在80至90美元区间企稳，通胀温和上行叠加就业风险消退，美联储反而将面临最偏鹰派的政策环境——降息无望，加息才是正解。 美伊和平协议的消息推动美债大涨、降息预期快速升温，但美国银行提出警示：市场的鸽派解读可能是一厢情愿。若协议促使油价在温和区间企稳
+据报道援引船舶追踪网站MarineTraffic的数据，过去48小时内，霍尔木兹海峡的商业船舶通航量跌至历史低位区间。 公开数据显示，近两天没有任何船只在阿拉伯海与波斯湾之间穿行。 MarineTraffic数据呈现了过去48小时霍尔木兹海峡周边的船舶通航状况。 GPS信号干扰仍十分普遍：有多艘船舶看似在海峡内航行，但其中至少四艘明显播报虚假定位，显示位置要么在陆地、要么在浅滩
 
 ## 正文
 
-文章来源：华尔街见闻 美伊和平协议消息令美债大涨、降息预期升温，但美国银行泼下冷水：市场的鸽派解读可能大错特错。
+据报道援引船舶追踪网站MarineTraffic的数据，过去48小时内，霍尔木兹海峡的商业船舶通航量跌至历史低位区间。
 
-若协议推动WTI原油在80至90美元区间企稳，通胀温和上行叠加就业风险消退，美联储反而将面临最偏鹰派的政策环境——降息无望，加息才是正解。
+公开数据显示，近两天没有任何船只在阿拉伯海与波斯湾之间穿行。
 
-美伊和平协议的消息推动美债大涨、降息预期快速升温，但美国银行提出警示：市场的鸽派解读可能是一厢情愿。
+MarineTraffic数据呈现了过去48小时霍尔木兹海峡周边的船舶通航状况。
 
-若协议促使油价在温和区间企稳，反而可能制造出最偏鹰派的货币政策环境。
+GPS信号干扰仍十分普遍：有多艘船舶看似在海峡内航行，但其中至少四艘明显播报虚假定位，显示位置要么在陆地、要么在浅滩沙洲上方——这类区域对货轮而言属于极高危航行地带。
 
-受美伊即将达成和平协议的消息刺激，美债大幅上涨，年底前的美联储降息定价跌破一次完整降息。
+阿联酋沙迦、迪巴富查伊拉近海也出现GPS欺骗现象，多艘船只的定位同时扎堆显示在同一地点。
 
-市场逻辑直觉上似乎成立：油价下行→通胀回落→美联储具备降息条件。
-
-然而，据美银研究报告，协议的影响并非单向。
-
-协议不仅会缓解通胀上行风险，同时也将消除此前市场对经济活动与就业市场遭受滞后性冲击的担忧。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 20:04 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:53 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 19:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 19:49 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 20:05 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 19:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 19:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 20:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 20:07 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 20:11 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:51 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 19:53 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 20:17 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 20:07 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 20:05 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 19:53 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:07 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 20:12 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 20:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 20:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/62955853799.shtml)
-- 2026-06-29 20:11 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/07545790.shtml)
-- 2026-06-29 19:59 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/07635.shtml)
-- 2026-06-29 20:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/33970375038.shtml)
-- 2026-06-29 20:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/415837047714.shtml)
-- 2026-06-29 20:06 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/46213888332.shtml)
-- 2026-06-29 19:55 - [扬名立万](https://www.blog.minike.top/Article/details/803280718.shtml)
-- 2026-06-29 20:02 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/69808534.shtml)
-- 2026-06-29 19:53 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/689417584.shtml)
-- 2026-06-29 19:46 - [千与千寻](https://www.blog.minike.top/Article/details/83269.shtml)
-- 2026-06-29 19:55 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/861478.shtml)
-- 2026-06-29 19:56 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/87315597685.shtml)
-- 2026-06-29 19:47 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/12858.shtml)
-- 2026-06-29 20:11 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/391583346.shtml)
-- 2026-06-29 19:54 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/99745460.shtml)
+- 2026-06-29 20:13 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/02109651.shtml)
+- 2026-06-29 19:57 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/266685694.shtml)
+- 2026-06-29 20:02 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/561290.shtml)
+- 2026-06-29 20:00 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/613081479.shtml)
+- 2026-06-29 20:13 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/815070.shtml)
+- 2026-06-29 19:54 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/373461.shtml)
+- 2026-06-29 20:11 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/50220033797.shtml)
+- 2026-06-29 19:56 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/302439093.shtml)
+- 2026-06-29 20:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/34026445.shtml)
+- 2026-06-29 20:17 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/222011.shtml)
+- 2026-06-29 20:03 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/4950766587.shtml)
+- 2026-06-29 20:16 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/844593.shtml)
+- 2026-06-29 20:04 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/15551.shtml)
+- 2026-06-29 20:10 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/2817258126.shtml)
+- 2026-06-29 19:55 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/849692634406.shtml)

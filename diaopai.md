@@ -1,47 +1,58 @@
-# 昊海生物科技获执行董事唐敏捷增持0.5万股 每股作价16.2港元
+# 观影体验迭代升级 “电影+”加出产业链新可能
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月12日，执行董事唐敏捷增持昊海生物科技（06826）0.5万股，每股作价16.2港元，总金额为8.1万港元。增持后最新持股数目为4.54万股，最新持股比例为0.13%。责任编辑：卢昱君
+据国家电影局统计，今年五一档电影票房为7.58亿元，比去年同档期增长1.41%。五天观影人次达2084.19万，放映场次237.6万场，同比增长分别为10.23%和2%。 今年“五一”假期，融合科技与互动的新式观影体验也受到了不少观众的欢迎。从观影到制作，“电影+科技”不仅为观众带来全方位的视听变化，更重构产业生态。 “五一”期间，西影集团“无界XR影院”成为“热门打卡地”。“
 
 ## 正文
 
-香港联交所最新资料显示，6月12日，执行董事唐敏捷增持昊海生物科技（06826）0.5万股，每股作价16.2港元，总金额为8.1万港元。
+据国家电影局统计，今年五一档电影票房为7.58亿元，比去年同档期增长1.41%。
 
-增持后最新持股数目为4.54万股，最新持股比例为0.13%。
+五天观影人次达2084.19万，放映场次237.6万场，同比增长分别为10.23%和2%。
 
-责任编辑：卢昱君
+今年“五一”假期，融合科技与互动的新式观影体验也受到了不少观众的欢迎。
+
+从观影到制作，“电影+科技”不仅为观众带来全方位的视听变化，更重构产业生态。
+
+“五一”期间，西影集团“无界XR影院”成为“热门打卡地”。
+
+“无界XR影院”实现了“一把椅子就是一个影院”，打破了传统影院的银幕限制。
+
+观众入座，戴上双目8K、180克重的轻量化头显设备，可体验到超高清画面360°铺满的视野效果，座椅可以随着剧情观看自由旋转。
+
+根据实际运营数据测算，5月1日至3日，无界XR影院单座椅日均产值573元，单座椅日均观影达10.5人次。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 19:43 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 19:56 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 20:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 19:51 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 19:48 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:48 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 19:46 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 19:50 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 19:59 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 19:50 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 20:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 20:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 19:54 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 19:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 20:14 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 20:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:59 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 19:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 19:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:12 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/12153849.shtml)
-- 2026-06-29 20:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/49002884.shtml)
-- 2026-06-29 20:11 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/1053312587.shtml)
-- 2026-06-29 20:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/836519037.shtml)
-- 2026-06-29 19:49 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/1406156057.shtml)
-- 2026-06-29 19:55 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/9589287.shtml)
-- 2026-06-29 20:07 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/992742.shtml)
-- 2026-06-29 20:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/90315363.shtml)
-- 2026-06-29 20:00 - [流金岁月](https://www.share.minike.top/Article/details/3965128.shtml)
-- 2026-06-29 20:09 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/7929775045.shtml)
-- 2026-06-29 19:56 - [时光音乐会](http://www.share.minike.top/Article/details/603480383.shtml)
-- 2026-06-29 19:44 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/6971654.shtml)
-- 2026-06-29 20:01 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/391869.shtml)
-- 2026-06-29 19:51 - [斛珠夫人](https://www.share.minike.top/Article/details/06359412.shtml)
-- 2026-06-29 19:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/884784299.shtml)
+- 2026-06-29 20:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/21597.shtml)
+- 2026-06-29 20:01 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/7800022.shtml)
+- 2026-06-29 19:56 - [我们的少年时代2](http://www.blog.minike.top/Article/details/59894356.shtml)
+- 2026-06-29 20:13 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/976564384.shtml)
+- 2026-06-29 20:04 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/72979715.shtml)
+- 2026-06-29 20:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/4334950332.shtml)
+- 2026-06-29 20:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/828929842.shtml)
+- 2026-06-29 19:55 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/52188.shtml)
+- 2026-06-29 20:05 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/790528.shtml)
+- 2026-06-29 20:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/206922411.shtml)
+- 2026-06-29 19:54 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/95722.shtml)
+- 2026-06-29 19:56 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/5469615233.shtml)
+- 2026-06-29 20:15 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/756500086.shtml)
+- 2026-06-29 19:58 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/9543538.shtml)
+- 2026-06-29 20:10 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/563246464.shtml)

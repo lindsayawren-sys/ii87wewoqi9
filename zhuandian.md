@@ -1,50 +1,61 @@
-# 机器人“玩转”南博会
+# 光大期货0507热点追踪：PX领跌化工品，供需双缩下成本支撑松动
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 15:43 来源：中国新闻网 6月12日，第10届中国—南亚博览会正在云南昆明举行，记者看到，现场展出了许多智能机器人，也有不少展位利用机器人吸引民众前来。机器人们或表演茶艺，或进行拳击比赛，或跳起舞蹈，十分热闹。(王伟臣） 责任编辑：【吉翔】
+今日，国内化工品板块集体走弱，PX0>对二甲苯（PX）跌幅尤为明显。截至收盘，PX主力合约跌幅约5%，领跌化工板块，市场情绪明显转弱。 从基本面看，近期PX及下游PTA装置检修、重启消息交替出现，供应端虽有阶段性收缩，但需求端订单跟进有限，成本向下传导不畅。尽管五一节前聚酯原料端一度受原油提振走强，但节后终端需求恢复不及预期，叠加部分聚酯工厂减产，原料采购意愿下降，导致PX价格
 
 ## 正文
 
-发布时间：2026年06月13日 15:43 来源：中国新闻网 6月12日，第10届中国—南亚博览会正在云南昆明举行，记者看到，现场展出了许多智能机器人，也有不少展位利用机器人吸引民众前来。
+今日，国内化工品板块集体走弱，PX0>对二甲苯（PX）跌幅尤为明显。
 
-机器人们或表演茶艺，或进行拳击比赛，或跳起舞蹈，十分热闹。
+截至收盘，PX主力合约跌幅约5%，领跌化工板块，市场情绪明显转弱。
 
-(王伟臣） 责任编辑：【吉翔】
+从基本面看，近期PX及下游PTA装置检修、重启消息交替出现，供应端虽有阶段性收缩，但需求端订单跟进有限，成本向下传导不畅。
+
+尽管五一节前聚酯原料端一度受原油提振走强，但节后终端需求恢复不及预期，叠加部分聚酯工厂减产，原料采购意愿下降，导致PX价格承压。
+
+此外，随着检修装置陆续重启，市场对中期供应趋于宽松的担忧也有所升温。
+
+成本端方面，国际油价近期高位波动加剧。
+
+美伊局势反复拉扯，供应中断风险与OPEC增产预期并存，原油价格缺乏持续上行动力，对PX的成本支撑有所松动。
+
+与此同时，乙二醇港口库存虽持续去化，但对整个聚酯链的提振作用有限。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 20:02 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 20:03 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 20:11 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 20:03 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 20:07 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 19:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 19:56 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 20:00 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 19:49 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 20:09 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 19:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 19:50 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 20:05 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 19:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 19:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 19:49 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 20:16 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 20:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 19:57 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 20:13 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 20:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 19:56 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 20:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 19:56 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 20:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 20:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/404107.shtml)
-- 2026-06-29 19:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/674981.shtml)
-- 2026-06-29 19:52 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/9821476.shtml)
-- 2026-06-29 20:09 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/91289.shtml)
-- 2026-06-29 19:51 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/42080962741.shtml)
-- 2026-06-29 20:07 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/657088.shtml)
-- 2026-06-29 19:57 - [金刚川](http://www.blog.minike.top/Article/details/1195692332.shtml)
-- 2026-06-29 19:47 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/531977.shtml)
-- 2026-06-29 20:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/18254.shtml)
-- 2026-06-29 19:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/265489.shtml)
-- 2026-06-29 19:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/6604492514.shtml)
-- 2026-06-29 19:46 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/15357682.shtml)
-- 2026-06-29 19:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/64773634073.shtml)
-- 2026-06-29 20:09 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/21279164.shtml)
-- 2026-06-29 19:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/76707351.shtml)
+- 2026-06-29 20:07 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/059867942035.shtml)
+- 2026-06-29 20:17 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/3559997.shtml)
+- 2026-06-29 19:49 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/392967796367.shtml)
+- 2026-06-29 20:05 - [流金岁月](http://www.share.kurohicncr.top/Article/details/63610160671.shtml)
+- 2026-06-29 20:01 - [温网](https://www.share.minike.top/Article/details/7920775.shtml)
+- 2026-06-29 20:07 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/23128.shtml)
+- 2026-06-29 20:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/521880229976.shtml)
+- 2026-06-29 19:58 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/0395963218.shtml)
+- 2026-06-29 19:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/25165.shtml)
+- 2026-06-29 20:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/01634492695.shtml)
+- 2026-06-29 19:59 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/466504.shtml)
+- 2026-06-29 20:06 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/764270751.shtml)
+- 2026-06-29 20:06 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/5500968879.shtml)
+- 2026-06-29 19:50 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/63259953.shtml)
+- 2026-06-29 20:12 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/5138831774.shtml)

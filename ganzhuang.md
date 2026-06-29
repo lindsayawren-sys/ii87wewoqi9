@@ -1,56 +1,58 @@
-# 创新药终于反击！520880单日大涨3.66%，周线终结7连阴！机构密集提示底部机会
+# 000066三连板，机构、游资、北向资金仍在追高
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-6月12日，AH创新药携手上攻，显著跑赢大市！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。 聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今日，A股市场延续强势表现，AI主线热度加速扩散，从上游的CPO、PCB、服务器，到下游应用端及算力租赁，几乎全产业链同步升温，带动创业板指、科创综指等宽基股指迭创阶段新高。 从盘后的龙虎榜看，AI主线也是各路活跃资金的追逐焦点。其中，中国长城（000066）近期股价斩获三连板，多家机构与游资席位也毫不“恐
 
 ## 正文
 
-6月12日，AH创新药携手上攻，显著跑赢大市！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。
+今日，A股市场延续强势表现，AI主线热度加速扩散，从上游的CPO、PCB、服务器，到下游应用端及算力租赁，几乎全产业链同步升温，带动创业板指、科创综指等宽基股指迭创阶段新高。
 
-沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。
+从盘后的龙虎榜看，AI主线也是各路活跃资金的追逐焦点。
 
-聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！
+其中，中国长城（000066）近期股价斩获三连板，多家机构与游资席位也毫不“恐高”，斥重金追入该股。
 
-权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨超5%，百济神州、翰森制药、三生制药齐涨超2%。
+中国长城日线走势 中国长城的单日榜单显示，深股通、机构、游资席位今日均大举介入，成为推动公司股价3连板的重要力量。
 
-热门ETF方面，100%创新药研发标的——港股通创新药ETF华宝（520880）全天震荡上行，盘中摸高3.92%，收涨3.66%，创下4月16日以来最大单日升幅，全天成交5.28亿元，较上日激增逾77%！
+其中，深股通席位高居买一，日内净买入2.61亿元；3家机构席位分列买二、买三及买五，合计买入6.57亿元；华福证券南京胜太路营业部位居买四，买入1.74亿元，这是该席位本月首次上榜。
 
-本周，港股通创新药初现止跌迹象，520880在连跌7周后，周线终于收阳！
+中国长城5月7日龙虎榜 交易所同时还披露了中国长城三日榜单，买入五席构成与单日榜单类似：深股通累计净买入3.40亿元；两家机构席位合计买入6.59亿元，但同时合计卖出4.17亿元，显示部分筹码已短期了结；开源证券两家营业部分列买三和买五，合计买入6.39亿元，结合卖出金额看，这两家席位目前仍持有大部分头寸。
 
-尽管单周累计涨幅仅为0.25%，但已成功跑赢大盘，恒指周跌0.98%，连跌5周。
+中国长城三日榜单 资料显示，中国长城是中国电子信息产业集团有限公司（简称中国电子）计算产业核心子集团，主营计算产业、系统装备及其他业务。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 19:46 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 19:49 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 19:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 19:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:51 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 20:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 20:01 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:13 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 20:17 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 20:12 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 19:58 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 19:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 20:04 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 20:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 20:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 20:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/77636.shtml)
-- 2026-06-29 19:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/60103.shtml)
-- 2026-06-29 20:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/1130726.shtml)
-- 2026-06-29 19:50 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/98035107.shtml)
-- 2026-06-29 19:57 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/55221676.shtml)
-- 2026-06-29 20:07 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/74037.shtml)
-- 2026-06-29 20:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/64167.shtml)
-- 2026-06-29 20:08 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/460329696483.shtml)
-- 2026-06-29 19:58 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/73367190.shtml)
-- 2026-06-29 19:44 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/915887582549.shtml)
-- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/270889.shtml)
-- 2026-06-29 19:53 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/20568.shtml)
-- 2026-06-29 19:44 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/824825314.shtml)
-- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/7758524.shtml)
-- 2026-06-29 20:08 - [起风了](https://www.share.kurohicncr.top/Article/details/380535951.shtml)
+- 2026-06-29 19:59 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/30409353021.shtml)
+- 2026-06-29 20:09 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/280060664.shtml)
+- 2026-06-29 20:03 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/62279400878.shtml)
+- 2026-06-29 20:15 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/5565013855.shtml)
+- 2026-06-29 19:52 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/026049.shtml)
+- 2026-06-29 20:07 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/149467705.shtml)
+- 2026-06-29 19:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/83151.shtml)
+- 2026-06-29 20:06 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/403326221.shtml)
+- 2026-06-29 20:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/7681105.shtml)
+- 2026-06-29 19:58 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/07767.shtml)
+- 2026-06-29 20:17 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/13594407.shtml)
+- 2026-06-29 19:53 - [王楚钦开门红](https://www.blog.minike.top/Article/details/69261167587.shtml)
+- 2026-06-29 19:48 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/214080781.shtml)
+- 2026-06-29 20:00 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/45336.shtml)
+- 2026-06-29 20:04 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/495631575.shtml)

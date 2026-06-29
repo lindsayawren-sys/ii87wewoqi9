@@ -1,61 +1,58 @@
-# 一餐热饭里的社区新事：“AI大厨”炒出“家常味”
+# 亚航CEO：当前航油危机比新冠疫情更严峻
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。 80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。” 未来食
+亚洲航空首席执行官托尼·费尔南德斯警告称，伊朗战争引发的全球航空燃油短缺对航空业的冲击比新冠疫情时期更为严重。 费尔南德斯在接受采访时表示，他曾以为自己在疫情期间已经经历了最糟糕的情况，但看到航空燃油价格上涨近三倍后，他认为这次的情况要严重得多。他补充说，某天醒来突然发现公司的核心成本飙升了三倍，这对他来说是一种全新的经历。 自2月底美伊冲突爆发以来，霍尔木兹海峡航运受阻，航空
 
 ## 正文
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。
+亚洲航空首席执行官托尼·费尔南德斯警告称，伊朗战争引发的全球航空燃油短缺对航空业的冲击比新冠疫情时期更为严重。
 
-80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。
+费尔南德斯在接受采访时表示，他曾以为自己在疫情期间已经经历了最糟糕的情况，但看到航空燃油价格上涨近三倍后，他认为这次的情况要严重得多。
 
-过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。
+他补充说，某天醒来突然发现公司的核心成本飙升了三倍，这对他来说是一种全新的经历。
 
-如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。
+自2月底美伊冲突爆发以来，霍尔木兹海峡航运受阻，航空燃油供应降至有记录以来最低水平。
 
-” 未来食堂里，没有传统后厨此起彼伏的炒菜声，也闻不到浓重油烟。
+费尔南德斯指出，与其他地区的航空公司不同，亚洲航空业在此轮危机中显得尤为脆弱。
 
-几台智能设备正在运转，不一会儿，热气腾腾的鱼香肉丝、清炒土豆丝、西芹花菜等家常菜准备就绪，只需扫一扫取餐码便可拿取。
+由于燃油对冲比例普遍较低，亚洲航空公司必须直接承受油价飙升的冲击。
 
-对于不少居民而言，一顿热饭看似小事，却关系着日常生活的幸福感。
+数据显示，仅5月份全球已有约1.3万架次航班被取消，减少近200万个座位。
 
-据悉，该食堂所在的申沁社区成立于2025年，随着辖区内新小区交付，社区人口快速增长，其中既有老年居民，也有不少年轻家庭和新就业群体。
+美国廉航Spirit Airlines已于本周倒闭，费尔南德斯警告其他低成本运营商可能步其后尘。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 19:48 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 20:01 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:56 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 19:46 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 19:53 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 20:07 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 19:47 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 19:53 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 20:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 20:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 20:11 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 19:48 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 19:42 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 20:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 20:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 20:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 20:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 20:05 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 20:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 19:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 20:17 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 20:13 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 19:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:16 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 19:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 19:50 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [小娘惹](http://www.share.minike.top/Article/details/5361688.shtml)
-- 2026-06-29 20:10 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/419377905399.shtml)
-- 2026-06-29 19:49 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/20664.shtml)
-- 2026-06-29 20:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/622082109.shtml)
-- 2026-06-29 19:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/62861.shtml)
-- 2026-06-29 20:06 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/02309.shtml)
-- 2026-06-29 20:05 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/875705928.shtml)
-- 2026-06-29 20:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/18123636789.shtml)
-- 2026-06-29 19:59 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/4627941.shtml)
-- 2026-06-29 20:00 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/38753877.shtml)
-- 2026-06-29 19:45 - [TOP Prada](https://www.share.minike.top/Article/details/275760.shtml)
-- 2026-06-29 20:01 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/00342.shtml)
-- 2026-06-29 19:53 - [美人鱼](https://www.share.kurohicncr.top/Article/details/23935.shtml)
-- 2026-06-29 19:45 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/48102.shtml)
-- 2026-06-29 20:01 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/75272135.shtml)
+- 2026-06-29 19:50 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/176799.shtml)
+- 2026-06-29 20:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/590738.shtml)
+- 2026-06-29 19:55 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/834350655195.shtml)
+- 2026-06-29 20:00 - [金刚川](https://www.share.kurohicncr.top/Article/details/370045304.shtml)
+- 2026-06-29 20:07 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/5881230.shtml)
+- 2026-06-29 20:14 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/003394582362.shtml)
+- 2026-06-29 19:51 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/06362838.shtml)
+- 2026-06-29 20:12 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/2605257.shtml)
+- 2026-06-29 19:54 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/585222601.shtml)
+- 2026-06-29 19:50 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/465449.shtml)
+- 2026-06-29 19:58 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/680437.shtml)
+- 2026-06-29 20:17 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/545203896507.shtml)
+- 2026-06-29 20:15 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/31653.shtml)
+- 2026-06-29 19:51 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/007667102.shtml)
+- 2026-06-29 19:57 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/13253148868.shtml)

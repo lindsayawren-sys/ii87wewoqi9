@@ -1,59 +1,56 @@
-# 光大期货：6月16日农产品日报
+# 私募股权回报改善，大都会人寿一季度业绩超预期
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
+受私募股权投资收益改善及亚洲市场需求强劲推动，大都会人寿第一季度盈利超出华尔街预期。 财报显示，可变动投资收入同比大幅增长58%至5.18亿美元，主要得益于私募股权回报提升。受此拉动，调整后盈利增长18%至15.86亿美元，合每股2.42美元，显著高于分析师预期的2.29美元。净利润为11.4亿美元，同比增长30%。 集团总裁Michel Khalaf表示，公司延续了稳健的执行
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
+受私募股权投资收益改善及亚洲市场需求强劲推动，大都会人寿第一季度盈利超出华尔街预期。
 
-NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
+财报显示，可变动投资收入同比大幅增长58%至5.18亿美元，主要得益于私募股权回报提升。
 
-美豆油库存低于预期。
+受此拉动，调整后盈利增长18%至15.86亿美元，合每股2.42美元，显著高于分析师预期的2.29美元。
 
-美豆出口检验符合预期，美豆优良率略改善。
+净利润为11.4亿美元，同比增长30%。
 
-机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
+集团总裁Michel Khalaf表示，公司延续了稳健的执行力，通过资本配置平衡业务投资与股东回报。
 
-国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
+各业务板块表现强劲：亚洲业务调整后盈利飙升31%，日本和韩国引领销售额增长22%；团体福利业务增长19%，EMEA地区增长33%。
 
-现货市场成交清淡，同样观望为主。
+美国退休业务及寿险板块同样录得增长。
 
-钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
+大都会人寿本季度向股东返还逾11亿美元，通过回购和股息方式。
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 19:56 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 19:53 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 20:04 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 19:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 20:07 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 19:46 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 20:02 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 20:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:58 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 19:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:09 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 20:02 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 19:49 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 20:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 20:13 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 19:53 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 20:05 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/00920.shtml)
-- 2026-06-29 20:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/4820163.shtml)
-- 2026-06-29 19:54 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5533345.shtml)
-- 2026-06-29 19:53 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/1860737.shtml)
-- 2026-06-29 19:44 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/07743022405.shtml)
-- 2026-06-29 19:58 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/52675.shtml)
-- 2026-06-29 19:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/8245878.shtml)
-- 2026-06-29 19:48 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/377269336.shtml)
-- 2026-06-29 20:08 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/34544.shtml)
-- 2026-06-29 20:11 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/366731123137.shtml)
-- 2026-06-29 19:59 - [这一刀 会很帅](https://www.share.minike.top/Article/details/042625267.shtml)
-- 2026-06-29 19:59 - [周生如故](https://www.share.kurohicncr.top/Article/details/728553.shtml)
-- 2026-06-29 19:51 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/0007842262.shtml)
-- 2026-06-29 19:53 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/8433128.shtml)
-- 2026-06-29 19:49 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/417918.shtml)
+- 2026-06-29 20:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/948579314856.shtml)
+- 2026-06-29 20:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/06499.shtml)
+- 2026-06-29 20:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/31829.shtml)
+- 2026-06-29 20:13 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/272099901707.shtml)
+- 2026-06-29 20:00 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/564049333151.shtml)
+- 2026-06-29 20:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/577045744.shtml)
+- 2026-06-29 19:55 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/59874695931.shtml)
+- 2026-06-29 19:52 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/337851032.shtml)
+- 2026-06-29 20:10 - [金刚川](https://www.blog.kurohicncr.top/Article/details/43060.shtml)
+- 2026-06-29 19:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/12359.shtml)
+- 2026-06-29 19:49 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/586534.shtml)
+- 2026-06-29 19:53 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/675075.shtml)
+- 2026-06-29 19:56 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/2150243.shtml)
+- 2026-06-29 20:10 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/62895768930.shtml)
+- 2026-06-29 20:03 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/5008235004.shtml)

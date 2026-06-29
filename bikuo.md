@@ -1,49 +1,58 @@
-# 幼儿园举行儿童自理能力大赛 淡定小孩哥凭实力上演“不慌不忙 实力称王”
+# 外交部：“台独”势力妄图分裂国家注定是绝路死路
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 15:25 来源：中国新闻网 幼儿园举行儿童自理能力大赛，淡定小孩哥凭实力上演“不慌不忙 实力称王”。网友：他是怎么做到又快又慢的？ 责任编辑：【翟璐】
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据报道，洪都拉斯新任总统表示，其政府需要对前任政府与中国达成的协议进行审查。他还指出，华为设备也将纳入此次审查范围。中方对此有何回应？ 林剑：我要指出的是，相关报道移花接木、挑拨是非，与事实不符，严重违背新闻职业道德。我要强调的是，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华
 
 ## 正文
 
-发布时间：2026年06月15日 15:25 来源：中国新闻网 幼儿园举行儿童自理能力大赛，淡定小孩哥凭实力上演“不慌不忙 实力称王”。
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-网友：他是怎么做到又快又慢的？
+有记者提问：据报道，洪都拉斯新任总统表示，其政府需要对前任政府与中国达成的协议进行审查。
 
-责任编辑：【翟璐】
+他还指出，华为设备也将纳入此次审查范围。
+
+中方对此有何回应？
+
+林剑：我要指出的是，相关报道移花接木、挑拨是非，与事实不符，严重违背新闻职业道德。
+
+我要强调的是，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府，一个中国原则是国际社会普遍共识和国际关系基本准则，也是中洪发展关系、开展合作的政治基础和前提条件，容不得半点含糊。
+
+中洪建交以来，双方本着相互尊重、平等协商的原则，开展各领域务实合作，互利双赢、成果显著，造福两国人民也得到两国人民的广泛拥护。
+
+事实证明，坚持一个中国原则是顺应历史发展大势，契合时代进步潮流的正确决定，符合洪都拉斯国家和人民的根本利益。
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 20:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 19:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 19:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 19:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 19:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 19:59 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 19:50 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 20:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 19:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 19:46 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 20:04 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 19:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 20:05 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 20:07 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 20:15 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 19:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:57 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 20:08 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 19:49 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 19:53 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 19:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 19:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/63536841.shtml)
-- 2026-06-29 20:04 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/92837867508.shtml)
-- 2026-06-29 19:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6369424900.shtml)
-- 2026-06-29 20:06 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/79379167.shtml)
-- 2026-06-29 19:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/7347859921.shtml)
-- 2026-06-29 19:46 - [爱很美味](http://www.share.minike.top/Article/details/61956755755.shtml)
-- 2026-06-29 19:53 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/550243800601.shtml)
-- 2026-06-29 19:47 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/033320630.shtml)
-- 2026-06-29 19:57 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/75257599937.shtml)
-- 2026-06-29 20:03 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/1635636.shtml)
-- 2026-06-29 19:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/68332332.shtml)
-- 2026-06-29 20:09 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/26114320277.shtml)
-- 2026-06-29 19:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/5253255.shtml)
-- 2026-06-29 19:45 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/68736644.shtml)
-- 2026-06-29 20:08 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/623970987.shtml)
+- 2026-06-29 20:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/75925721.shtml)
+- 2026-06-29 19:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/12244127362.shtml)
+- 2026-06-29 20:08 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/383486448466.shtml)
+- 2026-06-29 19:52 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/432248286.shtml)
+- 2026-06-29 20:06 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/206197.shtml)
+- 2026-06-29 20:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/148117.shtml)
+- 2026-06-29 20:04 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/782252127.shtml)
+- 2026-06-29 20:14 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/835049.shtml)
+- 2026-06-29 20:17 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/0654703692.shtml)
+- 2026-06-29 20:02 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/606242207791.shtml)
+- 2026-06-29 19:53 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/34274.shtml)
+- 2026-06-29 19:49 - [扫黑风暴](https://www.share.minike.top/Article/details/2860939.shtml)
+- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/1308725.shtml)
+- 2026-06-29 20:16 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/306565423.shtml)
+- 2026-06-29 19:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/42014147.shtml)

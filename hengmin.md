@@ -1,56 +1,61 @@
-# “文化和自然遗产日”陕西主会场活动在铜川举行
+# “回响计划”建成42座多功能篮球场 捐赠体育器材逾1.8万件
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网陕西铜川6月13日电 (记者 阿琳娜)2026年“文化和自然遗产日”陕西省主会场活动13日在铜川举行。 陕西省文物局局长贾强表示，迈向“十五五”文化遗产保护传承利用新征程，要进一步筑牢系统保护根基，统筹规划文物事业长远发展，完善法规制度与监管体系，推进文物现代化、数字化治理，实现文化遗产整体保护、协同监管、永续传承。进一步深化传承利用实践，深挖文物蕴含的历史价值、文化内涵
+中新网北京5月7日电 (张素 张馨月)去年5月，公益项目“回响计划”启动，旨在探索“数字内容+社会公益”的可持续模式。 记者采访获悉，截至今年4月，多方发起的“天生无畏·筑梦球场”公益项目已在全国12个省份24个县(市、区)建成42座多功能篮球场，捐赠体育器材超过1.8万件，培训体育教师75名，累计31255名乡村少年从中受益。 以篮球运动为纽带，将玩家的参与转化为现实支持，逐
 
 ## 正文
 
-中新网陕西铜川6月13日电 (记者 阿琳娜)2026年“文化和自然遗产日”陕西省主会场活动13日在铜川举行。
+中新网北京5月7日电 (张素 张馨月)去年5月，公益项目“回响计划”启动，旨在探索“数字内容+社会公益”的可持续模式。
 
-陕西省文物局局长贾强表示，迈向“十五五”文化遗产保护传承利用新征程，要进一步筑牢系统保护根基，统筹规划文物事业长远发展，完善法规制度与监管体系，推进文物现代化、数字化治理，实现文化遗产整体保护、协同监管、永续传承。
+记者采访获悉，截至今年4月，多方发起的“天生无畏·筑梦球场”公益项目已在全国12个省份24个县(市、区)建成42座多功能篮球场，捐赠体育器材超过1.8万件，培训体育教师75名，累计31255名乡村少年从中受益。
 
-进一步深化传承利用实践，深挖文物蕴含的历史价值、文化内涵与时代精神，打造考古研究、遗址活化、场馆提升、红色传承特色品牌，不断满足民众日益增长的精神文化需求。
+以篮球运动为纽带，将玩家的参与转化为现实支持，逐步改善欠发达地区乡村少年的体育条件……“回响计划”以持续行动交出一份具有温度与成效的公益答卷。
 
-进一步拓宽文明交流视野，深化多领域文博交流合作，常态化开展文物外展、联合考古、研学互动，积极展现中华文明风采与陕西文化魅力，持续讲好陕西故事、丝路故事、中国故事。
+从机制探索到路径成形 据介绍，“回响计划”以长期机制为核心，将玩家参与沉淀为稳定的公益资源输入。
 
-在主场活动中，公布了2026年陕西省“最美文物安全守护者”名单，西安市临潼区秦陵街鱼池村群众文保员吴江等10人入选；发布“陕西省文物主题游径典型案例”，包括汉景帝阳陵博物院大汉紫道——“寻踪汉阳陵”等7条文物主题游径典型案例；陕西省文物局分别与陕西省测绘地理信息局、西北有色地质矿业集团有限公司签订合作协议；铜川市文物局与陕西省考古研究院签订战略合作框架协议，举行铜川基本建设工程考古出土文物移交仪式；铜川市第四次全国文物普查二队队长、耀州窑博物馆副研究馆员陈宁宁为大家讲述那段“踏遍漆沮守护文脉”的普查时光；在主会场还举办文物保护、文创和非遗展示等宣传活动。
+作为该计划的重要组成部分，2025年，“回响计划”联合腾讯成长守护平台、壹基金发起“天生无畏·筑梦球场”公益项目。
 
-在2026年“文化和自然遗产日”前后，陕西各地文物行政管理部门、文博单位、社会行业等机构围绕“文物属于人民，服务人民”主题，精心组织策划各类线上线下各具特色的宣传活动。
+该项目以“硬件建设+软件赋能”为主要路径：一方面，建设多功能篮球场，兼顾足球、羽毛球等多种运动需求；另一方面，通过开展乡村教师训练营，推动体育教育向体系化发展。
 
-其中各市、县文博单位和省文物局直属文博单位举办了320多场内容丰富多彩的系列宣传活动，集中展示陕西近年来文物事业高质量发展的新进展、新成效，让文物保护理念深入人心，让文化遗产绽放新的光彩。
+“现在站在这里，我想告诉更多女孩们，别怕，大胆上！
 
-(完)
+”来自贵州的12岁学生陈清柯在首钢园5V5赛场上说。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 19:58 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 20:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 20:06 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:48 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 20:10 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 20:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 19:53 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 20:11 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 19:57 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 20:15 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 20:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:51 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 19:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 20:11 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 20:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 20:01 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 20:17 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 20:09 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 20:11 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 20:07 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 19:51 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 20:03 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 19:52 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/848305.shtml)
-- 2026-06-29 20:03 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/13915.shtml)
-- 2026-06-29 19:52 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/83554986947.shtml)
-- 2026-06-29 20:09 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/095328667229.shtml)
-- 2026-06-29 20:06 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/2563079605.shtml)
-- 2026-06-29 19:42 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/245455.shtml)
-- 2026-06-29 19:52 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/0652219.shtml)
-- 2026-06-29 19:50 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/543055.shtml)
-- 2026-06-29 20:04 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/115064562.shtml)
-- 2026-06-29 20:09 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/64193962790.shtml)
-- 2026-06-29 19:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/6152811066.shtml)
-- 2026-06-29 19:52 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/501958607993.shtml)
-- 2026-06-29 19:43 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/9102743.shtml)
-- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/549164.shtml)
-- 2026-06-29 19:58 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/18223511633.shtml)
+- 2026-06-29 20:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/170943275609.shtml)
+- 2026-06-29 20:17 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/5529021.shtml)
+- 2026-06-29 19:56 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/234010.shtml)
+- 2026-06-29 19:58 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/4615898.shtml)
+- 2026-06-29 20:14 - [沙丘](https://www.blog.minike.top/Article/details/314640670.shtml)
+- 2026-06-29 19:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/991608881.shtml)
+- 2026-06-29 20:11 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/855055654.shtml)
+- 2026-06-29 20:05 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/908649631435.shtml)
+- 2026-06-29 20:12 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/9040026.shtml)
+- 2026-06-29 19:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/858124411269.shtml)
+- 2026-06-29 20:02 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/32819669184.shtml)
+- 2026-06-29 20:11 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/644441608.shtml)
+- 2026-06-29 20:03 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/8970906.shtml)
+- 2026-06-29 19:56 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/4555331.shtml)
+- 2026-06-29 20:01 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/31599090585.shtml)

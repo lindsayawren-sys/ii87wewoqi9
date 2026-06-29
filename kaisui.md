@@ -1,56 +1,56 @@
-# 自然资源部：采矿权人为矿区生态修复责任人
+# 浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 刘文文)自然资源部国土空间生态修复司副司长卢丽华15日在北京指出，采矿权人为矿区生态修复责任人。 当日，《中华人民共和国矿产资源法实施条例》(简称《条例》)正式施行。新修订的矿产资源法实施即将迎来一周年，在此重要节点，自然资源部召开例行新闻发布会，介绍《条例》主要内容。 矿区生态修复是实现矿业绿色高质量发展与生态环境保护相统筹的关键举措。卢丽华表
+独家调查丨浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现 近日，湖南长沙市浏阳烟花厂发生的爆炸事故，在当地和整个行业持续引发震动。事故发生后，湖南省烟花爆竹企业全面停产整顿。烟花爆竹是浏阳的传统支柱产业，这里汇聚了430多家烟花企业、超30万从业人员，年产值超500亿，占据全国六成的市场份额、七成的出口份额。 烟花爆竹产业对浏阳来说如此重要，随之而来的是巨大的安全挑战。
 
 ## 正文
 
-中新网北京6月15日电 (记者 刘文文)自然资源部国土空间生态修复司副司长卢丽华15日在北京指出，采矿权人为矿区生态修复责任人。
+独家调查丨浏阳烟花厂爆炸涉事企业多次被查出隐患、违规行为反复出现 近日，湖南长沙市浏阳烟花厂发生的爆炸事故，在当地和整个行业持续引发震动。
 
-当日，《中华人民共和国矿产资源法实施条例》(简称《条例》)正式施行。
+事故发生后，湖南省烟花爆竹企业全面停产整顿。
 
-新修订的矿产资源法实施即将迎来一周年，在此重要节点，自然资源部召开例行新闻发布会，介绍《条例》主要内容。
+烟花爆竹是浏阳的传统支柱产业，这里汇聚了430多家烟花企业、超30万从业人员，年产值超500亿，占据全国六成的市场份额、七成的出口份额。
 
-矿区生态修复是实现矿业绿色高质量发展与生态环境保护相统筹的关键举措。
+烟花爆竹产业对浏阳来说如此重要，随之而来的是巨大的安全挑战。
 
-卢丽华表示，《条例》在新矿产资源法基础上，进一步细化了矿区生态修复相关制度安排。
+公开资料显示，近些年，浏阳烟花爆炸事故屡有发生。
 
-第一，压实各方责任。
+当地烟花爆竹产业的安全监管还可以从哪些方面进一步提升？
 
-她指出，《条例》明确采矿权人为修复责任人，对采矿权转让中涉及修复事项弄虚作假的，其生态修复义务不因采矿权转让而免除；责任人灭失或无法确认的历史遗留废弃矿区，由政府负责治理。
+总台中国之声记者对此展开独家调查。
 
-第二，加强“谁损毁、谁治理”全链条监管。
+据天眼查，这次发生爆炸事故的浏阳市华盛烟花制造燃放有限公司成立于2000年8月，注册资本540万元。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 19:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 20:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 19:56 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 19:59 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 20:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 19:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 19:50 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 20:00 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 19:54 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 20:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 20:08 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 20:03 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 19:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 20:15 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 20:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 20:10 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/26601077283.shtml)
-- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/895946438468.shtml)
-- 2026-06-29 20:08 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/8483849.shtml)
-- 2026-06-29 20:03 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/74861993544.shtml)
-- 2026-06-29 19:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/14648284811.shtml)
-- 2026-06-29 19:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/4384038510.shtml)
-- 2026-06-29 20:07 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/0129306.shtml)
-- 2026-06-29 19:53 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/02612.shtml)
-- 2026-06-29 19:50 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/10245174332.shtml)
-- 2026-06-29 19:52 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/71449161637.shtml)
-- 2026-06-29 20:09 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/545208.shtml)
-- 2026-06-29 19:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/694787.shtml)
-- 2026-06-29 20:09 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/67933568021.shtml)
-- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/860285.shtml)
-- 2026-06-29 19:49 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/02252.shtml)
+- 2026-06-29 20:16 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/8046569698.shtml)
+- 2026-06-29 19:55 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/86092.shtml)
+- 2026-06-29 19:51 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/76382264.shtml)
+- 2026-06-29 20:08 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/63379261700.shtml)
+- 2026-06-29 19:54 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/953228313.shtml)
+- 2026-06-29 20:14 - [锐评T1零封KC](https://www.share.minike.top/Article/details/455863324597.shtml)
+- 2026-06-29 19:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/326705575323.shtml)
+- 2026-06-29 20:08 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/221351.shtml)
+- 2026-06-29 19:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/51579199.shtml)
+- 2026-06-29 19:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/37196.shtml)
+- 2026-06-29 20:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/3231234671.shtml)
+- 2026-06-29 20:12 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/3507458649.shtml)
+- 2026-06-29 20:10 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/285674.shtml)
+- 2026-06-29 20:08 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/33436.shtml)
+- 2026-06-29 20:09 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/478854116.shtml)

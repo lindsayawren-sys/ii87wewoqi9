@@ -1,57 +1,61 @@
-# 王毅出席上海合作组织成立25周年招待会
+# 港股收评：恒指涨1.55% 科指涨3.02% 科网股、芯片股普涨 商业航天板块强势 华虹半导体涨超8%
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-2026年6月15日，中共中央政治局委员、外交部长王毅在北京出席庆祝上海合作组织成立25周年招待会并致辞。 王毅说，25年前上合组织的成立，掀开当代国际关系崭新一页。25年来，成员国团结协作，担当道义，共谋发展，互学互鉴，培育出互信、互利、平等、协商、尊重多样文明、谋求共同发展的“上海精神”，探索出毗邻国家结伴而不结盟，共守安全稳定、共促发展繁荣的新型区域合作模式，建立起以相互
+5月7日消息，港股三大指数高开高走。截至收盘，恒生指数涨1.55%，报26621.08点，恒生科技指数涨3.02%，国企指数涨1.33%。盘面上，科网股集体上涨，快手涨超7%，百度、阿里巴巴涨超4%，联想、腾讯、哔哩哔哩涨超3%；航空股强势，中国国航涨超5%；商业航天板块涨幅居前，钧达股份涨超8%；芯片股活跃，华虹半导体涨超8%。 航空股强势，中国国航涨超5%。受中东地缘冲突缓
 
 ## 正文
 
-2026年6月15日，中共中央政治局委员、外交部长王毅在北京出席庆祝上海合作组织成立25周年招待会并致辞。
+5月7日消息，港股三大指数高开高走。
 
-王毅说，25年前上合组织的成立，掀开当代国际关系崭新一页。
+截至收盘，恒生指数涨1.55%，报26621.08点，恒生科技指数涨3.02%，国企指数涨1.33%。
 
-25年来，成员国团结协作，担当道义，共谋发展，互学互鉴，培育出互信、互利、平等、协商、尊重多样文明、谋求共同发展的“上海精神”，探索出毗邻国家结伴而不结盟，共守安全稳定、共促发展繁荣的新型区域合作模式，建立起以相互尊重、公平正义、合作共赢为核心的新型国际关系。
+盘面上，科网股集体上涨，快手涨超7%，百度、阿里巴巴涨超4%，联想、腾讯、哔哩哔哩涨超3%；航空股强势，中国国航涨超5%；商业航天板块涨幅居前，钧达股份涨超8%；芯片股活跃，华虹半导体涨超8%。
 
-王毅表示，当前百年变局加速演进，国际形势变乱加剧。
+航空股强势，中国国航涨超5%。
 
-习近平主席胸怀天下，提出四大全球倡议，倡导构建人类命运共同体，指明了时代方向，提供了中国方案。
+受中东地缘冲突缓和的影响，周三国际油价盘中大跳水，WTI原油、布伦特原油价格一度跌超10%。
 
-上合组织作为当今世界举足轻重的稳定性、建设性、进步性力量，应当更好发挥作用，为促进世界和平、发展、合作、共赢担当尽责，作出表率。
+据悉，燃油成本通常占航空公司运营支出的四分之一，航空燃油价格从美伊冲突前的每桶85至90美元骤升至150至200美元，各大航司正紧急采取应对措施。
 
-王毅强调，要弘扬“上海精神”。
+商业航天板块涨幅居前，钧达股份涨超8%。
 
-善作善成，让上合组织的合作越推越深，道路越走越宽，关系越理越顺，凝聚力、行动力、感召力持续提升。
+太空算力迎来催化，马斯克旗下初创公司xAI称，与Anthropic建立新的计算合作伙伴关系。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 19:59 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 19:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 19:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 19:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 19:57 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 19:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 19:58 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 20:00 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 20:06 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 20:10 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 20:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 19:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:59 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 19:58 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 20:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 20:01 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 19:49 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 20:10 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 20:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 20:00 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 20:03 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/423148866.shtml)
-- 2026-06-29 20:05 - [逃狱兄弟](https://www.share.minike.top/Article/details/802583593934.shtml)
-- 2026-06-29 19:51 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/346439.shtml)
-- 2026-06-29 20:06 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/55566365885.shtml)
-- 2026-06-29 19:54 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/743113.shtml)
-- 2026-06-29 20:01 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/90702080.shtml)
-- 2026-06-29 20:03 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/3450475.shtml)
-- 2026-06-29 19:48 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/77951293.shtml)
-- 2026-06-29 19:42 - [TTG KSG](https://www.blog.minike.top/Article/details/4267502250.shtml)
-- 2026-06-29 20:10 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/869702.shtml)
-- 2026-06-29 19:52 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/22977.shtml)
-- 2026-06-29 19:56 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9741603.shtml)
-- 2026-06-29 20:10 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/35326132.shtml)
-- 2026-06-29 20:07 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/9530422960.shtml)
-- 2026-06-29 19:43 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/01915162.shtml)
+- 2026-06-29 20:14 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/2638669586.shtml)
+- 2026-06-29 20:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/3171658463.shtml)
+- 2026-06-29 19:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/636228835.shtml)
+- 2026-06-29 19:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/60668.shtml)
+- 2026-06-29 19:49 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/23510805.shtml)
+- 2026-06-29 20:07 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/15084379169.shtml)
+- 2026-06-29 19:50 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/992562245.shtml)
+- 2026-06-29 20:15 - [我们的少年时代2](http://www.share.minike.top/Article/details/869713355.shtml)
+- 2026-06-29 19:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/915321568.shtml)
+- 2026-06-29 20:15 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/86062049.shtml)
+- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/2369271.shtml)
+- 2026-06-29 20:01 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/0487237163.shtml)
+- 2026-06-29 20:09 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/18874084.shtml)
+- 2026-06-29 20:03 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/66472091340.shtml)
+- 2026-06-29 20:12 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/3338415732.shtml)

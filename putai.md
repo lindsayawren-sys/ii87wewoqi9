@@ -1,60 +1,57 @@
-# （美加墨世界杯）综合消息：卡塔尔赢队史首分 巴西摩洛哥战平
+# 杨植麟现身后，Kimi又融资140亿
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新社纽约/旧金山6月13日电 当地时间13日在美国率先进行的两场美加墨世界杯小组赛均以1:1平局收场，卡塔尔队逼平瑞士队，拿到队史首个世界杯积分，巴西队与摩洛哥队的强强对话同样握手言和。 2022年，卡塔尔队以东道主身份自动晋级世界杯决赛圈，在小组赛三战皆墨，仅打入一球，创下东道主球队历史最差战绩。 在旧金山进行的B组首轮小组赛中，瑞士队弗洛伊勒造点，恩博洛主罚命中，打进本届
+作者/周佳丽 报道/投资界PEdaily 座谈会之后。 投资界获悉，月之暗面（Kimi）即将完成新一轮20亿美元（约合人民币140亿元）融资，投后估值破200亿美元（约合人民币1400亿元），本轮融资由美团龙珠领投，中国移动、CPE源峰等参投，另有多家老股东加注。 至此，Kimi累计融资额已超376亿元人民币，成为中国大模型创业公司中累计融资最多的公司；全年ARR收入也从3月初
 
 ## 正文
 
-中新社纽约/旧金山6月13日电 当地时间13日在美国率先进行的两场美加墨世界杯小组赛均以1:1平局收场，卡塔尔队逼平瑞士队，拿到队史首个世界杯积分，巴西队与摩洛哥队的强强对话同样握手言和。
+作者/周佳丽 报道/投资界PEdaily 座谈会之后。
 
-2022年，卡塔尔队以东道主身份自动晋级世界杯决赛圈，在小组赛三战皆墨，仅打入一球，创下东道主球队历史最差战绩。
+投资界获悉，月之暗面（Kimi）即将完成新一轮20亿美元（约合人民币140亿元）融资，投后估值破200亿美元（约合人民币1400亿元），本轮融资由美团龙珠领投，中国移动、CPE源峰等参投，另有多家老股东加注。
 
-在旧金山进行的B组首轮小组赛中，瑞士队弗洛伊勒造点，恩博洛主罚命中，打进本届世界杯首个点球，帮助瑞士队以1:0领先。
+至此，Kimi累计融资额已超376亿元人民币，成为中国大模型创业公司中累计融资最多的公司；全年ARR收入也从3月初突破1亿美元，到4月超过2亿美元，付费用户订阅和API调用成为主要推动力。
 
-在下半场补时第4分钟，卡塔尔队胡希头球破门绝平，两队最终以1:1握手言和。
+就在两周前，Kimi发布长程编码能力取得突破的K2.6模型——1T参数MoE架构，32B激活，可连续编码13小时，Agent可持续自主运行5天，夺回开源模型全球第一宝座。
 
-卡塔尔队拼下队史首个世界杯积分。
+几乎同一时间，DeepSeek首轮融资浮出水面，随后DeepSeek V4正式亮相，据传估值逼近450亿美元。
 
-此役后，B组小组赛首轮较量结束，瑞士、加拿大、波黑和卡塔尔队均各积1分，无净胜球。
+如此，包揽全球权威开源模型榜单前两名——有人把这比作中国AI界的“两弹一星”时刻：从DeepSeek到Kimi，中国AI公司正从追赶者成为规则重构者。
 
-当天的焦点战是在纽约新泽西体育场举行的C组小组赛首轮比赛，世界排名第六的巴西队迎战排名第七的摩洛哥队，前者曾五次夺得世界杯冠军，后者则是在卡塔尔世界杯打入四强的“超级黑马”，被外界视为本届世界杯开赛以来第一场真正意义上的强强对话。
+当估值破200亿美元 Kimi王炸浮现 Kimi正在刷新想象力。
 
-比赛第21分钟，摩洛哥队球员赛巴里单刀挑射破门。
+4月20日深夜，月之暗面发布并开源了Kimi K2.6：可以连续编码13个小时，一口气编写或修改超过4000行代码，完成一整个复杂系统的开发与优化，是Kimi迄今最强的代码模型。
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 19:47 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 20:07 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 19:59 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 19:49 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 19:49 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 20:04 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 19:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 19:45 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 19:45 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 20:11 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 20:06 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 20:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 19:54 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 19:56 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 19:53 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 19:48 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 20:07 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 20:03 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 20:00 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 20:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 20:04 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/854380065308.shtml)
-- 2026-06-29 20:11 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/0726435353.shtml)
-- 2026-06-29 19:46 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/0277682522.shtml)
-- 2026-06-29 19:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/43822733366.shtml)
-- 2026-06-29 19:44 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/7940672.shtml)
-- 2026-06-29 20:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/81531.shtml)
-- 2026-06-29 19:49 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/83804189.shtml)
-- 2026-06-29 19:55 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/8407914.shtml)
-- 2026-06-29 19:59 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/140617.shtml)
-- 2026-06-29 19:59 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/6159017339.shtml)
-- 2026-06-29 20:06 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/990539931.shtml)
-- 2026-06-29 19:52 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/00418356290.shtml)
-- 2026-06-29 20:01 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/44059228397.shtml)
-- 2026-06-29 19:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/52606938.shtml)
-- 2026-06-29 19:54 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/91022.shtml)
+- 2026-06-29 19:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/51964789.shtml)
+- 2026-06-29 20:15 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/312648541.shtml)
+- 2026-06-29 19:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/9961581098.shtml)
+- 2026-06-29 20:07 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/6704823.shtml)
+- 2026-06-29 19:48 - [急先锋](http://www.blog.minike.top/Article/details/202794792852.shtml)
+- 2026-06-29 19:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/080863225608.shtml)
+- 2026-06-29 20:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/54378822.shtml)
+- 2026-06-29 20:03 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/39120050.shtml)
+- 2026-06-29 19:55 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/788861340.shtml)
+- 2026-06-29 20:14 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/3232471487.shtml)
+- 2026-06-29 20:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/39918426.shtml)
+- 2026-06-29 19:49 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/273853550.shtml)
+- 2026-06-29 19:50 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/808561.shtml)
+- 2026-06-29 20:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/157095831.shtml)
+- 2026-06-29 20:15 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/9996708737.shtml)

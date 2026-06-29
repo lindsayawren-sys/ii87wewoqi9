@@ -1,59 +1,60 @@
-# 美伊达成协议后航运板块大涨，中远海能等“一”字涨停
+# 新政密集落地！多地楼市迎回暖潮
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，受美伊达成和平协议消息的影响，A股航运板块大幅高开，油运方向领涨。截至上午收盘，招商南油（601975.SH）、招商轮船（601872.SH）、中远海能（600026.SH）“一”字涨停，海通发展（603162.SH）、锦江航运（601083.SH）、中谷物流（603565.SH）分别上涨6.8
+来源：中国房地产报 多地出台楼市新政，有效激活了大量持币观望的置业需求，为楼市持续回暖注入政策动能。 中房报记者 许倩丨北京报道 伴随前期积压的需求释放，以及多地稳楼市新政密集落地，“五一”期间全国多地楼市迎来一波超预期回暖行情。 中指院数据显示，“五一”假期，全国重点26城新建商品住宅网签面积51.8万平方米，同比增长12.5%。其中，深圳增长59%，武汉高达122%，上海也
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：中国房地产报 多地出台楼市新政，有效激活了大量持币观望的置业需求，为楼市持续回暖注入政策动能。
 
-6月15日，受美伊达成和平协议消息的影响，A股航运板块大幅高开，油运方向领涨。
+中房报记者 许倩丨北京报道 伴随前期积压的需求释放，以及多地稳楼市新政密集落地，“五一”期间全国多地楼市迎来一波超预期回暖行情。
 
-截至上午收盘，招商南油（601975.SH）、招商轮船（601872.SH）、中远海能（600026.SH）“一”字涨停，海通发展（603162.SH）、锦江航运（601083.SH）、中谷物流（603565.SH）分别上涨6.84%、4.16%和3.83%。
+中指院数据显示，“五一”假期，全国重点26城新建商品住宅网签面积51.8万平方米，同比增长12.5%。
 
-据新华社消息，美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。
+其中，深圳增长59%，武汉高达122%，上海也同比增长45%。
 
-特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港港口的海上封锁。
+二手房市场同样回暖。
 
-目前，美伊协议细节尚未公布。
+11城二手住宅网签成交合计约2300套，同比增长26.7%，较2024年同期增长近7成。
 
-据央视新闻，当地时间15日，伊朗外交部副部长加里巴巴迪确认伊美谅解备忘录文本已最终确定，“伊斯兰堡备忘录”正式签署仪式将于19日在瑞士举行。
+北京、上海、深圳二手住宅网签成交量同比分别增长76%、16%、81%。
 
-加里巴巴迪表示，从当地时间今天上午起将立即发生两件事：第一，在所有战线永久且立即结束战争，包括黎巴嫩战线；第二，美国解除并终止对伊朗实施的海上封锁。
+记者采访中发现，此轮楼市回暖呈现“一线城市领涨、强二线城市跟进、政策与需求共振”的特点，市场短期信心正在修复，购房者入市步伐加快。
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 19:55 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 19:48 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 19:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 20:05 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 19:46 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 20:01 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:58 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 20:03 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:50 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 20:02 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 20:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 20:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 20:03 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 20:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 19:54 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 20:15 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 20:05 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 20:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:08 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 19:48 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 19:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 20:13 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 19:52 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/773265168.shtml)
-- 2026-06-29 19:48 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/6945599.shtml)
-- 2026-06-29 19:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/2589516.shtml)
-- 2026-06-29 20:09 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/50215976411.shtml)
-- 2026-06-29 19:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/25841.shtml)
-- 2026-06-29 19:59 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/471689.shtml)
-- 2026-06-29 20:03 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/18873784138.shtml)
-- 2026-06-29 19:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/470542843593.shtml)
-- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/0524341828.shtml)
-- 2026-06-29 20:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/657232.shtml)
-- 2026-06-29 20:04 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/69782070.shtml)
-- 2026-06-29 20:05 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/365631.shtml)
-- 2026-06-29 20:00 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/1102944457.shtml)
-- 2026-06-29 19:47 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/768348154606.shtml)
-- 2026-06-29 19:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/518092607.shtml)
+- 2026-06-29 20:11 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/33335695.shtml)
+- 2026-06-29 20:17 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/05617970.shtml)
+- 2026-06-29 20:11 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/84938.shtml)
+- 2026-06-29 19:58 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/34473746280.shtml)
+- 2026-06-29 19:57 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/5711435.shtml)
+- 2026-06-29 20:05 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/962994.shtml)
+- 2026-06-29 20:10 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/5029911210.shtml)
+- 2026-06-29 19:58 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/95715.shtml)
+- 2026-06-29 19:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/309525635.shtml)
+- 2026-06-29 19:52 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/1293708.shtml)
+- 2026-06-29 20:05 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/861625480257.shtml)
+- 2026-06-29 19:53 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/7774666780.shtml)
+- 2026-06-29 20:08 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/5678803359.shtml)
+- 2026-06-29 19:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/595231.shtml)
+- 2026-06-29 19:51 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/068797912215.shtml)

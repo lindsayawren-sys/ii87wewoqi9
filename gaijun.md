@@ -1,45 +1,57 @@
-# 以军袭击黎巴嫩已致3756人死亡
+# 世界首条环沙漠铁路旁 他们用绿守护铁道
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-据黎巴嫩公共卫生部紧急行动中心13日消息，3月2日至6月13日期间，以色列在黎巴嫩发动的袭击已造成3756人死亡，11632人受伤。(总台记者 杨渊)
+在塔克拉玛干沙漠南缘，有一群铁路人，他们用脚步一寸寸丈量，用坚持一点点扎根，在世界首条环沙漠铁路沿线，筑起一道绵延的绿色屏障。 杨斌山是中国铁路乌鲁木齐局集团有限公司若羌基础设施段且末综合工区的班长。2021年，和若铁路还未开通时，他就跟着施工队一起种树。那时候的沙漠里没有路，风沙肆虐，梭梭苗成活率极低。治沙队员们扛着二百多斤重的梭梭苗、芦苇秆和铁锨，在沙漠中反复开沟、铺草方格
 
 ## 正文
 
-据黎巴嫩公共卫生部紧急行动中心13日消息，3月2日至6月13日期间，以色列在黎巴嫩发动的袭击已造成3756人死亡，11632人受伤。
+在塔克拉玛干沙漠南缘，有一群铁路人，他们用脚步一寸寸丈量，用坚持一点点扎根，在世界首条环沙漠铁路沿线，筑起一道绵延的绿色屏障。
 
-(总台记者 杨渊)
+杨斌山是中国铁路乌鲁木齐局集团有限公司若羌基础设施段且末综合工区的班长。
+
+2021年，和若铁路还未开通时，他就跟着施工队一起种树。
+
+那时候的沙漠里没有路，风沙肆虐，梭梭苗成活率极低。
+
+治沙队员们扛着二百多斤重的梭梭苗、芦苇秆和铁锨，在沙漠中反复开沟、铺草方格、补种梭梭。
+
+如今梭梭林已与人比肩，紧挨铁轨的草方格牢牢锁住流沙，梯次防沙体系成形见效。
+
+一道道绿色屏障不仅守护着世界首条环沙漠铁路大动脉的安全畅通，更在塔克拉玛干沙漠边缘书写了“人进沙退”的奇迹。
+
+作者：姜赛 李泓栎 王海清 周后盛 蒋瑶 宋芷蕙 视频来源：中国铁路乌鲁木齐局集团有限公司融媒体中心 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 19:47 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 20:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 19:47 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 19:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 19:52 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 19:45 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 19:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 20:11 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 19:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 20:10 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 19:50 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 20:15 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 19:54 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 19:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 20:01 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:11 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 20:11 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 19:58 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 20:13 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 20:17 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/1394623.shtml)
-- 2026-06-29 20:11 - [锐评T1零封KC](https://www.share.minike.top/Article/details/462906647.shtml)
-- 2026-06-29 19:56 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/997178.shtml)
-- 2026-06-29 19:53 - [新官上任三把火](http://www.blog.minike.top/Article/details/89902.shtml)
-- 2026-06-29 20:04 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/10296303.shtml)
-- 2026-06-29 19:54 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/367670687.shtml)
-- 2026-06-29 19:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/15717.shtml)
-- 2026-06-29 19:42 - [天道](http://www.blog.kurohicncr.top/Article/details/312580554163.shtml)
-- 2026-06-29 20:05 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/761580179.shtml)
-- 2026-06-29 20:09 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/752729.shtml)
-- 2026-06-29 19:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/553037859507.shtml)
-- 2026-06-29 20:07 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/234963814.shtml)
-- 2026-06-29 20:01 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/39877618.shtml)
-- 2026-06-29 20:09 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/481817.shtml)
-- 2026-06-29 19:53 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/3082724.shtml)
+- 2026-06-29 19:54 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/43707476.shtml)
+- 2026-06-29 20:11 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/813196910736.shtml)
+- 2026-06-29 20:09 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/624412327.shtml)
+- 2026-06-29 19:50 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/21222.shtml)
+- 2026-06-29 20:08 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/89887814.shtml)
+- 2026-06-29 20:12 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/855145296.shtml)
+- 2026-06-29 20:07 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/262416.shtml)
+- 2026-06-29 20:02 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/5594326.shtml)
+- 2026-06-29 20:09 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/074589515429.shtml)
+- 2026-06-29 19:52 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/65618756687.shtml)
+- 2026-06-29 20:07 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/346087295.shtml)
+- 2026-06-29 19:58 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/918528439837.shtml)
+- 2026-06-29 19:52 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/158713.shtml)
+- 2026-06-29 20:08 - [天道](https://www.share.minike.top/Article/details/81561553660.shtml)
+- 2026-06-29 20:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/27340.shtml)

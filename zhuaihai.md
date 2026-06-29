@@ -1,60 +1,61 @@
-# 夏日夜跑有讲究 这份科学攻略请收好
+# 天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-朝“问”健康丨夏日夜跑有讲究 这份科学攻略请收好 躲开白天高温暴晒，夜跑成了很多人夏日运动的首选，但夜间跑步也有不少讲究。安排不合理反倒会影响身体状态，出现睡不好、肠胃不舒服、身体疲惫等问题。如何做到科学夜跑，一起来了解。 时间方面，建议选择19点至21点夜跑，此时气温下降、光线条件适宜。运动时长和距离切勿贪多，日常锻炼跑5公里就足够。高强度运动易使交感神经持续兴奋 ，打乱作息
+5月8日午后，航空航天逆市发力，航天环宇暴涨14%，广联航空涨超8%，航天南湖涨超6%。一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内上涨2.09%，有望冲击5连阳。 消息面上，据央视新闻报道，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试
 
 ## 正文
 
-朝“问”健康丨夏日夜跑有讲究 这份科学攻略请收好 躲开白天高温暴晒，夜跑成了很多人夏日运动的首选，但夜间跑步也有不少讲究。
+5月8日午后，航空航天逆市发力，航天环宇暴涨14%，广联航空涨超8%，航天南湖涨超6%。
 
-安排不合理反倒会影响身体状态，出现睡不好、肠胃不舒服、身体疲惫等问题。
+一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内上涨2.09%，有望冲击5连阳。
 
-如何做到科学夜跑，一起来了解。
+消息面上，据央视新闻报道，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。
 
-时间方面，建议选择19点至21点夜跑，此时气温下降、光线条件适宜。
+目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。
 
-运动时长和距离切勿贪多，日常锻炼跑5公里就足够。
+5-6月商业航天板块利好不断，长征十号乙预计于5月进行首飞并开展海上网系回收试验，朱雀三号预计将于5月中下旬进行一子级垂直回收试验。
 
-高强度运动易使交感神经持续兴奋 ，打乱作息节律 ，影响入睡与睡眠质量。
+此外，SpaceX拟6月IPO，有望带动全球航天产业链景气提升。
 
-北京大学第三医院运动医学科主任医师 谢兴：正常来说，我觉得运动强度是正常心率的两倍，离180次/每分钟已经很近了，这时候就应该调整运动强度。
+国海证券指出，商业航天产业已进入战略布局期，火箭、卫星、通信三大领域并行推进。
 
-夜跑该空腹进行还是饭后再跑？
+2026-2030年我国卫星部署量预计超2万颗，带动整星、载荷、太阳翼等环节需求。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 19:42 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 19:43 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 19:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 20:11 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 19:52 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 19:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 20:03 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 20:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 20:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 20:06 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 20:01 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 20:09 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 19:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:13 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 19:58 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 20:09 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 19:54 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 20:05 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 20:11 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 20:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 20:10 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 19:58 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 20:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 19:50 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 20:02 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 20:16 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 20:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/575934.shtml)
-- 2026-06-29 19:58 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/693384.shtml)
-- 2026-06-29 20:06 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/2456769.shtml)
-- 2026-06-29 19:53 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/0250786.shtml)
-- 2026-06-29 20:11 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/260375172.shtml)
-- 2026-06-29 20:05 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/6776644695.shtml)
-- 2026-06-29 19:59 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/385562599.shtml)
-- 2026-06-29 20:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/7156200.shtml)
-- 2026-06-29 19:42 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/32824137274.shtml)
-- 2026-06-29 19:48 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/942944369.shtml)
-- 2026-06-29 20:11 - [极限挑战第一季](http://www.blog.minike.top/Article/details/0484739.shtml)
-- 2026-06-29 20:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/634983244.shtml)
-- 2026-06-29 19:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/423557.shtml)
-- 2026-06-29 19:46 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/881731550.shtml)
-- 2026-06-29 19:53 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/06688.shtml)
+- 2026-06-29 20:17 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/5583753830.shtml)
+- 2026-06-29 20:00 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/0161971.shtml)
+- 2026-06-29 20:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/57981.shtml)
+- 2026-06-29 20:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/339380.shtml)
+- 2026-06-29 19:57 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/52668988.shtml)
+- 2026-06-29 20:03 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/683977.shtml)
+- 2026-06-29 19:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/96284.shtml)
+- 2026-06-29 19:54 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/30222.shtml)
+- 2026-06-29 20:09 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/767293140410.shtml)
+- 2026-06-29 19:58 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/313839729167.shtml)
+- 2026-06-29 19:58 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/3355810.shtml)
+- 2026-06-29 20:10 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/805363121.shtml)
+- 2026-06-29 20:16 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/39074.shtml)
+- 2026-06-29 19:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/70370484.shtml)
+- 2026-06-29 19:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/591109.shtml)

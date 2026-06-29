@@ -1,56 +1,61 @@
-# （乡村行·看振兴）山西灵丘革新豆角种植方式 错峰上市盘活田间效益
+# 母亲节活动文案引发争议 OPPO致歉
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。 初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀
+中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。记者注意到，8日下午该文案已被删除。 同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示
 
 ## 正文
 
-中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。
+中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。
 
-通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。
+其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。
 
-初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀附棚架生长，露天地块豆角幼苗生长进度滞后。
+跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
 
-近年来，柳科乡调整种植结构，大力发展露天豆角种植，效益明显高于传统粮食作物。
+有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。
 
-据了解，露天种植模式受自然条件制约，旱涝、冰雹等气象灾害干扰作物收成。
+记者注意到，8日下午该文案已被删除。
 
-露天豆角采收时间集中，上市时段重合，市场售价偏低，农户收入受到限制。
+同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
 
-今年，当地在园区建设了5座蔬菜大棚，总占地20亩，开展大棚豆角种植试验。
+OPPO表示，其创作初衷是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
 
-柳科乡蔬菜园区大棚豆角种植负责人崔树明介绍，大棚可调控内部温度，农户提前开展播种作业，延后采收时间，错开露天豆角集中上市周期，稳定产品市场售价。
+OPPO已第一时间下架全部相关物料，并将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 19:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:58 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 19:46 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 19:43 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 19:46 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 19:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 19:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 19:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 19:59 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:10 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 20:01 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 20:03 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 19:49 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 19:49 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 19:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 19:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 20:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 20:11 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 20:03 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 20:09 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 20:11 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 20:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/0694817.shtml)
-- 2026-06-29 20:11 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/642039824.shtml)
-- 2026-06-29 19:52 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/2137066.shtml)
-- 2026-06-29 19:53 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/78571091269.shtml)
-- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/0889965.shtml)
-- 2026-06-29 19:43 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/1186385.shtml)
-- 2026-06-29 19:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/38593.shtml)
-- 2026-06-29 19:49 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/014079.shtml)
-- 2026-06-29 20:04 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/0598650.shtml)
-- 2026-06-29 19:46 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/7859320.shtml)
-- 2026-06-29 20:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/746559229902.shtml)
-- 2026-06-29 20:00 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/779439215.shtml)
-- 2026-06-29 19:50 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/151226.shtml)
-- 2026-06-29 20:00 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/806535287265.shtml)
-- 2026-06-29 19:59 - [周生如故](http://www.share.minike.top/Article/details/04180062.shtml)
+- 2026-06-29 19:57 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/073481967515.shtml)
+- 2026-06-29 20:14 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/308402727.shtml)
+- 2026-06-29 20:06 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/8509565.shtml)
+- 2026-06-29 20:13 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/44627398208.shtml)
+- 2026-06-29 20:05 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/287682670820.shtml)
+- 2026-06-29 20:00 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/49027922.shtml)
+- 2026-06-29 19:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/36929175.shtml)
+- 2026-06-29 20:02 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/447152050381.shtml)
+- 2026-06-29 20:00 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/99028283.shtml)
+- 2026-06-29 19:54 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/33155232126.shtml)
+- 2026-06-29 20:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/16678.shtml)
+- 2026-06-29 20:10 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/79842608292.shtml)
+- 2026-06-29 20:15 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/331839.shtml)
+- 2026-06-29 20:10 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/54204581.shtml)
+- 2026-06-29 20:02 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/306514131116.shtml)

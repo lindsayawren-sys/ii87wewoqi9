@@ -1,49 +1,60 @@
-# 第一太平获Brandes Investment Partners, L.P.增持约176.01万股 每股作价4.89港元
+# 泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。责任编辑：卢昱君
+泡泡玛特（09992）盘中涨超7%，截至发稿，股价上涨6.04%，现报172港元，成交额30.35亿港元。 5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特。值得关注的是，段永平近期密集发声，多次在投资者社区提及泡泡玛特。今年4月，段永平称 “我的泡泡玛特保险公司正式开张了”，并表示除非想法改变，后续会继续收集目标仓位。他提到，泡泡玛特最
 
 ## 正文
 
-香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。
+泡泡玛特（09992）盘中涨超7%，截至发稿，股价上涨6.04%，现报172港元，成交额30.35亿港元。
 
-增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。
+5月7日，知名投资人段永平在社交平台发文称，其把煤炭股中国神华全部换成了潮玩公司泡泡玛特。
 
-责任编辑：卢昱君
+值得关注的是，段永平近期密集发声，多次在投资者社区提及泡泡玛特。
+
+今年4月，段永平称 “我的泡泡玛特保险公司正式开张了”，并表示除非想法改变，后续会继续收集目标仓位。
+
+他提到，泡泡玛特最新财报的盈利表现激起了他的好奇心，为此连续数日研究这家公司，直言 “很久没有这种兴奋感了”。
+
+4月底，泡泡玛特旗下LABUBU冰箱发售，限量1998台秒售罄，二手溢价最高达2.5倍，进一步印证了IP的强劲号召力。
+
+截至2025年末，泡泡玛特在全球20个国家运营630家门店，全年净增109家。
+
+国信证券认为，公司的IP运营能力得到持续验证、海外渠道迅猛成长、多元业态扩展有望提升IP运营深度；当前估值具备上修空间。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 19:54 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 19:48 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 19:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 19:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 20:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 20:10 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 20:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 19:43 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 19:54 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:53 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 19:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 19:42 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 20:10 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 19:59 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 20:00 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 20:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 20:08 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 20:12 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:55 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 20:04 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 19:51 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 19:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 20:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 19:54 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 19:58 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/657689561.shtml)
-- 2026-06-29 19:48 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/3145000.shtml)
-- 2026-06-29 19:54 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/19079249.shtml)
-- 2026-06-29 19:57 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/6061272050.shtml)
-- 2026-06-29 19:45 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/5296216125.shtml)
-- 2026-06-29 19:48 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/45046839802.shtml)
-- 2026-06-29 20:10 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/60456180.shtml)
-- 2026-06-29 20:11 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/57034431.shtml)
-- 2026-06-29 19:47 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/57557404533.shtml)
-- 2026-06-29 20:00 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/443097114.shtml)
-- 2026-06-29 20:05 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/288015.shtml)
-- 2026-06-29 19:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/08374870.shtml)
-- 2026-06-29 20:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/8229154528.shtml)
-- 2026-06-29 19:45 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/1274574.shtml)
-- 2026-06-29 20:09 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/12775.shtml)
+- 2026-06-29 19:54 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/8855280.shtml)
+- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/95718370.shtml)
+- 2026-06-29 19:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/988588781944.shtml)
+- 2026-06-29 20:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/89794.shtml)
+- 2026-06-29 19:53 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/79128.shtml)
+- 2026-06-29 19:58 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/697308284409.shtml)
+- 2026-06-29 20:02 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/622876192.shtml)
+- 2026-06-29 20:00 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/6828610.shtml)
+- 2026-06-29 20:15 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/349116.shtml)
+- 2026-06-29 19:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/1118755883.shtml)
+- 2026-06-29 19:52 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/028381388.shtml)
+- 2026-06-29 19:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/9965931528.shtml)
+- 2026-06-29 20:03 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/194730053771.shtml)
+- 2026-06-29 19:50 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/406233193196.shtml)
+- 2026-06-29 20:13 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/8459429.shtml)

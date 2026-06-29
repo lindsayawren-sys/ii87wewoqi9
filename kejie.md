@@ -1,57 +1,59 @@
-# 2026年中国桨板国际公开赛启幕 十余国“弄潮儿”逐浪汉江
+# 泰国央行上调今年GDP增长预期至2.1%
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年中国桨板国际公开赛(汉中站)13日在汉中市中心城区汉江段正式开赛。来自中国、俄罗斯、美国、英国、巴基斯坦、印度尼西亚等十余个国家和地区的600余名运动员同台竞技，在“一江两岸”的秀美风光中逐浪碧波。 本次赛事以“逐浪汉江 悦动汉中”为主题，赛事设置精英赛、大众赛、城市赛、团队赛四大板块，涵盖耐力赛、技术赛、冲刺赛三类竞赛项目
+中新社曼谷5月7日电 (记者 李映民)泰国央行行长维泰·拉塔纳功7日宣布上调今年泰国经济增长预期，今年该国国内生产总值(GDP)增速预计将达2.1%，高于此前1.5%的预测值，预计明年GDP增速将达2.6%。 维泰表示，上调经济增长预期的主要原因是最近泰国内阁批准了4000亿泰铢紧急贷款以缓解能源危机。 该贷款的一半将用于帮助弱势群体，每位符合条件的受助者每月将获得1000泰铢
 
 ## 正文
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年中国桨板国际公开赛(汉中站)13日在汉中市中心城区汉江段正式开赛。
+中新社曼谷5月7日电 (记者 李映民)泰国央行行长维泰·拉塔纳功7日宣布上调今年泰国经济增长预期，今年该国国内生产总值(GDP)增速预计将达2.1%，高于此前1.5%的预测值，预计明年GDP增速将达2.6%。
 
-来自中国、俄罗斯、美国、英国、巴基斯坦、印度尼西亚等十余个国家和地区的600余名运动员同台竞技，在“一江两岸”的秀美风光中逐浪碧波。
+维泰表示，上调经济增长预期的主要原因是最近泰国内阁批准了4000亿泰铢紧急贷款以缓解能源危机。
 
-本次赛事以“逐浪汉江 悦动汉中”为主题，赛事设置精英赛、大众赛、城市赛、团队赛四大板块，涵盖耐力赛、技术赛、冲刺赛三类竞赛项目。
+该贷款的一半将用于帮助弱势群体，每位符合条件的受助者每月将获得1000泰铢的资助，期限为四个月，总计4000泰铢；另一半将用于帮助相关企业从化石燃料向可再生能源转型。
 
-精英组面向专业选手，呈现高水准竞技对决；大众组、高校组、U15/U12青少年组及家庭龙板等组别面向不同人群，融合竞技专业性与全民参与性。
+维泰表示，由于政府出台刺激措施和补贴以帮助受高能源成本影响的弱势群体，第三季度通货膨胀率将会更高。
 
-除精英组外，比赛进一步降低参与门槛，推动水上运动向大众普及。
+另据泰国商务部数据，受能源成本上涨的影响，泰国4月居民消费价格指数(CPI)同比上涨2.89%，为三年多来最高水平。
 
-随着发令枪响，参赛选手如离弦之箭般划破江面，桨叶翻飞间激起层层浪花，岸边观众的欢呼声与江水声交织。
+该部预测，今年全年通胀率将在1.5%至2.5%之间。
 
-赛事期间还同步举办水上特技表演、全民健身展演、市集展销等活动，让更多民众感受桨板运动的魅力。
-
-“本次参赛选手整体水平较高，我在预赛过程中出现了落水的情况，水域环境哪怕出现一点变化，选手的成绩都会产生明显偏差。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 20:04 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 20:01 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 19:51 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 20:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 19:43 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:48 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:09 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 20:10 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 19:58 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 20:02 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:54 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 20:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:06 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:02 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 20:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 20:06 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 20:00 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 19:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 20:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 20:11 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 20:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 20:04 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:58 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 20:10 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 19:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/00162075576.shtml)
-- 2026-06-29 19:53 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/7627658868.shtml)
-- 2026-06-29 19:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/086281607.shtml)
-- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/7169022579.shtml)
-- 2026-06-29 20:08 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/21610.shtml)
-- 2026-06-29 19:57 - [沙丘](http://www.blog.kurohicncr.top/Article/details/165388671418.shtml)
-- 2026-06-29 20:02 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/776134240667.shtml)
-- 2026-06-29 19:53 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/5057556.shtml)
-- 2026-06-29 20:10 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/8252988082.shtml)
-- 2026-06-29 19:46 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/358352451.shtml)
-- 2026-06-29 19:47 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/208554589.shtml)
-- 2026-06-29 19:51 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/41999877077.shtml)
-- 2026-06-29 20:00 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/3843260.shtml)
-- 2026-06-29 19:47 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/026661740.shtml)
-- 2026-06-29 19:58 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/626836.shtml)
+- 2026-06-29 20:05 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/5550009181.shtml)
+- 2026-06-29 20:11 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/4668763.shtml)
+- 2026-06-29 20:11 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/015205834.shtml)
+- 2026-06-29 20:00 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/3336654.shtml)
+- 2026-06-29 20:04 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/723973129294.shtml)
+- 2026-06-29 19:49 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/4923423091.shtml)
+- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/3974505247.shtml)
+- 2026-06-29 20:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/17815.shtml)
+- 2026-06-29 20:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/0758215.shtml)
+- 2026-06-29 19:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/2975470747.shtml)
+- 2026-06-29 20:00 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/6371328569.shtml)
+- 2026-06-29 20:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/440576552.shtml)
+- 2026-06-29 20:09 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/613088.shtml)
+- 2026-06-29 19:58 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/17552467.shtml)
+- 2026-06-29 19:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/60047.shtml)

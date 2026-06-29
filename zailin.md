@@ -1,49 +1,56 @@
-# 美加墨世界杯赛事预告：德国、荷兰凌晨首秀
+# 阳光保险2025年业绩“两重天”：寿险首破千亿，信保业务亏损15亿元
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网6月14日电 北京时间15日，美加墨世界杯将迎来四场小组赛争夺，分别为E组德国队对阵库拉索队、科特迪瓦队迎战厄瓜多尔队，F组荷兰队对阵日本队、瑞典队迎战突尼斯队。 日本队主教练森保一曾多次表态球队目标是世界杯冠军，他赛前强调，日本队要带着自信去挑战世界，首战面对荷兰将力争先进球并全取三分，不给对手机会。(完)
+来源：泰山财经 近日，阳光保险集团股份有限公司（证券代码：06963.HK，下称“阳光保险”）发布了2025年度报告。年度报告数据显示，集团总保费收入突破1500亿元，人寿保险依托银保渠道实现规模跃升，新业务价值增长近五成；财险承保端却由盈转亏，信用保证保险业务成为其主要亏损来源。 集团整体财务数据显示，2025年阳光保险实现总保费收入1507.2亿元，同比增长17.4%；归属
 
 ## 正文
 
-中新网6月14日电 北京时间15日，美加墨世界杯将迎来四场小组赛争夺，分别为E组德国队对阵库拉索队、科特迪瓦队迎战厄瓜多尔队，F组荷兰队对阵日本队、瑞典队迎战突尼斯队。
+来源：泰山财经 近日，阳光保险集团股份有限公司（证券代码：06963.HK，下称“阳光保险”）发布了2025年度报告。
 
-日本队主教练森保一曾多次表态球队目标是世界杯冠军，他赛前强调，日本队要带着自信去挑战世界，首战面对荷兰将力争先进球并全取三分，不给对手机会。
+年度报告数据显示，集团总保费收入突破1500亿元，人寿保险依托银保渠道实现规模跃升，新业务价值增长近五成；财险承保端却由盈转亏，信用保证保险业务成为其主要亏损来源。
 
-(完)
+集团整体财务数据显示，2025年阳光保险实现总保费收入1507.2亿元，同比增长17.4%；归属于母公司股东的净利润达63.1亿元，同比增长15.7%；集团内含价值1207.8亿元，较上年末增长4.3%。
+
+剔除信用保证险后的财险承保综合成本率为98.9%，仍实现承保盈利4.9亿元，但纳入该险种后，财险整体承保综合成本率攀升至102.1%，全年承保亏损10.3亿元。
+
+分业务板块来看，寿险业务成为拉动集团增长的核心引擎。
+
+阳光人寿全年总保费收入1026.1亿元，同比增长27.5%，保费规模突破千亿；新业务价值76.4亿元，同比增长48.2%。
+
+渠道结构上，银保渠道贡献了主要增量，全年实现保费收入674.6亿元，同比增长34.8%，新单保费增速高达69.0%。
+
+与之相比，阳光人寿个险渠道仍处于转型阵痛期，全年新单保费60.5亿元，同比下滑7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:03 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:44 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 19:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 19:45 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 19:52 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 20:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 20:00 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 19:42 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 19:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 19:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 19:42 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 20:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:52 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 20:08 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 20:17 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 20:06 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 19:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 19:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 19:56 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 20:09 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 20:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [叠纸](http://www.blog.kurohicncr.top/Article/details/43654578.shtml)
-- 2026-06-29 19:47 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/74413.shtml)
-- 2026-06-29 19:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/9310957956.shtml)
-- 2026-06-29 19:46 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/198685013735.shtml)
-- 2026-06-29 19:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/516729123259.shtml)
-- 2026-06-29 20:01 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/4295670900.shtml)
-- 2026-06-29 19:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/27351.shtml)
-- 2026-06-29 20:02 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/4057648649.shtml)
-- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/16637224467.shtml)
-- 2026-06-29 19:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/995826662.shtml)
-- 2026-06-29 19:54 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/810111756773.shtml)
-- 2026-06-29 19:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/22222.shtml)
-- 2026-06-29 19:58 - [扫黑风暴](http://www.blog.minike.top/Article/details/8447929.shtml)
-- 2026-06-29 20:07 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/856570102843.shtml)
-- 2026-06-29 20:00 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/520292972960.shtml)
+- 2026-06-29 19:55 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/55990565.shtml)
+- 2026-06-29 20:00 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/11305.shtml)
+- 2026-06-29 20:13 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/6838070.shtml)
+- 2026-06-29 20:15 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/47293806258.shtml)
+- 2026-06-29 20:07 - [扫黑风暴](http://www.share.minike.top/Article/details/77986789767.shtml)
+- 2026-06-29 20:10 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/245089981.shtml)
+- 2026-06-29 19:48 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/455440240869.shtml)
+- 2026-06-29 20:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/994352751.shtml)
+- 2026-06-29 20:10 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/505395971163.shtml)
+- 2026-06-29 19:55 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/268952387.shtml)
+- 2026-06-29 19:57 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/1086837.shtml)
+- 2026-06-29 19:50 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/28254461188.shtml)
+- 2026-06-29 19:48 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/270782041889.shtml)
+- 2026-06-29 19:59 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/150138726452.shtml)
+- 2026-06-29 20:07 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/9386359.shtml)

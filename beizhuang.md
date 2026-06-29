@@ -1,56 +1,56 @@
-# 韩国5月进口价格连续第二个月下降，因国际油价下跌
+# 渣打CEO：中东局势可能一段时间内仍将充满挑战
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-韩国央行周二公布的数据显示，由于中东冲突趋于缓和导致国际油价下跌，韩国5月份进口价格连续第二个月下降。 韩国央行的初步数据显示，继4月份环比下降2.1%之后，5月份进口价格指数环比下降了0.3%。 与去年同期相比，该指数上涨了24.8%。 韩国基准原油迪拜原油价格上月环比下跌2.4%，至每桶103.15美元。这些数据对韩国有着直接的影响，因为韩国严重依赖能源进口。 5月份原材料
+渣打CEO温拓思表示，中东局势可能在一段时间内仍将充满挑战，渣打即将发布的战略更新将反映地缘政治现实以及利率前景。 他在周四的年度股东大会上发表了上述言论。约一周前，渣打公布了创纪录的一季度业绩，尽管计提了2.96亿美元的信贷减值准备，其中包括与中东冲突相关的1.9亿美元“预防性管理调整”。 本月晚些时候，这家专注于亚洲和中东市场的银行预计将公布新的中期财务目标。随着成本节约计
 
 ## 正文
 
-韩国央行周二公布的数据显示，由于中东冲突趋于缓和导致国际油价下跌，韩国5月份进口价格连续第二个月下降。
+渣打CEO温拓思表示，中东局势可能在一段时间内仍将充满挑战，渣打即将发布的战略更新将反映地缘政治现实以及利率前景。
 
-韩国央行的初步数据显示，继4月份环比下降2.1%之后，5月份进口价格指数环比下降了0.3%。
+他在周四的年度股东大会上发表了上述言论。
 
-与去年同期相比，该指数上涨了24.8%。
+约一周前，渣打公布了创纪录的一季度业绩，尽管计提了2.96亿美元的信贷减值准备，其中包括与中东冲突相关的1.9亿美元“预防性管理调整”。
 
-韩国基准原油迪拜原油价格上月环比下跌2.4%，至每桶103.15美元。
+本月晚些时候，这家专注于亚洲和中东市场的银行预计将公布新的中期财务目标。
 
-这些数据对韩国有着直接的影响，因为韩国严重依赖能源进口。
+随着成本节约计划将于今年结束，这些目标将受到投资者密切关注。
 
-5月份原材料价格环比下降1%，而中间产品价格同期保持不变。
+尽管该行在很大程度上抵御了战争引发的宏观经济降温影响，董事会主席Maria Ramos在声明中表示，管理层仍对风险保持警惕。
 
-韩国央行称，进口价格是韩国通胀的主要驱动因素，因为它们会影响整个供应链的生产成本和消费者价格。
+她表示：“尽管我们业务受到的影响有限，但我们仍对相关风险保持警觉，无论是短期风险，还是对全球经济更广泛的影响。
 
-韩国央行数据显示，5月份出口价格指数环比上涨0.3%，连续第11个月环比上涨。
+”责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:46 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 19:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 19:42 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 20:07 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 19:53 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 19:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:44 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 20:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 19:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 20:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 19:52 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:54 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:14 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 19:53 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:54 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 20:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 19:56 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 19:51 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 19:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/14027279.shtml)
-- 2026-06-29 20:07 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/972635143.shtml)
-- 2026-06-29 19:45 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/934756.shtml)
-- 2026-06-29 19:55 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/6018392437.shtml)
-- 2026-06-29 19:54 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/4944816.shtml)
-- 2026-06-29 19:59 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/310597.shtml)
-- 2026-06-29 19:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8614716366.shtml)
-- 2026-06-29 19:47 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/8884122474.shtml)
-- 2026-06-29 19:44 - [叠纸](http://www.blog.minike.top/Article/details/8281864.shtml)
-- 2026-06-29 19:43 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/78476179.shtml)
-- 2026-06-29 19:46 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/04860.shtml)
-- 2026-06-29 19:52 - [新官上任三把火](https://www.blog.minike.top/Article/details/84767961.shtml)
-- 2026-06-29 20:08 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/048583.shtml)
-- 2026-06-29 19:53 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/68033751.shtml)
-- 2026-06-29 19:57 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/8640187129.shtml)
+- 2026-06-29 20:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/41904843.shtml)
+- 2026-06-29 20:03 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/7318726.shtml)
+- 2026-06-29 20:06 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/264093984505.shtml)
+- 2026-06-29 20:01 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/591830.shtml)
+- 2026-06-29 20:14 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/48552276.shtml)
+- 2026-06-29 20:06 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/820153457880.shtml)
+- 2026-06-29 19:58 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/6582729034.shtml)
+- 2026-06-29 20:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/333754430.shtml)
+- 2026-06-29 19:59 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/82701.shtml)
+- 2026-06-29 20:05 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/97095454890.shtml)
+- 2026-06-29 20:13 - [新官上任三把火](https://www.share.minike.top/Article/details/713173855377.shtml)
+- 2026-06-29 20:13 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/91751256766.shtml)
+- 2026-06-29 20:14 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/02414.shtml)
+- 2026-06-29 20:10 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/99724.shtml)
+- 2026-06-29 19:49 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/28240455903.shtml)

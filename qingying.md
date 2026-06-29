@@ -1,56 +1,45 @@
-# 2026年全国竞走大奖赛（第3站）在陕启幕
+# 四川省都江堰水利发展中心党委书记、主任朱泽华接受审查调查
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。 本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。 城固县委常委、常务副县长杨奇涛表示，近年来，当地
+中新网5月7日电 据四川省纪委监委消息：四川省都江堰水利发展中心党委书记、主任朱泽华涉嫌严重违纪违法，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。
-
-本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。
-
-城固县委常委、常务副县长杨奇涛表示，近年来，当地把体育事业融入全县高质量发展大局，依托“体教大联盟”和“1+6竞走联盟”等创新模式，走出了一条具有地方特色的体教融合新路。
-
-本次赛事分为全国竞走大奖赛、青少年竞走锦标赛、竞走单项赛三大板块，共计27个竞赛大项，其中多项赛事为中国田径协会Ⅱ级、Ⅲ级专业赛事，含金量十足。
-
-赛事涵盖成年组、U20、U18、U16等多个年龄组别，设置半程马拉松竞走、3公里、5公里、10公里个人竞走以及接力竞走等多个项目，全面考验选手的速度、耐力与节奏把控能力。
-
-在当日进行的成年组半程马拉松竞走比赛中，陕西选手表现出色，杨宇喆、杨柳静分别摘得男子组与女子组桂冠。
-
-杨柳静赛后表示，她对自己本场比赛的状态和成绩十分满意。
-
-此次参赛主要是以赛代练，接下来她将全身心投入亚运会备战，力争在大赛中取得理想名次。
+中新网5月7日电 据四川省纪委监委消息：四川省都江堰水利发展中心党委书记、主任朱泽华涉嫌严重违纪违法，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 20:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 20:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 19:57 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 20:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 19:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 19:59 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 19:48 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 19:57 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 20:10 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 20:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 19:49 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 20:15 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 20:16 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 20:10 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 19:52 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 20:15 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:01 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 20:02 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 20:12 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 20:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 20:06 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 20:17 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/821270906.shtml)
-- 2026-06-29 20:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/171676092905.shtml)
-- 2026-06-29 20:06 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/49133128.shtml)
-- 2026-06-29 19:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/76983569.shtml)
-- 2026-06-29 20:09 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/5377092811.shtml)
-- 2026-06-29 20:05 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/6997658.shtml)
-- 2026-06-29 20:11 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/406922585.shtml)
-- 2026-06-29 19:56 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/709872976851.shtml)
-- 2026-06-29 19:52 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/3392524.shtml)
-- 2026-06-29 20:01 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/70181661.shtml)
-- 2026-06-29 20:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/879498374.shtml)
-- 2026-06-29 20:04 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/31289.shtml)
-- 2026-06-29 19:48 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/71616123.shtml)
-- 2026-06-29 19:44 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/490944589.shtml)
-- 2026-06-29 19:43 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/932040.shtml)
+- 2026-06-29 19:50 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/7091414.shtml)
+- 2026-06-29 20:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/75161.shtml)
+- 2026-06-29 20:15 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/52874856881.shtml)
+- 2026-06-29 19:59 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/8667220783.shtml)
+- 2026-06-29 20:14 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/9749272.shtml)
+- 2026-06-29 20:15 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/90435.shtml)
+- 2026-06-29 20:08 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/020563296.shtml)
+- 2026-06-29 20:14 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/1609525.shtml)
+- 2026-06-29 19:56 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/482276.shtml)
+- 2026-06-29 19:52 - [AG 宫斗](https://www.share.minike.top/Article/details/451578143.shtml)
+- 2026-06-29 19:58 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/1437303.shtml)
+- 2026-06-29 20:17 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/6230379560.shtml)
+- 2026-06-29 19:58 - [沙丘](https://www.blog.minike.top/Article/details/493298.shtml)
+- 2026-06-29 20:06 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/61971822.shtml)
+- 2026-06-29 20:09 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/840081.shtml)

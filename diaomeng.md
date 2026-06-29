@@ -1,56 +1,52 @@
-# 各地推动人才下乡 助力乡村振兴
+# 江铃汽车：4月汽车销量34948辆，同比增长14.59%
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：乡村振兴，人才先行。“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。 浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。本年累计汽车销量 12.1 万辆，同比增长 13.62%。IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻
 
 ## 正文
 
-央视网消息(新闻联播)：乡村振兴，人才先行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。
+（来源：IT之家）IT之家 5 月 7 日消息，江铃汽车今日公告，2026 年 4 月汽车销量 34948 辆，同比增长 14.59%。
 
-各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。
+本年累计汽车销量 12.1 万辆，同比增长 13.62%。
 
-浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。
+IT之家附各产品销量如下：作为参考，2025 年，江铃汽车销售了 377,253 辆整车，包括 99,770 辆轻型客车、83,207 辆卡车、59,681 辆皮卡、134,595 辆 SUV，总销量较上年同期上升 10.56%。
 
-团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里。
+2025 年，江铃汽车实现营业收入 391.70 亿元，同比增长 2.07%。
 
-分布在湖州乡村的实践站点，能为创业人员提供创业孵化、技能培训、生活配套等服务，吸引了大批来自城市的“新农人”“农创客”。
-
-目前，湖州已有入乡青创项目2300多个。
-
-福建南平出台了《“回家乡来、助乡村兴”行动实施方案》，组建了10个返乡创业青年联盟，通过政府提供创业资金支持、开展创业帮带等措施，吸引年轻人返回家乡，助力乡村振兴。
+2025 年度归属于上市公司股东的净利润 11.88 亿元，同比下降 22.71%。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 19:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 20:10 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 19:49 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 20:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 19:44 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 20:09 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 19:42 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 19:55 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 20:05 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 19:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 20:10 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 19:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 20:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 20:03 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 20:08 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 20:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 19:49 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 20:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 19:53 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/9086346297.shtml)
-- 2026-06-29 19:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/30682511176.shtml)
-- 2026-06-29 19:53 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/18148576.shtml)
-- 2026-06-29 20:01 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/923316798.shtml)
-- 2026-06-29 20:04 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/06151788609.shtml)
-- 2026-06-29 19:59 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/919913548685.shtml)
-- 2026-06-29 20:11 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/556533008368.shtml)
-- 2026-06-29 20:09 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/4485611335.shtml)
-- 2026-06-29 19:53 - [天道](http://www.blog.minike.top/Article/details/291408703.shtml)
-- 2026-06-29 19:43 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/4393260955.shtml)
-- 2026-06-29 19:49 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/53614658098.shtml)
-- 2026-06-29 19:51 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/130836573623.shtml)
-- 2026-06-29 20:09 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/499409.shtml)
-- 2026-06-29 19:45 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/21128585266.shtml)
-- 2026-06-29 19:43 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/807691.shtml)
+- 2026-06-29 19:58 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/700745.shtml)
+- 2026-06-29 20:08 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/7414512.shtml)
+- 2026-06-29 19:53 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/9433424.shtml)
+- 2026-06-29 19:56 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/877838822349.shtml)
+- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/99165082.shtml)
+- 2026-06-29 19:58 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/5465079727.shtml)
+- 2026-06-29 19:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/191693839043.shtml)
+- 2026-06-29 19:57 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4924526637.shtml)
+- 2026-06-29 19:59 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9754495871.shtml)
+- 2026-06-29 20:12 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/908070827.shtml)
+- 2026-06-29 20:12 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/180529.shtml)
+- 2026-06-29 20:05 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/4661235382.shtml)
+- 2026-06-29 20:00 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/306377.shtml)
+- 2026-06-29 19:56 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/84989087.shtml)
+- 2026-06-29 19:51 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/095018710.shtml)

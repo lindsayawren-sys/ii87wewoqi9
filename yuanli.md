@@ -1,58 +1,55 @@
-# 绝活何以动人
+# 钱江摩托否认围剿张雪机车：未封锁张雪机车供应链
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-近日，电视剧《主角》热播让更多人认识了秦腔艺术。剧中81口连环吹火、三分钟“慢卧鱼”等戏曲绝活，刷屏社交平台。 与此同时，婺剧《三打白骨精》全国巡演一票难求，舞台上变脸变装、高难度武打动作接连上演，相关短视频全网播放量突破3亿。 一直以来，戏曲舞台上的各类绝活都深深吸引着观众的目光。 台上一分钟，台下十年功。这些戏曲绝活的背后，是怎样的潜心积淀？传统技艺又该如何延续生命力？记者
+中新网5月8日电(吴家驹)5月8日，浙江钱江摩托股份有限公司(简称“钱江摩托”)在其公众号发布声明称，近日，网络流传“国内摩托车大厂从供应链、经销商层面围剿张雪机车”等不实言论，引发行业与公众热议。公司从未以任何形式针对张雪机车及行业友商实施供应链封锁、经销商围剿等不正当竞争行为。张雪机车和钱江摩托都参加了2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛。截至目
 
 ## 正文
 
-近日，电视剧《主角》热播让更多人认识了秦腔艺术。
+中新网5月8日电(吴家驹)5月8日，浙江钱江摩托股份有限公司(简称“钱江摩托”)在其公众号发布声明称，近日，网络流传“国内摩托车大厂从供应链、经销商层面围剿张雪机车”等不实言论，引发行业与公众热议。
 
-剧中81口连环吹火、三分钟“慢卧鱼”等戏曲绝活，刷屏社交平台。
+公司从未以任何形式针对张雪机车及行业友商实施供应链封锁、经销商围剿等不正当竞争行为。
 
-与此同时，婺剧《三打白骨精》全国巡演一票难求，舞台上变脸变装、高难度武打动作接连上演，相关短视频全网播放量突破3亿。
+张雪机车和钱江摩托都参加了2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛。
 
-一直以来，戏曲舞台上的各类绝活都深深吸引着观众的目光。
+截至目前，2026赛季，张雪机车车手瓦伦丁·德比斯已收获三个分站冠军，钱江摩托车手德罗萨也曾在匈牙利站第一回合正赛中获得第16名的成绩。
 
-台上一分钟，台下十年功。
+钱江摩托在声明中称，对于张雪机车在WSBK世界超级摩托车锦标赛中取得的优异成绩，由衷感到骄傲与自豪。
 
-这些戏曲绝活的背后，是怎样的潜心积淀？
+张雪也曾呼吁：“不要因为我们夺冠了，然后去拉踩其他品牌，这样肯定是不对的。
 
-传统技艺又该如何延续生命力？
-
-记者就此展开了采访。
+”(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 20:10 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 19:51 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 19:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 20:01 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 19:58 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:57 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 19:57 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 20:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 19:56 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 19:47 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 19:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 20:13 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 20:14 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 20:07 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 19:56 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 20:11 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 19:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:58 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 20:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 19:59 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 20:04 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/68364.shtml)
-- 2026-06-29 19:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/466068265.shtml)
-- 2026-06-29 20:03 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/47488484284.shtml)
-- 2026-06-29 19:45 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/79420279.shtml)
-- 2026-06-29 19:55 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/46420870.shtml)
-- 2026-06-29 19:43 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/51586118.shtml)
-- 2026-06-29 19:49 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/657437517.shtml)
-- 2026-06-29 19:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/5525663.shtml)
-- 2026-06-29 19:51 - [起风了](http://www.share.minike.top/Article/details/11638.shtml)
-- 2026-06-29 19:47 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/13117604.shtml)
-- 2026-06-29 20:10 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/8456282.shtml)
-- 2026-06-29 19:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/66066.shtml)
-- 2026-06-29 19:53 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/781943341636.shtml)
-- 2026-06-29 19:54 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/6875530344.shtml)
-- 2026-06-29 19:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/750366725.shtml)
+- 2026-06-29 20:02 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/7519155300.shtml)
+- 2026-06-29 19:55 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/42938651.shtml)
+- 2026-06-29 20:15 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/42383134459.shtml)
+- 2026-06-29 19:55 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/92463477.shtml)
+- 2026-06-29 19:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/51033755093.shtml)
+- 2026-06-29 20:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3359341456.shtml)
+- 2026-06-29 19:48 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/1624136526.shtml)
+- 2026-06-29 20:16 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/896182.shtml)
+- 2026-06-29 20:06 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/852218730337.shtml)
+- 2026-06-29 20:02 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/4890236.shtml)
+- 2026-06-29 20:08 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/358097208271.shtml)
+- 2026-06-29 19:49 - [沙丘](https://www.blog.minike.top/Article/details/340195603.shtml)
+- 2026-06-29 19:50 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/6792314.shtml)
+- 2026-06-29 20:01 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/709527.shtml)
+- 2026-06-29 20:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/7379306.shtml)

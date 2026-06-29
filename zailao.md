@@ -1,59 +1,57 @@
-# 中信建投期货：6月16日能化早报 橡胶企稳震荡
+# 拖欠片酬90%、剧未拍完就上线！爱奇艺回应下架网剧
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-橡胶：企稳震荡 周一，国产全乳胶17900/吨，环比上日上涨250元/吨；泰国20号混合胶17300元/吨，环比上日上涨180元/吨。 原料端：昨日泰国胶水报收87.5泰铢/公斤，环比上日下跌1.0泰铢/公斤，泰国杯胶报收72.0 泰铢/公斤，环比上日上涨2.0泰铢/公斤；云南胶水报收16.3元/公斤，环比上日下跌0.1 元/公斤；海南胶水报收15.8元/公斤，环比上日上涨0.
+中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。 律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付
 
 ## 正文
 
-橡胶：企稳震荡 周一，国产全乳胶17900/吨，环比上日上涨250元/吨；泰国20号混合胶17300元/吨，环比上日上涨180元/吨。
+中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。
 
-原料端：昨日泰国胶水报收87.5泰铢/公斤，环比上日下跌1.0泰铢/公斤，泰国杯胶报收72.0 泰铢/公斤，环比上日上涨2.0泰铢/公斤；云南胶水报收16.3元/公斤，环比上日下跌0.1 元/公斤；海南胶水报收15.8元/公斤，环比上日上涨0.1元/公斤。
+律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。
 
-截至2026年6月14日，青岛地区天胶保税和一般贸易合计库存量68.16万吨，环比上期减少1.52万吨，降幅2.18%。
+且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付演出服务费达90%。
 
-保税区库存8.45万吨，降幅5.62%；一般贸易库存59.71万吨，降幅1.68%。
+该函强调，在其委托人未获得完整服务费且该剧未完成全部录制的情况下，首润公司转让并允许爱奇艺上架含有委托人表演的内容，侵犯了其委托人多项权利。
 
-青岛天然橡胶样本保税仓库入率减少1.19个百分点，出库率增加0.09个百分点；一般贸易仓库入库率减少0.33百分点，出库率增加3.09个百分点。
+爱奇艺若在明知首润公司与其委托人之间存在合同纠纷和该剧未完成的情况下仍上架该剧，将与首润公司构成共同侵权。
 
-观点：近期，尽管泰国等全球主产区存在普遍的高温现象，但根据目前的气象数据来看，目前的气温并未达到对橡胶树造成持续负面影响影响的程度，近期的供应扰动主要来自于清晨时段降雨对割胶的影响，供应端或未形成系统性的减产风险，根据未来16天的天气预报，后续天气对供应的影响边际改善。
+律师函要求，北京爱奇艺科技有限公司在收到该函之日起3日内立即下架、删除影视剧《平乐赋》的相关内容(包括但不限于海报、宣传片、宣传文案及预约渠道等)。
 
-故，对产量的短期判断暂时没有变化，相对稳定的状态，全球产量的季节性或不会出现特殊的超预期延迟。
+律师函发出后，许多网友也在评论区留言支持演员维权，表示“工作不易，必须合法！
 
-需求端来看，在前期下游轮胎需求阶段性放缓后，近期并没有持续走弱的迹象。
+”；也有人称，“工资没付，剧也没授权就上线，多少有点不地道。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 19:43 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 20:04 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 19:56 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 19:51 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 19:53 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 19:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 19:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 20:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 20:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 20:00 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 19:53 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 19:50 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 19:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 20:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:52 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 20:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 20:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 19:50 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 20:17 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 20:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 19:53 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/62483023.shtml)
-- 2026-06-29 19:47 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/493404840.shtml)
-- 2026-06-29 19:54 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/491345386.shtml)
-- 2026-06-29 19:47 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/4115366743.shtml)
-- 2026-06-29 20:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/074064125659.shtml)
-- 2026-06-29 19:49 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/943106563.shtml)
-- 2026-06-29 19:56 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/6438589.shtml)
-- 2026-06-29 20:06 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/85306.shtml)
-- 2026-06-29 19:46 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/0921971791.shtml)
-- 2026-06-29 20:00 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/075179.shtml)
-- 2026-06-29 19:42 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/31032131.shtml)
-- 2026-06-29 19:43 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/570830.shtml)
-- 2026-06-29 19:59 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/48743911038.shtml)
-- 2026-06-29 19:42 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/9613429161.shtml)
-- 2026-06-29 19:50 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/6830116.shtml)
+- 2026-06-29 20:13 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/469795802.shtml)
+- 2026-06-29 20:02 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/867857841.shtml)
+- 2026-06-29 19:59 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/76123.shtml)
+- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/530533.shtml)
+- 2026-06-29 20:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/48193904868.shtml)
+- 2026-06-29 19:52 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/0548252.shtml)
+- 2026-06-29 20:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/31544802.shtml)
+- 2026-06-29 19:58 - [流金岁月](https://www.blog.minike.top/Article/details/94765.shtml)
+- 2026-06-29 20:13 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/4046630876.shtml)
+- 2026-06-29 19:49 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/33275678374.shtml)
+- 2026-06-29 20:06 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/817077219720.shtml)
+- 2026-06-29 20:10 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/00623288.shtml)
+- 2026-06-29 19:55 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/71906.shtml)
+- 2026-06-29 20:07 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/665137436656.shtml)
+- 2026-06-29 19:48 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/987982529.shtml)

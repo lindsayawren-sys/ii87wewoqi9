@@ -1,57 +1,57 @@
-# 险资“进阶”！组团布局S基金
+# 德邦证券年报冷思考：仅0.26亿净利行业垫底，中小券商“靠天吃饭”困局难破
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-保险资金正积极扮演“耐心资本”角色，不断探索投向科创领域的适配路径，其中之一是“S基金”。 一位市场化私募股权业内人士向券商中国记者表示，S基金适配保险资金的配置特性。S基金大多投向存续中后期的股权基金，通常能拿到估值折价，回报率相对不错，因此险资借道S基金布局科创赛道是优质路径。 险资陆续布局S基金 S基金（Secondary Fund）是私募股权二级市场基金，是指参与已设立
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 德邦证券年报冷思考：仅0.26亿净利行业垫底，中小券商“靠天吃饭”困局难破 随着150家券商年报全部披露，行业“马太效应”的残酷性被再次放大。德邦证券看似“扭亏为盈”的年报，实则藏着难以掩饰的尴尬：盈利规模微乎其微，业务结构单一脆弱，核心竞争力缺失。即便迎来山东国资入主，也未能彻底摆脱“靠天
 
 ## 正文
 
-保险资金正积极扮演“耐心资本”角色，不断探索投向科创领域的适配路径，其中之一是“S基金”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一位市场化私募股权业内人士向券商中国记者表示，S基金适配保险资金的配置特性。
+来源：行家券业 德邦证券年报冷思考：仅0.26亿净利行业垫底，中小券商“靠天吃饭”困局难破 随着150家券商年报全部披露，行业“马太效应”的残酷性被再次放大。
 
-S基金大多投向存续中后期的股权基金，通常能拿到估值折价，回报率相对不错，因此险资借道S基金布局科创赛道是优质路径。
+德邦证券看似“扭亏为盈”的年报，实则藏着难以掩饰的尴尬：盈利规模微乎其微，业务结构单一脆弱，核心竞争力缺失。
 
-险资陆续布局S基金 S基金（Secondary Fund）是私募股权二级市场基金，是指参与已设立私募基金投资标的以及份额投资的基金。
+即便迎来山东国资入主，也未能彻底摆脱“靠天吃饭”的宿命。
 
-简言之，S基金的投资人，通过受让现有基金份额，实现接续投资，持续为科创企业提供资本。
+当资本、投研、人才、牌照资源持续向头部聚集，中小券商的突围之路，正在变得越来越窄。
 
-据券商中国记者梳理，险资通过S基金投向科技领域的案例近年增多。
+扭亏却未脱困，盈利质量触底 翻开德邦证券2025年年报，一组组数据直指其“弱盈利、高依赖”的痛点。
 
-中保投资公司于2021年设立中保投齐芯基金，承接上海集成电路产业投资基金12亿元份额，较早开启险资以S基金方式支持国家战略发展的业务模式。
+看似同比改善的业绩，实则经不起细究，每一项核心指标都折射出中小券商的生存困境。
 
-2023年1月，中保投资公司发起设立“中保投资-元禾辰坤股权投资计划”，投资元禾辰坤管理的母基金二手份额4.3亿元。
+从盈利规模来看，0.26亿元的归母净利润，不仅在150家券商中处于垫底水平，甚至不及头部券商单月盈利的零头。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 19:52 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 19:53 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 20:03 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 20:08 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 20:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 19:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 19:48 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 20:04 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 20:11 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:56 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 20:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 20:06 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 19:56 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 19:53 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 20:00 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 20:06 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 19:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 20:01 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 19:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 20:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 20:14 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/044529362033.shtml)
-- 2026-06-29 20:05 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/2892200.shtml)
-- 2026-06-29 20:11 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/81055850235.shtml)
-- 2026-06-29 20:06 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/612765293.shtml)
-- 2026-06-29 20:07 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/18955276035.shtml)
-- 2026-06-29 20:07 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/18020.shtml)
-- 2026-06-29 19:48 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/0367132475.shtml)
-- 2026-06-29 19:49 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/01986034284.shtml)
-- 2026-06-29 19:50 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/34535.shtml)
-- 2026-06-29 19:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/24832.shtml)
-- 2026-06-29 19:57 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/986832162066.shtml)
-- 2026-06-29 20:02 - [叠纸](http://www.blog.kurohicncr.top/Article/details/1834600.shtml)
-- 2026-06-29 19:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/54218010912.shtml)
-- 2026-06-29 19:55 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/911126850432.shtml)
-- 2026-06-29 19:49 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/480321156.shtml)
+- 2026-06-29 20:14 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/882928.shtml)
+- 2026-06-29 20:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/7539517969.shtml)
+- 2026-06-29 20:01 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/89389761323.shtml)
+- 2026-06-29 19:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1374953360.shtml)
+- 2026-06-29 20:14 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/9891119864.shtml)
+- 2026-06-29 20:06 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/65613398119.shtml)
+- 2026-06-29 20:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/942856585465.shtml)
+- 2026-06-29 20:00 - [一见倾心](https://www.share.minike.top/Article/details/5288347.shtml)
+- 2026-06-29 20:06 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/755352809949.shtml)
+- 2026-06-29 20:02 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/0945096.shtml)
+- 2026-06-29 19:53 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/45046.shtml)
+- 2026-06-29 20:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/456201475992.shtml)
+- 2026-06-29 20:05 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/289551074719.shtml)
+- 2026-06-29 19:49 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/04093472.shtml)
+- 2026-06-29 19:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/54538079.shtml)

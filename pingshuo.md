@@ -1,60 +1,58 @@
-# 扬州清曲音乐会上演：一场青年与七百载雅韵的青春对话
+# 菲柬泰领导人三方会谈在菲律宾宿务举行
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网扬州6月13日电 (徐珊珊 李仲勇)6月13日，2026年文化和自然遗产日当天，一场别开生面的草坪音乐会在扬州瘦西湖畔举行。“清音曲韵·半塘流芳”扬州清曲音乐会以天为幕、以地为台，将这座历史文化名城的千年雅韵，带入青年学子与市民游客的耳畔心间。 扬州清曲被誉为“明清俗曲的活化石”，与扬州评话、扬州弹词并称“扬州曲艺三朵花”。它孕育于元，形成于明，鼎盛于清，迄今已有七百年历
+中新社菲律宾宿务5月7日电 (记者 张兴龙)第48届东盟峰会开幕前夕，菲律宾总统马科斯7日晚在菲宿务省同柬埔寨首相洪玛奈、泰国总理阿努廷举行三方会谈。 马科斯在会后记者会上表示，此次会谈由菲律宾以东盟轮值主席国身份推动举行，旨在为柬泰双方围绕边境问题开展建设性对话提供平台。 马科斯还表示，柬泰双方重申将保持开放沟通与克制，避免采取可能加剧紧张局势的行动，并继续通过和平对话和建设
 
 ## 正文
 
-中新网扬州6月13日电 (徐珊珊 李仲勇)6月13日，2026年文化和自然遗产日当天，一场别开生面的草坪音乐会在扬州瘦西湖畔举行。
+中新社菲律宾宿务5月7日电 (记者 张兴龙)第48届东盟峰会开幕前夕，菲律宾总统马科斯7日晚在菲宿务省同柬埔寨首相洪玛奈、泰国总理阿努廷举行三方会谈。
 
-“清音曲韵·半塘流芳”扬州清曲音乐会以天为幕、以地为台，将这座历史文化名城的千年雅韵，带入青年学子与市民游客的耳畔心间。
+马科斯在会后记者会上表示，此次会谈由菲律宾以东盟轮值主席国身份推动举行，旨在为柬泰双方围绕边境问题开展建设性对话提供平台。
 
-扬州清曲被誉为“明清俗曲的活化石”，与扬州评话、扬州弹词并称“扬州曲艺三朵花”。
+马科斯还表示，柬泰双方重申将保持开放沟通与克制，避免采取可能加剧紧张局势的行动，并继续通过和平对话和建设性接触化解分歧。
 
-它孕育于元，形成于明，鼎盛于清，迄今已有七百年历史。
+根据双方达成的共识，柬泰两国外长将继续开展坦诚对话，讨论防止局势升级、维护和平稳定及保障两国民众利益的具体措施。
 
-它曾是盐商园林里的座上清音，也是寻常巷陌间的百姓心声，不似北曲高亢激昂，而是如扬州这座城市一般清丽婉转。
+洪玛奈表示，此次会谈聚焦局势降温及重建互信措施，旨在恢复并巩固实现持久和平机制。
 
-音乐会上，扬州市曲艺研究所的多位演员轮番登台，为青年学子呈现了一场清雅绝伦的视听盛宴。
+柬方仍坚定致力于依据国际法及现有协议和平解决争端。
 
-青年演员赵松艳率先演唱满江调经典名篇《半青阁》，曲牌古朴典雅，行腔沉郁绵远，尽显含蓄沉郁之美。
+阿努廷表示，泰柬互为邻国，避免冲突符合双方共同利益。
 
-随后，中国曲艺牡丹奖“新人奖”获得者刘芓君带来南调千古绝唱《青荷叶上》，此曲位列清曲“五大宫曲”，源起明代冯梦龙《挂枝儿》。
+他透露，双方还就陆地和海上边界问题交换意见，并探讨以“睦邻友好精神”寻求建设性解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 20:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 20:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 20:11 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 19:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 19:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 19:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 19:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 20:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 20:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 20:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 19:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 19:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 20:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 20:10 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 20:08 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 19:55 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 20:11 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 20:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 19:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 19:58 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 20:04 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 20:04 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 20:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 20:03 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 20:05 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/8383777841.shtml)
-- 2026-06-29 19:43 - [沙丘](http://www.blog.kurohicncr.top/Article/details/93587647491.shtml)
-- 2026-06-29 20:03 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/321628.shtml)
-- 2026-06-29 19:58 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/423767.shtml)
-- 2026-06-29 19:50 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/3975224034.shtml)
-- 2026-06-29 19:58 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/1893365115.shtml)
-- 2026-06-29 20:08 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/1979154.shtml)
-- 2026-06-29 20:02 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/689638376.shtml)
-- 2026-06-29 19:46 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/3320010789.shtml)
-- 2026-06-29 19:52 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/776308858.shtml)
-- 2026-06-29 19:42 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/148896595173.shtml)
-- 2026-06-29 19:50 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/69708399.shtml)
-- 2026-06-29 20:00 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/37619384.shtml)
-- 2026-06-29 19:46 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/756727437.shtml)
-- 2026-06-29 19:44 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/500138459.shtml)
+- 2026-06-29 20:12 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/812932721023.shtml)
+- 2026-06-29 19:55 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/514550.shtml)
+- 2026-06-29 20:05 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/221412987.shtml)
+- 2026-06-29 20:02 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/5877367.shtml)
+- 2026-06-29 20:15 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/978666181457.shtml)
+- 2026-06-29 19:51 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/613059.shtml)
+- 2026-06-29 20:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/7130180.shtml)
+- 2026-06-29 19:49 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/796928.shtml)
+- 2026-06-29 20:06 - [急先锋](https://www.share.minike.top/Article/details/13650.shtml)
+- 2026-06-29 19:53 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/371886974532.shtml)
+- 2026-06-29 20:00 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/24041.shtml)
+- 2026-06-29 19:54 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/15109870.shtml)
+- 2026-06-29 20:06 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2225684086.shtml)
+- 2026-06-29 19:51 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/6875546.shtml)
+- 2026-06-29 20:00 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/953472328.shtml)

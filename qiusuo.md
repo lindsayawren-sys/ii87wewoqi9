@@ -1,57 +1,44 @@
-# 2026年全国竞走大奖赛（第3站）收官 陕西队获4金1银1铜
+# 一季度我国智能消费设备制造增速明显
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。 本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。最终斩获4金1银1铜的优异成绩。运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带
+发布时间：2026年05月07日 13:42 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 正文
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。
-
-本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。
-
-最终斩获4金1银1铜的优异成绩。
-
-运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带新、传帮带的梯队建设与良好精神风貌。
-
-在6月13日首个比赛日，男女半程马拉松竞走项目率先开赛。
-
-陕西省选手杨宇喆强势后程发力、表现亮眼，以1小时27分55秒的成绩摘得男子半程马拉松竞走桂冠，这也是他职业生涯首个大赛冠军。
-
-女子方面，已获得名古屋亚运会参赛资格的陕西选手杨柳静，轻松摘得女子半程马拉松竞走项目金牌。
-
-作为队内主力，在恢复周期短、备战时间紧张的情况下，她依然随队参赛、全力以赴。
+发布时间：2026年05月07日 13:42 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 20:10 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:10 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 20:03 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 20:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 19:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 19:50 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 20:03 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 20:11 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 20:00 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 19:57 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 20:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 20:11 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 20:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 19:53 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 20:13 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 19:49 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 20:17 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 20:17 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 19:55 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/5773974834.shtml)
-- 2026-06-29 19:52 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/99900.shtml)
-- 2026-06-29 19:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/38424.shtml)
-- 2026-06-29 19:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/375212005.shtml)
-- 2026-06-29 19:51 - [金刚川](http://www.share.minike.top/Article/details/0338916958.shtml)
-- 2026-06-29 19:56 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/83258320.shtml)
-- 2026-06-29 19:58 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/714221898001.shtml)
-- 2026-06-29 20:04 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/58453837075.shtml)
-- 2026-06-29 20:04 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/0212089438.shtml)
-- 2026-06-29 19:44 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/10685628.shtml)
-- 2026-06-29 19:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/5808421520.shtml)
-- 2026-06-29 19:57 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/408102337018.shtml)
-- 2026-06-29 19:53 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/1625814907.shtml)
-- 2026-06-29 19:51 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/122454509588.shtml)
-- 2026-06-29 20:00 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/959488.shtml)
+- 2026-06-29 19:52 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/5205402.shtml)
+- 2026-06-29 20:04 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/536842949137.shtml)
+- 2026-06-29 19:52 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/665502540063.shtml)
+- 2026-06-29 20:10 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/400852339.shtml)
+- 2026-06-29 20:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/073277898270.shtml)
+- 2026-06-29 19:56 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/427901.shtml)
+- 2026-06-29 19:49 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/1528935495.shtml)
+- 2026-06-29 19:48 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/18125380832.shtml)
+- 2026-06-29 20:05 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/30379100.shtml)
+- 2026-06-29 20:12 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/406485564.shtml)
+- 2026-06-29 20:08 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/981657993.shtml)
+- 2026-06-29 19:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/5510810224.shtml)
+- 2026-06-29 20:03 - [请回答王牌2019](https://www.blog.minike.top/Article/details/06063.shtml)
+- 2026-06-29 20:11 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/93664.shtml)
+- 2026-06-29 19:56 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/251993399859.shtml)

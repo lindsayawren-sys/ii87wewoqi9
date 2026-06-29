@@ -1,47 +1,59 @@
-# 黄金股早盘涨幅居前 紫金黄金国际涨逾13%中国黄金国际涨逾7%
+# 声声枪响，叩问“自由女神”丨新漫评
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-黄金股早盘涨幅居前，截至发稿，紫金黄金国际（02259）上涨13.07%，报119.40港元；中国黄金国际（02099）上涨6.72%，报160.40港元；招金矿业（01818）上涨6.69%，报21.39港元；赤峰黄金（06693）上涨6.07%，报29.36港元；紫金矿业（02899）上涨5.80%，报33.22港元。责任编辑：卢昱君
+发布时间：2026年05月07日 16:57 来源：中国新闻网 近日，举办白宫记者协会晚宴的华盛顿希尔顿酒店发生枪击事件，包括美国总统特朗普在内，现场数百名记者和政商界人士趴地避险。美国政界高层惊魂未定之际，美国多地发生枪击事件，已导致十余人伤亡。生命权是最大的人权。在美国人心目中，自由女神本该是高擎火炬的人权象征，却在枪声四起时捂住了耳朵。即使捂住耳朵假装听不见，也捂不住接连
 
 ## 正文
 
-黄金股早盘涨幅居前，截至发稿，紫金黄金国际（02259）上涨13.07%，报119.40港元；中国黄金国际（02099）上涨6.72%，报160.40港元；招金矿业（01818）上涨6.69%，报21.39港元；赤峰黄金（06693）上涨6.07%，报29.36港元；紫金矿业（02899）上涨5.80%，报33.22港元。
+发布时间：2026年05月07日 16:57 来源：中国新闻网 近日，举办白宫记者协会晚宴的华盛顿希尔顿酒店发生枪击事件，包括美国总统特朗普在内，现场数百名记者和政商界人士趴地避险。
 
-责任编辑：卢昱君
+美国政界高层惊魂未定之际，美国多地发生枪击事件，已导致十余人伤亡。
+
+生命权是最大的人权。
+
+在美国人心目中，自由女神本该是高擎火炬的人权象征，却在枪声四起时捂住了耳朵。
+
+即使捂住耳朵假装听不见，也捂不住接连不断的暴力与枪火。
+
+每一记枪声，都是对美国治理失灵最尖锐的叩问。
+
+责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 20:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 20:00 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 19:47 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 19:54 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 20:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 20:11 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 19:54 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 19:55 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 19:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 19:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 19:57 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 20:05 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 19:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 19:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 20:11 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 20:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 19:57 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 20:04 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 20:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 20:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 20:13 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 20:01 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 19:56 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/15498997.shtml)
-- 2026-06-29 20:01 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/66323997527.shtml)
-- 2026-06-29 20:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/22379.shtml)
-- 2026-06-29 19:52 - [斗破苍穹](https://www.blog.minike.top/Article/details/0525191.shtml)
-- 2026-06-29 19:43 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/814252477765.shtml)
-- 2026-06-29 19:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/9968681344.shtml)
-- 2026-06-29 20:08 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/590782930203.shtml)
-- 2026-06-29 20:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/4207251190.shtml)
-- 2026-06-29 19:54 - [《贺子珍》](https://www.share.minike.top/Article/details/814478.shtml)
-- 2026-06-29 19:47 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/32497879.shtml)
-- 2026-06-29 19:53 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/0178884862.shtml)
-- 2026-06-29 20:06 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/63060.shtml)
-- 2026-06-29 19:52 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/22608.shtml)
-- 2026-06-29 20:01 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/64359177347.shtml)
-- 2026-06-29 20:10 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/70466703.shtml)
+- 2026-06-29 20:03 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/357898696849.shtml)
+- 2026-06-29 19:57 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/241810472943.shtml)
+- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/72389.shtml)
+- 2026-06-29 20:09 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/432928.shtml)
+- 2026-06-29 20:07 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/407818104.shtml)
+- 2026-06-29 19:51 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/69727356540.shtml)
+- 2026-06-29 19:50 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/19592.shtml)
+- 2026-06-29 20:09 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/18276711.shtml)
+- 2026-06-29 19:55 - [金刚川](http://www.share.minike.top/Article/details/3815733.shtml)
+- 2026-06-29 19:56 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/557928460.shtml)
+- 2026-06-29 20:15 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/143927.shtml)
+- 2026-06-29 19:49 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/09213759806.shtml)
+- 2026-06-29 20:17 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/8234271567.shtml)
+- 2026-06-29 20:12 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/92960.shtml)
+- 2026-06-29 19:55 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/075599.shtml)

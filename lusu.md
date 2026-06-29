@@ -1,59 +1,57 @@
-# 霍尔木兹海峡何时能重开
+# 商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港口的海上封锁。 伊朗最高国家安全委员会秘书处15日凌晨发表声明，正式宣布伊朗与美国已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。 霍尔木兹海峡能否真正重新开放、消除“梗阻”全面恢复通航需要
+商务部服贸司负责人介绍2026年一季度服务贸易发展情况 2026年一季度，我国服务进出口总额18229亿元（人民币，下同），同比增长2.3%。其中，出口7045.2亿元，增长11.2%；进口11183.8亿元，下降2.6%。服务贸易逆差4138.6亿元，比上年同期缩小1001.5亿元。主要呈现以下特点： 知识密集型服务出口保持较快增长。一季度，知识密集型服务进出口7937.1亿
 
 ## 正文
 
-美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。
+商务部服贸司负责人介绍2026年一季度服务贸易发展情况 2026年一季度，我国服务进出口总额18229亿元（人民币，下同），同比增长2.3%。
 
-特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港口的海上封锁。
+其中，出口7045.2亿元，增长11.2%；进口11183.8亿元，下降2.6%。
 
-伊朗最高国家安全委员会秘书处15日凌晨发表声明，正式宣布伊朗与美国已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。
+服务贸易逆差4138.6亿元，比上年同期缩小1001.5亿元。
 
-霍尔木兹海峡能否真正重新开放、消除“梗阻”全面恢复通航需要多长时间已成为全球关注焦点。
+主要呈现以下特点： 知识密集型服务出口保持较快增长。
 
-怎样才算真正开放 市场人士认为，美伊双方所称的霍尔木兹海峡开放只能算作“技术性开放”，市场期待的真正开放是“商业性开放”。
+一季度，知识密集型服务进出口7937.1亿元，增长1.6%，占总体服务进出口的比重为43.5%。
 
-标普全球能源公司航运与金属部门负责人拉胡尔·卡普尔表示，市场严格区分“技术性开放”与“商业性开放”，后者依赖安全保障、保险成本回落与市场信心重建。
+知识密集型服务出口3842.6亿元，增长6.1%，其中，个人文化和娱乐服务、金融服务增长最快，增速分别为25.6%和16.1%；知识密集型服务进口4094.5亿元，下降2.3%。
 
-标普全球能源公司近日发布报告，综合业界普遍观点梳理霍尔木兹海峡开放所需条件。
+旅行服务出口和运输服务进口快速增长。
 
-报告认为，只有满足通航规模恢复、停火观察确认、保险保障到位、航道安全达标、船队运营回归五大核心条件，国际市场才会认定霍尔木兹海峡真正开放。
+一季度，旅行服务出口1053.5亿元，增长32.3%，位居服务出口各领域增速首位；运输服务进口2302.1亿元，增长22.8%，在服务进口规模前五大领域中增速最快。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 20:01 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 19:49 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 19:52 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 19:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 19:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 20:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:53 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 19:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 19:49 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 20:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 20:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 19:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 20:00 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 19:58 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 20:04 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 19:58 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 20:02 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 19:50 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 20:11 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 20:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/02736972268.shtml)
-- 2026-06-29 19:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/081835.shtml)
-- 2026-06-29 19:52 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/789603587982.shtml)
-- 2026-06-29 19:55 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/6113702047.shtml)
-- 2026-06-29 20:07 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/0943111655.shtml)
-- 2026-06-29 19:54 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/2405218.shtml)
-- 2026-06-29 20:08 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/444935.shtml)
-- 2026-06-29 20:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/40196192.shtml)
-- 2026-06-29 20:02 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/4145199349.shtml)
-- 2026-06-29 19:55 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/94939450.shtml)
-- 2026-06-29 20:04 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/56787645521.shtml)
-- 2026-06-29 19:56 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/89844607532.shtml)
-- 2026-06-29 20:05 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/411137358583.shtml)
-- 2026-06-29 20:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/0319705.shtml)
-- 2026-06-29 19:56 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/114397339624.shtml)
+- 2026-06-29 19:50 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/0847366.shtml)
+- 2026-06-29 20:05 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/22368441.shtml)
+- 2026-06-29 19:58 - [流金岁月](https://www.share.kurohicncr.top/Article/details/59148.shtml)
+- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/23111883673.shtml)
+- 2026-06-29 20:05 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/4315718977.shtml)
+- 2026-06-29 19:53 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/66702148.shtml)
+- 2026-06-29 19:59 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/998559604.shtml)
+- 2026-06-29 19:57 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/8628655.shtml)
+- 2026-06-29 20:04 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/1767624574.shtml)
+- 2026-06-29 20:09 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/709827.shtml)
+- 2026-06-29 19:52 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/376270682125.shtml)
+- 2026-06-29 20:01 - [流金岁月](http://www.blog.minike.top/Article/details/56276333.shtml)
+- 2026-06-29 20:14 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/88172309461.shtml)
+- 2026-06-29 20:15 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/582833.shtml)
+- 2026-06-29 19:52 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/2822382794.shtml)

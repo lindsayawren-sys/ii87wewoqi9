@@ -1,61 +1,56 @@
-# 中电港：打造工程师“星光大道” 构筑集成电路应用创新生态平台
+# 聚气候债券新动能 绘绿色发展新蓝图——中证中节能气候债券系列指数发布
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-本报讯 （记者王镜茹）6月5日，深圳中电港技术股份有限公司（以下简称“中电港”）上线了一款自研AI应用产品“数字FAE”，该产品依托垂直产业大模型重构传统现场应用工程师服务模式，是电子元器件分销行业数智化升级的重要落地成果。当前人工智能技术不断在各行各业纵深发展，中电港将在这场产业变革中扮演怎样的角色？带着这些问题，近日《证券日报》记者走访了位于深圳南山区的中电港总部。AI赋能
+专题：第五届气候投融国际研讨会 2026年4月29日，由中国节能环保集团有限公司（以下简称“中国节能”）与中证指数有限公司联合打造的中证中节能气候债券系列指数（以下简称“该系列指数”），在第五届气候投融资国际研讨会上正式发布。作为中证指数体系内首条气候主题债券系列指数，该系列指数不仅标志着我国气候投融资市场基础设施再添关键工具，更是中国节能作为节能环保领域中央企业，服务国家应对
 
 ## 正文
 
-本报讯 （记者王镜茹）6月5日，深圳中电港技术股份有限公司（以下简称“中电港”）上线了一款自研AI应用产品“数字FAE”，该产品依托垂直产业大模型重构传统现场应用工程师服务模式，是电子元器件分销行业数智化升级的重要落地成果。
+专题：第五届气候投融国际研讨会 2026年4月29日，由中国节能环保集团有限公司（以下简称“中国节能”）与中证指数有限公司联合打造的中证中节能气候债券系列指数（以下简称“该系列指数”），在第五届气候投融资国际研讨会上正式发布。
 
-当前人工智能技术不断在各行各业纵深发展，中电港将在这场产业变革中扮演怎样的角色？
+作为中证指数体系内首条气候主题债券系列指数，该系列指数不仅标志着我国气候投融资市场基础设施再添关键工具，更是中国节能作为节能环保领域中央企业，服务国家应对气候变化战略及“双碳”目标，推动绿色金融“五篇大文章”走深走实的创新举措。
 
-带着这些问题，近日《证券日报》记者走访了位于深圳南山区的中电港总部。
+绿色债券是连接绿色产业与资本市场的重要纽带，也是应对气候变化、推动节能降碳的重要金融工具。
 
-AI赋能服务升级作为国内领先的电子元器件应用创新与供应链服务平台，中电港长期连接集成电路原厂、方案商、制造企业及终端客户等产业链上下游资源。
+我国绿色债券市场已迈入万亿级时代，2025年境内发行规模达1.08万亿元，累计发行超5.2万亿元。
 
-目前，该公司拥有百余家国内外集成电路原厂授权，产品覆盖CPU、GPU、MCU、存储器、射频、无线通信、模拟器件、传感器及分立器件等核心品类，服务网络延伸至汽车电子、AI算力、工业制造、消费电子、低空经济、医疗设备等多个重点领域。
+站在这一新起点上，中国节能联合中证指数有限公司发布气候债券系列指数，旨在引导社会资本精准支撑应对气候变化核心领域，服务国家战略大局。
 
-近年来，依托多年积累的技术服务、供应链管理及产业数据能力，该公司正持续推动人工智能技术与产业服务深度融合。
+本次发布的中证中节能气候债券系列指数，优选在交易所、银行间市场上市且具备应对气候变化核心特征的绿色债券作为样本，并综合考量不同风险偏好投资者的差异化需求，分别开发了三条不同信用等级的子指数——中证中节能气候债券指数、中证中节能高等级气候债券指数、中证中节能AAA气候债券指数，三条指数分别覆盖主体等级AA及以上、AA+及以上、AAA等不同风险层级，形成梯度化基准体系，反映不同等级信用债在应对气候变化主题下的整体表现。
 
-“电子产业的产品和技术迭代非常迅速，尤其是在人工智能时代，每个季度，甚至每个月都会有新的产品形态不断冒出来，这依赖于中国庞大的优秀工程师群体的研发效率与创新速度，也对集成电路原厂、IDH和分销商的技术支持团队提出了更高要求。
+区别于常规的绿色债券指数，该系列指数依托中节能衡准科技服务（北京）有限公司十余年绿色金融专业积淀，紧扣国家“减缓与适应并重”战略导向，依据《国家适应气候变化战略2035》《绿色金融支持项目目录（2025年版）》《气候投融资项目分类指南》等政策和标准，围绕直接和间接温室气体减排、生态和社会气候适应能力提升、气候风险监测预警体系构建等重点方向构建气候属性识别体系，系统评估债券的气候实质贡献，为投资者提供具有气候指向性的精准投资标的。
 
-”中电港相关业务负责人对记者表示。
+该系列指数的推出，有助于加深债券市场参与者对气候投融资理念的理解，引导资金更多流向应对气候变化领域，进一步推动绿色债券市场纵深发展。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 19:48 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 19:43 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 20:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:55 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 20:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 19:51 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 19:43 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 20:04 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 19:49 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 19:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 20:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 19:50 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 20:13 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 19:52 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 20:08 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 20:16 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 20:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 19:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 19:58 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 19:58 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 20:02 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/064048.shtml)
-- 2026-06-29 19:58 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/71410398880.shtml)
-- 2026-06-29 20:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/86586175722.shtml)
-- 2026-06-29 20:02 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/6132410.shtml)
-- 2026-06-29 19:55 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/18530804334.shtml)
-- 2026-06-29 20:07 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/12788048111.shtml)
-- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/9051218135.shtml)
-- 2026-06-29 19:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/684898369.shtml)
-- 2026-06-29 19:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/36559.shtml)
-- 2026-06-29 20:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/55347162.shtml)
-- 2026-06-29 19:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/930941163278.shtml)
-- 2026-06-29 19:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/468561770573.shtml)
-- 2026-06-29 19:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/64134128644.shtml)
-- 2026-06-29 19:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5371880.shtml)
-- 2026-06-29 19:57 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/8431931.shtml)
+- 2026-06-29 20:10 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/11984.shtml)
+- 2026-06-29 19:59 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/9317430.shtml)
+- 2026-06-29 20:08 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/7608227.shtml)
+- 2026-06-29 19:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/3076739425.shtml)
+- 2026-06-29 20:06 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/25086501.shtml)
+- 2026-06-29 20:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/67045401.shtml)
+- 2026-06-29 20:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/81511.shtml)
+- 2026-06-29 19:55 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/6233215.shtml)
+- 2026-06-29 19:56 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/90819360102.shtml)
+- 2026-06-29 20:16 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/0707935033.shtml)
+- 2026-06-29 20:03 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/78275337582.shtml)
+- 2026-06-29 20:06 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/80816770.shtml)
+- 2026-06-29 20:06 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/64592397744.shtml)
+- 2026-06-29 19:57 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/48966908.shtml)
+- 2026-06-29 19:59 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/502873.shtml)

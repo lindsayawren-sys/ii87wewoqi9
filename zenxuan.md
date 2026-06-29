@@ -1,48 +1,60 @@
-# 市场监管总局约谈山姆总部
+# 一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-国家市场监督管理总局6月15日通报，针对一段时期以来发现的山姆线下门店及线上网店多发的食品安全问题，市场监管总局近日依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，树牢食品安
+智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。不过，您有没有想到，这些智能门锁也有安全隐患？近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。令人意想不到的是，这其中有的产品，用一张打印照片就能打开。在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。 工程师介绍，出
 
 ## 正文
 
-国家市场监督管理总局6月15日通报，针对一段时期以来发现的山姆线下门店及线上网店多发的食品安全问题，市场监管总局近日依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，树牢食品安全意识，严格落实食品安全主体责任，自觉践行企业社会责任，严防全链条食品安全风险，切实保障公众饮食安全。
+智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。
 
-（记者戴小河）责任编辑：郭栩彤
+不过，您有没有想到，这些智能门锁也有安全隐患？
+
+近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。
+
+令人意想不到的是，这其中有的产品，用一张打印照片就能打开。
+
+在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。
+
+工程师介绍，出现这类问题，主要是部分企业希望给用户带来更顺畅、接近“秒开”的解锁体验，因此会适当调低识别阈值，优先保障操作的便捷性。
+
+某智能家居检测中心副部长 魏明然：把阈值调低，给人的体验是开门会比较快。
+
+有的门锁把阈值调得相对高一些，安全性会高一些，在体验上开门时间会稍长。
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 19:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 19:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 20:00 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 19:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 20:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 20:11 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 20:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 20:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 19:44 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 19:58 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 19:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 20:02 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 19:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 20:01 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 19:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 20:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 20:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 20:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 20:07 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 20:00 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 19:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 20:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 19:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 19:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 20:10 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 20:03 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 19:48 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/152973.shtml)
-- 2026-06-29 19:49 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/166742586679.shtml)
-- 2026-06-29 20:06 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/0968636127.shtml)
-- 2026-06-29 19:42 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/3785749759.shtml)
-- 2026-06-29 20:09 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/614229833.shtml)
-- 2026-06-29 19:59 - [黄金也扛不住了](http://www.share.minike.top/Article/details/042114881.shtml)
-- 2026-06-29 20:03 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/69949.shtml)
-- 2026-06-29 20:11 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/692803.shtml)
-- 2026-06-29 20:07 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/5364789787.shtml)
-- 2026-06-29 19:56 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/3480604.shtml)
-- 2026-06-29 19:44 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/3077212935.shtml)
-- 2026-06-29 20:08 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/289441730073.shtml)
-- 2026-06-29 19:46 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/225842.shtml)
-- 2026-06-29 20:10 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/917908409.shtml)
-- 2026-06-29 20:04 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/46660244.shtml)
+- 2026-06-29 20:11 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/722423.shtml)
+- 2026-06-29 20:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/560918863496.shtml)
+- 2026-06-29 20:12 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/86605754.shtml)
+- 2026-06-29 19:54 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/8320137.shtml)
+- 2026-06-29 19:55 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/749580580499.shtml)
+- 2026-06-29 20:17 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/87209922.shtml)
+- 2026-06-29 20:03 - [东方风云榜](https://www.blog.minike.top/Article/details/99542991719.shtml)
+- 2026-06-29 20:17 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/69153.shtml)
+- 2026-06-29 20:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/495073.shtml)
+- 2026-06-29 20:09 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/6104409.shtml)
+- 2026-06-29 20:12 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/4722915708.shtml)
+- 2026-06-29 19:56 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/43711.shtml)
+- 2026-06-29 19:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/19902131818.shtml)
+- 2026-06-29 19:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/465435160009.shtml)
+- 2026-06-29 20:17 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/811265.shtml)

@@ -1,60 +1,56 @@
-# 划重点 这些生活习惯可能正在泄露你的个人信息
+# 人民论坛实评 | 5G工厂里的“富民密码”
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-国家网信办近日发布了《中国个人信息保护报告(2025)》，这是国家网信办首次发布个人信息保护综合性年度报告，“报告”系统梳理了2025年我国个人信息保护工作的成效与经验。过去一年，有哪些违法违规问题高频出现？集中在哪些领域环节？国家出台了哪些新制度和新标准？个人信息保护如何形成合力？ 侵害个人信息乱象 集中在哪些领域环节？ 《中国个人信息保护报告(2025)》显示，过去一年，我
+不久前，工业和信息化部发布《2025年5G工厂典型应用实践》，共遴选出100个技术先进、标杆引领的5G工厂典型应用实践，覆盖原材料工业、装备工业、消费品工业、电子信息、能源交通等重要行业领域。 这份“榜单”，既是我国工业数字化转型的实力答卷，更是“5G+工业互联网”走向普惠富民的清晰路标。从单点突破走向深度融合，从产业增效迈向民生增收，5G与工业互联网“牵手”编织的“数字翅膀”
 
 ## 正文
 
-国家网信办近日发布了《中国个人信息保护报告(2025)》，这是国家网信办首次发布个人信息保护综合性年度报告，“报告”系统梳理了2025年我国个人信息保护工作的成效与经验。
+不久前，工业和信息化部发布《2025年5G工厂典型应用实践》，共遴选出100个技术先进、标杆引领的5G工厂典型应用实践，覆盖原材料工业、装备工业、消费品工业、电子信息、能源交通等重要行业领域。
 
-过去一年，有哪些违法违规问题高频出现？
+这份“榜单”，既是我国工业数字化转型的实力答卷，更是“5G+工业互联网”走向普惠富民的清晰路标。
 
-集中在哪些领域环节？
+从单点突破走向深度融合，从产业增效迈向民生增收，5G与工业互联网“牵手”编织的“数字翅膀”，正从赋能产业升级为普惠富民，为高质量发展注入新动能。
 
-国家出台了哪些新制度和新标准？
+自2022年起，工业和信息化部实施5G工厂“百千万”行动，累计推动2.3万余个工业5G专网建设，发布1260个分类分级、特色鲜明的5G工厂名录项目，有效推动“5G+工业互联网”，从单点探索向系统集成拓展、从外围辅助环节向生产核心环节延伸，加速工业互联网融合应用。
 
-个人信息保护如何形成合力？
+而今，数字技术不是高高在上的“科技秀”，而是藏在车间、码头、矿山里的“富民密码”。
 
-侵害个人信息乱象 集中在哪些领域环节？
+一段时间以来，总有人认为5G工厂是“高精尖”专属。
 
-《中国个人信息保护报告(2025)》显示，过去一年，我国开展了多轮专项整治工作，究竟在哪些场景中，会频繁出现侵害个人信息的违法违规问题？
+事实上，“5G+工业互联网”这份数字转型“考卷”，很多地方都在作答。
 
-“报告”显示，2025年，国家网信办等相关部门持续开展个人信息保护专项整治行动，累计通报1100余款违法违规App、SDK(软件开发工具包)，排查8万余个收集使用人脸识别的应用场所、14万余个线下消费场景，发现并处置违法违规收集使用个人信息问题8300余个。
+这次，福建泉州就有3个项目入选：良瓷科技5G全连接工厂，用5G连接实现对窑炉等设备的远程监控与预测性维护；铁拓机械，依托5G低时延网络，实现焊接机器人的远程精准操控与参数动态调整；福地(石狮)新材料5G工厂，利用5G网络，实现生产单元的数字孪生仿真，使工艺参数得以动态优化并远程精准下发。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 20:11 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 19:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 20:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 20:03 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 19:43 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 20:03 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 20:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 20:07 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 19:42 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 20:07 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 19:49 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 19:58 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 20:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 20:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:57 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 19:48 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 19:50 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 20:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 20:11 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 20:10 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 19:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 20:12 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/197378803963.shtml)
-- 2026-06-29 19:55 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/963196.shtml)
-- 2026-06-29 19:54 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/33964.shtml)
-- 2026-06-29 19:58 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/549883343.shtml)
-- 2026-06-29 19:59 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/77522.shtml)
-- 2026-06-29 20:00 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/330289.shtml)
-- 2026-06-29 19:44 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/5063121919.shtml)
-- 2026-06-29 20:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/171829.shtml)
-- 2026-06-29 20:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/05391828957.shtml)
-- 2026-06-29 19:53 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/428002366.shtml)
-- 2026-06-29 19:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/043221.shtml)
-- 2026-06-29 19:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/58320052.shtml)
-- 2026-06-29 19:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/418629.shtml)
-- 2026-06-29 19:44 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/46966.shtml)
-- 2026-06-29 20:04 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/188824.shtml)
+- 2026-06-29 19:48 - [急先锋](http://www.blog.minike.top/Article/details/7524657998.shtml)
+- 2026-06-29 19:57 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/4975277.shtml)
+- 2026-06-29 20:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/3011913.shtml)
+- 2026-06-29 20:01 - [新官上任三把火](https://www.share.minike.top/Article/details/85245.shtml)
+- 2026-06-29 20:07 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/2322656584.shtml)
+- 2026-06-29 20:08 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/6043386909.shtml)
+- 2026-06-29 19:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/4195982.shtml)
+- 2026-06-29 20:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/4360486977.shtml)
+- 2026-06-29 20:03 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/7498742652.shtml)
+- 2026-06-29 20:03 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/009520118067.shtml)
+- 2026-06-29 20:03 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/2230953.shtml)
+- 2026-06-29 20:12 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/61932825216.shtml)
+- 2026-06-29 20:02 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/337789.shtml)
+- 2026-06-29 19:48 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/81771533.shtml)
+- 2026-06-29 20:10 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/877879846029.shtml)

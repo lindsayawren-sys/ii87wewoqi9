@@ -1,61 +1,51 @@
-# 被数字员工“抢”走30%工作量，这里的客服在忙啥？
+# 美国中央司令部：美军拦截伊朗袭击 不寻求局势升级
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-以前忙到没空喝水，现在日均多接50通电话；以前怕被AI替代，现在教AI“读懂”客户—— 【探班“AI搭子”①】被数字员工“抢”走30%工作量，这里的客服在忙啥？ 工人日报记者 王群 开栏的话AI会“抢”走我的饭碗吗？当AI同事走入职场，劳动者该如何迭代成长？劳动者合法权益又该如何守护？……这是各行各业面临的时代之问。 客服中心里，数字员工“秒回”客户，把坐席从重复性工作中解放出
+美国中央司令部在X平台发文称：“5月7日，美军在海军导弹驱逐舰穿越霍尔木兹海峡前往阿曼湾期间，拦截了无端的伊朗攻击，并实施了自卫性打击。” 该帖文称：“没有美方资产遭到打击。” 帖文还表示：“中央司令部不寻求局势升级，但保持部署并准备好保护美国军队。”责任编辑：陈钰嘉
 
 ## 正文
 
-以前忙到没空喝水，现在日均多接50通电话；以前怕被AI替代，现在教AI“读懂”客户—— 【探班“AI搭子”①】被数字员工“抢”走30%工作量，这里的客服在忙啥？
+美国中央司令部在X平台发文称：“5月7日，美军在海军导弹驱逐舰穿越霍尔木兹海峡前往阿曼湾期间，拦截了无端的伊朗攻击，并实施了自卫性打击。
 
-工人日报记者 王群 开栏的话AI会“抢”走我的饭碗吗？
+” 该帖文称：“没有美方资产遭到打击。
 
-当AI同事走入职场，劳动者该如何迭代成长？
+” 帖文还表示：“中央司令部不寻求局势升级，但保持部署并准备好保护美国军队。
 
-劳动者合法权益又该如何守护？
-
-……这是各行各业面临的时代之问。
-
-客服中心里，数字员工“秒回”客户，把坐席从重复性工作中解放出来；智能车间中，工业机器人与技术工人默契协作，改写生产流程；三甲医院内，医疗机器人各司其职，辅助医生精准诊疗、提升效率；养老机构里，人形机器人开始服务银发族，带来温暖陪伴……人机协作的“新劳动故事”正不断“上新”。
-
-即日起，本报推出系列报道《探班“AI搭子”》。
-
-让我们一起走进现场，和AI工友来一次“亲密接触”，在探班中为时代之问寻找答案。
+”责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 19:51 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 19:46 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 20:07 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 19:47 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 19:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 19:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 19:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 19:56 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 19:42 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 20:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 19:58 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 19:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 20:09 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 20:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 20:00 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 19:56 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 19:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 20:09 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 20:11 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 19:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 19:54 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 20:05 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 19:57 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 19:56 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:59 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/912772989.shtml)
-- 2026-06-29 20:10 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/42599930.shtml)
-- 2026-06-29 20:06 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/423290853616.shtml)
-- 2026-06-29 19:58 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/733266530288.shtml)
-- 2026-06-29 19:47 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/5092077.shtml)
-- 2026-06-29 19:57 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/5758801311.shtml)
-- 2026-06-29 19:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/12485573.shtml)
-- 2026-06-29 19:50 - [送你一朵小红花](http://www.blog.minike.top/Article/details/276733706.shtml)
-- 2026-06-29 20:06 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/7638961.shtml)
-- 2026-06-29 19:49 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/06828527.shtml)
-- 2026-06-29 20:08 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/339966203.shtml)
-- 2026-06-29 19:55 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/1657866323.shtml)
-- 2026-06-29 19:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/6346637.shtml)
-- 2026-06-29 19:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/95630414881.shtml)
-- 2026-06-29 20:10 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/96464.shtml)
+- 2026-06-29 19:57 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/689527021.shtml)
+- 2026-06-29 20:06 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/51087673655.shtml)
+- 2026-06-29 20:01 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/9650685021.shtml)
+- 2026-06-29 19:55 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/88561388529.shtml)
+- 2026-06-29 20:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0443110813.shtml)
+- 2026-06-29 20:05 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/24608.shtml)
+- 2026-06-29 20:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/0226601.shtml)
+- 2026-06-29 19:56 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/781025405.shtml)
+- 2026-06-29 20:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/2039921229.shtml)
+- 2026-06-29 20:10 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/57907.shtml)
+- 2026-06-29 19:56 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/15518824.shtml)
+- 2026-06-29 20:11 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/3471923778.shtml)
+- 2026-06-29 20:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/8636852.shtml)
+- 2026-06-29 20:08 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/71436742154.shtml)
+- 2026-06-29 19:58 - [当我回母校教书](https://www.share.minike.top/Article/details/7880987.shtml)

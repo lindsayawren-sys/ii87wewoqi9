@@ -1,55 +1,49 @@
-# 重庆海关关于送达《中华人民共和国重庆海关企业信用等级认定决定书》（渝关认〔2026〕3号）的公告
+# 外交部：台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-根据《中华人民共和国海关注册登记和备案企业信用管理办法》(海关总署令第251号，以下简称《信用管理办法》)有关规定，我关决定于2026年5月28日起认定重庆智澜汽车销售服务有限公司(统一社会信用代码：91500106MA5U56JH78)为失信企业。因直接送达、邮寄送达等方式均无法送达，现依法公告送达《中华人民共和国重庆海关企业信用等级认定决定书》(渝关认〔2026〕3号，见附
+新华社北京5月7日电(记者吴梦桐、马卓言)针对外界猜测台湾问题是中美元首会晤中方首要关切议题，外交部发言人林剑7日在例行记者会上答问时表示，台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础。恪守一个中国原则和中美三个联合公报、恪守美国历届政府在台湾问题上所作承诺是美方应尽的国际义务，也是中美关系稳定、健康、可持续发展的必要前提。中方维护国家统一和领土完整的决心坚定不移
 
 ## 正文
 
-根据《中华人民共和国海关注册登记和备案企业信用管理办法》(海关总署令第251号，以下简称《信用管理办法》)有关规定，我关决定于2026年5月28日起认定重庆智澜汽车销售服务有限公司(统一社会信用代码：91500106MA5U56JH78)为失信企业。
+新华社北京5月7日电(记者吴梦桐、马卓言)针对外界猜测台湾问题是中美元首会晤中方首要关切议题，外交部发言人林剑7日在例行记者会上答问时表示，台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础。
 
-因直接送达、邮寄送达等方式均无法送达，现依法公告送达《中华人民共和国重庆海关企业信用等级认定决定书》(渝关认〔2026〕3号，见附件)。
+恪守一个中国原则和中美三个联合公报、恪守美国历届政府在台湾问题上所作承诺是美方应尽的国际义务，也是中美关系稳定、健康、可持续发展的必要前提。
 
-请你单位自公告之日起30日内到我关领取上述文书正本，逾期视为送达。
+中方维护国家统一和领土完整的决心坚定不移，“台独”分裂与台海和平水火不容，维护台海和平稳定就必须旗帜鲜明反对“台独”。
 
-联系地址：重庆市渝北区龙山一路1号。
-
-联系电话：023—67709456。
-
-特此公告。
-
-附件：中华人民共和国重庆海关企业信用等级认定决定书(渝关认〔2026〕3号).pdf
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 19:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 19:54 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 20:02 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 19:49 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 19:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 19:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 19:56 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 19:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 20:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 20:01 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 20:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 20:03 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 19:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 19:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 20:09 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 19:51 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 19:48 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 19:55 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:11 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 19:51 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/521230.shtml)
-- 2026-06-29 19:58 - [急先锋](https://www.share.minike.top/Article/details/816241475668.shtml)
-- 2026-06-29 19:42 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/74859016599.shtml)
-- 2026-06-29 20:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/136366010750.shtml)
-- 2026-06-29 19:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/656970.shtml)
-- 2026-06-29 20:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/1503974.shtml)
-- 2026-06-29 19:59 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/250295813.shtml)
-- 2026-06-29 19:58 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/521836063554.shtml)
-- 2026-06-29 19:47 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/6575107833.shtml)
-- 2026-06-29 19:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/40574630.shtml)
-- 2026-06-29 20:09 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/326996397.shtml)
-- 2026-06-29 20:00 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/355680132498.shtml)
-- 2026-06-29 19:50 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/0036962.shtml)
-- 2026-06-29 20:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/31871364.shtml)
-- 2026-06-29 19:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/90528365725.shtml)
+- 2026-06-29 19:56 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/766226.shtml)
+- 2026-06-29 20:11 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/819439744.shtml)
+- 2026-06-29 19:55 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/71406829.shtml)
+- 2026-06-29 20:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/98942316764.shtml)
+- 2026-06-29 20:17 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/857547357134.shtml)
+- 2026-06-29 19:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/61273.shtml)
+- 2026-06-29 20:17 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/82441.shtml)
+- 2026-06-29 19:49 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/528569.shtml)
+- 2026-06-29 20:09 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/8862578.shtml)
+- 2026-06-29 20:01 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/821235.shtml)
+- 2026-06-29 19:57 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/15897360608.shtml)
+- 2026-06-29 19:50 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/4348385116.shtml)
+- 2026-06-29 20:04 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/16072424.shtml)
+- 2026-06-29 20:13 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/198959501.shtml)
+- 2026-06-29 20:06 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/60493934479.shtml)

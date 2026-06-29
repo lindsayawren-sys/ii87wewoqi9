@@ -1,58 +1,61 @@
-# 长江有色：15日镍价上涨 涨价带动惜售整体刚需为主
+# Apollo推出“次世代”抵押贷款债券 标榜可降风险、提评级
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍上涨，沪期镍主力月2607合约开盘报134120元/吨，盘中最高报136770元/吨，最低价报134070元/吨，收盘报136490元/吨，上涨2050元/吨，涨幅1.52%，沪镍主力月2607主力合约成交量194331手。 据长江有色属网统计：6月15日ccmn长江综合1#镍价报135400元/吨-137700元/吨，均价报1
+Apollo Global Management Inc．正推出自己的抵押贷款债券（CLO）市场，宣称可提供更多元化、评级更高的结构，从而降低风险。 作为结构性融资的基石，CLO通常将投资级别以下的企业贷款打包，并切分为不同风险层级的证券出售。然而，今年市场对收益下降与违约增加的担忧，已使部分投资者撤出CLO市场。 但Apollo首席执行官Marc Rowan周三在分析师电话会
 
 ## 正文
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍上涨，沪期镍主力月2607合约开盘报134120元/吨，盘中最高报136770元/吨，最低价报134070元/吨，收盘报136490元/吨，上涨2050元/吨，涨幅1.52%，沪镍主力月2607主力合约成交量194331手。
+Apollo Global Management Inc．正推出自己的抵押贷款债券（CLO）市场，宣称可提供更多元化、评级更高的结构，从而降低风险。
 
-据长江有色属网统计：6月15日ccmn长江综合1#镍价报135400元/吨-137700元/吨，均价报136550元/吨，较前一日价格上涨150元，长江现货1#镍报135550元/吨-137550元/吨，均价报136550元/吨，较前一日价格上涨50元，广东现货镍报137500元/吨-137900元/吨，均价报137700元/吨，较前一日价格上涨600元。
+作为结构性融资的基石，CLO通常将投资级别以下的企业贷款打包，并切分为不同风险层级的证券出售。
 
-宏观面影 响因素 海外层面，美伊缓和落地使得全球地缘风险溢价回落，美股整体回暖推升大宗商品整体风险偏好，叠加市场宽松预期升温，美元阶段性走弱，大幅消解了美元走强对工业有色品种的估值压制；同时印尼镍矿配额收紧的市场传闻持续扩散，进一步放大原生镍上游供给收缩预期。
+然而，今年市场对收益下降与违约增加的担忧，已使部分投资者撤出CLO市场。
 
-国内层面，十一部门联合印发新能源重卡规模化推广方案，明确渗透率落地目标，直接拉动高镍动力电池、车用不锈钢双赛道终端刚需；叠加当前 A 股有色板块估值处于低位，资金看中板块性价比，批量抄底资金流入镍系标的，从资金盘面辅助助推镍价上涨。
+但Apollo首席执行官Marc Rowan周三在分析师电话会议上表示，随着机构投资者在寻找新的收益来源，近年来顶级评级CLO债务的需求显著上升。
 
-原材料与产业链供需紧平衡 红土镍矿供应偏紧，印尼政策扰动成关键；硫化镍矿资源稀缺，产能增长乏力。
+这款新产品——Apollo多资产优质证券（AMAPS）——将投资级别私募债务打包，转化为可以出售给机构投资者的证券，股权缓冲也更大。
 
-高冰镍转产缓慢，MHP 受硫磺高价拖累供应锐减，再生镍受原料技术限制增量有限。
+据Apollo称，该产品的底层资产更为分散，杠杆较低，其资本结构中约85%可获主要评级机构评为投资级别。
 
-产业链呈现上游紧、中游缺格局，印尼部分产线检修进一步收缩供给，下游新能源需求刚需支撑，不锈钢则以消耗库存为主。
+该公司将其称为“次世代结构性信贷工具”。
 
-现货交投：涨价带动惜售补库 镍价大涨刺激市场情绪，现货端贸易商捂货惜售现象增多，下游新能源企业为锁定成本主动补库，成交重心随盘面快速上移，但不锈钢企业因利润承压采购偏谨慎，成交随价格抬升逐步转淡，整体表现平平。
+此举也反映出资产管理公司的一项更广泛趋势：将私人且流动性较低的投资重新包装为类似债券的工具，以便更容易纳入机构的资产负债表。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 19:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 19:52 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:08 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 20:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 19:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 19:50 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 19:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:10 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 20:09 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 19:43 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 19:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 19:49 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 20:05 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 20:13 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 19:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 20:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 19:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 20:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 20:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 20:16 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:01 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 20:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 20:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 20:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 19:52 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/043549.shtml)
-- 2026-06-29 20:02 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/28122.shtml)
-- 2026-06-29 19:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/566020989.shtml)
-- 2026-06-29 19:59 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/952249.shtml)
-- 2026-06-29 19:48 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/464165623977.shtml)
-- 2026-06-29 19:57 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/95335232.shtml)
-- 2026-06-29 19:51 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7408351.shtml)
-- 2026-06-29 19:46 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/17125270.shtml)
-- 2026-06-29 19:55 - [爱很美味](http://www.share.minike.top/Article/details/96567210.shtml)
-- 2026-06-29 20:01 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/1169245876.shtml)
-- 2026-06-29 19:53 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/8074328.shtml)
-- 2026-06-29 20:07 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/754979515.shtml)
-- 2026-06-29 19:48 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/78779503.shtml)
-- 2026-06-29 19:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/751271801747.shtml)
-- 2026-06-29 20:05 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/24821994264.shtml)
+- 2026-06-29 20:01 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/89211209982.shtml)
+- 2026-06-29 19:53 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/56091.shtml)
+- 2026-06-29 19:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/98031.shtml)
+- 2026-06-29 19:59 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/57822.shtml)
+- 2026-06-29 20:05 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/984001133176.shtml)
+- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/2196023.shtml)
+- 2026-06-29 20:05 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/773112060.shtml)
+- 2026-06-29 20:02 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/597890.shtml)
+- 2026-06-29 20:12 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/738676353.shtml)
+- 2026-06-29 20:05 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/445080385984.shtml)
+- 2026-06-29 20:00 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/0477775.shtml)
+- 2026-06-29 19:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/8665995404.shtml)
+- 2026-06-29 19:54 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/69770998.shtml)
+- 2026-06-29 19:54 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/365816.shtml)
+- 2026-06-29 19:50 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/51395821.shtml)

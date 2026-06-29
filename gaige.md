@@ -1,44 +1,58 @@
-# 【早盘三分钟】6月15日华宝基金ETF早知道
+# 从“看景”到“入景” 国风沉浸 令人“上头”
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。 从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。 在河北吴桥，全国首
 
 ## 正文
 
-责任编辑：常福强
+今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。
+
+多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。
+
+从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。
+
+携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。
+
+在河北吴桥，全国首个杂技主题沉浸式文旅综合体——吴桥杂技幻乐城于5月1日开业迎客。
+
+石家庄游客李思琪体验后兴奋地说：“第一次在现场近距离看杂技表演，都是真功夫！
+
+我们还上台跟杂技演员一起互动，尝试抖空竹和顶碗，太刺激了！
+
+”吴桥杂技幻乐城打破传统景区“台下看、台上演”的单一模式，创新打造“玩中看、看中玩、游中学、学中乐”的全沉浸、交互式全新体验，让游客从“旁观者”变“参与者”。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 19:58 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 20:00 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 19:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 19:49 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 19:59 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:07 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 19:49 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 20:09 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 20:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 20:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 20:14 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 20:18 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 20:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 20:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 20:09 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 20:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 20:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 19:51 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 19:54 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 20:08 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/97744.shtml)
-- 2026-06-29 19:58 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/09758271.shtml)
-- 2026-06-29 20:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/06666.shtml)
-- 2026-06-29 19:43 - [温网](http://www.share.kurohicncr.top/Article/details/8935669730.shtml)
-- 2026-06-29 19:46 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/3753279.shtml)
-- 2026-06-29 19:55 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/941469561278.shtml)
-- 2026-06-29 19:58 - [起风了](https://www.blog.kurohicncr.top/Article/details/3954581.shtml)
-- 2026-06-29 20:08 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/2388962870.shtml)
-- 2026-06-29 19:55 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/151093116571.shtml)
-- 2026-06-29 19:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/656580027796.shtml)
-- 2026-06-29 19:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/99382.shtml)
-- 2026-06-29 20:00 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/94774050.shtml)
-- 2026-06-29 19:47 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/13446.shtml)
-- 2026-06-29 20:04 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/30125963.shtml)
-- 2026-06-29 20:01 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/2973220149.shtml)
+- 2026-06-29 20:05 - [流金岁月](http://www.share.minike.top/Article/details/706810449349.shtml)
+- 2026-06-29 20:07 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/3461430177.shtml)
+- 2026-06-29 20:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/0097978884.shtml)
+- 2026-06-29 19:49 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/32107647.shtml)
+- 2026-06-29 20:10 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/62232.shtml)
+- 2026-06-29 20:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/043811483195.shtml)
+- 2026-06-29 20:13 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/5625796693.shtml)
+- 2026-06-29 19:50 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/508925716859.shtml)
+- 2026-06-29 19:49 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/09937651.shtml)
+- 2026-06-29 20:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/68958.shtml)
+- 2026-06-29 20:09 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/992476.shtml)
+- 2026-06-29 19:59 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/489267219.shtml)
+- 2026-06-29 20:03 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/09172653227.shtml)
+- 2026-06-29 20:08 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/3018562.shtml)
+- 2026-06-29 20:17 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/087596292871.shtml)

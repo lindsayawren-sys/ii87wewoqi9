@@ -1,56 +1,54 @@
-# 前5个月铁路客货运量多项指标创新高
+# 中方：将一如既往支持委内瑞拉维护自身主权、尊严和合法权利
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者从国铁集团获悉，今年1至5月，铁路客货运量稳步增长，多项指标均创历史新高。 今年前5个月，受元旦、春节、清明及“五一”等假期带动，铁路客流量大幅增长，全国铁路累计发送旅客19.69亿人次。其中，5月1日当天发送旅客2484.4万人次，客流总量和单日旅客发送量均创历史新高。 多部门联合推动铁旅融合发展，激发境内及跨境旅游市场活力。前5个月，全国铁路发送
+中新社北京5月7日电 (记者 郭超凯)美方强行控制委内瑞拉总统马杜罗夫妇已4个月，中国外交部发言人林剑7日在例行记者会上表示，中方将一如既往支持委内瑞拉维护自身主权、尊严和合法权利。 林剑还表示，4个月前美国悍然对委内瑞拉实施军事打击，并强行控制马杜罗总统夫妇。这种霸权行径严重违反国际法，侵犯委内瑞拉主权，威胁拉美和加勒比地区和平稳定，中方坚决反对。 另有记者就美方近日升级对古
 
 ## 正文
 
-央视网消息(新闻联播)：记者从国铁集团获悉，今年1至5月，铁路客货运量稳步增长，多项指标均创历史新高。
+中新社北京5月7日电 (记者 郭超凯)美方强行控制委内瑞拉总统马杜罗夫妇已4个月，中国外交部发言人林剑7日在例行记者会上表示，中方将一如既往支持委内瑞拉维护自身主权、尊严和合法权利。
 
-今年前5个月，受元旦、春节、清明及“五一”等假期带动，铁路客流量大幅增长，全国铁路累计发送旅客19.69亿人次。
+林剑还表示，4个月前美国悍然对委内瑞拉实施军事打击，并强行控制马杜罗总统夫妇。
 
-其中，5月1日当天发送旅客2484.4万人次，客流总量和单日旅客发送量均创历史新高。
+这种霸权行径严重违反国际法，侵犯委内瑞拉主权，威胁拉美和加勒比地区和平稳定，中方坚决反对。
 
-多部门联合推动铁旅融合发展，激发境内及跨境旅游市场活力。
+另有记者就美方近日升级对古巴制裁一事提问，林剑应询表示，对于美方出台有关行政令，中方日前已经表明立场。
 
-前5个月，全国铁路发送外籍旅客1002.4万人次，同比增长35.5%。
+林剑重申，美国变本加厉对古巴实施非法单边制裁，严重侵犯古巴人民生存权、发展权，严重违反国际关系基本准则。
 
-5月份以来，中老铁路跨境列车趟趟爆满。
+中方坚定支持古巴维护国家主权和安全，坚决反对干涉古巴内政，敦促美方立即终止对古巴的封锁制裁和任何形式的胁迫施压。
 
-前5个月，全国铁路累计开行旅游列车1400列，比去年同期增加770列，有效服务旅游经济发展。
-
-前5个月，国家铁路累计发送货物16.7亿吨，日均装车数量同比增长2.8%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 19:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 19:50 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 19:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 20:07 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 19:49 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 19:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 19:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 19:46 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 19:48 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 20:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 20:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 19:54 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 19:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 20:09 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 20:16 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 20:10 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 20:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 20:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/63156217.shtml)
-- 2026-06-29 19:45 - [流金岁月](https://www.share.minike.top/Article/details/9955990595.shtml)
-- 2026-06-29 20:08 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/0751605.shtml)
-- 2026-06-29 20:01 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/235272.shtml)
-- 2026-06-29 19:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/122631018078.shtml)
-- 2026-06-29 19:46 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/6720153548.shtml)
-- 2026-06-29 19:52 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/742099.shtml)
-- 2026-06-29 19:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/4529450.shtml)
-- 2026-06-29 19:43 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/675637465446.shtml)
-- 2026-06-29 19:59 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/638815560.shtml)
-- 2026-06-29 20:06 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/25305.shtml)
-- 2026-06-29 19:44 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/044119.shtml)
-- 2026-06-29 19:42 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/2777228.shtml)
-- 2026-06-29 20:07 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/71074.shtml)
-- 2026-06-29 19:50 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/3897000.shtml)
+- 2026-06-29 19:59 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/210615390.shtml)
+- 2026-06-29 20:13 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/509657935.shtml)
+- 2026-06-29 19:54 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/99600069145.shtml)
+- 2026-06-29 20:01 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/70874301717.shtml)
+- 2026-06-29 19:52 - [千与千寻](http://www.share.minike.top/Article/details/731039878284.shtml)
+- 2026-06-29 19:56 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/4641789.shtml)
+- 2026-06-29 20:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/32775160206.shtml)
+- 2026-06-29 19:50 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/055920295.shtml)
+- 2026-06-29 20:13 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/6764275.shtml)
+- 2026-06-29 20:01 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/54817192.shtml)
+- 2026-06-29 19:49 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/43044.shtml)
+- 2026-06-29 20:14 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/142941517380.shtml)
+- 2026-06-29 19:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/482820957.shtml)
+- 2026-06-29 20:01 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/62499.shtml)
+- 2026-06-29 19:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/01727.shtml)

@@ -1,44 +1,61 @@
-# 菲律宾发生6.2级强震
+# 迟福林：RCEP区域智库交流比以往更加重要
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据美国地质勘探局消息，当地时间15日，菲律宾东南近海发生6.2级地震，震源深度111.9千米。
+中新网海口5月8日电 (记者 王晓斌 张茜翼)8日上午，RCEP智库联盟工作会在中国(海南)改革发展研究院(简称“中改院”)召开。中改院长、海南自由贸易港研究院院长迟福林表示，RCEP区域智库交流比以往更加重要。来自中国、印度尼西亚、马来西亚、泰国、新加坡、菲律宾、柬埔寨、老挝、缅甸、新西兰等国家的联盟成员、观察员代表与会。 迟福林在致辞中指出，地缘经济格局深刻变化，RCEP既
 
 ## 正文
 
-中新网6月15日电 据美国地质勘探局消息，当地时间15日，菲律宾东南近海发生6.2级地震，震源深度111.9千米。
+中新网海口5月8日电 (记者 王晓斌 张茜翼)8日上午，RCEP智库联盟工作会在中国(海南)改革发展研究院(简称“中改院”)召开。
+
+中改院长、海南自由贸易港研究院院长迟福林表示，RCEP区域智库交流比以往更加重要。
+
+来自中国、印度尼西亚、马来西亚、泰国、新加坡、菲律宾、柬埔寨、老挝、缅甸、新西兰等国家的联盟成员、观察员代表与会。
+
+迟福林在致辞中指出，地缘经济格局深刻变化，RCEP既面临重要机遇，也面临重要挑战。
+
+RCEP智库联盟要发挥推动RCEP升级、服务RCEP决策的重要作用，加强和相关国际合作交流机制的协作，强化联盟成员的信息交流，发挥在RCEP能力建设中的作用，并在把海南自由贸易港打造成为RCEP区域经贸合作战略枢纽中发挥更大作用。
+
+中改院执行院长杨睿代表联盟秘书处作2025年工作报告及下一步主要工作考虑。
+
+会议讨论环节由中国公共外交协会原会长吴海龙、印尼战略与国际问题研究中心执行主任约瑟共同主持。
+
+与会智库专家围绕RCEP实施中的重大问题以及智库联盟自身建设发展相关问题展开讨论。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 19:47 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 19:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 19:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 20:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 20:05 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 20:02 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 19:53 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 20:03 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 20:05 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 19:44 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 19:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 20:01 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:11 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 19:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 20:04 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 20:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 20:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 20:14 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 20:08 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 20:09 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 19:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 19:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 20:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 19:59 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:15 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/215671.shtml)
-- 2026-06-29 20:07 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/83971.shtml)
-- 2026-06-29 19:49 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/913400109241.shtml)
-- 2026-06-29 19:44 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/3760969573.shtml)
-- 2026-06-29 19:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/98662551741.shtml)
-- 2026-06-29 19:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/58974.shtml)
-- 2026-06-29 20:09 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/110149.shtml)
-- 2026-06-29 19:44 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/57000.shtml)
-- 2026-06-29 19:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/177322954275.shtml)
-- 2026-06-29 20:09 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/79325790.shtml)
-- 2026-06-29 19:58 - [请回答王牌2019](https://www.blog.minike.top/Article/details/10685088845.shtml)
-- 2026-06-29 19:50 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/367994177466.shtml)
-- 2026-06-29 20:11 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/570896990383.shtml)
-- 2026-06-29 19:56 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/214681165887.shtml)
-- 2026-06-29 19:57 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/31875081.shtml)
+- 2026-06-29 19:51 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/15500833.shtml)
+- 2026-06-29 20:10 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/010297654.shtml)
+- 2026-06-29 20:12 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/2146389.shtml)
+- 2026-06-29 20:05 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/711129165.shtml)
+- 2026-06-29 20:01 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/4165031179.shtml)
+- 2026-06-29 19:53 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0094156823.shtml)
+- 2026-06-29 20:11 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/69491071111.shtml)
+- 2026-06-29 20:05 - [王楚钦称抽签结果出来心情不好](https://www.blog.minike.top/Article/details/42395770.shtml)
+- 2026-06-29 19:50 - [小娘惹](https://www.share.minike.top/Article/details/4156789153.shtml)
+- 2026-06-29 20:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/8889449.shtml)
+- 2026-06-29 20:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/001807052.shtml)
+- 2026-06-29 19:53 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/24993230087.shtml)
+- 2026-06-29 19:54 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/272662975411.shtml)
+- 2026-06-29 20:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/803954045001.shtml)
+- 2026-06-29 19:55 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/464573191.shtml)

@@ -1,61 +1,59 @@
-# 可爱暴击！外籍萌娃恋上中国 边检民警执勤现场溜娃
+# 北京警方严打涉电信网络诈骗黑灰产业
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 15:36 来源：中国新闻网 近日，济南遥墙机场济南—大阪SC8085次航班正开展边防查验工作。一名3岁的加拿大小女孩在接受检查时突然放声大哭。执勤民警第一时间上前轻声安抚。 据悉，同行3人是小女孩一家，母亲为华侨，全家今年5月免签入境回国探亲。短短一月的相处，让孩子深深喜欢上这里，舍不得离开。查验手续办结后，小女孩主动牵住民警的手，想要留下来
+中新网北京5月6日电 (记者 吕少威)为严打涉电信网络诈骗黑灰产业，切实斩断犯罪链条，北京警方坚持多维度综合治理，开展全链条打击，今年以来，已累计打掉取现运金“车队”48个，抓获犯罪嫌疑人280余名，拦截黄金8.23公斤，现金2990余万元。工作中，北京警方集中力量打击为诈骗提供技术、信息、洗钱等支持的各类犯罪团伙，并针对诈骗分子利用线下方式转移赃款的新手段开展专项行动，重点打
 
 ## 正文
 
-发布时间：2026年06月13日 15:36 来源：中国新闻网 近日，济南遥墙机场济南—大阪SC8085次航班正开展边防查验工作。
+中新网北京5月6日电 (记者 吕少威)为严打涉电信网络诈骗黑灰产业，切实斩断犯罪链条，北京警方坚持多维度综合治理，开展全链条打击，今年以来，已累计打掉取现运金“车队”48个，抓获犯罪嫌疑人280余名，拦截黄金8.23公斤，现金2990余万元。
 
-一名3岁的加拿大小女孩在接受检查时突然放声大哭。
+工作中，北京警方集中力量打击为诈骗提供技术、信息、洗钱等支持的各类犯罪团伙，并针对诈骗分子利用线下方式转移赃款的新手段开展专项行动，重点打击通过取现、购买黄金等方式进行洗钱的“车队”，形成有效震慑。
 
-执勤民警第一时间上前轻声安抚。
+同时，强化源头治理与协同管控，持续深化与电信、金融、银行、互联网等部门协作联动，紧抓涉诈电话卡银行卡、非法APP、网络账户等关键要素开展共同整治，进一步挤压黑灰产业的生存空间。
 
-据悉，同行3人是小女孩一家，母亲为华侨，全家今年5月免签入境回国探亲。
+日前，北京警方部署多警种联动、跨省市同步作战，成功打掉一个流窜全国多地，专门为诈骗犯罪洗钱的电诈黑灰产团伙，抓获涉案嫌疑人7人。
 
-短短一月的相处，让孩子深深喜欢上这里，舍不得离开。
+今年1月中旬，北京市公安局房山分局接到辖区一家金店工作人员报警，称有人异常预约购买价值高达百万元的黄金。
 
-查验手续办结后，小女孩主动牵住民警的手，想要留下来。
+这一情况引起了警方关注，民警迅速开展核查，认定事主被境外诈骗分子深度“洗脑”，遭遇虚假网络投资理财诈骗，听信诈骗分子话术，执意通过线下购买黄金方式进行所谓“大额投资”。
 
-民警化身“临时玩伴”，耐心陪伴安抚，直到孩子情绪稳定，才将她交还给父母，保障旅客顺利出境。
+最终，在民警和事主家人的共同劝阻下，事主未将购买的黄金送出，成功避免了财产损失。
 
-(记者 王峰 粱犇 制作 刘鹏） 责任编辑：【吉翔】
+同时，办案民警将伺机“取金”的嫌疑人李某当场抓获。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 19:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 19:56 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 19:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 20:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 19:49 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 20:06 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 19:44 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 20:09 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 20:01 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:43 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 19:47 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 19:50 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 19:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 20:09 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 19:56 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 20:08 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 20:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:12 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:55 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 20:09 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 20:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 20:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 20:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 19:49 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 20:11 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 20:03 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/6435685.shtml)
-- 2026-06-29 20:05 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/57991719638.shtml)
-- 2026-06-29 20:10 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/769424296.shtml)
-- 2026-06-29 19:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/48450.shtml)
-- 2026-06-29 20:02 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/48310.shtml)
-- 2026-06-29 20:06 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/5480785767.shtml)
-- 2026-06-29 19:48 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/98632.shtml)
-- 2026-06-29 19:59 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/18956967.shtml)
-- 2026-06-29 19:53 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/2118285301.shtml)
-- 2026-06-29 20:10 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/131145769.shtml)
-- 2026-06-29 19:43 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/6556763.shtml)
-- 2026-06-29 19:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/0422436.shtml)
-- 2026-06-29 20:02 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/8585007916.shtml)
-- 2026-06-29 19:59 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/485564.shtml)
-- 2026-06-29 20:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/3572814216.shtml)
+- 2026-06-29 20:17 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/2828178.shtml)
+- 2026-06-29 20:12 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/505653452363.shtml)
+- 2026-06-29 20:11 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/1047006662.shtml)
+- 2026-06-29 20:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/21373769.shtml)
+- 2026-06-29 20:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/7990910.shtml)
+- 2026-06-29 19:50 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/573949723775.shtml)
+- 2026-06-29 20:14 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/27727325.shtml)
+- 2026-06-29 20:00 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/795175.shtml)
+- 2026-06-29 19:54 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/78519.shtml)
+- 2026-06-29 20:06 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/81077406.shtml)
+- 2026-06-29 19:51 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/85935.shtml)
+- 2026-06-29 19:48 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/4587972.shtml)
+- 2026-06-29 20:01 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/91872.shtml)
+- 2026-06-29 20:10 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/0251187918.shtml)
+- 2026-06-29 19:59 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/61803.shtml)

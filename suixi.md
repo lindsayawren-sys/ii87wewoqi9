@@ -1,56 +1,61 @@
-# （活力中国调研行）从火箭动力到太空算力 北京以AI加速“算力上天”
+# 一季度，险资加仓路线图曝光
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。 中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。 AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业
+随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。在增持股份数量居前的十只个股中，银行股独占五席，其余个股主要集中在交通运输、公用事业等行业。银行仍是重仓行业截至一季度末，险资合计重仓（
 
 ## 正文
 
-中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。
+随着A股上市公司2026年一季度业绩报告披露收官，保险资金的调仓换股路线图浮出水面：一边集中加仓银行股，强化“压舱石”作用；一边布局交通运输、公用事业等板块，寻求均衡配置。
 
-中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。
+数据显示，截至一季度末，险资在超600只个股的前十大流通股东名单中出现。
 
-AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业布局热点。
+在增持股份数量居前的十只个股中，银行股独占五席，其余个股主要集中在交通运输、公用事业等行业。
 
-北京太空数据中心建设正处技术验证阶段。
+银行仍是重仓行业截至一季度末，险资合计重仓（成为上市公司前十大流通股东）A股约640只，较2025年末增超20只，持股数量增超40亿股。
 
-“尽管整体建造成本较高，但一旦建成，运营成本极低。
+从持仓市值来看，险资重仓股市值合计超过1.5万亿元（以一季度末股价计算），其中银行股持仓市值占比超三成。
 
-”北京星辰未来空间技术研究院副院长武江涛表示，太空数据中心优势在于能源供给免费且持续，太空太阳能利用效率远高于地面，且无需支付电费；散热依靠辐射散热板，无需配备大量水冷设备。
+银行股成为险资一季度主要加仓方向。
 
-武江涛说，该院在能源获取和散热上取得创新突破，独创设计了聚光型太阳电池和石墨烯轻质散热系统，在地面完成工程化实验基础上，正通过试验星在轨进行验证，后续将逐步推进小规模、全系统应用。
+险资增持股份数量最多的前十只个股中，银行股占据五席，分别为中国银行、工商银行、兴业银行、中信银行、杭州银行。
 
-在北京科学智能研究院内，人工智能赋能科学研究(AI for Science)有效帮助打破学科与学科、理论与实验、科研与产业之间的壁垒，火箭发动机研发周期由以年计缩短至按月计，推动更多原创性、引领性成果落地。
+具体至保险公司，中国人寿新进杭州银行、上海银行、江苏银行前十大流通股东行列，截至一季度末分别持有上述三家银行2.89%、2.82%和2.14%的股权；新华保险新进邮储银行、中国银行前十大股东行列，截至一季度末分别持有0.15%、0.08%股权。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:52 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 20:11 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 19:48 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 19:49 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 19:49 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 19:55 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 19:58 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 19:48 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 19:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 19:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 19:49 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 20:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 19:51 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 19:57 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 20:01 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 20:01 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 19:53 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 19:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 19:56 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 20:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 20:07 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 20:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 20:09 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 20:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/765258315047.shtml)
-- 2026-06-29 20:11 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/400809.shtml)
-- 2026-06-29 20:04 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/22063256.shtml)
-- 2026-06-29 20:04 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/382521984447.shtml)
-- 2026-06-29 19:58 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/14962506.shtml)
-- 2026-06-29 19:51 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/99082024342.shtml)
-- 2026-06-29 20:05 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/80165849.shtml)
-- 2026-06-29 20:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/21871733.shtml)
-- 2026-06-29 19:58 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/1776999.shtml)
-- 2026-06-29 19:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/3126877165.shtml)
-- 2026-06-29 20:03 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/233971328.shtml)
-- 2026-06-29 19:50 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/302245978.shtml)
-- 2026-06-29 19:58 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/777132743.shtml)
-- 2026-06-29 19:51 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/09291836869.shtml)
-- 2026-06-29 20:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/74183.shtml)
+- 2026-06-29 20:00 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/2067165.shtml)
+- 2026-06-29 20:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/849013024787.shtml)
+- 2026-06-29 19:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/67526.shtml)
+- 2026-06-29 20:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/9063943.shtml)
+- 2026-06-29 20:05 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/871619.shtml)
+- 2026-06-29 19:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/715992.shtml)
+- 2026-06-29 19:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/414485721.shtml)
+- 2026-06-29 19:56 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/452206477023.shtml)
+- 2026-06-29 19:50 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/3780558388.shtml)
+- 2026-06-29 20:04 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/7705527.shtml)
+- 2026-06-29 20:09 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/24921824.shtml)
+- 2026-06-29 20:15 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/611865.shtml)
+- 2026-06-29 20:11 - [我们的少年时代2](https://www.blog.minike.top/Article/details/79780.shtml)
+- 2026-06-29 19:57 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/21631.shtml)
+- 2026-06-29 19:58 - [天道](https://www.share.minike.top/Article/details/3861125645.shtml)

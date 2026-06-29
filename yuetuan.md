@@ -1,43 +1,46 @@
-# 联合国粮农组织称：近年来欧洲和中亚逾1亿人经历粮食短缺
+# 见证英雄爸爸的一天 4岁幼童身陷高空险境 特警和热心市民联手救援
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月07日 13:49 来源：中国新闻网 见证英雄爸爸的一天！4岁幼童身陷高空险境，特警和热心市民联手救援，为英雄点赞！ 责任编辑：【李光伟】
 
 ## 正文
 
-发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月07日 13:49 来源：中国新闻网 见证英雄爸爸的一天！
+
+4岁幼童身陷高空险境，特警和热心市民联手救援，为英雄点赞！
+
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 19:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 20:00 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 20:07 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 19:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:02 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 19:55 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 20:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 19:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 20:10 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 20:10 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 20:00 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 20:00 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 19:50 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 20:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 20:17 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:49 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 19:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 20:09 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 20:02 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 19:52 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/192592194.shtml)
-- 2026-06-29 20:07 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/860913.shtml)
-- 2026-06-29 19:58 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/03904962.shtml)
-- 2026-06-29 19:54 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/533277279.shtml)
-- 2026-06-29 19:44 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/348109.shtml)
-- 2026-06-29 19:42 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/35054831562.shtml)
-- 2026-06-29 20:04 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/6152091955.shtml)
-- 2026-06-29 19:43 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/56451104.shtml)
-- 2026-06-29 19:53 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/059843550842.shtml)
-- 2026-06-29 20:04 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/62750.shtml)
-- 2026-06-29 20:00 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/875936013.shtml)
-- 2026-06-29 20:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/981526.shtml)
-- 2026-06-29 19:54 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/24917874.shtml)
-- 2026-06-29 19:53 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/4867801304.shtml)
-- 2026-06-29 19:47 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/4491018.shtml)
+- 2026-06-29 20:06 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/263240723786.shtml)
+- 2026-06-29 20:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/8023303981.shtml)
+- 2026-06-29 20:01 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/06431.shtml)
+- 2026-06-29 19:52 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/3495202664.shtml)
+- 2026-06-29 20:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/13138.shtml)
+- 2026-06-29 20:17 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/29713.shtml)
+- 2026-06-29 19:55 - [请回答王牌2019](http://www.share.minike.top/Article/details/066218.shtml)
+- 2026-06-29 19:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/404138856957.shtml)
+- 2026-06-29 20:09 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/619953684122.shtml)
+- 2026-06-29 19:49 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/36566767983.shtml)
+- 2026-06-29 19:59 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/454529651.shtml)
+- 2026-06-29 20:09 - [毒液2](http://www.share.minike.top/Article/details/006535482200.shtml)
+- 2026-06-29 19:49 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/368358410677.shtml)
+- 2026-06-29 20:04 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/5940916.shtml)
+- 2026-06-29 19:49 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/11765639.shtml)

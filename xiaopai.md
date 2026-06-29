@@ -1,56 +1,59 @@
-# AI集体“翻车”！日本逼平橙衣军团，仅一款大模型猜中结果
+# 美国商务部长就爱泼斯坦案闭门作证 委员会主席称其并非“100%说真话”
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月15日，2026年世界杯小组赛上演了一场充满戏剧性的对决，亚洲劲旅日本队在先失球的不利局面下顽强扳平比分，最终与欧洲豪门荷兰队战成2：2平。这场经典的以弱抗强战役，不仅让球迷热血沸腾，更让赛前信心满满的AI预测模型遭遇了史诗级的“滑铁卢”。在由联想集团与咪咕视频联合推出的预测活动中，包括Deep
+美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。 今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国商务部长霍华德·卢特尼克周三成为首位就杰弗里·爱泼斯坦案件及执法部门潜在疏漏向众议院委员会作证的在任内阁成员。
 
-北京时间6月15日，2026年世界杯小组赛上演了一场充满戏剧性的对决，亚洲劲旅日本队在先失球的不利局面下顽强扳平比分，最终与欧洲豪门荷兰队战成2：2平。
+卢特尼克曾是爱泼斯坦的邻居，并曾造访这位声名狼藉的金融家位于加勒比海的岛屿。
 
-这场经典的以弱抗强战役，不仅让球迷热血沸腾，更让赛前信心满满的AI预测模型遭遇了史诗级的“滑铁卢”。
+今年早些时候，司法部公布的文件显示，时任Cantor Fitzgerald LP首席执行官的卢特尼克曾于2012年造访爱泼斯坦的私人岛屿。
 
-在由联想集团与咪咕视频联合推出的预测活动中，包括DeepSeek、Kimi、通义千问在内的10款主流国产大模型几乎全军覆没，只有一款大模型猜中了平局。
+这发生在爱泼斯坦因被指安排未成年人卖淫而被定罪的数年之后。
 
-赛前的数据分析显示，AI模型对这场比赛的判断呈现出惊人的同质化。
+这一披露使得卢特尼克受到抨击。
 
-在参与预测的12款大模型中，高达11款都毫不犹豫地选择了“荷兰胜”。
+众议院监督委员会主席James Comer周三对记者表示，卢特尼克此前在公开声明中关于他是否去过爱泼斯坦岛屿的问题“并没有100%说真话”，但他补充说，目前没有看到证据指向这位商务部长存在任何不当行为。
 
-它们给出的剧本高度一致：荷兰队将以2：1或3：1的小比分优势取胜。
+周三上午，卢特尼克在安保人员和助手的簇拥下抵达国会办公楼，对记者们的提问没有作出回应。
 
-中移九天成为本场唯一命中者。
+他正在闭门作证，委员会计划在未来几天公布逐字稿。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 20:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 19:51 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 19:57 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 19:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 20:05 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 20:10 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 19:49 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 20:06 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 20:03 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 19:59 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 19:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 20:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 20:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 19:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 20:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:00 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 20:00 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 20:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:57 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/047277433893.shtml)
-- 2026-06-29 19:46 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/318410.shtml)
-- 2026-06-29 19:54 - [天道](http://www.blog.kurohicncr.top/Article/details/4796062841.shtml)
-- 2026-06-29 20:09 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/155832462480.shtml)
-- 2026-06-29 20:04 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/512940261.shtml)
-- 2026-06-29 19:47 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/95746.shtml)
-- 2026-06-29 19:57 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/902377741702.shtml)
-- 2026-06-29 20:11 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/06732080.shtml)
-- 2026-06-29 19:44 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/028622385498.shtml)
-- 2026-06-29 19:43 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/716010.shtml)
-- 2026-06-29 19:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/476057765.shtml)
-- 2026-06-29 20:10 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/31530676937.shtml)
-- 2026-06-29 19:43 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/99824306416.shtml)
-- 2026-06-29 19:55 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/94253491.shtml)
-- 2026-06-29 19:56 - [啊啊啊](https://www.share.minike.top/Article/details/41009170950.shtml)
+- 2026-06-29 19:57 - [起风了](https://www.blog.minike.top/Article/details/9072475.shtml)
+- 2026-06-29 20:08 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/494534839.shtml)
+- 2026-06-29 20:03 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/448624597130.shtml)
+- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/19917569.shtml)
+- 2026-06-29 20:01 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/292971.shtml)
+- 2026-06-29 20:08 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/265007.shtml)
+- 2026-06-29 19:57 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/4494691.shtml)
+- 2026-06-29 20:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/9879641.shtml)
+- 2026-06-29 20:13 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/468623497661.shtml)
+- 2026-06-29 20:11 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/09514882357.shtml)
+- 2026-06-29 20:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/51587528.shtml)
+- 2026-06-29 19:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/47803.shtml)
+- 2026-06-29 20:00 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/44615.shtml)
+- 2026-06-29 20:11 - [啊啊啊](https://www.share.minike.top/Article/details/4580948.shtml)
+- 2026-06-29 20:03 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/367912046185.shtml)

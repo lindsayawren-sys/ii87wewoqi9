@@ -1,59 +1,58 @@
-# 快手“铁力神杯”：足球狂欢季，“老铁”上场
+# CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”
 
-> 更新时间：2026-06-29 20:12:03 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-史上规模最浩大的一届世界杯正式开幕。来自全球各地的四十八支足球劲旅已经陆续在美加墨大地绿茵场上展开激烈角逐。新王加冕与传奇谢幕、矛盾之争与宿敌对决将成为今年夏天最让人津津乐道的瞬间。 热血不止于赛场，狂欢不止于看台。今年6-7月，快手特别推出“铁力神杯”活动，知名体育评论员杨毅&董路、中国裁判员马宁等专业体育人与赵家班群星、明星李晨、歌手井胧、歌手宝石Gem及喜剧人新星等明星大
+文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。这一幕后来成为特朗普时代最经典的政治画面之一。 此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼
 
 ## 正文
 
-史上规模最浩大的一届世界杯正式开幕。
+文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。
 
-来自全球各地的四十八支足球劲旅已经陆续在美加墨大地绿茵场上展开激烈角逐。
+” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。
 
-新王加冕与传奇谢幕、矛盾之争与宿敌对决将成为今年夏天最让人津津乐道的瞬间。
+这一幕后来成为特朗普时代最经典的政治画面之一。
 
-热血不止于赛场，狂欢不止于看台。
+此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。
 
-今年6-7月，快手特别推出“铁力神杯”活动，知名体育评论员杨毅&董路、中国裁判员马宁等专业体育人与赵家班群星、明星李晨、歌手井胧、歌手宝石Gem及喜剧人新星等明星大咖将齐聚快手，老铁不仅可以聊球互动，更能观看多场独家直播。
+他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼这家电视台。
 
-此外，“铁力神杯”还推出数十个自制群众体育活动及百余场直播，涵盖台球、龙舟、街球等多个体育类目，看球之外老铁更有机会自己上场当主角。
+▲美国有线电视新闻网(CNN)创办人泰德·特纳(Ted Turner)。
 
-董路杨毅+喜剧新星，聊球既要专业也要有趣 世界杯期间，赛事赛况无疑是老铁最关注的信息之一。
+图源：CNN 但当地时间5月6日，在CNN创始人泰德·特纳去世后，特朗普却专门发文悼念这位媒体大亨。
 
-为给老铁提供更丰富的内容消费体验，快手“铁力神杯”特别推出两档自制聊球节目。
+特朗普称特纳是“广播行业最伟大的人之一”，同时又含沙射影：“新东家接手后毁了CNN……特纳倍受打击。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 20:05 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:54 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 19:52 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 19:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 19:46 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 19:58 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 19:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 19:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 20:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 19:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 19:43 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 19:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:10 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 20:03 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:12 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 20:01 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 19:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 20:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 20:13 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 20:01 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 20:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 20:07 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 20:11 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/198387299.shtml)
-- 2026-06-29 20:06 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/95368603271.shtml)
-- 2026-06-29 19:51 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/805328974.shtml)
-- 2026-06-29 19:48 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/3528272.shtml)
-- 2026-06-29 19:44 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/44197538.shtml)
-- 2026-06-29 19:59 - [千与千寻](http://www.blog.minike.top/Article/details/375467.shtml)
-- 2026-06-29 19:52 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/879656182530.shtml)
-- 2026-06-29 20:04 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/810168.shtml)
-- 2026-06-29 19:45 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/7578040674.shtml)
-- 2026-06-29 19:52 - [一生一世](http://www.blog.kurohicncr.top/Article/details/4838372082.shtml)
-- 2026-06-29 19:46 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/156089723.shtml)
-- 2026-06-29 19:55 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/47050.shtml)
-- 2026-06-29 20:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/25528177014.shtml)
-- 2026-06-29 19:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/9908302.shtml)
-- 2026-06-29 20:09 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/3280673.shtml)
+- 2026-06-29 20:01 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/60477.shtml)
+- 2026-06-29 20:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/084129.shtml)
+- 2026-06-29 19:55 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/78244401063.shtml)
+- 2026-06-29 20:04 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/0974632279.shtml)
+- 2026-06-29 19:49 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/91693.shtml)
+- 2026-06-29 19:51 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/113070065550.shtml)
+- 2026-06-29 20:10 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/845498328.shtml)
+- 2026-06-29 19:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/535191650685.shtml)
+- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/8848605.shtml)
+- 2026-06-29 19:55 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/345592718.shtml)
+- 2026-06-29 20:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/4626578615.shtml)
+- 2026-06-29 20:11 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/81101001031.shtml)
+- 2026-06-29 19:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/329599395813.shtml)
+- 2026-06-29 19:58 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/688116354.shtml)
+- 2026-06-29 19:59 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/0608146974.shtml)

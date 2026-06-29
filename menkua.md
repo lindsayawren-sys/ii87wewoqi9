@@ -1,61 +1,55 @@
-# 科技股暴力反弹，创业板指涨超5%！券商股也罕见爆发，什么信号？
+# 广东发布水旱灾害防御应急物资储备指引
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|肖芮冬 每经编辑|赵云 6月15日，市场集体反弹，创业板指大涨超5%，深成指涨超3.5%。截至收盘，沪指涨1.61%，深成指涨3.79%，创业板指涨5.3%。 板块来看，AI硬件方向集体爆发，其中PCB概念持续走高，CPO概念走强，MLCC概念再度活跃；大金融板块盘中异动拉升，有色金属板块表现活跃
+中新网广州5月8日电 (记者 王坚)据广东省水利厅8日消息，为建立健全广东省水旱灾害防御应急物资储备体系，提升水旱灾害防御应急物资保障能力，该厅组织广东省水利电力勘测设计研究院编制了《广东省水旱灾害防御应急物资储备指引》(简称《指引》)，并已印发实施。广东省水利厅介绍，广东地处华南，台风暴雨频发，汛期长达半年，近年来旱涝急转现象突出。全省水利工程点多面广，水旱防御形势复杂，防汛
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州5月8日电 (记者 王坚)据广东省水利厅8日消息，为建立健全广东省水旱灾害防御应急物资储备体系，提升水旱灾害防御应急物资保障能力，该厅组织广东省水利电力勘测设计研究院编制了《广东省水旱灾害防御应急物资储备指引》(简称《指引》)，并已印发实施。
 
-每经记者|肖芮冬 每经编辑|赵云 6月15日，市场集体反弹，创业板指大涨超5%，深成指涨超3.5%。
+广东省水利厅介绍，广东地处华南，台风暴雨频发，汛期长达半年，近年来旱涝急转现象突出。
 
-截至收盘，沪指涨1.61%，深成指涨3.79%，创业板指涨5.3%。
+全省水利工程点多面广，水旱防御形势复杂，防汛减灾任务十分繁重。
 
-板块来看，AI硬件方向集体爆发，其中PCB概念持续走高，CPO概念走强，MLCC概念再度活跃；大金融板块盘中异动拉升，有色金属板块表现活跃。
+据了解，《指引》编制过程中，编制单位充分结合水旱灾害防御的新形势、新任务、新要求，力求覆盖水利应急值班值守、水利工程日常检查巡查排查、应急抢险等全过程、全链条的物资储备需求。
 
-下跌方面，煤炭板块震荡走弱。
+广东省水利厅表示，按照“分级储备、错位互补、统筹互助、逐步完备”的原则，《指引》重点解决各级水利部门和水管单位在水旱灾害防御应急物资中“谁来储”“储什么”“储多少”等关键问题，推动构建上级统筹、区域联动、互助共济的物资保障格局，切实提升广东水旱灾害突发事件应急物资保障能力。
 
-全市场超3900只个股上涨，超百股涨停。
-
-沪深两市成交额3.03万亿元，较上一个交易日缩量1838亿。
-
-受“美伊达成协议”消息提振，今天亚太股市集体反弹，A股科技板块尤其AI硬件方向，也迎来强力修复。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 20:01 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 20:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 19:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 20:12 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 19:47 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 19:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 20:08 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 20:04 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:55 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 20:01 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 19:52 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 19:48 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 19:45 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 19:54 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 20:09 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 20:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 20:05 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 19:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 20:06 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 20:08 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:11 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 20:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 20:16 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 20:09 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 20:14 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 20:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 20:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/0932907.shtml)
-- 2026-06-29 20:07 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/60020081035.shtml)
-- 2026-06-29 20:03 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/85813121070.shtml)
-- 2026-06-29 20:11 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/818948710.shtml)
-- 2026-06-29 20:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/323236212.shtml)
-- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/49634080179.shtml)
-- 2026-06-29 19:49 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/079951846170.shtml)
-- 2026-06-29 19:48 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/1422005458.shtml)
-- 2026-06-29 20:03 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/577229638316.shtml)
-- 2026-06-29 20:00 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/415485.shtml)
-- 2026-06-29 19:50 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3112516143.shtml)
-- 2026-06-29 19:42 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/860335542933.shtml)
-- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/665465373146.shtml)
-- 2026-06-29 20:00 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/419163.shtml)
-- 2026-06-29 20:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5801562.shtml)
+- 2026-06-29 19:57 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/31956711891.shtml)
+- 2026-06-29 19:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/5601563.shtml)
+- 2026-06-29 20:15 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/806536.shtml)
+- 2026-06-29 20:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/0282183282.shtml)
+- 2026-06-29 20:14 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/7362252.shtml)
+- 2026-06-29 20:15 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/6397586018.shtml)
+- 2026-06-29 20:11 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/327487.shtml)
+- 2026-06-29 20:01 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/0440600.shtml)
+- 2026-06-29 19:55 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/85354.shtml)
+- 2026-06-29 20:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/89333607.shtml)
+- 2026-06-29 19:57 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/686900784.shtml)
+- 2026-06-29 19:54 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/5436727208.shtml)
+- 2026-06-29 20:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/843546.shtml)
+- 2026-06-29 20:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/58273294962.shtml)
+- 2026-06-29 20:13 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/37085.shtml)

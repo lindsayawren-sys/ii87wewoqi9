@@ -1,58 +1,56 @@
-# 龙舟竞渡迎端午 川渝18支龙舟队在芙蓉江挥桨劈浪争先
+# 你还在把小拇指当“手机支架”？快改
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 17:24 来源：中国新闻网 龙舟竞渡，劈浪争先。6月12日，重庆市第六届龙舟公开赛(武隆站)暨第十九届芙蓉江龙舟锦标赛在重庆武隆芙蓉江精彩举行。 本次比赛设置22人龙舟‌‌200米‌、‌500米‌直道赛两个项目，吸引了川渝两地的18支队伍，近500名选手参赛。 随着发令声响，一艘艘龙舟如离弦之箭冲出起点。鼓手擂响战鼓，划手们奋力挥桨，18支队
+用小拇指当手机支架 是不是你常用的刷手机姿势？ 如果是 那就千万要注意了！ “00后”女子 用小拇指托手机致关节变形 近日，有媒体报道了山东滨州邹平一位“00后”女子因小拇指关节严重变形发炎，引发广泛关注。这位孙女士用小拇指根部托住手机底部作为“支架”，每天使用手机时间长达6至8小时，已持续多年。 近一个月来，她的手指疼痛急剧加重，已经到了无法握拳、写字，甚至连使用筷子都变得困
 
 ## 正文
 
-发布时间：2026年06月13日 17:24 来源：中国新闻网 龙舟竞渡，劈浪争先。
+用小拇指当手机支架 是不是你常用的刷手机姿势？
 
-6月12日，重庆市第六届龙舟公开赛(武隆站)暨第十九届芙蓉江龙舟锦标赛在重庆武隆芙蓉江精彩举行。
+如果是 那就千万要注意了！
 
-本次比赛设置22人龙舟‌‌200米‌、‌500米‌直道赛两个项目，吸引了川渝两地的18支队伍，近500名选手参赛。
+“00后”女子 用小拇指托手机致关节变形 近日，有媒体报道了山东滨州邹平一位“00后”女子因小拇指关节严重变形发炎，引发广泛关注。
 
-随着发令声响，一艘艘龙舟如离弦之箭冲出起点。
+这位孙女士用小拇指根部托住手机底部作为“支架”，每天使用手机时间长达6至8小时，已持续多年。
 
-鼓手擂响战鼓，划手们奋力挥桨，18支队伍展开了激烈角逐。
+近一个月来，她的手指疼痛急剧加重，已经到了无法握拳、写字，甚至连使用筷子都变得困难的地步。
 
-最终，合川龙舟队凭借出色的发挥，在200米和500米直道赛中夺得冠军。
+经医院诊断，孙女士被确诊为小拇指腱鞘炎，目前正在接受治疗。
 
-武隆地处乌江下游，端午节赛龙舟的习俗在当地沿袭已久，芙蓉江龙舟锦标赛至今已连续举办19届。
+小拇指长时间托手机 会导致腱鞘炎、韧带炎、关节炎、腕管综合征等 复旦大学附属中山医院医生提醒，长时间小拇指托手机，可能会导致手部及腕部的疼痛不适。
 
-(肖江川 彭泳淳) 责任编辑：【吉翔】
+主要原因是，当采用这种姿势时，手机的大部分重量作用于小拇指远节指骨，从而对小指、手、腕等各个关节、肌腱、韧带等结构产生长时间、反复牵拉或挤压。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 19:46 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 20:00 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 20:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 19:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 19:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 19:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 19:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 20:11 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:57 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 20:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 20:06 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 20:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 19:52 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 20:05 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 19:59 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 20:06 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:17 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 19:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:08 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/345064.shtml)
-- 2026-06-29 20:09 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/11976.shtml)
-- 2026-06-29 19:57 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/1075684.shtml)
-- 2026-06-29 19:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/276252527794.shtml)
-- 2026-06-29 20:06 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/10797580074.shtml)
-- 2026-06-29 19:55 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/61559387.shtml)
-- 2026-06-29 19:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/20569.shtml)
-- 2026-06-29 19:53 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/787500922.shtml)
-- 2026-06-29 19:42 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/39167.shtml)
-- 2026-06-29 19:59 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/0379263.shtml)
-- 2026-06-29 20:04 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/03797.shtml)
-- 2026-06-29 19:42 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/503302.shtml)
-- 2026-06-29 19:50 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/4968569782.shtml)
-- 2026-06-29 20:07 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/40940058.shtml)
-- 2026-06-29 19:49 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/15689447.shtml)
+- 2026-06-29 20:02 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3012511.shtml)
+- 2026-06-29 19:49 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/43184274.shtml)
+- 2026-06-29 20:09 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/82768837927.shtml)
+- 2026-06-29 20:17 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/9329491.shtml)
+- 2026-06-29 19:56 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/73424304874.shtml)
+- 2026-06-29 19:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4060583.shtml)
+- 2026-06-29 20:14 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/494977.shtml)
+- 2026-06-29 19:57 - [周杰伦演唱会含星量](http://www.share.kurohicncr.top/Article/details/4370427150.shtml)
+- 2026-06-29 19:52 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/823149385.shtml)
+- 2026-06-29 19:49 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/4350649598.shtml)
+- 2026-06-29 19:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/0701800.shtml)
+- 2026-06-29 20:00 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/20234.shtml)
+- 2026-06-29 20:01 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/54214188773.shtml)
+- 2026-06-29 20:13 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/115642519883.shtml)
+- 2026-06-29 19:48 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/581083587342.shtml)

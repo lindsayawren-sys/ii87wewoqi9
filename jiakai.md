@@ -1,47 +1,60 @@
-# 岳文杰获批出任山西金租董事、副董事长、总经理
+# 评估健康、结伴而行、选正规线路 老年人登山这些缺一不可
 
-> 更新时间：2026-06-29 20:12:02 UTC+8
+> 更新时间：2026-06-29 20:18:02 UTC+8
 
 ## 摘要
 
-6月15日金融一线消息，国家金融监督管理总局山西监管局发布关于岳文杰山西金融租赁有限公司董事、副董事长、总经理任职资格的批复，核准岳文杰山西金融租赁有限公司董事、副董事长、总经理的任职资格。 责任编辑：王馨茹
+五月份正是爬山登高的好时节，但山路多崎岖复杂，对登山者的身体素质、风险判断和应对能力等都是考验。尤其是老年人登山，一定要选择正规线路，并有人陪伴，避免独自行动可能带来的危险。 山路复杂 应选择安全线路避免独自行动 近日，山西太原的一位老人独自前往当地的崛围山爬山，天黑后，老人在山上迷路被困，好在报警及时，没有造成更严重的后果。 救援人员来到崛围山后，与老人取得联系，但老人无法描
 
 ## 正文
 
-6月15日金融一线消息，国家金融监督管理总局山西监管局发布关于岳文杰山西金融租赁有限公司董事、副董事长、总经理任职资格的批复，核准岳文杰山西金融租赁有限公司董事、副董事长、总经理的任职资格。
+五月份正是爬山登高的好时节，但山路多崎岖复杂，对登山者的身体素质、风险判断和应对能力等都是考验。
 
-责任编辑：王馨茹
+尤其是老年人登山，一定要选择正规线路，并有人陪伴，避免独自行动可能带来的危险。
+
+山路复杂 应选择安全线路避免独自行动 近日，山西太原的一位老人独自前往当地的崛围山爬山，天黑后，老人在山上迷路被困，好在报警及时，没有造成更严重的后果。
+
+救援人员来到崛围山后，与老人取得联系，但老人无法描述准确位置。
+
+救援人员只能分成多组，在山里进行地毯式搜寻，沿途不断呼喊老人，并晃动手电。
+
+经过2个多小时的搜寻，救援人员终于找到了迷路的老人。
+
+为老人补充能量后，救援人员将他安全护送下山。
+
+老人登山 应提前评估健康风险 老年人登山，需要根据自己的身体情况科学规划，提前评估健康风险。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 19:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 20:00 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 19:46 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 19:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 19:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 20:05 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 20:04 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 19:54 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 19:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 19:42 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:15 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 20:11 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 20:01 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 20:10 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 19:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 20:16 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 20:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 19:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 19:51 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:05 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 20:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 20:11 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 20:02 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/45776351149.shtml)
-- 2026-06-29 19:42 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/123434.shtml)
-- 2026-06-29 20:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/75744746.shtml)
-- 2026-06-29 19:54 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/51931280401.shtml)
-- 2026-06-29 19:49 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/903213532706.shtml)
-- 2026-06-29 19:51 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/8001621253.shtml)
-- 2026-06-29 20:08 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/9720081575.shtml)
-- 2026-06-29 19:42 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/29755609.shtml)
-- 2026-06-29 19:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/354626537265.shtml)
-- 2026-06-29 20:09 - [沙丘](http://www.share.minike.top/Article/details/5152229769.shtml)
-- 2026-06-29 19:51 - [黄金也扛不住了](http://www.share.minike.top/Article/details/564857.shtml)
-- 2026-06-29 19:49 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/39041.shtml)
-- 2026-06-29 19:48 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/8006889.shtml)
-- 2026-06-29 19:45 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/3649410184.shtml)
-- 2026-06-29 19:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/65024.shtml)
+- 2026-06-29 19:55 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/4492009.shtml)
+- 2026-06-29 20:15 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/639556.shtml)
+- 2026-06-29 19:48 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/591421817153.shtml)
+- 2026-06-29 20:10 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/03301.shtml)
+- 2026-06-29 19:53 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/9012236.shtml)
+- 2026-06-29 20:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/842433052.shtml)
+- 2026-06-29 20:05 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/36431535.shtml)
+- 2026-06-29 19:54 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/77726198174.shtml)
+- 2026-06-29 20:06 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/26642308.shtml)
+- 2026-06-29 20:03 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/752643115016.shtml)
+- 2026-06-29 19:55 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/54065424921.shtml)
+- 2026-06-29 19:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/19770558922.shtml)
+- 2026-06-29 20:12 - [送你一朵小红花](https://www.blog.minike.top/Article/details/83920047.shtml)
+- 2026-06-29 20:08 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/68598.shtml)
+- 2026-06-29 20:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/3089551.shtml)
