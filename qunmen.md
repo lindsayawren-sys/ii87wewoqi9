@@ -1,60 +1,60 @@
-# 英媒：中国两轮车企借绿色浪潮驶入欧洲
+# （活力中国调研行）聚链成势 北京机器人产业加速跑
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-全球媒体聚焦 | 英媒：中国两轮车企借绿色浪潮驶入欧洲 据英国《金融时报》5月17日一篇报道关注了中国电动两轮车(电动自行车和电动踏板车)正借助全球电动化浪潮加速进入欧洲市场，并进一步扩大在欧洲的布局。 报道认为，美以伊冲突引发的油价飙升，正为中国电动两轮车制造商打开一扇意想不到的欧洲之窗。 长期以来在东南亚和南美洲市场占据主导地位的中国电动两轮车品牌，如今正加速向巴黎、伦敦等
+中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。 记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。 走进北京人形机器人创新中心中试验证平台，记者了解到，
 
 ## 正文
 
-全球媒体聚焦 | 英媒：中国两轮车企借绿色浪潮驶入欧洲 据英国《金融时报》5月17日一篇报道关注了中国电动两轮车(电动自行车和电动踏板车)正借助全球电动化浪潮加速进入欧洲市场，并进一步扩大在欧洲的布局。
+中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。
 
-报道认为，美以伊冲突引发的油价飙升，正为中国电动两轮车制造商打开一扇意想不到的欧洲之窗。
+记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。
 
-长期以来在东南亚和南美洲市场占据主导地位的中国电动两轮车品牌，如今正加速向巴黎、伦敦等欧洲城市扩张。
+走进北京人形机器人创新中心中试验证平台，记者了解到，机器人从原材料出库、上线，到整机测试、装箱入库等全流程生产仅需一天多时间。
 
-行业数据显示，中国主要电动踏板车生产商今年的海外销售额预计将较2025年增长约70%。
+中心生产负责人黄哲表示，自2025年投用以来，平台已具备试制生产和测试设备500台套的能力，具身智能机器人年产能可达5000台套，搭建起了从技术研发到产品转化、从小批量试制到规模化生产准备的桥梁。
 
-业内分析认为，欧洲市场的拉动作用最为显著。
+机器人下线后要进行数百项全量测试，逐一过关方可“放行”。
 
-霍尔木兹海峡关闭导致的燃油价格上涨，使得电动出行的经济性对欧洲消费者而言变得前所未有地具有吸引力。
+出厂后，需数据训练才能真正上岗。
 
-一位行业观察人士指出：“中东局势提供了一个明确的市场进入窗口。
+千寻智能训练场内，工作人员身穿便携式数采装备，“带着”机器人学习物体夹取与移动；不远处，铅笔、笔盒、遥控器等物品凌乱放置，机器人自主决策并规划任务优先级，先将笔归位，再收纳遥控器。
 
-欧洲消费者能直接感受到油价上涨的幅度，这使得转向电动两轮车成为一个立竿见影的经济决策。
+“数据是具身智能模型进化的燃料，依托动作研发、数据采集、模型训练与推理运行，赋予机器人自主理解任务、动态调整操作策略的能力。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 16:38 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 16:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 16:48 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 16:40 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 16:37 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 16:40 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 17:04 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 16:50 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 17:05 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 17:01 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 17:05 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 16:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:52 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 16:52 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 17:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 16:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 17:01 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 16:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 17:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 16:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 17:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 16:44 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 16:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 16:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 17:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 17:10 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 17:03 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/81499393.shtml)
-- 2026-06-29 17:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/049459198.shtml)
-- 2026-06-29 16:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/552757354.shtml)
-- 2026-06-29 17:01 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/3925871011.shtml)
-- 2026-06-29 16:56 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/939151.shtml)
-- 2026-06-29 16:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/928680.shtml)
-- 2026-06-29 16:49 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/01566898.shtml)
-- 2026-06-29 16:56 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/101153294387.shtml)
-- 2026-06-29 16:59 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/482145.shtml)
-- 2026-06-29 16:57 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/635686.shtml)
-- 2026-06-29 17:05 - [T1 KC](http://www.share.minike.top/Article/details/032564381.shtml)
-- 2026-06-29 16:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/176466.shtml)
-- 2026-06-29 16:42 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/506482667940.shtml)
-- 2026-06-29 16:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/607796.shtml)
-- 2026-06-29 16:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/8949050.shtml)
+- 2026-06-29 16:47 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/966135.shtml)
+- 2026-06-29 17:04 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/5737172619.shtml)
+- 2026-06-29 16:59 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/97214000354.shtml)
+- 2026-06-29 17:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/58373184295.shtml)
+- 2026-06-29 16:42 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/2161425806.shtml)
+- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/418240.shtml)
+- 2026-06-29 17:06 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/79572.shtml)
+- 2026-06-29 16:54 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/4420130.shtml)
+- 2026-06-29 17:11 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/76734.shtml)
+- 2026-06-29 16:54 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/7902023499.shtml)
+- 2026-06-29 16:53 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/762541.shtml)
+- 2026-06-29 17:08 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/7147151285.shtml)
+- 2026-06-29 17:04 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/05860043773.shtml)
+- 2026-06-29 16:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/32535.shtml)
+- 2026-06-29 16:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/3139786160.shtml)

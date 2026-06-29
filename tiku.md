@@ -1,43 +1,57 @@
-# 上海：弹性托 混龄托 让“带娃”更轻松一点
+# 倍轻松（688793）被预处罚，股民索赔可期
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 09:02 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月13日，深圳市倍轻松（维权）科技股份有限公司（简称：倍轻松，代码：688793）发布《关于收到行政处罚事先告知书的公告》。 经中国证监会深圳监管局查明，倍轻松及实际控制人马学军涉嫌存在以下违法事实： 1、倍轻松未按规定及时披露关联交易，2024年年度报告存在重大遗漏。涉案期间，马学军直接持有倍轻松40.48%股份，
 
 ## 正文
 
-发布时间：2026年05月18日 09:02 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月13日，深圳市倍轻松（维权）科技股份有限公司（简称：倍轻松，代码：688793）发布《关于收到行政处罚事先告知书的公告》。
+
+经中国证监会深圳监管局查明，倍轻松及实际控制人马学军涉嫌存在以下违法事实： 1、倍轻松未按规定及时披露关联交易，2024年年度报告存在重大遗漏。
+
+涉案期间，马学军直接持有倍轻松40.48%股份，是倍轻松的第一大股东、实际控制人，并担任倍轻松董事长、总经理，根据《上市公司信息披露管理办法》 （证监会令第182号）第六十二条第四项的规定，为公司的关联自然人。
+
+2024年期间，马学军通过安排孙公司深圳市倍轻松健康科技开发有限公司（以下简称健康科技）转出资金、组织部分员工申请备付金借款、向供应商提前支付采购款等方式，非经营性占用公司资金，构成关联交易。
+
+截至2024年12月31日，资金占用发生额、归还额、余额分别为8，593.29万元、6，060万元、2，533.29万元，其中资金占用发生额占上市公司最近一期经审计净资产的21.22%。
+
+上述关联交易属于《中华人民共和国证券法》（2019年修订，以下简称《证券法》）第八十条第一款及第二款第三项规定的应当及时披露的重大事项，但公司未进行临时公告。
+
+公司在2024年年度报告中披露的资金占用发生额、归还额、余额分别为5，400万元、5，400万元、0万元，遗漏发生额3，193.29万元、余额2，533.29万元未披露，分别占公司当期年度报告记载净资产的8.63%、6.85%。
+
+2025年4月，倍轻松与马学军主动向我局反映部分有关情况；截至2025年5月，马学军已归还上述占用资金。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 16:48 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 16:40 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 17:03 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 17:03 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 16:38 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 17:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 16:51 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 16:54 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 16:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 16:41 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 17:09 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 16:57 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 16:58 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 17:04 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 16:50 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:59 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 16:52 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:00 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 17:02 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 16:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0895022.shtml)
-- 2026-06-29 16:58 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/999176458942.shtml)
-- 2026-06-29 16:59 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/67239.shtml)
-- 2026-06-29 16:47 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/0014714926.shtml)
-- 2026-06-29 17:05 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/097339.shtml)
-- 2026-06-29 16:38 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/307049572624.shtml)
-- 2026-06-29 16:55 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/381435471413.shtml)
-- 2026-06-29 16:56 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/3972543.shtml)
-- 2026-06-29 16:52 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/632734474.shtml)
-- 2026-06-29 16:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/23346586892.shtml)
-- 2026-06-29 16:54 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/714137755836.shtml)
-- 2026-06-29 17:02 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/104075.shtml)
-- 2026-06-29 17:00 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/48102.shtml)
-- 2026-06-29 16:54 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/651055997.shtml)
-- 2026-06-29 16:49 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/42634856507.shtml)
+- 2026-06-29 16:57 - [沙丘](http://www.blog.minike.top/Article/details/603961.shtml)
+- 2026-06-29 16:57 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/236136.shtml)
+- 2026-06-29 16:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/144709341.shtml)
+- 2026-06-29 17:07 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/4350947.shtml)
+- 2026-06-29 17:01 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/433075579.shtml)
+- 2026-06-29 16:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/857484.shtml)
+- 2026-06-29 17:02 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/657979.shtml)
+- 2026-06-29 17:07 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/26294205.shtml)
+- 2026-06-29 16:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/7197425923.shtml)
+- 2026-06-29 16:50 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/52755.shtml)
+- 2026-06-29 16:55 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/45461.shtml)
+- 2026-06-29 16:48 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/6893401.shtml)
+- 2026-06-29 17:00 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/67663921418.shtml)
+- 2026-06-29 16:47 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/674119816.shtml)
+- 2026-06-29 16:42 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/014444608.shtml)

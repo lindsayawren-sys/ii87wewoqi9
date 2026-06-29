@@ -1,46 +1,52 @@
-# 中电控股将于6月15日派发第一期中期股息每股0.63港元
+# 2026年“春招”共提供超1268万个岗位
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中电控股（00002）发布公告，将于2026年6月15日派发截至2026年12月31日止年度的第一期中期股息每股0.63港元。责任编辑：卢昱君
+记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。 活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗
 
 ## 正文
 
-中电控股（00002）发布公告，将于2026年6月15日派发截至2026年12月31日止年度的第一期中期股息每股0.63港元。
+记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。
 
-责任编辑：卢昱君
+活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。
+
+举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。
+
+线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗位信息1268.1万个，吸引1352.4万人次高校毕业生参与求职。
+
+(总台央视记者 陈钰洁 唐蕾)
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 16:52 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 16:53 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 16:46 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 16:45 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 16:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 17:01 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 16:53 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 16:36 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 16:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 16:48 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 17:03 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 17:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:05 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 17:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 16:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 16:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 16:59 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 17:01 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 16:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 16:45 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 16:57 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 17:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/3056658744.shtml)
-- 2026-06-29 16:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/902427872111.shtml)
-- 2026-06-29 17:01 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/159470.shtml)
-- 2026-06-29 16:59 - [女心理师](http://www.blog.minike.top/Article/details/22894.shtml)
-- 2026-06-29 16:58 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/6226863549.shtml)
-- 2026-06-29 17:04 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/785045072.shtml)
-- 2026-06-29 17:04 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/3883016986.shtml)
-- 2026-06-29 16:42 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/6297685.shtml)
-- 2026-06-29 16:57 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/2519787.shtml)
-- 2026-06-29 17:01 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/3273113.shtml)
-- 2026-06-29 16:51 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/243652568871.shtml)
-- 2026-06-29 16:49 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/3812696846.shtml)
-- 2026-06-29 16:40 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/886993557.shtml)
-- 2026-06-29 17:05 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/578033867.shtml)
-- 2026-06-29 16:56 - [送你一朵小红花](https://www.share.minike.top/Article/details/021951.shtml)
+- 2026-06-29 17:09 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/033323166450.shtml)
+- 2026-06-29 16:51 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/282878195201.shtml)
+- 2026-06-29 16:58 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/784363.shtml)
+- 2026-06-29 17:05 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/031240034.shtml)
+- 2026-06-29 16:42 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/2355408300.shtml)
+- 2026-06-29 16:51 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/463534.shtml)
+- 2026-06-29 16:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/9734601.shtml)
+- 2026-06-29 16:43 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/0298079248.shtml)
+- 2026-06-29 16:51 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/6512509.shtml)
+- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/6663407.shtml)
+- 2026-06-29 17:07 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/046023520.shtml)
+- 2026-06-29 17:02 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/36743864.shtml)
+- 2026-06-29 17:07 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/8870382.shtml)
+- 2026-06-29 16:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/56395.shtml)
+- 2026-06-29 17:06 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/49443112938.shtml)

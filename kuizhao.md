@@ -1,58 +1,58 @@
-# 英美资源集团拟最高 38.75亿美元出售澳大利亚炼钢煤炭资产
+# 固定资产不足1亿却要募资12.5亿扩产， 欧尚元应收坏账暴增24倍
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-交易预计 2027 年一季度完成，自此彻底退出炼钢煤炭业务 内容速览 英美资源集团已达成协议，将旗下澳大利亚炼钢煤炭资产出售给迪尔玛矿业，交易总价最高达 38.75 亿美元，全部以现金结算。 英美资源集团表示，此次向私营企业迪尔玛矿业出售澳洲炼钢煤资产，最高交易金额 38.75 亿美元。此举意在精简业务布局，为其与泰克资源的合并交易铺路。 本次交易包含23 亿美元首期现金款项，
+登录新浪财经APP 搜索【信披】查看更多考评等级 欧尚元智能装备股份有限公司（以下简称“欧尚元”）创业板IPO申请已获受理。作为国内生物制造装备领域的优质企业，公司核心主营分离纯化装备与工业自动化控制系统，精准踩中生物制造产业规模化、高速化发展的行业风口，尤其在阿洛酮糖分离纯化这一热门细分赛道，占据国内较高市场份额，具备细分领域竞争优势。 从招股书披露的数据看，欧尚元近三年业绩
 
 ## 正文
 
-交易预计 2027 年一季度完成，自此彻底退出炼钢煤炭业务 内容速览 英美资源集团已达成协议，将旗下澳大利亚炼钢煤炭资产出售给迪尔玛矿业，交易总价最高达 38.75 亿美元，全部以现金结算。
+登录新浪财经APP 搜索【信披】查看更多考评等级 欧尚元智能装备股份有限公司（以下简称“欧尚元”）创业板IPO申请已获受理。
 
-英美资源集团表示，此次向私营企业迪尔玛矿业出售澳洲炼钢煤资产，最高交易金额 38.75 亿美元。
+作为国内生物制造装备领域的优质企业，公司核心主营分离纯化装备与工业自动化控制系统，精准踩中生物制造产业规模化、高速化发展的行业风口，尤其在阿洛酮糖分离纯化这一热门细分赛道，占据国内较高市场份额，具备细分领域竞争优势。
 
-此举意在精简业务布局，为其与泰克资源的合并交易铺路。
+从招股书披露的数据看，欧尚元近三年业绩稳步增长，呈现出良好的成长性。
 
-本次交易包含23 亿美元首期现金款项，外加最高 15.75 亿美元浮动加价。
+但亮眼的营收与净利润数据背后，隐藏着诸多不容忽视的经营与财务隐患：应收账款质量持续恶化、坏账损失爆发式激增、存货高企周转低效、核心财务数据相互背离、巨额募资扩产合理性存疑等多重问题交织叠加。
 
-这家伦敦上市矿企称，所得资金将用于削减净负债。
+对于这家固定资产规模不足1亿元，却计划大手笔募资12.51亿元扩产的企业而言，能否向市场证明业绩增长的可持续性、财务信息披露的真实性，已然成为关注焦点。
 
-本次拟出售资产均位于澳大利亚，其中包括昆士兰州的莫兰巴北部地下煤矿，该煤矿已于去年 3 月因火灾事故关停。
+坏账损失暴增，存货周转率低于同行 依托生物制造产业化的行业红利，以及自身在细分领域的技术与市场优势，欧尚元近三年经营规模持续扩张。
 
-2024 年成功击退必和必拓的收购邀约后，英美资源启动业务重组，早已计划剥离炼钢煤炭相关资产。
+招股书数据显示，2023年至2025年，公司经营业绩连续三年正向增长，营业收入分别达到3.6亿元、3.99亿元、5.8亿元；同期归母净利润同步提升，依次为1.07亿元、1.18亿元、1.5亿元。
 
-此前该集团曾与皮博迪能源敲定总价 37.8 亿美元的出售方案，后因莫兰巴北部煤矿突发火灾，这笔交易宣告破裂。
+不过，光鲜的业绩数据之下，公司营收“含金量”走低，盈利质量隐患凸显。
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 16:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:49 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 16:54 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 16:57 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 16:38 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 17:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 16:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 17:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 16:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 16:39 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 16:50 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 17:07 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 16:56 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 17:09 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 17:05 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 16:43 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 16:49 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 17:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 17:01 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 16:53 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 17:08 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/44690.shtml)
-- 2026-06-29 16:48 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/52233.shtml)
-- 2026-06-29 16:41 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/7325034.shtml)
-- 2026-06-29 16:38 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/894070433.shtml)
-- 2026-06-29 16:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/95014286707.shtml)
-- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/43309295.shtml)
-- 2026-06-29 16:50 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/825013811407.shtml)
-- 2026-06-29 16:56 - [新能源车能当外接空调用吗](https://www.share.minike.top/Article/details/8020731628.shtml)
-- 2026-06-29 16:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/4119141376.shtml)
-- 2026-06-29 16:51 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/402850117.shtml)
-- 2026-06-29 16:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/347775.shtml)
-- 2026-06-29 16:54 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/9918870.shtml)
-- 2026-06-29 16:36 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/91119.shtml)
-- 2026-06-29 16:37 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/804491211.shtml)
-- 2026-06-29 16:42 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/39536143882.shtml)
+- 2026-06-29 17:07 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/262468192325.shtml)
+- 2026-06-29 16:42 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/00084289894.shtml)
+- 2026-06-29 17:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/45011673713.shtml)
+- 2026-06-29 17:02 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/5887779.shtml)
+- 2026-06-29 16:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/65531370164.shtml)
+- 2026-06-29 16:43 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/91151.shtml)
+- 2026-06-29 17:04 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/21482.shtml)
+- 2026-06-29 16:55 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/58551469057.shtml)
+- 2026-06-29 16:42 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/76132912.shtml)
+- 2026-06-29 16:48 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/097362.shtml)
+- 2026-06-29 16:54 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/3105284114.shtml)
+- 2026-06-29 17:07 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/42278212104.shtml)
+- 2026-06-29 16:48 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/79671.shtml)
+- 2026-06-29 17:04 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/497153285.shtml)
+- 2026-06-29 17:05 - [人形机器人](https://www.blog.minike.top/Article/details/75642.shtml)

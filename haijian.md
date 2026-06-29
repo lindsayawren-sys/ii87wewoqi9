@@ -1,57 +1,58 @@
-# 部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进
+# Alphabet计划向德克萨斯州的三个新数据中心投资400亿美元，推进AI建设
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-财联社5月18日讯（编辑 王蔚 实习生 张文骏）随着A股IPO市场持续高热、新股赚钱效应凸显，今年以来银行理财子参与权益市场的频次显著提升，打新逐步成为寻求超额收益的标配策略。 据深交所数据，截至5月18日，宁银理财、兴银理财、光大理财三家主要理财子公司今年累计打新报价239次，较3月初的100次增长139%。部分理财子相关产品收益率也持续突破，如招银理财旗下打新策略产品近1个
+据Ned Davis Research计算，这三家公司可能在短时间内筹集超过1700亿美元的资金。 这事尤其值得注意，是因为它们起初可能只会出售极少量股份。SpaceX出售了不到5%的股票，相比之下，Ned Davis称IPO股票占比的更常见区间是15%-20%。OpenAI和Anthropic预计也会采取同样的策略。一旦它们的股票禁售期结束，将有更多股票能够进入市场交易，届时
 
 ## 正文
 
-财联社5月18日讯（编辑 王蔚 实习生 张文骏）随着A股IPO市场持续高热、新股赚钱效应凸显，今年以来银行理财子参与权益市场的频次显著提升，打新逐步成为寻求超额收益的标配策略。
+据Ned Davis Research计算，这三家公司可能在短时间内筹集超过1700亿美元的资金。
 
-据深交所数据，截至5月18日，宁银理财、兴银理财、光大理财三家主要理财子公司今年累计打新报价239次，较3月初的100次增长139%。
+这事尤其值得注意，是因为它们起初可能只会出售极少量股份。
 
-部分理财子相关产品收益率也持续突破，如招银理财旗下打新策略产品近1个月年化收益率达到了8.82%，光大理财旗下打新产品更于5月6日因连续两个估值日达标而提前触发止盈条件。
+SpaceX出售了不到5%的股票，相比之下，Ned Davis称IPO股票占比的更常见区间是15%-20%。
 
-在打新路径上，理财子已从参与A股网下配售延伸至参与港股基石投资，高度聚焦半导体、人工智能等硬科技赛道。
+OpenAI和Anthropic预计也会采取同样的策略。
 
-民生理财网下打新业务首单近日落地，打新策略已应用于相关理财产品中。
+一旦它们的股票禁售期结束，将有更多股票能够进入市场交易，届时的供应洪潮将非常壮观。
 
-工银理财年内累计参与16笔港股IPO投资，投资加权收益率超过100%，并以基石投资者身份深度参与6笔重点项目。
+在总估值超过3万亿美元的情况下，据Ned Davis计算，就算它们三家公司只向公众出售一部分股份，也足以抵消标普500指数成份股公司一年的回购。
 
-三家理财子打新报价量增长139%，港股打新成热门选择 自2025年3月银行理财产品被纳入IPO网下A类优先配售对象以来，理财公司参与打新力度持续攀升。
+BCA Research首席美国股票策略师Noah Weisberger指出，对巨型IPO尤其应该保持谨慎。
 
-据深交所统计，截至5月18日，宁银理财、兴银理财、光大理财三家理财子公司累计报价239次，较3月初的100次增长139%。
+他在研究了40年市场历史和约1.2万宗IPO后发现，在大型IPO进行之后的12个月里，标普500指数的表现往往不及其他时期 —— 涨幅中位数为8%。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 17:02 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 16:37 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:03 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 16:59 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 17:04 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 16:43 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 16:59 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 16:47 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 17:04 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 17:03 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 17:10 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 17:02 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 17:05 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 17:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 17:08 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 17:04 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 16:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 17:07 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 17:11 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 16:59 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/4350567520.shtml)
-- 2026-06-29 16:56 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/54718.shtml)
-- 2026-06-29 16:51 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/8909267299.shtml)
-- 2026-06-29 16:39 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/609061341.shtml)
-- 2026-06-29 16:45 - [普京介绍前线战事](https://www.share.minike.top/Article/details/654565884.shtml)
-- 2026-06-29 16:52 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/47603571833.shtml)
-- 2026-06-29 16:57 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/5597084.shtml)
-- 2026-06-29 16:51 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/68872949881.shtml)
-- 2026-06-29 16:54 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/74864656.shtml)
-- 2026-06-29 17:01 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/3039504641.shtml)
-- 2026-06-29 16:58 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/6479260620.shtml)
-- 2026-06-29 17:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/2366893895.shtml)
-- 2026-06-29 16:58 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/537350098210.shtml)
-- 2026-06-29 17:02 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/0475603193.shtml)
-- 2026-06-29 17:03 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/000689.shtml)
+- 2026-06-29 17:11 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/36364173.shtml)
+- 2026-06-29 16:49 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/3929377.shtml)
+- 2026-06-29 17:11 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/645377426.shtml)
+- 2026-06-29 17:05 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/248653778.shtml)
+- 2026-06-29 16:53 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/11201783857.shtml)
+- 2026-06-29 17:04 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/24885473191.shtml)
+- 2026-06-29 16:51 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/1544056632.shtml)
+- 2026-06-29 17:01 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/565413.shtml)
+- 2026-06-29 16:48 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/03091934567.shtml)
+- 2026-06-29 16:52 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/028372.shtml)
+- 2026-06-29 16:50 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/464745.shtml)
+- 2026-06-29 17:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/177329.shtml)
+- 2026-06-29 17:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/733297687617.shtml)
+- 2026-06-29 16:47 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/6435235107.shtml)
+- 2026-06-29 17:09 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/14496440.shtml)

@@ -1,60 +1,55 @@
-# 我国建立白名单制度规范医保个人账户使用
+# 英国央行利率决议前夕 人们对通胀的担忧正日益上升
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据国家医保局微信公众号19日消息，国家医保局、财政部发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度，白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。国家医保局办公室 财政部办公厅关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知 为切实维护医
+新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。 在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。 “劳动力市场的势头已显著降温，”St James’s Place的经济学
 
 ## 正文
 
-中新网5月19日电 据国家医保局微信公众号19日消息，国家医保局、财政部发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度，白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。
+新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。
 
-国家医保局办公室 财政部办公厅关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知 为切实维护医保基金安全，根据《医疗保障基金使用监督管理条例》《国务院办公厅关于建立健全职工基本医疗保险门诊共济保障机制的指导意见》(国办发〔2021〕14号)《国务院办公厅关于健全基本医疗保险参保长效机制的指导意见》(国办发〔2024〕38号)，现就进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理有关工作通知如下： 一、坚持“保基本”功能定位 职工基本医疗保险基金由统筹基金和个人账户构成，个人账户是职工基本医保基金的重要组成部分。
+在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。
 
-各级医保部门要认真落实改革要求，完善个人账户支出政策，使个人账户不仅能用于参保人本人医疗费用支出，还能用于已参保近亲属医疗费用支出；不仅能在省内实现家庭共济，还能实现跨省共济；不仅能用于支付医疗费用，还能用于近亲属参加城乡居民基本医疗保险个人缴费；不仅能用于支付在定点医疗机构发生的医疗费用，还允许支付在定点医疗机构发生的流感疫苗费用，能用于支付在定点零售药店发生的合规费用。
+“劳动力市场的势头已显著降温，”St James’s Place的经济学家Hetal Mehta表示，“我认为目前尚无足够动力支持加息。
 
-同时要始终坚持“保基本”的功能定位，合理稳妥、灵活有度规范职工医保个人账户使用，防止将不属于基本医疗保障范围内的不合理费用纳入支出范围，坚决维护医保基金安全。
+” 但至少两位利率制定者——英国央行首席经济学家皮尔和货币政策委员格林——已暗示将要求立即加息。
 
-二、建立定点零售药店职工医保个人账户支付白名单制度 各省级医保部门要在现有政策基础上，结合当地实际，商财政等部门进一步研究规范职工医保个人账户支付范围管理。
+另一位货币政策委员曼恩则表示，如果能源危机恶化，不排除在某个时间点上调利率的可能性。
 
-各省级医保部门原则上要于2026年9月底前出台全省统一的定点零售药店职工医保个人账户支付白名单(以下简称“白名单”)。
-
-白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。
-
-列入白名单的，应是经药监部门正式批准注册或备案，可以在零售药店销售，并且与治疗密切相关、医疗属性强、价格适宜的药品、医疗器械和医用耗材。
+编辑：马萌伟 责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 16:57 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 16:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 17:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 16:57 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 16:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 16:37 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 16:37 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 16:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 16:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 16:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 16:52 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 16:57 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 17:01 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 17:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 16:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 16:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 16:56 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 17:01 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 16:43 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 16:48 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:58 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 16:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 16:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 16:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/4436027.shtml)
-- 2026-06-29 17:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/6798860680.shtml)
-- 2026-06-29 16:40 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/539333.shtml)
-- 2026-06-29 16:55 - [机器人学校开学了](https://www.blog.minike.top/Article/details/0716117.shtml)
-- 2026-06-29 16:39 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/5182101.shtml)
-- 2026-06-29 16:39 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/1755076615.shtml)
-- 2026-06-29 16:56 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/4205327.shtml)
-- 2026-06-29 16:47 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/644260.shtml)
-- 2026-06-29 16:45 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/3661083.shtml)
-- 2026-06-29 16:50 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/1707494083.shtml)
-- 2026-06-29 16:50 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/7737165.shtml)
-- 2026-06-29 16:56 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/1220106314.shtml)
-- 2026-06-29 16:39 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/3664484.shtml)
-- 2026-06-29 16:54 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/92852.shtml)
-- 2026-06-29 16:49 - [啊啊啊](http://www.blog.minike.top/Article/details/285978.shtml)
+- 2026-06-29 16:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/25091942.shtml)
+- 2026-06-29 16:47 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/0650801909.shtml)
+- 2026-06-29 16:44 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/130011333325.shtml)
+- 2026-06-29 16:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/794682909.shtml)
+- 2026-06-29 17:07 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/32710986.shtml)
+- 2026-06-29 17:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/57027.shtml)
+- 2026-06-29 16:53 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/0426788.shtml)
+- 2026-06-29 17:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/89773875917.shtml)
+- 2026-06-29 17:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/403851161687.shtml)
+- 2026-06-29 16:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/0748688.shtml)
+- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/85818008985.shtml)
+- 2026-06-29 16:46 - [请回答王牌2019](https://www.blog.minike.top/Article/details/37337127.shtml)
+- 2026-06-29 16:43 - [这一刀 会很帅](https://www.share.minike.top/Article/details/787764124721.shtml)
+- 2026-06-29 16:47 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/77792596.shtml)
+- 2026-06-29 16:42 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/854294.shtml)

@@ -1,52 +1,60 @@
-# 美国电价飙升美国电价飙升背后原因
+# 国家图书馆开启2026年“文化和自然遗产日”非遗宣传展示系列活动
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-来源：@央视财经微博 【#美国电价飙升##美国电价飙升背后原因#】美国一家分析机构近日发布的报告显示，今年一季度，美国区域输电组织PJM的批发电价同比上涨超过70%。电价上涨加重了民众生活负担，据美联社报道，目前美国至少有六个州的官员已着手阻止电力企业上调电价。国际能源价格飙升以及数据中心用电需求激增等成为主要推动因素，多家美国电力企业纷纷宣布上调电价。例如费城电力公司日前表示
+中新网北京6月14日电 (记者 应妮)国家图书馆13日在京启动2026年“文化和自然遗产日”非遗宣传展示系列活动，包括“非遗里的中国味道——2026年非物质文化遗产保护讲座月”“年华易老，技·忆永存——第八届国家级非物质文化遗产代表性传承人记录工作成果展映月”等。 本年度“非遗讲座月”以“非遗里的中国味道”为主题，将在6月13日至7月11日期间陆续举办4场专题讲座，阐释中华饮食
 
 ## 正文
 
-来源：@央视财经微博 【#美国电价飙升##美国电价飙升背后原因#】美国一家分析机构近日发布的报告显示，今年一季度，美国区域输电组织PJM的批发电价同比上涨超过70%。
+中新网北京6月14日电 (记者 应妮)国家图书馆13日在京启动2026年“文化和自然遗产日”非遗宣传展示系列活动，包括“非遗里的中国味道——2026年非物质文化遗产保护讲座月”“年华易老，技·忆永存——第八届国家级非物质文化遗产代表性传承人记录工作成果展映月”等。
 
-电价上涨加重了民众生活负担，据美联社报道，目前美国至少有六个州的官员已着手阻止电力企业上调电价。
+本年度“非遗讲座月”以“非遗里的中国味道”为主题，将在6月13日至7月11日期间陆续举办4场专题讲座，阐释中华饮食传统所承载的深厚文明底蕴。
 
-国际能源价格飙升以及数据中心用电需求激增等成为主要推动因素，多家美国电力企业纷纷宣布上调电价。
+13日的首讲活动是讲座月自2013年创立以来的第100讲，由民俗学家、中国社会科学院荣誉学部委员刘魁立主讲。
 
-例如费城电力公司日前表示，计划将电价上调12.5%，分析认为，这一调价方案意味着普通居民每月电费平均会增加20美元（约合人民币136元）。
+92岁高龄的他围绕“中国人的饮食传统”这一主题，为读者解读了“民以食为天”这一贯穿中国历史的生存哲思，列举了年夜饭、端午粽、中秋月饼等寻常百姓家的四季饮食，引领读者审视岁时节令与人生仪礼中的饮食习俗，阐述饮食如何演化为中国人凝聚家族情感、维系社会纽带、表达文化认同的文化传统。
 
-有消费维权 【下载黑猫投诉客户端】人士称，虽然确实存在能源价格走高和用电需求增长的因素，但部分电力企业借此谋求更高利润，电价上涨幅度明显过高。
+之后，中国人民大学历史学院教授陈胜前、中国烹饪协会副会长乔杰、清华大学历史系教授彭林将先后登台，为广大读者系统讲授中华饮食文明的起源、中餐烹饪技艺的理念与技法，以及饮食活动所承载的社会礼仪制度。
+
+同日启动的“年华易老，技·忆永存——第八届国家级非物质文化遗产代表性传承人记录工作成果展映月”系列活动由国家图书馆主办、全国299家各级各类图书馆参与联展联映。
+
+活动将持续至7月12日，线上线下融合，集中展示国家级非物质文化遗产代表性传承人记录工作的成果。
+
+据介绍，2015年，我国正式启动国家级非遗代表性传承人记录工作，11年来共开启了2476人、完成了1562人的记录。
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 17:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 16:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 16:46 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 16:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 16:43 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 16:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 16:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 16:36 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 16:36 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 16:58 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 17:04 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 16:57 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:08 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 16:53 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 16:55 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 16:51 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 17:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 16:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 17:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 17:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 16:50 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 16:53 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 17:06 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:09 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 16:44 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/6478632244.shtml)
-- 2026-06-29 16:36 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/4884691.shtml)
-- 2026-06-29 16:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/3092456.shtml)
-- 2026-06-29 16:53 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/97067336005.shtml)
-- 2026-06-29 16:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/7464301431.shtml)
-- 2026-06-29 17:00 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/499945.shtml)
-- 2026-06-29 16:39 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/994315109348.shtml)
-- 2026-06-29 16:36 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/623096593324.shtml)
-- 2026-06-29 17:03 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/77507315251.shtml)
-- 2026-06-29 16:44 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/964025.shtml)
-- 2026-06-29 16:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/0808546524.shtml)
-- 2026-06-29 16:52 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/659199.shtml)
-- 2026-06-29 17:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/886627718.shtml)
-- 2026-06-29 16:43 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/089519601.shtml)
-- 2026-06-29 16:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/94021.shtml)
+- 2026-06-29 16:48 - [小娘惹](http://www.share.minike.top/Article/details/96708343.shtml)
+- 2026-06-29 16:57 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/02574.shtml)
+- 2026-06-29 17:05 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/88500.shtml)
+- 2026-06-29 17:00 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/184008.shtml)
+- 2026-06-29 17:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/5386131.shtml)
+- 2026-06-29 16:44 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/73191287422.shtml)
+- 2026-06-29 17:08 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/46919934.shtml)
+- 2026-06-29 17:01 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/918697.shtml)
+- 2026-06-29 17:11 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/9022689.shtml)
+- 2026-06-29 17:04 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/468831462.shtml)
+- 2026-06-29 16:58 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/4702896565.shtml)
+- 2026-06-29 16:51 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/41948413.shtml)
+- 2026-06-29 17:01 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/834148817.shtml)
+- 2026-06-29 17:04 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/28821.shtml)
+- 2026-06-29 16:59 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/8458483.shtml)

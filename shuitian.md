@@ -1,50 +1,58 @@
-# 马斯克败诉
+# SpaceX万亿级IPO带火链上永续合约
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据路透社报道，美国加利福尼亚州奥克兰市一家联邦法院的陪审团18日裁定，美企业家埃隆·马斯克在针对开放人工智能研究中心(OpenAI)的诉讼中败诉，马斯克此前指控该公司背离了造福人类的创立初衷。报道称，陪审团一致裁定，马斯克提起诉讼时间过晚，已超过诉讼时效。陪审团审议时间不到两个小时。 马斯克在诉讼中指控OpenAI的CEO奥尔特曼诱导他投入3800万美元，然
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 SpaceX这场总市值突破2万亿美元的IPO，目前来看赢家远多于输家。 其中一大赢家当属Hyperliquid、币安这类区块链交易所，两家平台在SpaceX正式上市前就推出了该公司永续期货产品。 永续期货在交易圈内简称“永续合约”，是无到期日的衍生品合约，深受全球交易者青睐，也正逐步融入美国市场交易体系。美国
 
 ## 正文
 
-中新网5月19日电 据路透社报道，美国加利福尼亚州奥克兰市一家联邦法院的陪审团18日裁定，美企业家埃隆·马斯克在针对开放人工智能研究中心(OpenAI)的诉讼中败诉，马斯克此前指控该公司背离了造福人类的创立初衷。
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 SpaceX这场总市值突破2万亿美元的IPO，目前来看赢家远多于输家。
 
-报道称，陪审团一致裁定，马斯克提起诉讼时间过晚，已超过诉讼时效。
+其中一大赢家当属Hyperliquid、币安这类区块链交易所，两家平台在SpaceX正式上市前就推出了该公司永续期货产品。
 
-陪审团审议时间不到两个小时。
+永续期货在交易圈内简称“永续合约”，是无到期日的衍生品合约，深受全球交易者青睐，也正逐步融入美国市场交易体系。
 
-马斯克在诉讼中指控OpenAI的CEO奥尔特曼诱导他投入3800万美元，然后背着他在原有的非营利机构基础上搭建营利性业务，并从微软及其他投资方获得数百亿美元的资金。
+美国商品期货交易委员会（CFTC）近期已批准预测交易平台Kalshi上线比特币永续合约。
 
-马斯克当天晚些时候表示将上诉。
+永续合约交易者得以提前布局SpaceX相关标的，合约价格走势也与该股后续二级市场股价高度贴合。
+
+投行人士闭门敲定发行价期间，有媒体消息称SpaceX开盘价最高或达175美元；而Hyperliquid平台上的SpaceX永续合约，在美股开盘前后最高成交至180美元，在股票正式以150美元完成首笔成交前最低跌至153美元。
+
+Atlas Merchant Capital创始合伙人、Hyperliquid储备策略子公司首席执行官David Schamis持有Hyperliquid平台代币，他表示：“只要存在流动性机会，精明的市场参与者总能找到渠道参与。
+
+参与交易的不只是散户投机玩乐。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 16:47 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 17:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 16:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 17:02 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 17:03 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 16:53 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 16:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 17:00 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 17:04 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 17:11 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 17:01 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 16:48 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 17:10 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 16:49 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 16:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 16:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 17:01 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/67274202052.shtml)
-- 2026-06-29 17:04 - [一见倾心](https://www.share.minike.top/Article/details/9995440.shtml)
-- 2026-06-29 17:00 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/38505068.shtml)
-- 2026-06-29 16:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/6836083386.shtml)
-- 2026-06-29 16:36 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/87547565.shtml)
-- 2026-06-29 16:37 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/5868427.shtml)
-- 2026-06-29 16:46 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/48917.shtml)
-- 2026-06-29 16:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/902911.shtml)
-- 2026-06-29 16:50 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/6030434804.shtml)
-- 2026-06-29 17:04 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/408638706663.shtml)
-- 2026-06-29 16:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/25835811.shtml)
-- 2026-06-29 16:43 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/99942366.shtml)
-- 2026-06-29 16:54 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/683312074.shtml)
-- 2026-06-29 16:45 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/3783091002.shtml)
-- 2026-06-29 16:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/62373512.shtml)
+- 2026-06-29 16:55 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/7180123750.shtml)
+- 2026-06-29 17:10 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/3801040040.shtml)
+- 2026-06-29 16:44 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/149000.shtml)
+- 2026-06-29 16:53 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/342297774161.shtml)
+- 2026-06-29 17:08 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/811642323493.shtml)
+- 2026-06-29 16:55 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/6955389749.shtml)
+- 2026-06-29 16:52 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/026061.shtml)
+- 2026-06-29 16:57 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/1677818.shtml)
+- 2026-06-29 16:48 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/982063632.shtml)
+- 2026-06-29 16:47 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/53250.shtml)
+- 2026-06-29 16:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/96552487014.shtml)
+- 2026-06-29 17:07 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/01365.shtml)
+- 2026-06-29 16:55 - [送你一朵小红花](http://www.share.minike.top/Article/details/783663789.shtml)
+- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/96125422274.shtml)
+- 2026-06-29 16:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6192251.shtml)

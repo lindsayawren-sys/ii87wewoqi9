@@ -1,50 +1,61 @@
-# 罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个
+# 光，夯爆了！CPO概念股20CM涨停，高“光”创业板人工智能ETF华宝（159363）大涨7.71%，资金尾盘净流入
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据“海关发布”微信公众号消息，近日，罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个。 海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报，其身着宽松牛仔裤，但腿部有异常凸起，步态也很僵硬，海关关员随即对其进行拦截检查。 经进一步检查，海关关员在该旅客的右侧小腿发现用透明胶带缠绕捆绑的旧手机摄像头679个，在其左侧小腿发现同样用透明
+周一（6月15日），A股风险偏好提升明显，光模块CPO、光纤光缆等光通信仍是市场强共识方向，高“光”创业板人工智能大涨超7%领涨同类AI指数！成份股全线上涨，光库科技、长芯博创、太辰光20CM涨停，致尚科技、星宸科技、锐捷网络、北京君正等大涨超12%，天孚通信、中际旭创涨超8%，新易盛涨超6%。 热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）单边
 
 ## 正文
 
-中新网5月19日电 据“海关发布”微信公众号消息，近日，罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个。
+周一（6月15日），A股风险偏好提升明显，光模块CPO、光纤光缆等光通信仍是市场强共识方向，高“光”创业板人工智能大涨超7%领涨同类AI指数！
 
-海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报，其身着宽松牛仔裤，但腿部有异常凸起，步态也很僵硬，海关关员随即对其进行拦截检查。
+成份股全线上涨，光库科技、长芯博创、太辰光20CM涨停，致尚科技、星宸科技、锐捷网络、北京君正等大涨超12%，天孚通信、中际旭创涨超8%，新易盛涨超6%。
 
-经进一步检查，海关关员在该旅客的右侧小腿发现用透明胶带缠绕捆绑的旧手机摄像头679个，在其左侧小腿发现同样用透明胶带缠绕捆绑的旧手机摄像头699个，共计1378个。
+热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）单边走高，场内收涨7.71%，日K斩获“光头阳线”，一举升穿3根均线强势修复。
+
+此外，资金尾盘转为净流入，单日净申购3400万份，或表明市场情绪从上涨初期的“落袋为安”转向“坚定看多”。
+
+综合市场信息来看，创业板人工智能全面走强，背后或有两大因素支撑： 其一，市场风险偏好提升，光通信等强共识方向重获青睐。
+
+外围宏观大事件逐渐明朗，高风偏驱动AI科技主线继续爆发。
+
+此前，兴业证券表示，以北美算力链（如光通信中的光模块、光纤光缆）为代表的AI高确定性方向，在外部波动中这类景气品种反而将成为市场聚焦的、更具韧性的方向，并有望在7月业绩期成为市场最强共识。
+
+* 其二，利空研报被证伪，CPO重回强势。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 16:44 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 16:42 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 17:04 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 16:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 16:47 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 17:00 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 16:46 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 16:39 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 16:43 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:53 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 16:38 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 16:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 17:11 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 16:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 16:42 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 16:44 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 16:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 16:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 16:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 17:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 16:49 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 17:00 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 16:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 17:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 16:58 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/9499941.shtml)
-- 2026-06-29 16:53 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/770697.shtml)
-- 2026-06-29 16:47 - [斛珠夫人](http://www.share.minike.top/Article/details/280227569.shtml)
-- 2026-06-29 17:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/351663537427.shtml)
-- 2026-06-29 16:57 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/1726010835.shtml)
-- 2026-06-29 16:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/84152315466.shtml)
-- 2026-06-29 16:54 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/061588373.shtml)
-- 2026-06-29 17:04 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/1732613.shtml)
-- 2026-06-29 16:44 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/08670298.shtml)
-- 2026-06-29 16:45 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/32331.shtml)
-- 2026-06-29 16:45 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/3865571.shtml)
-- 2026-06-29 16:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/488985.shtml)
-- 2026-06-29 16:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/929513109.shtml)
-- 2026-06-29 17:04 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/4957681696.shtml)
-- 2026-06-29 16:47 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/379622.shtml)
+- 2026-06-29 16:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/46784.shtml)
+- 2026-06-29 16:58 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/4353023201.shtml)
+- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/57398779.shtml)
+- 2026-06-29 16:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/18188.shtml)
+- 2026-06-29 16:51 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/5303131.shtml)
+- 2026-06-29 17:09 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/4808029948.shtml)
+- 2026-06-29 16:55 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/2212785006.shtml)
+- 2026-06-29 17:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/39220547627.shtml)
+- 2026-06-29 16:51 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/428079787749.shtml)
+- 2026-06-29 17:01 - [绘画区你赢了](http://www.blog.minike.top/Article/details/223447472359.shtml)
+- 2026-06-29 16:50 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/102657701557.shtml)
+- 2026-06-29 16:43 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/2366577.shtml)
+- 2026-06-29 17:00 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/25614.shtml)
+- 2026-06-29 16:42 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/3832629895.shtml)
+- 2026-06-29 16:48 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/8239705010.shtml)

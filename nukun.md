@@ -1,61 +1,46 @@
-# 长鑫存储概念多股一字涨停，兆易创新创新高
+# 安徽省合肥市原副市长何逢阳接受审查调查
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-专题：业绩炸裂！长鑫存储概念引爆，多股“一字板” 记者丨金珊 编辑丨曾静娇 5月18日，A股早盘低开冲高后回落，四大指数盘中一度集体翻红，截至午间收盘，沪指跌0.22%，深成指跌0.31%，创业板指跌0.5%，科创综指涨1.09%。沪深两市半日成交额1.93万亿元，较上个交易日缩量2420亿元，全市场超3500只个股下跌。 具体板块来看，存储芯片概念强势拉升，同有科技20CM涨
+中新网6月13日电 据安徽省纪委监委消息：安徽省合肥市人民政府原党组成员、副市长何逢阳涉嫌严重违纪违法，目前正接受安徽省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-专题：业绩炸裂！
-
-长鑫存储概念引爆，多股“一字板” 记者丨金珊 编辑丨曾静娇 5月18日，A股早盘低开冲高后回落，四大指数盘中一度集体翻红，截至午间收盘，沪指跌0.22%，深成指跌0.31%，创业板指跌0.5%，科创综指涨1.09%。
-
-沪深两市半日成交额1.93万亿元，较上个交易日缩量2420亿元，全市场超3500只个股下跌。
-
-具体板块来看，存储芯片概念强势拉升，同有科技20CM涨停，兆易创新触及涨停，股价续创历史新高，A+H股总市值一度突破2900亿。
-
-长鑫存储概念多股大涨，合肥城建、合百集团、上峰水泥“一字”涨停，柏诚股份涨停。
-
-消息面上，长鑫科技重启IPO，其最新财务数据显示，公司2026年一季度业绩实现历史性突破。
-
-油气股盘中走强，贵州燃气封涨停，通源石油涨超10%，首华燃气、科力股份涨近10%。
-
-CPO概念反复活跃，华工科技反包涨停，汇绿生态触及涨停。
+中新网6月13日电 据安徽省纪委监委消息：安徽省合肥市人民政府原党组成员、副市长何逢阳涉嫌严重违纪违法，目前正接受安徽省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 16:36 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 16:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 16:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 17:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 16:39 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:57 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 16:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 16:59 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 16:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 17:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 16:42 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 16:54 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 17:00 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 16:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 17:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 17:05 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 16:46 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:01 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 17:00 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 16:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 16:57 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 16:54 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 16:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 16:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 16:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/01044.shtml)
-- 2026-06-29 16:46 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/50360619241.shtml)
-- 2026-06-29 16:39 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/297766.shtml)
-- 2026-06-29 17:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/2568631476.shtml)
-- 2026-06-29 16:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/67702085198.shtml)
-- 2026-06-29 16:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/440994508235.shtml)
-- 2026-06-29 16:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/24043125.shtml)
-- 2026-06-29 17:02 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/976070.shtml)
-- 2026-06-29 16:54 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/9922151100.shtml)
-- 2026-06-29 16:48 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/76245.shtml)
-- 2026-06-29 16:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/29570043.shtml)
-- 2026-06-29 16:40 - [沙丘](http://www.share.minike.top/Article/details/950020.shtml)
-- 2026-06-29 16:54 - [爱很美味](https://www.share.kurohicncr.top/Article/details/28771.shtml)
-- 2026-06-29 16:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/3785056.shtml)
-- 2026-06-29 16:57 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/68111187.shtml)
+- 2026-06-29 16:53 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/1664655370.shtml)
+- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/702905313594.shtml)
+- 2026-06-29 17:07 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/1177490274.shtml)
+- 2026-06-29 16:46 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/567928013069.shtml)
+- 2026-06-29 16:49 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/954885882043.shtml)
+- 2026-06-29 16:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/92728774.shtml)
+- 2026-06-29 16:58 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/823932.shtml)
+- 2026-06-29 16:57 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/519054044.shtml)
+- 2026-06-29 17:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/308915789827.shtml)
+- 2026-06-29 17:06 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/77007308.shtml)
+- 2026-06-29 16:56 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/5335678724.shtml)
+- 2026-06-29 16:52 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/797324.shtml)
+- 2026-06-29 16:47 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/48528.shtml)
+- 2026-06-29 17:11 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/31031.shtml)
+- 2026-06-29 16:58 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/7183583.shtml)

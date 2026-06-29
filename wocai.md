@@ -1,61 +1,58 @@
-# A股又现“天价离婚”，年薪超300万总裁几近“净身出户”
+# 文化和自然遗产日：西藏公布首批自治区级考古遗址公园名单
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 A股又现“天价离婚案”，年薪超300万的总裁几近“净身出户”。 近日，电子元器件龙头顺络电子发布公告称，公司61岁的总裁施红阳因解除婚姻关系，将其名下超过98%的股份过户给前妻杨柳。 按照公告日收盘价计算，这笔股份价值近2亿元。顺络电子强调，本次权
+中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。活动主题为“文物属于人民 服务人民”。 主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。
 
-来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 A股又现“天价离婚案”，年薪超300万的总裁几近“净身出户”。
+活动主题为“文物属于人民 服务人民”。
 
-近日，电子元器件龙头顺络电子发布公告称，公司61岁的总裁施红阳因解除婚姻关系，将其名下超过98%的股份过户给前妻杨柳。
+主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。
 
-按照公告日收盘价计算，这笔股份价值近2亿元。
+经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。
 
-顺络电子强调，本次权益变动后，公司第一大股东共同持有的表决权数量未发生变化。
+其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文明进程的关键节点，对于理解高原早期农牧业发展、跨区域互动及文明起源具备不可替代的学术价值。
 
-值得一提的是，目前70岁高龄的董事长袁金钰，近年来频频减持顺络电子的股份。
+据了解，此举旨在加强西藏重要考古遗址保护与活化利用，切实推进大遗址保护与经济社会和谐发展。
 
-据深圳商报·读创去年9月发布的文章，“袁金钰从2019年1月23日起，第一次减持顺络电子股份，迄今为止，累计套现超20亿元”。
+此次评选将进一步推进西藏考古遗址公园的后续建设工作，不断提高管理水平，提升公共文化服务功能，加大对遗址的研究、展示和利用，使考古遗址保护研究成果惠及社会和人民。
 
-而在业绩层面，顺络电子不久前交出一份难言出色的一季报。
+主场活动还开展了非遗展示、西藏考古70周年成果图片展、第四次文物普查成果图片展以及文物保护相关普法宣传活动。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 16:44 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 16:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 17:04 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 16:40 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:57 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:48 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 16:36 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 16:59 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 16:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:40 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 16:59 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 16:44 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 17:00 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 16:59 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 16:50 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:55 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 17:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 16:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 17:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 16:53 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 16:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 17:08 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/33466984.shtml)
-- 2026-06-29 17:01 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/11544313422.shtml)
-- 2026-06-29 16:59 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/54520616287.shtml)
-- 2026-06-29 16:45 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/50976212.shtml)
-- 2026-06-29 16:59 - [绘画区你赢了](http://www.share.minike.top/Article/details/13989188345.shtml)
-- 2026-06-29 16:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/604197683303.shtml)
-- 2026-06-29 16:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/0165130.shtml)
-- 2026-06-29 16:37 - [抓特务票房破亿](https://www.share.minike.top/Article/details/2049238.shtml)
-- 2026-06-29 17:03 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/367576.shtml)
-- 2026-06-29 16:46 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/8202810.shtml)
-- 2026-06-29 16:37 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/13246107053.shtml)
-- 2026-06-29 16:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/871652131471.shtml)
-- 2026-06-29 17:04 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/54548336710.shtml)
-- 2026-06-29 16:46 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/425076.shtml)
-- 2026-06-29 16:46 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/957998702571.shtml)
+- 2026-06-29 16:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/43086640028.shtml)
+- 2026-06-29 17:07 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/4997297.shtml)
+- 2026-06-29 16:46 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/68850.shtml)
+- 2026-06-29 16:49 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/8113738.shtml)
+- 2026-06-29 16:59 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/3064246.shtml)
+- 2026-06-29 16:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/61977088.shtml)
+- 2026-06-29 17:04 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/64861767919.shtml)
+- 2026-06-29 16:44 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/79419.shtml)
+- 2026-06-29 17:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/538048153.shtml)
+- 2026-06-29 16:56 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/937780717.shtml)
+- 2026-06-29 16:51 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/03704508930.shtml)
+- 2026-06-29 16:51 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/0133127.shtml)
+- 2026-06-29 16:50 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/146943.shtml)
+- 2026-06-29 16:49 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/62815693688.shtml)
+- 2026-06-29 17:00 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/788303.shtml)

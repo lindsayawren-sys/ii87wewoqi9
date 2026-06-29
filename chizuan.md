@@ -1,52 +1,56 @@
-# 大美边疆看我家丨云南建水：感受彝族烟盒舞的特色风情
+# 印尼“汉语桥”中文比赛总决赛在雅加达举行
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。彝族烟盒舞是凝聚人心、增进交融的民族团结载体。(作者：吴俊松 徐
+发布时间：2026年06月15日 18:46 来源：中国新闻网 当地时间6月14日，2026年“汉语桥”中文比赛印度尼西亚赛区总决赛在雅加达举行。中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席活动，并为获奖选手颁奖。 王鲁彤在致辞中表示，“汉语桥”在印尼具有独特的文化价值与教育
 
 ## 正文
 
-发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。
+发布时间：2026年06月15日 18:46 来源：中国新闻网 当地时间6月14日，2026年“汉语桥”中文比赛印度尼西亚赛区总决赛在雅加达举行。
 
-彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。
+中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席活动，并为获奖选手颁奖。
 
-烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。
+王鲁彤在致辞中表示，“汉语桥”在印尼具有独特的文化价值与教育意义，不仅是一项语言赛事，更是中印尼人文交流的生动缩影。
 
-彝族烟盒舞是凝聚人心、增进交融的民族团结载体。
+近年来，两国教育与文化合作成果丰硕，希望青年学子以语言为桥、以文化为媒，继续传递两国友好声音，促进民心相通。
 
-(作者：吴俊松 徐帆） 责任编辑：【魏聪聪】
+闭幕式上，获奖选手代表轮番登台，带来歌曲、舞蹈等才艺表演，展现出良好的中文水平与综合素养，以及对中华文化的浓厚兴趣。
+
+随着颁奖暨闭幕典礼结束，2026年“汉语桥”中文比赛印尼赛区总决赛圆满落幕。
+
+(记者 李志全 制作 徐妙巧） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 16:56 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 16:57 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 16:37 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 16:56 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 16:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 16:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 16:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 17:02 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 16:45 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 16:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 16:46 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 17:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 16:45 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 17:05 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 16:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 16:57 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 17:10 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 16:50 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 17:10 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 17:08 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 16:57 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 17:04 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 17:05 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/967069471.shtml)
-- 2026-06-29 16:36 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/690539035917.shtml)
-- 2026-06-29 16:50 - [这一刀 会很帅](https://www.share.minike.top/Article/details/0777333.shtml)
-- 2026-06-29 16:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/939184.shtml)
-- 2026-06-29 16:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/03762.shtml)
-- 2026-06-29 16:43 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/4327566.shtml)
-- 2026-06-29 17:04 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/8630898.shtml)
-- 2026-06-29 16:45 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/274429595.shtml)
-- 2026-06-29 16:47 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/87313.shtml)
-- 2026-06-29 16:41 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/30093846927.shtml)
-- 2026-06-29 16:38 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/6786011091.shtml)
-- 2026-06-29 16:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/594155517811.shtml)
-- 2026-06-29 17:03 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/94908527463.shtml)
-- 2026-06-29 16:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/95328156144.shtml)
-- 2026-06-29 17:02 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/45467072680.shtml)
+- 2026-06-29 17:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/4116336395.shtml)
+- 2026-06-29 17:06 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/236896648789.shtml)
+- 2026-06-29 17:06 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/176498366.shtml)
+- 2026-06-29 16:42 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/0655245.shtml)
+- 2026-06-29 16:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/1225127.shtml)
+- 2026-06-29 16:43 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/92712.shtml)
+- 2026-06-29 16:49 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/756758.shtml)
+- 2026-06-29 17:02 - [金刚川](http://www.blog.minike.top/Article/details/688547149.shtml)
+- 2026-06-29 16:50 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/6770060480.shtml)
+- 2026-06-29 16:57 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/038722497476.shtml)
+- 2026-06-29 16:57 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/06094.shtml)
+- 2026-06-29 17:10 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/0720449168.shtml)
+- 2026-06-29 16:58 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/64377787.shtml)
+- 2026-06-29 16:57 - [美人鱼](http://www.share.minike.top/Article/details/157347442959.shtml)
+- 2026-06-29 17:10 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/06270010498.shtml)

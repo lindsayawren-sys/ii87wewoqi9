@@ -1,56 +1,59 @@
-# Inpex Ichthys LNG工厂工人拟于5月底罢工，全球能源供应面临新压力
+# “中国好人”张乐华：40年深耕杜鹃花研究保护领域
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。此举可能进一步加剧本已紧张的全球能源供应形势。 争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。投票结果有待5月份为期六天的谈判确认。工会律师已向这家日本
+发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，2026年第一批“中国好人榜”发布，中国科学院庐山植物园张乐华深耕杜鹃花研究保护领域40年，以“追花人”不避艰险、匠心守护生态家园的敬业奉献先进事迹入选。他曾带领团队破译350余种杜鹃花的生命密码，构建起中国最大的杜鹃花活体基因库。 走进庐山植物园，杜鹃花姹紫嫣红满庭芬芳，作为植物园“一枝独秀”的优势学科，张
 
 ## 正文
 
-罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。
+发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，2026年第一批“中国好人榜”发布，中国科学院庐山植物园张乐华深耕杜鹃花研究保护领域40年，以“追花人”不避艰险、匠心守护生态家园的敬业奉献先进事迹入选。
 
-此举可能进一步加剧本已紧张的全球能源供应形势。
+他曾带领团队破译350余种杜鹃花的生命密码，构建起中国最大的杜鹃花活体基因库。
 
-争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。
+走进庐山植物园，杜鹃花姹紫嫣红满庭芬芳，作为植物园“一枝独秀”的优势学科，张乐华正带领团队，开展杜鹃花性状繁育、野外回归等课题研究，为建设美丽中国江西样板贡献科学力量。
 
-投票结果有待5月份为期六天的谈判确认。
+据介绍，2019年，张乐华在罗霄山脉深处重新发现小溪洞杜鹃的野生分布，并立即在庐山植物园开启了苗木扩繁和仿自然生境的迁地保护工作。
 
-工会律师已向这家日本公司发出通知，表示将从5月27日至6月10日期间的任何时间点发起罢工，并称数月谈判未能取得任何进展。
+2021年，在“华东地区珍稀濒危野生植物展”上，由张乐华团队培育的小溪洞杜鹃获展会最高奖——铂金奖。
 
-工会表态 一位发言人在声明中表示，已向Inpex明确表示，不会因为Inpex在六个月内未能审阅其诉求而接受核心诉求被轻视。
+2025年春天，张乐华团队在国内率先开启濒危杜鹃的野外回归，将人工繁育的小溪洞杜鹃、井冈山杜鹃等濒危物种回归到井冈山原产地，成活率近95%，实现了濒危种群的人工复壮。
 
-工会已告知Inpex，其将继续在定于5月25日和26日的会议上与公司进行谈判。
-
-Inpex未立即回应置评请求。
+(华山 胡晓山） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 16:45 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 16:54 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 16:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 16:50 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 16:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 16:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 17:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 16:50 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 17:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 16:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 16:49 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 17:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 17:04 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:59 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 16:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 16:47 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 16:54 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 16:50 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 16:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 16:58 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 17:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 17:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/13277650802.shtml)
-- 2026-06-29 16:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/57975805874.shtml)
-- 2026-06-29 17:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/40143507.shtml)
-- 2026-06-29 16:40 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/263302524.shtml)
-- 2026-06-29 16:37 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/21206275.shtml)
-- 2026-06-29 16:48 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/246822.shtml)
-- 2026-06-29 17:01 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/192603623.shtml)
-- 2026-06-29 17:02 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/903809011.shtml)
-- 2026-06-29 16:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/5941356.shtml)
-- 2026-06-29 16:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/19516997050.shtml)
-- 2026-06-29 16:45 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/484611169.shtml)
-- 2026-06-29 16:55 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/18448012280.shtml)
-- 2026-06-29 16:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/56316656365.shtml)
-- 2026-06-29 16:44 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/18151.shtml)
-- 2026-06-29 16:42 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/35172098.shtml)
+- 2026-06-29 17:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/99135.shtml)
+- 2026-06-29 17:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/3813730.shtml)
+- 2026-06-29 16:53 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/079655.shtml)
+- 2026-06-29 17:00 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/73654310346.shtml)
+- 2026-06-29 17:00 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/878882470.shtml)
+- 2026-06-29 16:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/346428569.shtml)
+- 2026-06-29 16:43 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/722615.shtml)
+- 2026-06-29 17:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/51420.shtml)
+- 2026-06-29 16:56 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/550316.shtml)
+- 2026-06-29 16:56 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/71983720.shtml)
+- 2026-06-29 16:55 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/74305786093.shtml)
+- 2026-06-29 16:44 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/482413.shtml)
+- 2026-06-29 16:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/78525709.shtml)
+- 2026-06-29 17:04 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/68499320861.shtml)
+- 2026-06-29 17:01 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/45129796151.shtml)

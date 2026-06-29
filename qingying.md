@@ -1,59 +1,57 @@
-# 光大期货0518热点追踪：中东局势升温，原油价格再次上冲
+# 第三届长春光博会引资超205亿元
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-上周末，美国称已拒绝伊朗就结束战争提出的“14点”书面方案。报道称，美国政府已就上述书面方案作出回应，美国拒绝了德黑兰的方案，并“重申其强硬立场”，尤其是在核问题上。美伊局势再度升温，当前来看，围绕美伊停火的协议内容存在重大分歧，前景仍有较大的不确定性，市场担忧地缘冲突再度激化，周一国内油价重心上移，日内最大涨幅超7%，并带动化工板块同步上行。 国内方面，4月我国进口原油384
+中新网长春6月14日电 (记者 郭佳)第三届长春国际光电博览会(简称“长春光博会”)14日闭幕。长春市经济合作局局长赵庆利在闭幕新闻发布会上介绍，自展会筹备以来，全市共签约项目69个，总投资额达205.46亿元。 本届长春光博会吸引近900家中外企业参展，展出光电产品4000余件。长春在此期间发布的《中国光电城发展规划》，进一步明确了当地光电信息产业的发展方向，也增强了对外部投
 
 ## 正文
 
-上周末，美国称已拒绝伊朗就结束战争提出的“14点”书面方案。
+中新网长春6月14日电 (记者 郭佳)第三届长春国际光电博览会(简称“长春光博会”)14日闭幕。
 
-报道称，美国政府已就上述书面方案作出回应，美国拒绝了德黑兰的方案，并“重申其强硬立场”，尤其是在核问题上。
+长春市经济合作局局长赵庆利在闭幕新闻发布会上介绍，自展会筹备以来，全市共签约项目69个，总投资额达205.46亿元。
 
-美伊局势再度升温，当前来看，围绕美伊停火的协议内容存在重大分歧，前景仍有较大的不确定性，市场担忧地缘冲突再度激化，周一国内油价重心上移，日内最大涨幅超7%，并带动化工板块同步上行。
+本届长春光博会吸引近900家中外企业参展，展出光电产品4000余件。
 
-国内方面，4月我国进口原油3847.1万吨，环比下降23.0%，同比下降20.0%；1-4月份，我国累计进口原油18529.2万吨，同比增加1.3%。
+长春在此期间发布的《中国光电城发展规划》，进一步明确了当地光电信息产业的发展方向，也增强了对外部投资的吸引力。
 
-近两个月受中东局势扰动，原油现货供应中断风险升温，现货溢价一度疯狂飙升，北海原油价格一度突破2008年高点。
+此次签约项目覆盖半导体与高端制造、卫星技术与应用、光电传感与仪器等多个领域。
 
-随后原油现货价格自高位回落，这是市场观望、库存消耗、替代货源补充等短期因素共振结果，并非供需格局实质好转。
+其中，既有仿生机器人研发制造等高端制造项目，也有高分辨率高定位精度遥感载荷技术产业化、光学成像探测设备生产研发基地等卫星应用项目，以及固态激光雷达研发生产等光电传感项目。
 
-在炼油厂开工回升、补库需求临近、战略储备投放尾声临近背景下，若无地缘局势突破性进展，现货油价随时重启上涨。
+赵庆利表示，这些签约项目高度契合长春产业布局，合作模式灵活多元，涵盖成果转化、投资建厂、租赁生产、技术研发、基金组建等模式，将有效推动长春光电信息产业补短板、强优势、延链条。
 
-亚洲市场的库存消耗是核心变量，随着高温天气下能源的边际需求或面临季节性的修复，对油价的支撑或有所加强。
+作为传统汽车工业重镇，长春正积极培育光电等新兴产业，寻求新发展空间。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 16:47 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 16:52 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 17:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 16:43 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 16:45 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 17:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 17:04 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 16:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 16:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 16:43 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 17:04 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 16:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 16:54 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 16:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 17:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 17:07 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 17:00 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 17:04 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 17:04 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:59 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 17:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 17:05 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 16:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/6098688314.shtml)
-- 2026-06-29 16:56 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/766909545350.shtml)
-- 2026-06-29 16:36 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/617928.shtml)
-- 2026-06-29 16:55 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/701621909.shtml)
-- 2026-06-29 16:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/625987939.shtml)
-- 2026-06-29 16:42 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/743975885776.shtml)
-- 2026-06-29 16:57 - [我和我的家乡](https://www.share.minike.top/Article/details/693709.shtml)
-- 2026-06-29 16:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/07968.shtml)
-- 2026-06-29 16:48 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/711052555.shtml)
-- 2026-06-29 16:41 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/99570.shtml)
-- 2026-06-29 16:59 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/05347337.shtml)
-- 2026-06-29 16:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/348683838.shtml)
-- 2026-06-29 16:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/622180.shtml)
-- 2026-06-29 16:49 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/00165.shtml)
-- 2026-06-29 16:43 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/82069298.shtml)
+- 2026-06-29 17:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/628743777881.shtml)
+- 2026-06-29 16:53 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/5488189199.shtml)
+- 2026-06-29 17:10 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/85982944074.shtml)
+- 2026-06-29 16:56 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/03552876.shtml)
+- 2026-06-29 16:54 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/0550637.shtml)
+- 2026-06-29 17:03 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/978427.shtml)
+- 2026-06-29 16:45 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/98123.shtml)
+- 2026-06-29 16:51 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/958990360437.shtml)
+- 2026-06-29 16:52 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/218920813.shtml)
+- 2026-06-29 16:58 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/01897949443.shtml)
+- 2026-06-29 17:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/449476373781.shtml)
+- 2026-06-29 17:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/779064645935.shtml)
+- 2026-06-29 16:58 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/35754.shtml)
+- 2026-06-29 16:42 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/48789626326.shtml)
+- 2026-06-29 17:08 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/93876196.shtml)

@@ -1,56 +1,59 @@
-# 西藏牦牛博物馆：牦牛为“桥”连世界
+# 东西问｜董波：当亚里士多德“重返”希腊，古典伦理学能为当代解忧吗？
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 19:05 来源：中国新闻网 5月17日，西藏牦牛博物馆启动国际博物馆日系列活动。活动紧扣“博物馆：联结世界的桥梁”主题，通过藏戏展演、藏品捐赠、沉浸式体验等形式，搭建起高原文明对话世界的桥梁。 活动中，6位爱心人士向博物馆捐赠了驮鞍、唐卡等珍贵藏品。至此，该馆累计接收社会捐赠藏品千余件，约占馆藏总量40%，让散落民间的文化瑰宝得以系统保护与展
+中新社广州6月14日电 题：当亚里士多德“重返”希腊，古典伦理学能为当代解忧吗？ ——专访中山大学博雅学院副教授、中国比较文学学会古典学专业委员会秘书长董波 中新社记者 郭军 第二届世界古典学大会6月9日至10日在希腊雅典举行。在技术与全球化双重变奏的当下，重返古典文明源头意味着什么？受邀与会的中山大学博雅学院副教授董波就此接受中新社“东西问”专访，探讨亚里士多德伦理学对现代生
 
 ## 正文
 
-发布时间：2026年05月18日 19:05 来源：中国新闻网 5月17日，西藏牦牛博物馆启动国际博物馆日系列活动。
+中新社广州6月14日电 题：当亚里士多德“重返”希腊，古典伦理学能为当代解忧吗？
 
-活动紧扣“博物馆：联结世界的桥梁”主题，通过藏戏展演、藏品捐赠、沉浸式体验等形式，搭建起高原文明对话世界的桥梁。
+——专访中山大学博雅学院副教授、中国比较文学学会古典学专业委员会秘书长董波 中新社记者 郭军 第二届世界古典学大会6月9日至10日在希腊雅典举行。
 
-活动中，6位爱心人士向博物馆捐赠了驮鞍、唐卡等珍贵藏品。
+在技术与全球化双重变奏的当下，重返古典文明源头意味着什么？
 
-至此，该馆累计接收社会捐赠藏品千余件，约占馆藏总量40%，让散落民间的文化瑰宝得以系统保护与展示。
+受邀与会的中山大学博雅学院副教授董波就此接受中新社“东西问”专访，探讨亚里士多德伦理学对现代生活的启示，以及中西古典文明对话的可能性。
 
-活动现场，牦牛博物馆与西藏高校签订馆校合作协议，挂牌西藏民族大学“拉萨工作站”并聘任学术顾问，为该馆发展注入新动力。
+现将访谈实录摘要如下： 中新社记者：此次世界古典学大会重返西方古典文明源头希腊爱琴海。
 
-同时，《“一纪流光·展映初心”十二载临展汇》《“和合中国”主题图片展》同步揭幕。
+您认为在当今技术革命与全球化动荡的背景下，回归亚里士多德伦理学有何特殊意义？
 
-西藏牦牛博物馆相关工作人员德吉玉珍介绍，未来这座牦牛博物馆将持续深耕高原特色，让牦牛文化成为世界了解西藏、读懂中华文明的重要窗口。
+董波：第二届世界古典学大会在希腊举行具有深刻的象征意义。
 
-(记者 贡桑拉姆） 责任编辑：【李季】
+古典学的生命力在于它始终在文明的源头与当代之间往返。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 17:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 17:02 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 16:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 16:39 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 16:41 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 17:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 16:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 17:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 17:00 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 17:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 17:04 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 16:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 16:56 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 17:09 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 16:50 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 17:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 17:06 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 17:11 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 17:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 17:08 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/848594770.shtml)
-- 2026-06-29 16:57 - [毒液2](https://www.share.kurohicncr.top/Article/details/698170384666.shtml)
-- 2026-06-29 16:51 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/09751.shtml)
-- 2026-06-29 16:36 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/56997916.shtml)
-- 2026-06-29 16:40 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/47798845.shtml)
-- 2026-06-29 17:04 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/35505.shtml)
-- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/994948.shtml)
-- 2026-06-29 16:46 - [第一炉香](https://www.share.kurohicncr.top/Article/details/808314.shtml)
-- 2026-06-29 16:49 - [恋与深空 731](https://www.blog.minike.top/Article/details/84857.shtml)
-- 2026-06-29 16:54 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/912105445226.shtml)
-- 2026-06-29 16:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/076461.shtml)
-- 2026-06-29 16:42 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/79781.shtml)
-- 2026-06-29 17:00 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/0473722.shtml)
-- 2026-06-29 16:44 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/43558.shtml)
-- 2026-06-29 16:45 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/993126.shtml)
+- 2026-06-29 16:53 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/279998532.shtml)
+- 2026-06-29 16:45 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/31463800991.shtml)
+- 2026-06-29 17:03 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/7541389862.shtml)
+- 2026-06-29 16:46 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/4810012615.shtml)
+- 2026-06-29 16:44 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/86409372.shtml)
+- 2026-06-29 16:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/71877037945.shtml)
+- 2026-06-29 16:57 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/3798750.shtml)
+- 2026-06-29 17:03 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/30625906.shtml)
+- 2026-06-29 16:56 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/377862.shtml)
+- 2026-06-29 16:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/2364366.shtml)
+- 2026-06-29 16:45 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/724915.shtml)
+- 2026-06-29 16:56 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/490652.shtml)
+- 2026-06-29 16:51 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/7936038.shtml)
+- 2026-06-29 16:50 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/794745160.shtml)
+- 2026-06-29 17:05 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/864282.shtml)

@@ -1,58 +1,58 @@
-# 欧盟将叙利亚国防部和内政部移出制裁名单
+# 圣戈班17.6亿美元向凯斯科出售达尔分销业务
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社布鲁塞尔5月18日电 (记者 德永健)欧盟18日再度放松对叙利亚的制裁力度，将叙利亚国防部和内政部移出制裁名单。 据欧盟理事会当日发布的公告，欧盟决定将针对叙利亚前政府的制裁措施延长一年，至2027年6月1日为止，但将叙利亚国防部、内政部等7家实体移出制裁名单，从而“帮助加强欧盟与叙利亚的接触”。 公告称，对于仍被列为制裁对象的叙利亚个人和实体，欧盟将继续冻结他们在欧盟司
+欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。 这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易
 
 ## 正文
 
-中新社布鲁塞尔5月18日电 (记者 德永健)欧盟18日再度放松对叙利亚的制裁力度，将叙利亚国防部和内政部移出制裁名单。
+欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。
 
-据欧盟理事会当日发布的公告，欧盟决定将针对叙利亚前政府的制裁措施延长一年，至2027年6月1日为止，但将叙利亚国防部、内政部等7家实体移出制裁名单，从而“帮助加强欧盟与叙利亚的接触”。
+这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易预计 2027 年初完成交割。
 
-公告称，对于仍被列为制裁对象的叙利亚个人和实体，欧盟将继续冻结他们在欧盟司法管辖范围内的财产，禁止欧盟成员国公民和实体向他们提供资金，禁止相关人员入境或过境欧盟。
+欧洲早盘时段，圣戈班股价大涨 5.8%，而凯斯科股价重挫 9.1%。
 
-2011年叙利亚内战爆发后，欧盟对叙利亚实施严厉制裁。
+凯斯科表示，本次收购将为公司吸纳北欧地区大量水暖、卫浴、供暖专业渠道客户，同时称这是企业成立以来规模最大的一笔收购交易。
 
-2024年12月叙利亚政局剧变，欧盟转而接触叙利亚过渡政府，开始放松对叙利亚的制裁力度。
+完成收购后，建材与工业技术贸易板块将成为凯斯科旗下规模最大的业务线。
 
-2025年5月，欧盟以“支持叙利亚和平和包容性过渡”为由，宣布全面叫停对叙利亚的经济制裁，但保留对叙利亚化学武器、武器贸易、军民两用物项等领域的制裁。
+凯斯科总裁兼首席执行官约尔马・劳哈拉表示：“多年来我们一直在寻觅大规模收购机会，尤其是北欧工业技术贸易赛道，优质收购标的十分稀缺。
 
-本月早些时候，在叙利亚过渡政府外长希巴尼访问欧盟期间，欧盟宣布全面恢复《欧盟叙利亚合作协定》。
+” 建材供应商圣戈班称，本次剥离达尔业务，是集团优化整体资产组合战略规划的重要一步。
 
-(完)
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 16:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 17:05 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 16:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 16:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 16:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 16:56 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 16:51 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:01 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 16:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 17:02 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 17:03 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 16:50 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 16:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 17:10 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 16:48 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 16:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 17:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 17:05 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 16:45 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 16:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 17:11 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 16:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/257533.shtml)
-- 2026-06-29 17:00 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/6509151.shtml)
-- 2026-06-29 16:38 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/43773587.shtml)
-- 2026-06-29 16:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/7032802.shtml)
-- 2026-06-29 16:37 - [流金岁月](https://www.blog.minike.top/Article/details/5415807.shtml)
-- 2026-06-29 16:42 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/322475619375.shtml)
-- 2026-06-29 16:53 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/6932966218.shtml)
-- 2026-06-29 16:51 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/4190531.shtml)
-- 2026-06-29 16:49 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/820277.shtml)
-- 2026-06-29 16:56 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/835278553.shtml)
-- 2026-06-29 16:42 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/297374274.shtml)
-- 2026-06-29 16:55 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/615540.shtml)
-- 2026-06-29 16:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/32302098853.shtml)
-- 2026-06-29 16:38 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/4693174360.shtml)
-- 2026-06-29 16:49 - [美的空调 卡bug](https://www.share.minike.top/Article/details/01550.shtml)
+- 2026-06-29 16:46 - [天道](https://www.blog.kurohicncr.top/Article/details/5904812.shtml)
+- 2026-06-29 17:07 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/7194025.shtml)
+- 2026-06-29 17:00 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/79806351127.shtml)
+- 2026-06-29 16:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/57563.shtml)
+- 2026-06-29 16:56 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/219581102373.shtml)
+- 2026-06-29 16:45 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/712754075.shtml)
+- 2026-06-29 16:53 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/6221960.shtml)
+- 2026-06-29 17:06 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/654838546.shtml)
+- 2026-06-29 16:57 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/25834715.shtml)
+- 2026-06-29 16:45 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/562746701939.shtml)
+- 2026-06-29 17:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/413511.shtml)
+- 2026-06-29 17:06 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/18707871963.shtml)
+- 2026-06-29 16:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/7553842678.shtml)
+- 2026-06-29 17:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/0322453.shtml)
+- 2026-06-29 16:58 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/04308751.shtml)

@@ -1,61 +1,55 @@
-# 伊朗战争已使全球企业蒙受250亿美元损失 且这一数字仍在攀升
+# 十项促进两岸交流合作的政策措施对接签约会在厦门举行
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-路透分析显示，美国与以色列对伊朗的战争已使全球企业蒙受至少250亿美元损失—— 且这一数字仍在攀升。 对美欧亚三地上市公司自冲突爆发以来发布的财报进行梳理后，其影响之严重令人警醒。企业正竭力应对能源价格飙升、供应链中断以及伊朗对霍尔木兹海峡的封锁导致贸易路线中断等问题。 分析显示，至少有279家企业将战争列为采取防御性措施以减轻财务冲击的诱因，这些措施包括提价和减产。还有企业暂
+发布时间：2026年06月13日 23:16 来源：中国新闻网 6月13日，十项促进两岸交流合作的政策措施对接签约会在福建厦门举行。中共中央台办、国务院台办主任宋涛出席签约会并致辞表示，中华民族伟大复兴势不可挡，台湾的前途命运系于祖国大陆发展进步、国家统一强盛。两岸同胞要秉持民族大义，共担时代大任，深化两岸融合发展，推进祖国统一，携手奋进中华民族伟大复兴新征程。 中国国民党副主
 
 ## 正文
 
-路透分析显示，美国与以色列对伊朗的战争已使全球企业蒙受至少250亿美元损失—— 且这一数字仍在攀升。
+发布时间：2026年06月13日 23:16 来源：中国新闻网 6月13日，十项促进两岸交流合作的政策措施对接签约会在福建厦门举行。
 
-对美欧亚三地上市公司自冲突爆发以来发布的财报进行梳理后，其影响之严重令人警醒。
+中共中央台办、国务院台办主任宋涛出席签约会并致辞表示，中华民族伟大复兴势不可挡，台湾的前途命运系于祖国大陆发展进步、国家统一强盛。
 
-企业正竭力应对能源价格飙升、供应链中断以及伊朗对霍尔木兹海峡的封锁导致贸易路线中断等问题。
+两岸同胞要秉持民族大义，共担时代大任，深化两岸融合发展，推进祖国统一，携手奋进中华民族伟大复兴新征程。
 
-分析显示，至少有279家企业将战争列为采取防御性措施以减轻财务冲击的诱因，这些措施包括提价和减产。
+中国国民党副主席张荣恭出席签约会并致辞表示，两岸交流合作是促进两岸同胞相互理解、增进福祉的最佳渠道，中国国民党将致力于推动两岸关系和平发展，坚持为台海谋太平、为民生谋福祉。
 
-还有企业暂停派发股息或回购股票、让员工休无薪假、增加燃油附加费，或寻求政府的紧急援助。
+活动现场，大陆企业与来自台湾多地的企业和商协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等特色农渔产品。
 
-这场动荡——继新冠疫情和俄乌冲突之后，企业面临的一系列令人措手不及的全球事件中的最新一例——正使人们对今年剩余时间的预期趋于谨慎，因为几乎没有迹象表明结束冲突的协议即将达成。
+参加签约会的台湾业者和嘉宾表示，签约会帮助更多台湾农渔产品销往大陆，让陷入滞销困境的农渔民获得实实在在的两岸和平红利。
 
-惠而浦首席执行官比策（Marc Bitzer）在将全年业绩预期下调一半并暂停派息后，向分析师表示：“这种行业衰退程度与我们全球金融危机期间所见相似，甚至高于其他经济衰退时期。
-
-” 分析师指出，随着增长放缓，定价能力将减弱，固定成本将更难消化，这将威胁到第二季度及以后的利润率。
+(记者 郎佳慧 徐雪莹 福建厦门报道) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 16:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 16:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 16:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 17:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 16:56 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 16:43 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 16:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 16:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 16:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 16:46 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 17:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 16:37 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 17:02 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 17:04 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 17:04 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 17:05 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 17:00 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 17:11 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 16:55 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 16:47 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:47 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 16:58 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 17:07 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 16:59 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/735513759700.shtml)
-- 2026-06-29 16:49 - [扬名立万](http://www.share.minike.top/Article/details/882007618507.shtml)
-- 2026-06-29 16:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/3267795950.shtml)
-- 2026-06-29 17:01 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/26284033248.shtml)
-- 2026-06-29 16:45 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/71578222891.shtml)
-- 2026-06-29 16:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/418935902.shtml)
-- 2026-06-29 16:39 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/551159036181.shtml)
-- 2026-06-29 16:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/04393664705.shtml)
-- 2026-06-29 17:02 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/78823381835.shtml)
-- 2026-06-29 16:49 - [请回答王牌2019](http://www.share.minike.top/Article/details/77795.shtml)
-- 2026-06-29 16:36 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/30885314611.shtml)
-- 2026-06-29 16:57 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/88534361.shtml)
-- 2026-06-29 16:53 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/231322.shtml)
-- 2026-06-29 16:53 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/9193343869.shtml)
-- 2026-06-29 16:50 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/438061724.shtml)
+- 2026-06-29 16:54 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/8040316.shtml)
+- 2026-06-29 16:54 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/029860.shtml)
+- 2026-06-29 16:58 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/4978589.shtml)
+- 2026-06-29 17:10 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/712209.shtml)
+- 2026-06-29 17:08 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/817215.shtml)
+- 2026-06-29 17:10 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/7410319446.shtml)
+- 2026-06-29 16:44 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/389175179283.shtml)
+- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/74070413541.shtml)
+- 2026-06-29 16:44 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/49518000.shtml)
+- 2026-06-29 16:59 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/981091.shtml)
+- 2026-06-29 16:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/553971158.shtml)
+- 2026-06-29 16:56 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/49555448.shtml)
+- 2026-06-29 17:04 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/240725956.shtml)
+- 2026-06-29 16:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/1639895.shtml)
+- 2026-06-29 17:00 - [一生一世](https://www.blog.minike.top/Article/details/484271725824.shtml)

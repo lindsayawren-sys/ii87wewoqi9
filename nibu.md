@@ -1,54 +1,58 @@
-# 国家统计局：1—4月份国民经济保持稳中有进发展态势
+# 美国与伊朗就结束战争达成初步协议 定于周五签署
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。 具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。服务
+美国和伊朗官员表示，双方已就结束战争、解除美国对伊朗的封锁以及重开霍尔木兹海峡达成框架协议。这一初步协议导致油价下跌，但伊朗核计划的命运仍需通过进一步谈判来决定。 “与伊朗伊斯兰共和国的协议现已达成，”特朗普周日在旗下“Truth Social ”平台上写道。此前不久，作为调解方的巴基斯坦总理夏巴兹于当地时间周一凌晨宣布了该协议。 该谅解备忘录定于周五在瑞士正式签署。 具体条款
 
 ## 正文
 
-今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。
+美国和伊朗官员表示，双方已就结束战争、解除美国对伊朗的封锁以及重开霍尔木兹海峡达成框架协议。
 
-具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。
+这一初步协议导致油价下跌，但伊朗核计划的命运仍需通过进一步谈判来决定。
 
-服务业平稳增长，现代服务业发展向好，1—4月份，全国服务业生产指数同比增长4.9%。
+“与伊朗伊斯兰共和国的协议现已达成，”特朗普周日在旗下“Truth Social ”平台上写道。
 
-市场销售规模扩大，服务零售增长加快，1—4月份，社会消费品零售总额164941亿元，同比增长1.9%。
+此前不久，作为调解方的巴基斯坦总理夏巴兹于当地时间周一凌晨宣布了该协议。
 
-货物进出口较快增长，贸易结构继续优化，1—4月份，货物进出口总额162252亿元，同比增长14.9%。
+该谅解备忘录定于周五在瑞士正式签署。
 
-（总台央视记者 吴昊 宋菀）责任编辑：韦子蓉
+具体条款尚未立即公布。
+
+巴基斯坦总理夏巴兹在X平台的一篇帖子中表示，该协议要求“立即并永久终止所有战线的军事行动，包括在黎巴嫩”。
+
+黎巴嫩问题一直是谈判的难点，最近几周，以色列和真主党无视特朗普等各方呼吁，继续相互攻击。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 16:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 16:45 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 16:42 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 17:00 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 16:37 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 16:36 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 16:36 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 16:45 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 16:43 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 16:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 17:04 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 16:55 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:03 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:42 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 16:45 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 16:46 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 17:03 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 17:10 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 16:54 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 17:07 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 16:43 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:57 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/4258787799.shtml)
-- 2026-06-29 16:44 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/620234523245.shtml)
-- 2026-06-29 16:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/2850425.shtml)
-- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9004229.shtml)
-- 2026-06-29 16:36 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/254867447207.shtml)
-- 2026-06-29 16:51 - [当我回母校教书](https://www.share.minike.top/Article/details/730673931130.shtml)
-- 2026-06-29 16:39 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/67881.shtml)
-- 2026-06-29 16:49 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/497208809.shtml)
-- 2026-06-29 16:57 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/743293121.shtml)
-- 2026-06-29 16:46 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/294524100594.shtml)
-- 2026-06-29 17:01 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/551976.shtml)
-- 2026-06-29 17:03 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/78778775227.shtml)
-- 2026-06-29 16:55 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/3418104.shtml)
-- 2026-06-29 16:41 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/9052516869.shtml)
-- 2026-06-29 16:37 - [毒液2](https://www.blog.minike.top/Article/details/941564170873.shtml)
+- 2026-06-29 16:58 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/31686179138.shtml)
+- 2026-06-29 17:07 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/008281264.shtml)
+- 2026-06-29 16:52 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/67057.shtml)
+- 2026-06-29 17:11 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/945474361.shtml)
+- 2026-06-29 17:02 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/6873290.shtml)
+- 2026-06-29 16:42 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/989750743838.shtml)
+- 2026-06-29 16:57 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/213108304136.shtml)
+- 2026-06-29 16:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/968052.shtml)
+- 2026-06-29 17:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/836235168028.shtml)
+- 2026-06-29 17:10 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/890860637500.shtml)
+- 2026-06-29 17:03 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/313896353.shtml)
+- 2026-06-29 16:42 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/41672368.shtml)
+- 2026-06-29 17:06 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/876065540959.shtml)
+- 2026-06-29 16:58 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/838071527.shtml)
+- 2026-06-29 16:48 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/60478.shtml)

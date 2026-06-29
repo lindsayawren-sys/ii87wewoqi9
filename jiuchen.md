@@ -1,53 +1,56 @@
-# 伊朗风险推升油价与收益率
+# 特朗普过去24小时都忙了什么？（2026-06-14）
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-在外交努力陷入僵局的背景下，布伦特原油价格继续上涨，30年期美债收益率触及一年高位。英伟达及其他大型科技股上周五领跌美国股市，投资者从风险资产转向避险品种。市场担忧霍尔木兹海峡通行受阻将导致全球能源供应链出现严重瓶颈，进而引发滞胀风险。美联储新任主席沃什的政策立场尚不明朗，进一步加剧了市场的不确定性。分析人士认为，除非地缘政治局势出现明显缓和，否则高油价和高收益率的组合将持续压
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 宣称周日将签署协议，海峡即刻开放——特朗普13日发文称，美伊协议“计划明日（14日）签署，签署后霍尔木兹海峡将对所有人开放”。“希望这一进程能迅速、轻松、顺利地完成；如若不然，我们有最终替代方案。” 2． 转发巴基斯坦总理推文——特朗普13日在其“真实社交”媒体平台上转发巴基斯坦总理关
 
 ## 正文
 
-在外交努力陷入僵局的背景下，布伦特原油价格继续上涨，30年期美债收益率触及一年高位。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-英伟达及其他大型科技股上周五领跌美国股市，投资者从风险资产转向避险品种。
+来源：金十数据 1． 宣称周日将签署协议，海峡即刻开放——特朗普13日发文称，美伊协议“计划明日（14日）签署，签署后霍尔木兹海峡将对所有人开放”。
 
-市场担忧霍尔木兹海峡通行受阻将导致全球能源供应链出现严重瓶颈，进而引发滞胀风险。
+“希望这一进程能迅速、轻松、顺利地完成；如若不然，我们有最终替代方案。
 
-美联储新任主席沃什的政策立场尚不明朗，进一步加剧了市场的不确定性。
+” 2． 转发巴基斯坦总理推文——特朗普13日在其“真实社交”媒体平台上转发巴基斯坦总理关于24小时内签署美伊和平协议可能性的推文。
 
-分析人士认为，除非地缘政治局势出现明显缓和，否则高油价和高收益率的组合将持续压制股市表现。
+3． 与英国首相斯塔默通话——英国首相府13日称，英国首相斯塔默当天下午与美国总统特朗普通了电话，支持特朗普结束与伊朗冲突的努力。
 
-责任编辑：张俊 SF065
+4． 遭国际原子能机构前总干事批评——国际原子能机构前总干事表示，特朗普正在极力表明他的新协议优于“巴拉克·奥巴马”的伊核协议。
+
+而实际上，该协议似乎不过是让局势回到危机前的状态。
+
+5． 任命纽约南区联邦检察官——特朗普13日说，将提名其私人律师詹姆斯·麦克唐纳出任纽约南区联邦检察官。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 17:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 16:38 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 16:54 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:58 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 16:51 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 16:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 16:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 16:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 17:04 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 16:54 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 16:50 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 16:50 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 17:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 17:09 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 17:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 17:02 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 16:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 17:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 17:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [博主：AI泡沫必须破灭](https://www.blog.kurohicncr.top/Article/details/599337581.shtml)
-- 2026-06-29 16:42 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/169889969028.shtml)
-- 2026-06-29 16:52 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/7611144018.shtml)
-- 2026-06-29 16:40 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/203144.shtml)
-- 2026-06-29 16:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/60872441216.shtml)
-- 2026-06-29 16:42 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/041520514.shtml)
-- 2026-06-29 17:01 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/798548096.shtml)
-- 2026-06-29 16:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/747382611105.shtml)
-- 2026-06-29 16:44 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/6779525824.shtml)
-- 2026-06-29 16:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/2404020.shtml)
-- 2026-06-29 16:46 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/492900100.shtml)
-- 2026-06-29 16:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/4924630999.shtml)
-- 2026-06-29 16:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/166118525.shtml)
-- 2026-06-29 16:44 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/0380688.shtml)
-- 2026-06-29 16:57 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/45210132.shtml)
+- 2026-06-29 16:44 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/00911738.shtml)
+- 2026-06-29 17:07 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/742079.shtml)
+- 2026-06-29 16:48 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/1850121.shtml)
+- 2026-06-29 17:07 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/32813.shtml)
+- 2026-06-29 16:47 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/9121289077.shtml)
+- 2026-06-29 16:42 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/00817.shtml)
+- 2026-06-29 16:45 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/36640.shtml)
+- 2026-06-29 17:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/185856814.shtml)
+- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/249435662.shtml)
+- 2026-06-29 16:47 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/1284017559.shtml)
+- 2026-06-29 17:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/53585027646.shtml)
+- 2026-06-29 16:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/117784.shtml)
+- 2026-06-29 16:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/98982012.shtml)
+- 2026-06-29 17:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8017992525.shtml)
+- 2026-06-29 17:09 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/0339383.shtml)

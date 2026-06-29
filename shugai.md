@@ -1,59 +1,46 @@
-# 2026年中国网络文明大会在南宁举行 李书磊出席并发表主旨演讲
+# 美军一战斗机在华盛顿州坠毁
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。 与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。要深入学习领会、全面贯彻落实，以网络
+据美国方面13日消息，一架美军战斗机当天在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员弹射逃生。 据悉，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。(央视新闻客户端)
 
 ## 正文
 
-新华社南宁5月19日电 2026年中国网络文明大会19日在南宁举行。
+据美国方面13日消息，一架美军战斗机当天在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员弹射逃生。
 
-中共中央政治局委员、中宣部部长李书磊出席并发表主旨演讲。
+据悉，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。
 
-与会嘉宾认为，党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们成功走出一条中国特色治网之道，网络强国建设迈出新步伐。
-
-习近平总书记围绕网络文明建设发表一系列重要论述，为推动共建网上美好精神家园提供了根本遵循。
-
-要深入学习领会、全面贯彻落实，以网络文明建设新成效助力精神文明建设高质量发展。
-
-与会嘉宾表示，“十五五”规划纲要对加强网络文明建设作出全面部署，要不断丰富网络优质内容供给，壮大网上主流价值、主流舆论、主流文化。
-
-要健全网络生态治理长效机制，持续营造风清气正的网络空间。
-
-要一体推进网上网下文明建设，推动文明培育、文明实践、文明创建向网络延伸，形成网络文明共建共享的良好局面，让互联网更好造福于民。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:03 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 16:56 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:48 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 16:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 16:43 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 16:41 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 17:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 16:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 16:59 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 16:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 16:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 16:55 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 16:44 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 16:49 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:51 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 16:56 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 16:54 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 16:49 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 17:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 16:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/964440089.shtml)
-- 2026-06-29 17:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/17737211948.shtml)
-- 2026-06-29 16:59 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/26367604808.shtml)
-- 2026-06-29 16:53 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/8114427.shtml)
-- 2026-06-29 16:56 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/192665742872.shtml)
-- 2026-06-29 16:43 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/266606055.shtml)
-- 2026-06-29 16:43 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/4896509.shtml)
-- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/8838139951.shtml)
-- 2026-06-29 16:55 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/9560890535.shtml)
-- 2026-06-29 17:03 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/7507050.shtml)
-- 2026-06-29 16:54 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/08995.shtml)
-- 2026-06-29 16:58 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/952016171.shtml)
-- 2026-06-29 16:51 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/741575386.shtml)
-- 2026-06-29 16:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/49198305678.shtml)
-- 2026-06-29 16:51 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/479088.shtml)
+- 2026-06-29 17:02 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/74063964.shtml)
+- 2026-06-29 16:58 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/88660410098.shtml)
+- 2026-06-29 16:45 - [斗破苍穹](https://www.share.minike.top/Article/details/288293145.shtml)
+- 2026-06-29 16:54 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/7703101.shtml)
+- 2026-06-29 17:07 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/264796952263.shtml)
+- 2026-06-29 17:10 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/63139492.shtml)
+- 2026-06-29 16:49 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/831114119105.shtml)
+- 2026-06-29 16:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/063533189.shtml)
+- 2026-06-29 16:46 - [叠纸](https://www.blog.minike.top/Article/details/326162372647.shtml)
+- 2026-06-29 17:08 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/77609741.shtml)
+- 2026-06-29 17:01 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/84231.shtml)
+- 2026-06-29 17:06 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/040708037.shtml)
+- 2026-06-29 16:53 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/200200883.shtml)
+- 2026-06-29 16:45 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/2269535396.shtml)
+- 2026-06-29 17:11 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/308849039.shtml)

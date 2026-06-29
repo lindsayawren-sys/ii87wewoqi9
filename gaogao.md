@@ -1,56 +1,54 @@
-# 中国中东部大范围强降水持续 多地启动防汛应急响应
+# 龙源电力完成发行25亿元超短期融资券
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 陈溯)中国中东部近日出现大范围强降水天气过程。国家防汛抗旱总指挥部(简称“国家防总”)18日针对湖南、广西启动防汛四级应急响应，并加派工作组赴一线指导。 17日，中国中东部地区出现大范围降雨，华北中南部及河南、湖北、重庆、广西等地出现大到暴雨，局地大暴雨。 气象部门预计，18日至20日，中东部大范围降雨过程持续，西南地区东部、江汉、江淮、江南、华
+龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。利息自2026年6月11日起开始计算。 本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人
 
 ## 正文
 
-中新社北京5月18日电 (记者 陈溯)中国中东部近日出现大范围强降水天气过程。
+龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。
 
-国家防汛抗旱总指挥部(简称“国家防总”)18日针对湖南、广西启动防汛四级应急响应，并加派工作组赴一线指导。
+本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。
 
-17日，中国中东部地区出现大范围降雨，华北中南部及河南、湖北、重庆、广西等地出现大到暴雨，局地大暴雨。
+利息自2026年6月11日起开始计算。
 
-气象部门预计，18日至20日，中东部大范围降雨过程持续，西南地区东部、江汉、江淮、江南、华南、黄淮东南部等地部分地区有大雨或暴雨，局地大暴雨，局地伴有雷暴大风、短时强降水等强对流天气。
+本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。
 
-中央气象台18日继续发布暴雨黄色预警。
+本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人及其子公司有息债务。
 
-国家防总18日针对湖南、广西启动防汛四级应急响应，继续维持针对湖北、重庆、贵州的防汛四级应急响应。
-
-国家防总办公室、国家防灾减灾救灾委员会办公室18日加派2个工作组分赴湖北、湖南协助指导防汛救灾工作，前期派出的工作组继续在广西一线协助指导河池环江县车辆坠河人员搜救工作。
-
-气象部门预计，未来10天，中东部地区降雨过程频繁，累计雨量较常年同期显著偏多。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 17:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 16:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 16:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 17:00 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 16:36 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 16:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 17:02 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 16:50 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 16:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 16:57 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 17:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 16:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 16:53 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 16:47 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 17:05 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 17:10 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 16:45 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 17:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 16:57 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 16:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 17:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/215520.shtml)
-- 2026-06-29 16:43 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/9665882028.shtml)
-- 2026-06-29 16:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/10711.shtml)
-- 2026-06-29 17:04 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/879768229966.shtml)
-- 2026-06-29 16:56 - [周生如故](https://www.share.kurohicncr.top/Article/details/005926.shtml)
-- 2026-06-29 16:58 - [沙丘](https://www.blog.kurohicncr.top/Article/details/7174249900.shtml)
-- 2026-06-29 16:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/312942135254.shtml)
-- 2026-06-29 16:54 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/268650220214.shtml)
-- 2026-06-29 16:51 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/7261734.shtml)
-- 2026-06-29 17:03 - [叠纸](http://www.blog.minike.top/Article/details/827798983989.shtml)
-- 2026-06-29 16:51 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/02970511650.shtml)
-- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/1446534.shtml)
-- 2026-06-29 16:40 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/830137850.shtml)
-- 2026-06-29 16:56 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/760862.shtml)
-- 2026-06-29 16:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/527885199.shtml)
+- 2026-06-29 17:07 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/81426675227.shtml)
+- 2026-06-29 16:51 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/6341435656.shtml)
+- 2026-06-29 17:05 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/686544633547.shtml)
+- 2026-06-29 17:08 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/54391782527.shtml)
+- 2026-06-29 17:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/967022.shtml)
+- 2026-06-29 17:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/2397947.shtml)
+- 2026-06-29 16:57 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/689768425.shtml)
+- 2026-06-29 16:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/96048801.shtml)
+- 2026-06-29 16:51 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/2966475810.shtml)
+- 2026-06-29 16:53 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/690915644588.shtml)
+- 2026-06-29 16:52 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5713431547.shtml)
+- 2026-06-29 17:06 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/148424.shtml)
+- 2026-06-29 17:07 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/25807.shtml)
+- 2026-06-29 17:11 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/7805906.shtml)
+- 2026-06-29 16:57 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/487725414.shtml)

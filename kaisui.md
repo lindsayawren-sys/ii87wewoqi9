@@ -1,47 +1,52 @@
-# 国铁广州局部分列车停运
+# 上海医药获控股股东增持3860万股H股
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 13:44 来源：央视新闻 责任编辑：【王祎】
+上海医药（02607）公布，2026 年 6 月 10 日，公司收到控股股东上海实业（集团）有限公司（以下简称“上实集团”）出具的告知函：2026 年 5 月 6 日至 2026 年 6 月 10 日期间，上海实业（集团）有限公司通过全资子公司上实国际累计增持公司3860万股H股。 本次权益变动后，上海上实（集团）有限公司持有公司股票 1，484，975，837 股，占公司总股
 
 ## 正文
 
-发布时间：2026年05月18日 13:44 来源：央视新闻 责任编辑：【王祎】
+上海医药（02607）公布，2026 年 6 月 10 日，公司收到控股股东上海实业（集团）有限公司（以下简称“上实集团”）出具的告知函：2026 年 5 月 6 日至 2026 年 6 月 10 日期间，上海实业（集团）有限公司通过全资子公司上实国际累计增持公司3860万股H股。
+
+本次权益变动后，上海上实（集团）有限公司持有公司股票 1，484，975，837 股，占公司总股本 3，708，361，809 股的 40.04%。
+
+权益变动方式为二级市场集中竞价交易方式，增持股份的资金来源为自有资金。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 16:36 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 16:41 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 16:59 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 17:04 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 16:58 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:48 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 17:01 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 16:51 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 16:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 16:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 16:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 16:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 16:59 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 16:44 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 16:46 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 16:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 17:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 16:56 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 16:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 16:53 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 16:58 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 17:02 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 17:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 17:04 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 16:44 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 17:04 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 17:04 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/8310527.shtml)
-- 2026-06-29 17:03 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/13684.shtml)
-- 2026-06-29 17:02 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/442894757844.shtml)
-- 2026-06-29 16:42 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/25795.shtml)
-- 2026-06-29 16:38 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/897498733.shtml)
-- 2026-06-29 16:50 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/65011418.shtml)
-- 2026-06-29 16:40 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/86303.shtml)
-- 2026-06-29 16:58 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/549840292038.shtml)
-- 2026-06-29 16:56 - [绘画区你赢了](http://www.share.minike.top/Article/details/360161084.shtml)
-- 2026-06-29 16:39 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/665689.shtml)
-- 2026-06-29 16:41 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/490804858.shtml)
-- 2026-06-29 16:57 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/9045001.shtml)
-- 2026-06-29 16:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/59571684.shtml)
-- 2026-06-29 16:45 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/945623872706.shtml)
-- 2026-06-29 16:46 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/377260905044.shtml)
+- 2026-06-29 16:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/321835751.shtml)
+- 2026-06-29 16:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/43997773202.shtml)
+- 2026-06-29 16:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6709954.shtml)
+- 2026-06-29 17:10 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/23965.shtml)
+- 2026-06-29 17:09 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/25284.shtml)
+- 2026-06-29 16:44 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/8567317192.shtml)
+- 2026-06-29 16:45 - [我和我的家乡](http://www.blog.minike.top/Article/details/834748.shtml)
+- 2026-06-29 16:48 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/31628811296.shtml)
+- 2026-06-29 17:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/47820337.shtml)
+- 2026-06-29 17:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/743043.shtml)
+- 2026-06-29 17:05 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/053131424822.shtml)
+- 2026-06-29 17:03 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/6631222309.shtml)
+- 2026-06-29 17:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/5141586.shtml)
+- 2026-06-29 17:00 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/114237162544.shtml)
+- 2026-06-29 17:03 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/03466.shtml)

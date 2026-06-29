@@ -1,59 +1,61 @@
-# 陪审团两小时速裁：马斯克诉奥特曼案因超过诉讼时效被驳回
+# 易事特（300376）、首航高科（002665）股民索赔案均再提交法院立案
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-诉讼时效成关键，马斯克诉求遭驳回 加利福尼亚州奥克兰市——备受瞩目的马斯克诉OpenAI案于周一尘埃落定。由九人组成的陪审团在经过不到两小时的审议后，一致裁定埃隆·马斯克的诉讼请求已超出三年诉讼时效，不得继续推进。主审法官伊冯·冈萨雷斯·罗杰斯接受了陪审团的建议，当庭驳回了全部指控。 马斯克于2024年提起诉讼，指控OpenAI首席执行官萨姆·奥特曼及其联合创始人格雷格·布罗克
+2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案前期已有胜诉判决及获赔到位案例并且还在诉讼时效内，投资者还可发起索赔。（许峰律师专栏） 近期的2026年6月1日，许峰律师代理的部分易事特投资者索赔案再次获赔到位，已经收到赔偿款。律师团队同步还在推进后续案件的立案工作，还在继续接受其他
 
 ## 正文
 
-诉讼时效成关键，马斯克诉求遭驳回 加利福尼亚州奥克兰市——备受瞩目的马斯克诉OpenAI案于周一尘埃落定。
+2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案前期已有胜诉判决及获赔到位案例并且还在诉讼时效内，投资者还可发起索赔。
 
-由九人组成的陪审团在经过不到两小时的审议后，一致裁定埃隆·马斯克的诉讼请求已超出三年诉讼时效，不得继续推进。
+（许峰律师专栏） 近期的2026年6月1日，许峰律师代理的部分易事特投资者索赔案再次获赔到位，已经收到赔偿款。
 
-主审法官伊冯·冈萨雷斯·罗杰斯接受了陪审团的建议，当庭驳回了全部指控。
+律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-马斯克于2024年提起诉讼，指控OpenAI首席执行官萨姆·奥特曼及其联合创始人格雷格·布罗克曼违背了公司创立时“为人类福祉开发AI”的非营利初衷，转而追求商业利润，相当于“偷走了一个慈善机构”。
+2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
 
-在为期三周的庭审中，马斯克称其早期捐赠的3800万美元就是基于这一承诺。
+二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
 
-然而，OpenAI的律师辩称，马斯克的捐款并未附带任何限制性条件，且其提起诉讼的根本原因是未能获得公司的控制权。
+三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
 
-OpenAI上市障碍清除，微软同获免责 这项裁决对OpenAI意义重大，为其扫清了进行首次公开募股的潜在法律障碍，并保留了其高达850亿美元的估值结构。
+综上，易事特通过上述不具有商业实质的虚假贸易业务、融资性代采业务、代理业务和数据中心集成业务虚增营业收入、营业成本、利润总额，导致易事特披露的2017年至2021年年度报告存在虚假记载。
 
-市场分析师普遍认为，这标志着OpenAI在商业转型道路上取得关键的法律胜利。
+许峰律师认为，根据前期投资者胜诉判决及获赔案例，在2018年3月15日到2023年5月12日之间买入易事特股票，并且在2023年5月12日后卖出或持有股票的投资者，目前还可发起索赔，还在诉讼时效内。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 16:49 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 16:57 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 16:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 16:47 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 17:01 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 16:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 16:56 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 17:00 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 16:36 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 16:44 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 17:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 17:01 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 17:03 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 16:52 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 16:51 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 17:02 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 17:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 17:07 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 17:10 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:49 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 17:10 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 16:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 17:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:57 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 17:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 16:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/592663283.shtml)
-- 2026-06-29 16:46 - [毒液2](http://www.share.minike.top/Article/details/0425222562.shtml)
-- 2026-06-29 16:50 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/74990165559.shtml)
-- 2026-06-29 16:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/27911558265.shtml)
-- 2026-06-29 16:40 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/8539402.shtml)
-- 2026-06-29 16:59 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/0572038138.shtml)
-- 2026-06-29 16:44 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/705620409414.shtml)
-- 2026-06-29 16:42 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/6579570.shtml)
-- 2026-06-29 16:43 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/263144.shtml)
-- 2026-06-29 17:00 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/1893015.shtml)
-- 2026-06-29 17:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/1807713.shtml)
-- 2026-06-29 16:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/22997707.shtml)
-- 2026-06-29 16:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/2764366700.shtml)
-- 2026-06-29 16:58 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/327162508.shtml)
-- 2026-06-29 16:59 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/436158493.shtml)
+- 2026-06-29 16:52 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/4327262711.shtml)
+- 2026-06-29 16:57 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/69879706.shtml)
+- 2026-06-29 16:54 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/17452267.shtml)
+- 2026-06-29 17:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/3085280210.shtml)
+- 2026-06-29 16:43 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/61514.shtml)
+- 2026-06-29 16:58 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/69012.shtml)
+- 2026-06-29 17:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/012852614146.shtml)
+- 2026-06-29 16:42 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/42622302788.shtml)
+- 2026-06-29 17:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/53018236.shtml)
+- 2026-06-29 16:56 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/30663.shtml)
+- 2026-06-29 17:10 - [机器人学校开学了](http://www.blog.minike.top/Article/details/57009.shtml)
+- 2026-06-29 17:03 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/0652768288.shtml)
+- 2026-06-29 16:51 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/6630727075.shtml)
+- 2026-06-29 16:57 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/07939.shtml)
+- 2026-06-29 16:50 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/933894489337.shtml)

@@ -1,57 +1,51 @@
-# 日本首相高市早苗呼吁编制补充预算 以应对中东局势带来的冲击
+# 全国20条中小河流发生超警以上洪水
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。 高市早苗周一在执政联盟会议上表示：“我上周已要求财务大臣片山皋月研究筹资方式，包括编制补充预算。” 过去数周，高市早苗和片山皋月一直否认需要追加财政支出或发行新债。但随着油价持续上涨以及用于支持减负措施的财政储备资金枯竭，市场
+记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。目前，大部河流已退至警戒水位以下。 (总台央视记者 梁丽娟 李洁)
 
 ## 正文
 
-日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。
+记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。
 
-高市早苗周一在执政联盟会议上表示：“我上周已要求财务大臣片山皋月研究筹资方式，包括编制补充预算。
+目前，大部河流已退至警戒水位以下。
 
-” 过去数周，高市早苗和片山皋月一直否认需要追加财政支出或发行新债。
-
-但随着油价持续上涨以及用于支持减负措施的财政储备资金枯竭，市场普遍认为推出补充预算几乎已成定局。
-
-据媒体此前报道，该补充预算将侧重于财政紧急纾困，而非全面经济刺激方案。
-
-路透援引不具名政府官员报道称，为筹措部分补充预算资金，日本政府可能将发行新债。
-
-正在巴黎出席七国集团（G7）会议的片山皋月表示，目前讨论补充预算细节仍为时尚早。
-
-在新财年刚刚开始一个多月后即提出追加预算，这可能加剧投资者对其财政支出计划的担忧。
+(总台央视记者 梁丽娟 李洁)
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 16:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 16:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 16:43 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:04 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 17:03 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 16:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 16:39 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 16:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 16:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 17:08 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 17:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 17:07 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 17:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 16:58 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 17:02 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 17:10 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 16:55 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 17:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 17:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 16:55 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 17:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 16:45 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 17:02 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/83903.shtml)
-- 2026-06-29 16:46 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/166636283679.shtml)
-- 2026-06-29 16:52 - [女心理师](https://www.blog.minike.top/Article/details/091648.shtml)
-- 2026-06-29 16:51 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/280189.shtml)
-- 2026-06-29 17:00 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/926895746846.shtml)
-- 2026-06-29 16:38 - [乔家的儿女](https://www.share.minike.top/Article/details/227650138280.shtml)
-- 2026-06-29 16:42 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/9337078093.shtml)
-- 2026-06-29 17:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/676589870.shtml)
-- 2026-06-29 16:43 - [东方风云榜](https://www.share.minike.top/Article/details/6341776.shtml)
-- 2026-06-29 16:38 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/78793845910.shtml)
-- 2026-06-29 16:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/8863254120.shtml)
-- 2026-06-29 17:02 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/386880196.shtml)
-- 2026-06-29 16:47 - [金刚川](http://www.share.minike.top/Article/details/74414.shtml)
-- 2026-06-29 16:51 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/323163213685.shtml)
-- 2026-06-29 17:03 - [我和我的家乡](https://www.blog.minike.top/Article/details/14170438.shtml)
+- 2026-06-29 16:48 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/303860542.shtml)
+- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/190561.shtml)
+- 2026-06-29 16:42 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/312465.shtml)
+- 2026-06-29 16:43 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/2530234.shtml)
+- 2026-06-29 17:09 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/209974010.shtml)
+- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/97511.shtml)
+- 2026-06-29 16:46 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/426015.shtml)
+- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/10976.shtml)
+- 2026-06-29 16:56 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/06387820.shtml)
+- 2026-06-29 16:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/335932.shtml)
+- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/391638960366.shtml)
+- 2026-06-29 16:48 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/1826528.shtml)
+- 2026-06-29 16:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/654343788.shtml)
+- 2026-06-29 16:53 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/9245156241.shtml)
+- 2026-06-29 17:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/5015979164.shtml)

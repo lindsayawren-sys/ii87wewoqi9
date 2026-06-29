@@ -1,61 +1,61 @@
-# 特朗普警告伊朗“时钟正滴答作响”
+# 桂林海关2026年仪器设备及能力保障专项非集中采购设备公开招标公告
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月17日电美国总统特朗普17日再次向伊朗发出警告称，“时钟正滴答作响”，如果伊朗不拿出一份更好的协议方案，“他们将遭受比之前猛烈得多的打击”。 特朗普当天在接受美国阿克西奥斯新闻网站电话采访时说，他认为伊朗仍想要达成协议，他正等待伊朗拿出新的方案，希望伊朗新方案比几天前提交的上一份方案要好，但他拒绝透露与伊朗谈判的具体截止日期。 “我们想达成协议，但他们（伊朗方案
+北京国金管理咨询有限公司受招标人委托，根据相关法律法规规定，就(桂林海关2026年仪器设备及能力保障专项非集中采购设备)项目进行公开招标，欢迎符合条件的投标人前来投标，现将本次公开招标的有关事项公告如下： 一、项目名称：桂林海关2026年仪器设备及能力保障专项非集中采购设备 项目编号：BJGJGXGLCG202600011 二、招标方式：公开招标 三、资金性质：自筹资金 四、项
 
 ## 正文
 
-新华社华盛顿5月17日电美国总统特朗普17日再次向伊朗发出警告称，“时钟正滴答作响”，如果伊朗不拿出一份更好的协议方案，“他们将遭受比之前猛烈得多的打击”。
+北京国金管理咨询有限公司受招标人委托，根据相关法律法规规定，就(桂林海关2026年仪器设备及能力保障专项非集中采购设备)项目进行公开招标，欢迎符合条件的投标人前来投标，现将本次公开招标的有关事项公告如下： 一、项目名称：桂林海关2026年仪器设备及能力保障专项非集中采购设备 项目编号：BJGJGXGLCG202600011 二、招标方式：公开招标 三、资金性质：自筹资金 四、项目的货物需求介绍介绍： 五、投标人资格要求： 1.本次招标要求投标人须国内注册(指按国家有关规定要求注册的)，具备合法资格经营范围达到本次采购服务要求的投标人。
 
-特朗普当天在接受美国阿克西奥斯新闻网站电话采访时说，他认为伊朗仍想要达成协议，他正等待伊朗拿出新的方案，希望伊朗新方案比几天前提交的上一份方案要好，但他拒绝透露与伊朗谈判的具体截止日期。
+2.投标人应具有独立承担民事责任的能力、具有良好的商业信誉和健全的财务会计制度、具有履行 合同所必需的设备和专业技术能力、有依法缴纳税收和社会保障资金的良好记录。
 
-“我们想达成协议，但他们（伊朗方案）尚未达到我方预期。
+3.对在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及其他不符合《中华人民共和国政府采购法》第二十二条规定条件的供应商，不得参与本项目采购活动。
 
-伊朗必须作出让步，否则将遭受猛烈打击，而这并非伊朗所愿。
+4.单位负责人为同一人或者存在直接控股、管理关系的不同单位，不得参加本项目的采购活动。
 
-”特朗普说，若伊朗拿不出更好方案，美国对伊朗的打击力度将远超以往，“时钟正滴答作响。
+生产型企业生产场地为同一地址的，销售型企业之间股东有关联的，一律视为有直接控股、管理关系。
 
-伊朗最好迅速行动，否则将一无所有”。
+5.本项目不接受未购买本招标文件的投标人投标。
 
-特朗普当天在社交媒体上作出类似表态。
+6.本项目不接受联合体投标。
 
-报道援引一名知情人士的话说，特朗普16日在美国弗吉尼亚州一家高尔夫俱乐部会见其国家安全团队成员，讨论了伊朗问题。
+六、招标文件获取： 1.发售时间：2026年6月15日公告发布之时至2026年6月22日17:30止。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 16:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 16:37 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 16:51 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 16:53 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 17:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 16:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 16:56 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 16:50 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:47 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 16:55 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 17:01 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 16:36 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 16:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 16:53 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 16:48 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 17:05 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 16:54 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 17:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 17:03 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:49 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 16:42 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 16:52 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:01 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 16:56 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 16:44 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 16:52 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 16:59 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:56 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/50463592149.shtml)
-- 2026-06-29 16:39 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/220386754.shtml)
-- 2026-06-29 16:54 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/01593352.shtml)
-- 2026-06-29 16:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/45206.shtml)
-- 2026-06-29 16:48 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/06123471015.shtml)
-- 2026-06-29 16:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/69141.shtml)
-- 2026-06-29 17:00 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/4038356090.shtml)
-- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/11888637105.shtml)
-- 2026-06-29 16:57 - [一生一世](http://www.share.minike.top/Article/details/110963942042.shtml)
-- 2026-06-29 16:55 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/223466.shtml)
-- 2026-06-29 16:55 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/62157205255.shtml)
-- 2026-06-29 16:55 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/1731581.shtml)
-- 2026-06-29 16:49 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/3866510230.shtml)
-- 2026-06-29 16:58 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/26691109406.shtml)
-- 2026-06-29 16:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/359873.shtml)
+- 2026-06-29 16:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/96952.shtml)
+- 2026-06-29 16:58 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/307106852014.shtml)
+- 2026-06-29 16:55 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/68798600942.shtml)
+- 2026-06-29 17:06 - [天道](https://www.blog.minike.top/Article/details/5887782.shtml)
+- 2026-06-29 16:57 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/830180741509.shtml)
+- 2026-06-29 16:57 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/60265164.shtml)
+- 2026-06-29 17:06 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/6370124616.shtml)
+- 2026-06-29 16:46 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/21435683.shtml)
+- 2026-06-29 17:11 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/993515990.shtml)
+- 2026-06-29 17:01 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/18629283904.shtml)
+- 2026-06-29 17:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/9112538.shtml)
+- 2026-06-29 17:09 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/943721327939.shtml)
+- 2026-06-29 17:06 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/2825332.shtml)
+- 2026-06-29 17:02 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/493016976186.shtml)
+- 2026-06-29 16:53 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/523952631322.shtml)

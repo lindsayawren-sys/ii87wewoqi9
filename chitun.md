@@ -1,60 +1,61 @@
-# 布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！
+# 王毅谈中蒙关系：坚定做相互信任、相互支持的好邻居、好伙伴
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-文章来源：财联社 据最新研究显示，自唐纳德·特朗普对伊朗发动战争以来，美国人在燃料上的支出已增加了超过400亿美元，这笔钱足以用于修复该国的桥梁网络或对空中交通管制系统进行大规模改造。 布朗大学的沃森国际与公共事务学院的一份研究报告显示，截至周日（5月17日）晚上，由于汽油和柴油价格的上涨，这场地缘冲突给美国消费者造成的损失达415亿美元——即每个美国家庭损失316美元。 布朗
+新华社乌兰巴托6月14日电(记者宝乐日其其格)6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格共同会见记者。 王毅表示，中蒙是山水相连的近邻，有着值得珍惜的传统友谊。中方始终重视对蒙关系，将蒙古国放在周边外交重要位置，坚持与邻为善、以邻为伴，本着亲诚惠容的周边外交理念发展两国关系。我们赞赏蒙方将发展对华关系作为外交政策首要方针。远亲不如近邻。蒙奉行的
 
 ## 正文
 
-文章来源：财联社 据最新研究显示，自唐纳德·特朗普对伊朗发动战争以来，美国人在燃料上的支出已增加了超过400亿美元，这笔钱足以用于修复该国的桥梁网络或对空中交通管制系统进行大规模改造。
+新华社乌兰巴托6月14日电(记者宝乐日其其格)6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格共同会见记者。
 
-布朗大学的沃森国际与公共事务学院的一份研究报告显示，截至周日（5月17日）晚上，由于汽油和柴油价格的上涨，这场地缘冲突给美国消费者造成的损失达415亿美元——即每个美国家庭损失316美元。
+王毅表示，中蒙是山水相连的近邻，有着值得珍惜的传统友谊。
 
-布朗大学的政治学教授Jeff Colgan表示，“从国家层面而言，我们正将如此巨额的资金用于额外的燃料费用上，而这些资金本可以用于诸多更有建设性的方式来改善美国的交通基础设施——坦率地说，这些基础设施确实需要得到更多的关注了。
+中方始终重视对蒙关系，将蒙古国放在周边外交重要位置，坚持与邻为善、以邻为伴，本着亲诚惠容的周边外交理念发展两国关系。
 
-” 这笔钱本可以做很多… 伊朗战争波及了这个全球最大的经济体，导致美国的通货膨胀率升至自俄乌冲突以来的最高水平，并给特朗普总统带来了日益严重的政治问题。
+我们赞赏蒙方将发展对华关系作为外交政策首要方针。
 
-不断上涨的燃油成本不仅给驾车者带来了经济负担，还已经传导到了其他行业，例如推高了从食品到机票等各类商品的价格。
+远亲不如近邻。
 
-值得一提的是，夏季驾车出行季将于下周拉开帷幕，届时汽油需求还将达到年度峰值。
+蒙奉行的对华友好政策完全符合蒙古国国家和人民的根本和长远利益。
 
-研究指出的这笔额外的415亿美元燃料支出超过了400亿美元的联邦桥梁重建项目（该项目旨在修复主要桥梁）、超过了完全美国空中交通管制系统重置项目的315亿美元费用、甚至超过了前总统拜登提议的（但现已撤销）189亿美元联邦电动汽车充电与电气化项目所需的资金。
+我同外长的会谈达成广泛共识。
 
-Colgan指出，“如果我们没有把钱花在与一场美国大多数人并不希望爆发的战争相关的高昂燃料费用上，我们本可以建设出未来的交通基础设施的。
+双方表示，面对国际形势动荡不安、全球性挑战日益突出，中蒙两国更应风雨同舟、勠力同心，坚定做相互信任、相互支持的好邻居、好伙伴，携手朝着构建和平共处、守望相助、合作共赢的中蒙命运共同体方向继续作出努力。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 16:55 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 17:01 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 16:51 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 16:58 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 16:59 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 16:37 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 16:59 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 16:46 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 16:45 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 16:51 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 16:57 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 16:41 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 16:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 17:01 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 16:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 17:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 16:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 17:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 16:57 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 17:10 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 16:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 17:03 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 17:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 16:51 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:10 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 17:04 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 16:42 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/958163645788.shtml)
-- 2026-06-29 16:55 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/1339619.shtml)
-- 2026-06-29 16:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/76861.shtml)
-- 2026-06-29 16:37 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/173608138.shtml)
-- 2026-06-29 16:44 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/368904817846.shtml)
-- 2026-06-29 17:04 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/847909.shtml)
-- 2026-06-29 16:43 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/83255.shtml)
-- 2026-06-29 16:53 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/76256040.shtml)
-- 2026-06-29 16:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/2602942119.shtml)
-- 2026-06-29 16:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/2485721.shtml)
-- 2026-06-29 16:43 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/17396.shtml)
-- 2026-06-29 16:36 - [东方风云榜](https://www.blog.minike.top/Article/details/62575829.shtml)
-- 2026-06-29 16:38 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/53756615.shtml)
-- 2026-06-29 16:51 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/0039660877.shtml)
-- 2026-06-29 17:02 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/363488.shtml)
+- 2026-06-29 17:05 - [普京介绍前线战事](https://www.share.minike.top/Article/details/790621107227.shtml)
+- 2026-06-29 16:56 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/437794339279.shtml)
+- 2026-06-29 16:52 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/5832316.shtml)
+- 2026-06-29 16:59 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/217497980.shtml)
+- 2026-06-29 17:06 - [明星大侦探第四季](https://www.share.minike.top/Article/details/76674576317.shtml)
+- 2026-06-29 16:58 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/58355720925.shtml)
+- 2026-06-29 17:00 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/6784643.shtml)
+- 2026-06-29 17:08 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/4276596837.shtml)
+- 2026-06-29 17:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/148581.shtml)
+- 2026-06-29 16:47 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/004114714.shtml)
+- 2026-06-29 16:53 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/048778.shtml)
+- 2026-06-29 16:47 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/968287.shtml)
+- 2026-06-29 17:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/104496454.shtml)
+- 2026-06-29 16:45 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/67378780063.shtml)
+- 2026-06-29 16:49 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/432398862.shtml)

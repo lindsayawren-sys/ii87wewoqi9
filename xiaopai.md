@@ -1,56 +1,59 @@
-# 白皮书：2025年中国卫星导航产业总体产值超6000亿元
+# 全球最大、刷新纪录！本周我国多领域实现硬核突破
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%
+本周 我国在光伏、造船、深海科考等领域 捷报频传 “全球最大”“刷新纪录”一项项突破 彰显中国实力与中国智慧 光伏板长出“大长腿” 我国规模最大光氢储一体化项目建成 近日，国华投资江苏如东光氢储一体化项目全面建成，这是全国规模最大的光氢储一体化海上光伏示范项目。 项目坐落在江苏如东沿海滩涂区域，光伏板都长着“大长腿”，高度达到7.9米，可以抵御百年一遇的天文大潮。此外，光伏板的
 
 ## 正文
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。
+本周 我国在光伏、造船、深海科考等领域 捷报频传 “全球最大”“刷新纪录”一项项突破 彰显中国实力与中国智慧 光伏板长出“大长腿” 我国规模最大光氢储一体化项目建成 近日，国华投资江苏如东光氢储一体化项目全面建成，这是全国规模最大的光氢储一体化海上光伏示范项目。
 
-白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。
+项目坐落在江苏如东沿海滩涂区域，光伏板都长着“大长腿”，高度达到7.9米，可以抵御百年一遇的天文大潮。
 
-其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
+此外，光伏板的正反面都能够吸收光能，发电效率更高，光伏总容量40万千瓦。
 
-白皮书称，2025年，北斗时空产业最鲜明的特征，就是实现了从“卫星导航”到“时空服务”的跨越，呈现出“技术融合化、应用场景化、生态多元化”的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
+作为国内首个融合发电、制氢、储能，兼顾综合能源利用与滨海生态治理的项目，它实现了“电—储—氢”的复合高效利用。
 
-白皮书表示，2025年，北斗时空产业的应用市场呈现“专业深化、大众普及”的双轮驱动格局。
+关键性能全面迭代升级 全球最大LNG运输船开工建造 6月9日，世界最大的27.1万立方米超大型LNG运输船正式开工建造，关键性能实现全面迭代升级，计划于2028年交付。
 
-在大众消费领域，截至2025年底，中国已有近14亿部智能手机支持北斗定位功能，约占总量的98%；支持北斗定位功能的可穿戴设备保有量超过1.6亿；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
+这艘LNG运输船总长344米，配套国产最新薄膜围护系统，载货容积、节能环保、航行安全等关键性能实现全方位迭代升级，综合性能位居行业顶尖。
 
-白皮书说，在海外应用市场方面，北斗系统服务及相关产品已输出到140余个国家和地区。
+目前，我国在全球LNG船市场占有率突破30%，沪东中华造船手握近60艘LNG船待建订单，按舱容统计位列全球首位，生产排期已排至2030年之后。
 
-(完)
+世界最大跨径钢拱桥 主体钢结构施工收官 6月12日，重庆武隆至两江新区高速公路控制性工程——凤来大溪河特大桥钢混组合梁顺利合龙。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 16:55 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 16:41 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 16:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 17:05 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 16:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 17:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 16:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 16:43 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 16:47 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 17:08 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 17:07 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:05 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 16:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 16:54 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 16:48 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 16:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 17:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 17:03 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:04 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 16:49 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/2832925647.shtml)
-- 2026-06-29 17:03 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/315783920919.shtml)
-- 2026-06-29 16:38 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/6222813.shtml)
-- 2026-06-29 16:59 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/400546.shtml)
-- 2026-06-29 16:42 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/529496.shtml)
-- 2026-06-29 16:52 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/757411886484.shtml)
-- 2026-06-29 17:04 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/997618468430.shtml)
-- 2026-06-29 16:51 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/513803262.shtml)
-- 2026-06-29 17:02 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/204815556895.shtml)
-- 2026-06-29 17:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/264999.shtml)
-- 2026-06-29 16:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/57295.shtml)
-- 2026-06-29 16:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/968649823.shtml)
-- 2026-06-29 16:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/80915.shtml)
-- 2026-06-29 16:56 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/79995389.shtml)
-- 2026-06-29 16:38 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/73054032.shtml)
+- 2026-06-29 17:06 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/70166585011.shtml)
+- 2026-06-29 16:51 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/94178178.shtml)
+- 2026-06-29 16:48 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/475464958.shtml)
+- 2026-06-29 16:52 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/8462240.shtml)
+- 2026-06-29 16:43 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/673396.shtml)
+- 2026-06-29 16:53 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/3697030.shtml)
+- 2026-06-29 16:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/18642749805.shtml)
+- 2026-06-29 16:52 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/618136656.shtml)
+- 2026-06-29 17:07 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/1891179590.shtml)
+- 2026-06-29 16:54 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/90989.shtml)
+- 2026-06-29 16:43 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/37349711032.shtml)
+- 2026-06-29 17:02 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/67469379.shtml)
+- 2026-06-29 16:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/6548028.shtml)
+- 2026-06-29 16:58 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/456953205.shtml)
+- 2026-06-29 16:51 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/510124.shtml)

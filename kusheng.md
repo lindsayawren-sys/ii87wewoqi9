@@ -1,61 +1,59 @@
-# A股五大上市险企均宣布不再设立监事会
+# 绿电点亮南博会 更连通澜湄万家灯火
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-日前，中国平安保险(集团)股份有限公司发布关于公司章程获国家金融监督管理总局核准及不再设立监事会的公告，自2026年5月13日起，该公司不再设立监事会，由董事会审计与风险管理委员会行使公司法规定的监事会职权。 此前，中国人民保险集团股份有限公司、中国人寿保险股份有限公司、中国太平洋保险(集团)股份有限公司、新华人寿保险股份有限公司等公司均已发布公告称，新版公司章程获得监管部门核
+中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
 
 ## 正文
 
-日前，中国平安保险(集团)股份有限公司发布关于公司章程获国家金融监督管理总局核准及不再设立监事会的公告，自2026年5月13日起，该公司不再设立监事会，由董事会审计与风险管理委员会行使公司法规定的监事会职权。
+中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
 
-此前，中国人民保险集团股份有限公司、中国人寿保险股份有限公司、中国太平洋保险(集团)股份有限公司、新华人寿保险股份有限公司等公司均已发布公告称，新版公司章程获得监管部门核准，自新版公司章程生效日起，公司不再设立监事会，监事会职权转由董事会审计委员会行使。
+中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
 
-至此，A股五大上市险企均宣布不再设立监事会。
+绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
 
-“过往实践中，险企监事会常存在独立性不足、专业能力欠缺、对复杂保险及投资业务监督乏力、话语权较弱等问题，易流于形式。
+在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
 
-取消监事会设置，既能精简险企治理层级、实现降本增效，又能通过审计委员会行使相关职权，将监督嵌入治理决策核心环节，在事前、事中介入公司重大投资决策、准备金计提、资产减值、关联交易等关键风险事项，相比事后检查的监事会更为及时。
+今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
 
-”天职国际金融业咨询合伙人周瑾在接受《证券日报》记者采访时表示。
+“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
 
-南开大学金融学教授田利辉在接受《证券日报》记者采访时表示，撤销监事会可精简治理层级、提升决策效率，同时与国际单层制董事会模式趋同，增强境外投资者认可度。
+”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
 
-从对险企的影响来看，主要是“一减一增”：“减”的是治理成本与职能重叠，“增”的是对审计委员会独立性和专业能力的极致考验。
+黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:02 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 16:58 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 16:45 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 16:39 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 17:00 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 17:02 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 16:57 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 17:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 16:57 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 16:46 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 17:05 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 16:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 16:49 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 17:02 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 16:55 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 16:57 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 16:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:49 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 16:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 17:05 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 16:56 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 17:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 16:54 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/8288740.shtml)
-- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/110065.shtml)
-- 2026-06-29 16:57 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/302055.shtml)
-- 2026-06-29 16:55 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/400301068184.shtml)
-- 2026-06-29 16:53 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/1255729.shtml)
-- 2026-06-29 16:43 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/717253069.shtml)
-- 2026-06-29 16:55 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4228477197.shtml)
-- 2026-06-29 16:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/549781064.shtml)
-- 2026-06-29 17:02 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/311542178724.shtml)
-- 2026-06-29 16:45 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/9180658.shtml)
-- 2026-06-29 17:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/2130113461.shtml)
-- 2026-06-29 16:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/8435109.shtml)
-- 2026-06-29 16:53 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/12676725.shtml)
-- 2026-06-29 16:55 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/712231.shtml)
-- 2026-06-29 17:04 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/213813473485.shtml)
+- 2026-06-29 17:11 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/29442549.shtml)
+- 2026-06-29 17:10 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/619194.shtml)
+- 2026-06-29 17:00 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/8084930.shtml)
+- 2026-06-29 17:09 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/69905728.shtml)
+- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/173159.shtml)
+- 2026-06-29 16:52 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/32057222.shtml)
+- 2026-06-29 17:08 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/152459783.shtml)
+- 2026-06-29 16:45 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/778515010515.shtml)
+- 2026-06-29 17:07 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/11256286.shtml)
+- 2026-06-29 17:06 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/436986631253.shtml)
+- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4302424.shtml)
+- 2026-06-29 17:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/244739.shtml)
+- 2026-06-29 16:42 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/22497121066.shtml)
+- 2026-06-29 17:10 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/59459.shtml)
+- 2026-06-29 17:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/1921856414.shtml)

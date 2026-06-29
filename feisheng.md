@@ -1,60 +1,59 @@
-# 华曦达于5月18日至5月21日招股 预计5月27日上市
+# 【市场聚焦】碳酸锂： 高仓单下多空博弈
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-华曦达（00901）于2026年5月18日至5月21日招股，该公司拟全球发售1920.73万股H股，其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配）。发售价将为每股发售股份港币32.80元。每手100股，预期H股将于2026年5月27日在联交所开始买卖。 公司是面向企业客户的智慧家庭产品提供商，致力通过智能技术提升家庭应用体验。公司提供的智慧家庭产品包括硬
+中粮期货研究中心 摘要 碳酸锂高仓单引发的下跌情绪已释放，超跌后存在修复空间；现货供应偏宽松，但基差回升缓慢、仓单去化偏缓，整体反弹幅度有限；6月基本面存在边际好转，去库斜率变陡峭，仍存在短多机会。 一、周期定位：上涨行情进入尾声阶段 从宏观周期视角审视，锂作为新能源金属，其周期属性与传统有色金属及大宗商品周期存在联动关系，但周期长度呈现明显缩短趋势。当前市场处于2025年6月
 
 ## 正文
 
-华曦达（00901）于2026年5月18日至5月21日招股，该公司拟全球发售1920.73万股H股，其中香港发售占10%（可予重新分配），国际发售占90%（可予重新分配）。
+中粮期货研究中心 摘要 碳酸锂高仓单引发的下跌情绪已释放，超跌后存在修复空间；现货供应偏宽松，但基差回升缓慢、仓单去化偏缓，整体反弹幅度有限；6月基本面存在边际好转，去库斜率变陡峭，仍存在短多机会。
 
-发售价将为每股发售股份港币32.80元。
+一、周期定位：上涨行情进入尾声阶段 从宏观周期视角审视，锂作为新能源金属，其周期属性与传统有色金属及大宗商品周期存在联动关系，但周期长度呈现明显缩短趋势。
 
-每手100股，预期H股将于2026年5月27日在联交所开始买卖。
+当前市场处于2025年6月“反内卷”政策底后的上涨行情延续阶段，该轮上涨已持续近一年时间。
 
-公司是面向企业客户的智慧家庭产品提供商，致力通过智能技术提升家庭应用体验。
+若将锂周期压缩至三年维度观察，当前已处于本轮上涨周期的偏尾声位置。
 
-公司提供的智慧家庭产品包括硬件及软件产品。
+回顾碳酸锂期货上市以来的运行轨迹：2023年为周期下行寻底阶段，2024年呈现宽幅震荡格局，2025年核心驱动在于预期差交易，而2026年市场逻辑已从“预期”转向“兑现”——即供需实际差值的真实验证。
 
-于往绩记录期间，公司的收益主要来自销售硬件产品，即数字视讯设备及网络通信设备。
+二、高仓单压力逐步释放 2.1 仓单与基差关系 仓单水平与价格存在一定关联，但与基差（升贴水）走势关联更为密切。
 
-年内溢利由2023年的人民币1.91亿元减少至2024年的人民币1.37亿元，主要由于毛利减少，加上销售及营销开支、行政开支及研发成本增加所致。
+历史数据显示，仓单高位通常对应深度贴水状态；仓单去化阶段，贴水快速收敛。
 
-与 2024年相比，2025年的溢利由人民币1.37亿元增加至人民币2.39亿元，主要由于收益增加，加上有效管理成本及开支以及收回长账龄贸易应收款项所致。
+上周价格跌至低位后，贴水未继续走弱，下游买货意愿渐起，但基差回升速度不快，仓单去化亦不迅速，因此不具备价格快速回涨的条件。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 16:46 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 16:45 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 17:04 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 17:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 16:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 16:50 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 17:05 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 16:42 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 16:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 16:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 16:41 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 16:57 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 16:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 17:01 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:52 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:42 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 16:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 16:42 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 17:04 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 16:54 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 16:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 16:54 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 17:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 17:08 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 16:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 17:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/2682377.shtml)
-- 2026-06-29 16:54 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/9965726410.shtml)
-- 2026-06-29 16:45 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/865130564395.shtml)
-- 2026-06-29 16:50 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/7034859.shtml)
-- 2026-06-29 16:51 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/10853628110.shtml)
-- 2026-06-29 17:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/887286.shtml)
-- 2026-06-29 16:57 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/637053.shtml)
-- 2026-06-29 17:01 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/04910039.shtml)
-- 2026-06-29 16:46 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/44908203.shtml)
-- 2026-06-29 17:01 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/41104778056.shtml)
-- 2026-06-29 16:46 - [送你一朵小红花](https://www.share.minike.top/Article/details/50608.shtml)
-- 2026-06-29 17:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/14095.shtml)
-- 2026-06-29 16:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/70790466.shtml)
-- 2026-06-29 16:52 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/0094888645.shtml)
-- 2026-06-29 16:59 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/15211.shtml)
+- 2026-06-29 17:08 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/2425297408.shtml)
+- 2026-06-29 17:08 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/24332429118.shtml)
+- 2026-06-29 17:11 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/05407104.shtml)
+- 2026-06-29 16:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/63201177436.shtml)
+- 2026-06-29 17:07 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/27975806.shtml)
+- 2026-06-29 16:43 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/6035938.shtml)
+- 2026-06-29 16:47 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/199298164510.shtml)
+- 2026-06-29 16:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1952459236.shtml)
+- 2026-06-29 16:53 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/90801.shtml)
+- 2026-06-29 16:52 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/48526469654.shtml)
+- 2026-06-29 16:53 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/797560366.shtml)
+- 2026-06-29 16:44 - [绘画区你赢了](http://www.share.minike.top/Article/details/0033172.shtml)
+- 2026-06-29 17:06 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/2683211870.shtml)
+- 2026-06-29 16:58 - [极限挑战第一季](https://www.share.minike.top/Article/details/96446068.shtml)
+- 2026-06-29 17:03 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/67649794.shtml)

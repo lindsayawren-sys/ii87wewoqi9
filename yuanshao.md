@@ -1,60 +1,61 @@
-# 多项数据折射经济运行韧性增强
+# 李强同越南总理黎明兴通电话
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-● 本报记者 连润 物流指标持续回暖，物价水平温和回升，新出口订单重回扩张区间，航运运价指数走高……近期公布的多项4月宏观数据显示，经济运行积极信号不断增多，韧性持续增强。业内人士预期，随着各项稳增长举措持续发力，二季度经济有望延续平稳回升态势。 物流指标彰显活力 物流指标持续回暖，彰显我国经济发展活力。 中国物流与采购联合会5月11日发布的4月份中国物流业景气指数显示，市场预
+新华社北京6月15日电 6月15日上午，国务院总理李强应约同越南总理黎明兴通电话。 李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。中越有着深厚传统友谊。中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略
 
 ## 正文
 
-● 本报记者 连润 物流指标持续回暖，物价水平温和回升，新出口订单重回扩张区间，航运运价指数走高……近期公布的多项4月宏观数据显示，经济运行积极信号不断增多，韧性持续增强。
+新华社北京6月15日电 6月15日上午，国务院总理李强应约同越南总理黎明兴通电话。
 
-业内人士预期，随着各项稳增长举措持续发力，二季度经济有望延续平稳回升态势。
+李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。
 
-物流指标彰显活力 物流指标持续回暖，彰显我国经济发展活力。
+近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。
 
-中国物流与采购联合会5月11日发布的4月份中国物流业景气指数显示，市场预期上调，行业回升动能积蓄。
+中越有着深厚传统友谊。
 
-分项指数中，新订单指数、资金周转率指数、物流服务价格指数、主营业务利润指数、固定资产投资完成额指数、从业人员指数和业务活动预期指数均环比回升。
+中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略引领，加强团结互信，拓展互利合作，更好促进两国共同发展繁荣。
 
-中国物流信息中心主任刘宇航表示，尽管面临一系列内外部压力和冲击，物流企业仍展现韧性，人员岗位数量和投资稳定增长，特别是数智供应链、智能化、低碳绿色物流等新质生产力投资意向较强。
+李强指出，中方愿同越方深入对接发展战略，推动两国贸易不断扩面提质，推进基础设施互联互通，加快跨境经济合作区建设，拓展能源矿产、数字经济、人工智能、金融等领域合作，实现更高水平互利共赢。
 
-前四个月数据表明，供需适配的趋势、需求改善的迹象、回升动能积蓄的势头均没有改变，行业具备稳定上升空间。
+双方要共同办好“中越旅游合作年”等活动，落实“小而美”民生项目，妥善管控海上分歧，夯实两国友好民意基础。
 
-此外，中物联数据显示，4月份中国公路物流运价指数环比小幅上涨，4月末上海航交所沿海干散货运价指数较月初上涨8%。
+当前全球单边主义、保护主义抬头，中方愿同越方加强在联合国、世贸组织等多边机制协调配合，相互支持办好今明两年的亚太经合组织领导人非正式会议，推动建设开放型亚太经济，维护自由贸易和经济全球化。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 17:03 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 16:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 16:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 16:57 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 16:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 17:01 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 16:56 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 16:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 16:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 16:51 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 16:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 16:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 17:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 16:55 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 16:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 17:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 16:55 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 16:56 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 16:59 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:10 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 17:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 16:47 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 16:49 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/5377125028.shtml)
-- 2026-06-29 16:38 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/6810208.shtml)
-- 2026-06-29 16:42 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/37250678.shtml)
-- 2026-06-29 16:44 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/720821.shtml)
-- 2026-06-29 17:03 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/215645.shtml)
-- 2026-06-29 16:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/687435579.shtml)
-- 2026-06-29 16:44 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/66012422214.shtml)
-- 2026-06-29 17:01 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/54139.shtml)
-- 2026-06-29 16:58 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/1573363.shtml)
-- 2026-06-29 16:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/28050275538.shtml)
-- 2026-06-29 16:44 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/1663626621.shtml)
-- 2026-06-29 16:41 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/112634094.shtml)
-- 2026-06-29 16:59 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/46018663.shtml)
-- 2026-06-29 16:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/931955756611.shtml)
-- 2026-06-29 16:45 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/92076025.shtml)
+- 2026-06-29 16:55 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/04091.shtml)
+- 2026-06-29 16:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/92500520.shtml)
+- 2026-06-29 16:51 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/55477976902.shtml)
+- 2026-06-29 17:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/41121112.shtml)
+- 2026-06-29 17:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/42235899021.shtml)
+- 2026-06-29 16:44 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/53388673858.shtml)
+- 2026-06-29 16:51 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/930671736.shtml)
+- 2026-06-29 17:08 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/44158.shtml)
+- 2026-06-29 17:11 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/1515897.shtml)
+- 2026-06-29 17:04 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/2162539.shtml)
+- 2026-06-29 17:07 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/95549.shtml)
+- 2026-06-29 16:49 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/81450428977.shtml)
+- 2026-06-29 17:11 - [速度与激情9](https://www.share.minike.top/Article/details/05116.shtml)
+- 2026-06-29 17:06 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/01328068854.shtml)
+- 2026-06-29 16:48 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/751700.shtml)

@@ -1,46 +1,57 @@
-# 世界卫生大会连续第十年拒绝涉台提案
+# 酒鬼酒这十年：中粮的功劳、冒进与钝感
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-当地时间18日，第79届世界卫生大会决定，拒绝将个别国家提出的所谓“邀请台湾以观察员身份参加世卫大会”的提案纳入大会议程。这是世卫大会连续第十年拒绝涉台提案。(央视新闻客户端 总台记者 朱赫)
+来源：名酒观察 2026 年，对于酒鬼酒而言，既是建厂 70 周年，也是正式成为中粮集团成员企业的10周年。 十年间，这家历经波折的湘酒代表，在央企赋能下走出经营泥潭，创下营收峰值，却又在行业结构调整中连续下滑，业绩近乎回归十年前起点。 酒鬼酒2016年-2025年营收及同比增速一览表 这不仅是一家区域名酒的10年兴衰记，更是央企并购地方酒企后，在治理升级、市场扩张、品牌建设中
 
 ## 正文
 
-当地时间18日，第79届世界卫生大会决定，拒绝将个别国家提出的所谓“邀请台湾以观察员身份参加世卫大会”的提案纳入大会议程。
+来源：名酒观察 2026 年，对于酒鬼酒而言，既是建厂 70 周年，也是正式成为中粮集团成员企业的10周年。
 
-这是世卫大会连续第十年拒绝涉台提案。
+十年间，这家历经波折的湘酒代表，在央企赋能下走出经营泥潭，创下营收峰值，却又在行业结构调整中连续下滑，业绩近乎回归十年前起点。
 
-(央视新闻客户端 总台记者 朱赫)
+酒鬼酒2016年-2025年营收及同比增速一览表 这不仅是一家区域名酒的10年兴衰记，更是央企并购地方酒企后，在治理升级、市场扩张、品牌建设中遭遇现实矛盾的典型样本。
+
+站在十年节点回望，酒鬼酒的起伏轨迹，折射出白酒行业区域品牌转型的多重难题。
+
+01 业绩起伏： 从“脱帽摘星”到“倒V型”攀升，再到周期折返 中粮接手之初，酒鬼酒正深陷经营危机。
+
+受历史负面事件影响，企业连续亏损，经营秩序混乱，2015 年刚实现扭亏，营收仅 6.01 亿元。
+
+依托央企资源与规范化管理，酒鬼酒迅速走出困境，2016 年顺利摘除 ST 帽子，全年营收 6.55 亿元，正式开启复苏之路。
+
+2016 至 2022 年成为酒鬼酒的黄金发展期，业绩一路走高。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 16:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 16:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 17:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 16:58 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 16:40 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 16:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 16:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 16:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 16:51 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 17:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 17:03 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 16:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 17:07 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 16:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 17:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 17:08 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 16:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 16:54 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 16:43 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/68267228232.shtml)
-- 2026-06-29 16:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/9797032790.shtml)
-- 2026-06-29 16:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/25135.shtml)
-- 2026-06-29 16:46 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/237313.shtml)
-- 2026-06-29 16:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/3685138422.shtml)
-- 2026-06-29 16:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/28714371055.shtml)
-- 2026-06-29 16:55 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/8963544249.shtml)
-- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/33804563358.shtml)
-- 2026-06-29 16:54 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/663891227373.shtml)
-- 2026-06-29 16:55 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/90797575.shtml)
-- 2026-06-29 16:57 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/61579.shtml)
-- 2026-06-29 16:53 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/38738024011.shtml)
-- 2026-06-29 16:57 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/03126075.shtml)
-- 2026-06-29 16:38 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/13269910594.shtml)
-- 2026-06-29 17:00 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/2238125.shtml)
+- 2026-06-29 16:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/2759230446.shtml)
+- 2026-06-29 16:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/3798937.shtml)
+- 2026-06-29 16:50 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/7804200.shtml)
+- 2026-06-29 16:51 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/10449066.shtml)
+- 2026-06-29 16:53 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/497901420.shtml)
+- 2026-06-29 16:53 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/33889971.shtml)
+- 2026-06-29 17:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/93229848.shtml)
+- 2026-06-29 17:02 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/118201285.shtml)
+- 2026-06-29 17:09 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8992892.shtml)
+- 2026-06-29 17:07 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/706906738618.shtml)
+- 2026-06-29 16:43 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/048816122.shtml)
+- 2026-06-29 17:10 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/29444.shtml)
+- 2026-06-29 17:05 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/4403370060.shtml)
+- 2026-06-29 16:58 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/736657626.shtml)
+- 2026-06-29 16:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/285946057.shtml)

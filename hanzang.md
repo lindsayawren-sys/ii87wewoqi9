@@ -1,61 +1,57 @@
-# 香港中旅早盘一度拉升逾41% 积极布局新文旅项目
+# 金价反弹！能持续吗？
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-香港中旅（00308）早盘一度拉升逾41%，截至发稿，股价上涨22.22%，报1.43港元，成交额5.45亿港元。 5月17日，香港中旅发布公告，集团把握内地旅游市场复苏契机，积极布局新文旅项目作为新收入来源。集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司。同时，集团已于2026年3月26日，与茫崖旅投旅游开发有限责任
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 短期 对反弹持谨慎乐观态度。当前价位以持有待涨、择机高抛为主，不建议追高。重点关注前期密集成交区4500-4600一线压力。 中期 若后续地缘局势反复引发回调，考虑到美国主观降级的意愿仍然存在，再度探底可能给出新的低吸机会。 今日（6月15日）内盘贵金属板块集体高开高走，沪金盘中涨超4%，为近四个
 
 ## 正文
 
-香港中旅（00308）早盘一度拉升逾41%，截至发稿，股价上涨22.22%，报1.43港元，成交额5.45亿港元。
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 短期 对反弹持谨慎乐观态度。
 
-5月17日，香港中旅发布公告，集团把握内地旅游市场复苏契机，积极布局新文旅项目作为新收入来源。
+当前价位以持有待涨、择机高抛为主，不建议追高。
 
-集团于2025年10月27日完成收购的吉林省松花湖国际度假区开发有限公司及中旅（北京）冰雪体育发展有限公司。
+重点关注前期密集成交区4500-4600一线压力。
 
-同时，集团已于2026年3月26日，与茫崖旅投旅游开发有限责任公司、茫崖国青旅游文化开发有限公司订立投资协议及股东协议，共同设立中旅（茫崖）旅游开发有限公司（合资公司），以打造位于青海省的黑独山景区，投资建设更多旅游体验项目。
+中期 若后续地缘局势反复引发回调，考虑到美国主观降级的意愿仍然存在，再度探底可能给出新的低吸机会。
 
-公告称，合资公司注册资本人民币2亿元，集团认缴出资人民币1.02亿元，持股占比51%。
+今日（6月15日）内盘贵金属板块集体高开高走，沪金盘中涨超4%，为近四个月以来最大涨幅。
 
-该项目拟以独特的“地质奇观+深空探索”体验为核心产品体系，地处青甘大环线的关键节点，是集团继宁夏沙坡头景区项目后在西北地区的重要布局，有助于集团完善西北旅游环线的站点，加强西北地区市场份额及影响力。
+金价的矛盾 地缘冲突以来的金价，主要面临着秩序重构的远景与流动性紧缩现实之间的矛盾，其中流动性紧缩不仅代表中观维度因海峡持续封锁、供应链阻断所带来价格上行压力以及对应美联储货币政策的由松至紧的变化，更有着能源进口国、中东地缘国为了稳定本币汇率和金融市场直接以黄金换取流动性的无奈。
 
-目前黑独山景区已在对外开放阶段，2026年五一黄金周期间（5月1日至5月5日）共接待20874人次，集团预期新增投资业态将会在2028年建设完成并开业，届时将会吸引更多游客。
+综合作用下，尽管影响因素层级较低，但中短期利空因素的共振效果依然超过了更高层级的长期利多因素支撑，直接造成了此前金价走势持续低迷。
 
-责任编辑：卢昱君
+逆风消失了吗？
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 17:03 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 17:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 16:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:58 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 16:45 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 17:00 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 16:54 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 16:42 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 16:45 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 16:59 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 16:42 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:54 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 16:55 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 16:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 17:03 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 16:45 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 17:00 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 17:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 17:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 16:59 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 16:42 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 17:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 16:57 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 16:49 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/7415363507.shtml)
-- 2026-06-29 16:36 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/6402787806.shtml)
-- 2026-06-29 16:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/5479597.shtml)
-- 2026-06-29 17:00 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/292329953747.shtml)
-- 2026-06-29 16:46 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/0198320.shtml)
-- 2026-06-29 16:50 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/6960008940.shtml)
-- 2026-06-29 16:48 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/99246581.shtml)
-- 2026-06-29 17:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/40464129.shtml)
-- 2026-06-29 16:43 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/421407795.shtml)
-- 2026-06-29 16:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/920597.shtml)
-- 2026-06-29 16:54 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/5338863.shtml)
-- 2026-06-29 16:50 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/791340.shtml)
-- 2026-06-29 16:46 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/93494.shtml)
-- 2026-06-29 16:37 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/164493.shtml)
-- 2026-06-29 16:39 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/611181.shtml)
+- 2026-06-29 17:00 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/8215062.shtml)
+- 2026-06-29 16:57 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/58714299.shtml)
+- 2026-06-29 16:59 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/80154.shtml)
+- 2026-06-29 17:06 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/218379036359.shtml)
+- 2026-06-29 17:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/655635515664.shtml)
+- 2026-06-29 16:54 - [美国大满贯首日国乒主力均取胜](https://www.blog.kurohicncr.top/Article/details/04792570.shtml)
+- 2026-06-29 16:58 - [叠纸](https://www.share.kurohicncr.top/Article/details/89194.shtml)
+- 2026-06-29 17:02 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/93552.shtml)
+- 2026-06-29 17:01 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/574927743.shtml)
+- 2026-06-29 16:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/11769.shtml)
+- 2026-06-29 17:01 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/93213.shtml)
+- 2026-06-29 16:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/647247068.shtml)
+- 2026-06-29 17:11 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/722797177258.shtml)
+- 2026-06-29 17:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/0528938141.shtml)
+- 2026-06-29 16:51 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/882695.shtml)

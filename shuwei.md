@@ -1,60 +1,50 @@
-# 诺奖得主斯宾塞：中国AI发展民众受惠、世界得益
+# 12岁中国足球小将“空翻哥”夺冠爆火！父亲清醒发声：流量只是意外，愿孩子守住本心踏实前行
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社成都5月18日电 (陶思阅)“中国对人工智能(AI)开展了系统性布局与实践，使得相关成果广泛惠及民众。”2001年诺贝尔经济学奖得主迈克尔·斯宾塞18日在成都说，“世界其他地区也极大受益，因为不必为了使用这些强大的工具而构建最先进的模型。” 2026清华五道口全球金融论坛18日在成都举行。斯宾塞在论坛发言时作如上表述。他认为，中国AI发展的潜力不仅依托于底层模型的构建，更
+发布时间：2026年06月15日 20:52 来源：中国新闻网 12岁中国足球小将“空翻哥”夺冠爆火！父亲清醒发声：流量只是意外，愿孩子守住本心踏实前行。 责任编辑：【翟璐】
 
 ## 正文
 
-中新社成都5月18日电 (陶思阅)“中国对人工智能(AI)开展了系统性布局与实践，使得相关成果广泛惠及民众。
+发布时间：2026年06月15日 20:52 来源：中国新闻网 12岁中国足球小将“空翻哥”夺冠爆火！
 
-”2001年诺贝尔经济学奖得主迈克尔·斯宾塞18日在成都说，“世界其他地区也极大受益，因为不必为了使用这些强大的工具而构建最先进的模型。
+父亲清醒发声：流量只是意外，愿孩子守住本心踏实前行。
 
-” 2026清华五道口全球金融论坛18日在成都举行。
-
-斯宾塞在论坛发言时作如上表述。
-
-他认为，中国AI发展的潜力不仅依托于底层模型的构建，更依赖于科技的应用及其对社会经济各领域的渗透。
-
-其他国家应当抓住机会，建立开放的生态体系，降低技术应用的成本。
-
-面对“AI是否会抢走人类饭碗”的担忧，斯宾塞表示，人类需要学习如何与机器共生。
-
-他指出，新兴经济体对AI普遍持乐观态度，而发达经济体则更担心失业，这种心态差异值得深思。
+责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 16:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:04 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 16:40 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 16:52 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 16:51 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 17:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 16:45 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:59 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:36 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 16:47 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 17:00 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 17:04 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 17:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 16:57 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:05 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 17:10 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 16:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 16:50 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 17:09 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 17:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 16:56 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 17:09 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 16:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 16:50 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 16:44 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 17:01 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/17837004.shtml)
-- 2026-06-29 16:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/06314964.shtml)
-- 2026-06-29 16:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/2091090730.shtml)
-- 2026-06-29 16:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/3977329817.shtml)
-- 2026-06-29 17:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/297686470682.shtml)
-- 2026-06-29 16:37 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/69188146177.shtml)
-- 2026-06-29 16:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/7322271308.shtml)
-- 2026-06-29 16:49 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/369706698.shtml)
-- 2026-06-29 16:37 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/679475648.shtml)
-- 2026-06-29 16:53 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/41650300.shtml)
-- 2026-06-29 16:49 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/982809350.shtml)
-- 2026-06-29 16:38 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/4759206.shtml)
-- 2026-06-29 17:03 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/403349145272.shtml)
-- 2026-06-29 17:03 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/6709564439.shtml)
-- 2026-06-29 16:54 - [周生如故](https://www.share.kurohicncr.top/Article/details/766394.shtml)
+- 2026-06-29 16:56 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/008792.shtml)
+- 2026-06-29 16:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/503091391060.shtml)
+- 2026-06-29 17:06 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/64479697.shtml)
+- 2026-06-29 17:02 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/930984813238.shtml)
+- 2026-06-29 16:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/33275.shtml)
+- 2026-06-29 17:10 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/24010.shtml)
+- 2026-06-29 17:05 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/73063.shtml)
+- 2026-06-29 17:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/927232.shtml)
+- 2026-06-29 17:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/5830760231.shtml)
+- 2026-06-29 16:45 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/934482.shtml)
+- 2026-06-29 16:48 - [博主：美航母沦为毒品集散窝点](https://www.blog.kurohicncr.top/Article/details/72001753.shtml)
+- 2026-06-29 16:42 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/829670.shtml)
+- 2026-06-29 16:59 - [这一刀 会很帅](http://www.share.minike.top/Article/details/74332786315.shtml)
+- 2026-06-29 17:00 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/0233332248.shtml)
+- 2026-06-29 17:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/716227067350.shtml)

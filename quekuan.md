@@ -1,61 +1,61 @@
-# 美伊局势，突生变数！刚刚，美以讨论重启对伊战事，特朗普发出威胁！
+# 辞任华林证券CEO不到一个月转身AI算力公司，秦湘进入行云科技董事会候选名单 | 长三角资本局
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 早上好，先来关注下最新消息。 特朗普：如果伊朗不迅速行动，“将一无所有” 据央视新闻消息，美国总统特朗普17日在社交媒体发文称，如果伊朗不迅速行动，“将一无所有”。 特朗普写道：“对伊朗而言，时间紧迫，他们最好迅速行动，否则将一无所有。刻不容缓！” 此外，美方17日援引两名美国官员的话称，预计特朗普19日在白宫战情室与其国家安全团队主要成员举行会议，讨论对伊朗再
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。 6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。相关任职仍需提交股东会审议。 这距离秦湘辞去华林证
 
 ## 正文
 
-来源：期货日报 早上好，先来关注下最新消息。
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。
 
-特朗普：如果伊朗不迅速行动，“将一无所有” 据央视新闻消息，美国总统特朗普17日在社交媒体发文称，如果伊朗不迅速行动，“将一无所有”。
+6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。
 
-特朗普写道：“对伊朗而言，时间紧迫，他们最好迅速行动，否则将一无所有。
+相关任职仍需提交股东会审议。
 
-刻不容缓！
+这距离秦湘辞去华林证券首席执行官职务，仅过去25天。
 
-” 此外，美方17日援引两名美国官员的话称，预计特朗普19日在白宫战情室与其国家安全团队主要成员举行会议，讨论对伊朗再次动武的选项。
+5月15日，华林证券公告称，秦湘因个人原因申请辞去首席执行官职务，辞职后不再在公司及控股子公司担任任何职务。
 
-内塔尼亚胡与特朗普通话，讨论重启对伊战事可能性 据央视新闻消息，当地时间5月17日晚，以色列总理办公室证实，以总理内塔尼亚胡与特朗普当天通电话，讨论重启对伊朗军事行动的可能性。
+秦湘确认，其与董事会并无意见分歧，也没有其他需要向股东说明的事项。
 
-据一名以色列高级官员消息，内塔尼亚胡与特朗普通话持续约半小时，主要讨论重启对伊朗军事打击的可能性。
+华林证券随后由刚刚加入公司的执委会委员董东代行首席执行官职责，代行期限不超过六个月。
 
-这名官员称，若美国恢复对伊朗军事行动，预计以美两国将联合发起空袭。
+一位刚刚离开民营券商的女CEO，迅速出现在一家AI算力概念上市公司的董事候选名单中，这场职业转换的反差足够醒目。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 16:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 17:00 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 16:51 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 16:51 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 16:57 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 17:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 16:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 17:02 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:46 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 16:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 16:42 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 17:05 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 16:56 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 17:03 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 17:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 17:10 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 17:08 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 16:45 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 17:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 16:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 16:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 17:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 16:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 16:49 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 16:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 16:59 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 16:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:05 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 17:09 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/156079334119.shtml)
-- 2026-06-29 17:04 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/226306678557.shtml)
-- 2026-06-29 16:45 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/6984719.shtml)
-- 2026-06-29 16:56 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/73243.shtml)
-- 2026-06-29 16:37 - [扫黑风暴](https://www.blog.minike.top/Article/details/6736402057.shtml)
-- 2026-06-29 17:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/20185980.shtml)
-- 2026-06-29 16:59 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/89080502.shtml)
-- 2026-06-29 16:57 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/0497448600.shtml)
-- 2026-06-29 16:36 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/975193.shtml)
-- 2026-06-29 17:02 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/9776079141.shtml)
-- 2026-06-29 17:03 - [女心理师](https://www.share.kurohicncr.top/Article/details/50160067920.shtml)
-- 2026-06-29 16:52 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/46432867169.shtml)
-- 2026-06-29 16:46 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/385407311525.shtml)
-- 2026-06-29 17:05 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/340530.shtml)
-- 2026-06-29 16:48 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/9302925.shtml)
+- 2026-06-29 16:56 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/8250460201.shtml)
+- 2026-06-29 16:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/33062.shtml)
+- 2026-06-29 17:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0344132578.shtml)
+- 2026-06-29 16:50 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/0117478060.shtml)
+- 2026-06-29 16:50 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/6307718.shtml)
+- 2026-06-29 16:59 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/49174645667.shtml)
+- 2026-06-29 16:47 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/042828595314.shtml)
+- 2026-06-29 16:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/046515517.shtml)
+- 2026-06-29 16:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/3538684.shtml)
+- 2026-06-29 16:46 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/53624.shtml)
+- 2026-06-29 16:57 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/2184244286.shtml)
+- 2026-06-29 16:46 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/009279228.shtml)
+- 2026-06-29 16:54 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/18025853.shtml)
+- 2026-06-29 16:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/475228.shtml)
+- 2026-06-29 16:57 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/670307.shtml)

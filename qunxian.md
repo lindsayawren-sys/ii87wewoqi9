@@ -1,57 +1,49 @@
-# “十五五”开局GDP增速亮眼 上海如何巩固发展优势？
+# 6月15日周末要闻：美伊达成协议 霍尔木兹海峡将开放 原油下跌 美元走低
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网上海5月18日电 (谢梦圆)18日，上海市政府新闻发布厅举行“开局起步‘十五五’”上海专场新闻发布会。记者在会上获悉，今年一季度上海GDP实现5.9%的增长，为继续保持优势，接下来，上海将聚焦建设“五个中心”重要使命，以更大力度和更实举措抓好经济工作，持续巩固经济社会发展良好势头。当前，上海已成为全国首个经济总量突破5万亿元的城市，跻身全球城市前五位，人均地区生产总值达到
+上周国际市场回顾 6月13日收盘：美股收高道指涨0.7% 市场关注美伊谈判与SpaceX首秀 6月13日美股成交额前20：SpaceX登陆纳斯达克，市值突破2万亿美元 6月13日热门中概股多数上涨 联电涨4.50%，理想汽车涨3.77% 大宗商品综述：油价下挫 铜价上涨 金价微升 欧洲股市接近纪录高位 受美伊协议进展提振 宏观 伊朗最高国家安全委员会正式确认伊美谅解备忘录达成
 
 ## 正文
 
-中新网上海5月18日电 (谢梦圆)18日，上海市政府新闻发布厅举行“开局起步‘十五五’”上海专场新闻发布会。
+上周国际市场回顾 6月13日收盘：美股收高道指涨0.7% 市场关注美伊谈判与SpaceX首秀 6月13日美股成交额前20：SpaceX登陆纳斯达克，市值突破2万亿美元 6月13日热门中概股多数上涨 联电涨4.50%，理想汽车涨3.77% 大宗商品综述：油价下挫 铜价上涨 金价微升 欧洲股市接近纪录高位 受美伊协议进展提振 宏观 伊朗最高国家安全委员会正式确认伊美谅解备忘录达成 特朗普称美伊达成协议 霍尔木兹海峡开放 伊朗副外长确认伊美谅解备忘录已达成一致 美伊达成和平协议 本周五正式签署 特朗普称霍尔木兹海峡将随美伊协议19日签署而开放 特朗普：与伊朗的协议现已完成 巴总理：美国与伊朗已达成和平协议 公司 欧盟执委会发言人：正评估Anthropic决定的实际影响 通用汽车首席产品官：公司目前主攻乘用车自动驾驶技术 存储芯片需求激增 SK海力士去年新增
 
-记者在会上获悉，今年一季度上海GDP实现5.9%的增长，为继续保持优势，接下来，上海将聚焦建设“五个中心”重要使命，以更大力度和更实举措抓好经济工作，持续巩固经济社会发展良好势头。
+SpaceX刚上市，马斯克就喊话黄仁勋：合作升级！
 
-当前，上海已成为全国首个经济总量突破5万亿元的城市，跻身全球城市前五位，人均地区生产总值达到3.2万美元。
-
-集成电路、生物医药、人工智能三大先导产业规模突破2万亿元，工业战略性新兴产业总产值占规模以上工业总产值比重提高到45%。
-
-为能够在2035年如期基本建成具有世界影响力的社会主义现代化国际大都市，“十五五”时期是上海乘势而上的全面发力期，也是其转型升级的攻坚决胜期。
-
-上海将持续增强经济发展韧性，还将持续推动产业转型升级。
-
-具体而言，上海将促进制造业创新升级，深化落实三大先导产业“上海方案”，加快布局新兴产业和未来产业，做强做优细分赛道，打造更具竞争力的产业生态。
-
-上海还将稳步扩大首创性改革和制度型开放，聚焦浦东引领区、自贸试验区及临港新片区、虹桥国际开放枢纽、东方枢纽国际商务合作区，积极开展先行先试和功能导入；深入推进长三角更高质量一体化发展，共同落实一批重点合作事项。
+评论 伊美协议落地 美股或迎上涨 协议细节仍不明朗 美元兑G10货币普遍走弱，特朗普宣布与伊朗达成协议 特朗普称伊核协议即将达成，伊朗方面目前尚未确认 伊朗称美国应对以色列最新袭击事件的后果负责 夹在特朗普和押注加息的市场之间 新任美联储主席沃什迎来严峻考验 特朗普在生日当天与普京和泽连斯基通话 尽管俄乌和谈已陷入停滞 瑞士选民投票否决了人口上限提案 特朗普称伊朗协议预计将在两到三小时内签署 福克斯：以色列袭击贝鲁特给美国与伊朗最终敲定协议造成障碍 美国驻联合国大使：特朗普和美方谈判团队“有信心”协议能够达成 特朗普期待周日签署协议 但伊朗方面据称仍在审查文本 韩国与沙特阿拉伯签署协议 将在能源领域开展合作责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 16:58 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 17:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 17:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 16:59 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 16:40 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 17:02 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 16:46 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 16:45 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 17:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 16:49 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 16:42 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 16:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:54 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 16:44 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 16:43 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 17:05 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 16:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 16:46 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 16:53 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 16:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 17:07 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 16:59 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 16:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 16:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [女心理师](https://www.blog.minike.top/Article/details/600545.shtml)
-- 2026-06-29 16:36 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/475433600693.shtml)
-- 2026-06-29 17:05 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/803806481925.shtml)
-- 2026-06-29 16:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/03502530.shtml)
-- 2026-06-29 16:45 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/0141699707.shtml)
-- 2026-06-29 16:47 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/49832431.shtml)
-- 2026-06-29 16:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/9758366.shtml)
-- 2026-06-29 17:04 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/062795722.shtml)
-- 2026-06-29 16:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/06174719893.shtml)
-- 2026-06-29 16:48 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/1649238623.shtml)
-- 2026-06-29 16:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/228141.shtml)
-- 2026-06-29 16:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/385239.shtml)
-- 2026-06-29 17:01 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/918981585.shtml)
-- 2026-06-29 16:57 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/40535.shtml)
-- 2026-06-29 16:55 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/644125882.shtml)
+- 2026-06-29 16:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/361354.shtml)
+- 2026-06-29 17:08 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/911675127.shtml)
+- 2026-06-29 17:04 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5329471832.shtml)
+- 2026-06-29 17:00 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/0539699.shtml)
+- 2026-06-29 16:48 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/3726858373.shtml)
+- 2026-06-29 16:58 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/184777.shtml)
+- 2026-06-29 16:53 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/813592336467.shtml)
+- 2026-06-29 16:43 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/7298675598.shtml)
+- 2026-06-29 16:46 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/751577319.shtml)
+- 2026-06-29 17:07 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/08411377.shtml)
+- 2026-06-29 16:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/3781072244.shtml)
+- 2026-06-29 16:50 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/69149010.shtml)
+- 2026-06-29 17:03 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/5243955.shtml)
+- 2026-06-29 16:44 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/8747815.shtml)
+- 2026-06-29 17:07 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/2377771.shtml)

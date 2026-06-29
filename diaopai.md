@@ -1,56 +1,55 @@
-# 一球跨越国界！中美青少年在成都以匹克球续写民间友好
+# 台湾“圆满大叔”在海峡论坛大会喊了个“耶”
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 12:08 来源：中国新闻网 5月17日，来自美国的朱迪·霍夫罗斯特在四川成都打了一场酣畅淋漓的中美匹克球友谊赛，今年70岁的她仍然身姿矫健，在取得胜利后与搭档拥抱庆祝，脸上洋溢着兴奋的笑容。此次友谊赛，是美国俄勒冈州与中国四川省以体育为纽带、续写跨洋友好情谊、深化两地民间交流的生动互动。 朱迪说，这是她第十一次到访中国，首次到访四川，距她与中
+发布时间：2026年06月13日 20:54 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举行。台湾“圆满大叔”、福州外语外贸学院教师康永明在大会发言时直言，自己人生的下半场在大陆开启。两年来，他投身橄榄球推广，推动福建开展橄榄球的学校从45所增加到150所以上。如今，“海峡杯”及两岸青年英式橄榄球交流赛，每年吸引近千名两岸运动员以球会友。未来，康永明希望继续以
 
 ## 正文
 
-发布时间：2026年05月18日 12:08 来源：中国新闻网 5月17日，来自美国的朱迪·霍夫罗斯特在四川成都打了一场酣畅淋漓的中美匹克球友谊赛，今年70岁的她仍然身姿矫健，在取得胜利后与搭档拥抱庆祝，脸上洋溢着兴奋的笑容。
+发布时间：2026年06月13日 20:54 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举行。
 
-此次友谊赛，是美国俄勒冈州与中国四川省以体育为纽带、续写跨洋友好情谊、深化两地民间交流的生动互动。
+台湾“圆满大叔”、福州外语外贸学院教师康永明在大会发言时直言，自己人生的下半场在大陆开启。
 
-朱迪说，这是她第十一次到访中国，首次到访四川，距她与中国的初次相遇已有55年。
+两年来，他投身橄榄球推广，推动福建开展橄榄球的学校从45所增加到150所以上。
 
-1971年，年仅15岁的朱迪作为美国代表团中最年轻的团员，亲历中美“乒乓外交”，见证了体育在两国民间交流中扮演的重要角色。
+如今，“海峡杯”及两岸青年英式橄榄球交流赛，每年吸引近千名两岸运动员以球会友。
 
-从此，她便与中国结下不解之缘。
+未来，康永明希望继续以体育为抓手机深化闽台融合。
 
-(记者 吕杨） 责任编辑：【李岩】
+发言最后，他在台上与大家比心，喊出“共好才是圆满”，希望台湾青少年多来大陆开拓视野、改变人生。
+
+(记者 郎佳慧 制作 刘鹏） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 16:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 16:58 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:42 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 16:46 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 16:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 17:05 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 16:43 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 17:02 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 16:36 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:00 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 16:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 16:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 16:43 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 16:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 16:58 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 17:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 16:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 16:57 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 17:05 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 16:53 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 16:48 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 16:54 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/99910.shtml)
-- 2026-06-29 17:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/261417.shtml)
-- 2026-06-29 17:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/6976769264.shtml)
-- 2026-06-29 16:47 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/7383909.shtml)
-- 2026-06-29 16:55 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/13731.shtml)
-- 2026-06-29 17:05 - [T1 KC](http://www.share.minike.top/Article/details/75315654.shtml)
-- 2026-06-29 16:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/4141396828.shtml)
-- 2026-06-29 16:40 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/651290.shtml)
-- 2026-06-29 16:56 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/5296744019.shtml)
-- 2026-06-29 16:53 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/36703646771.shtml)
-- 2026-06-29 16:43 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/4210822.shtml)
-- 2026-06-29 17:05 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/1594001393.shtml)
-- 2026-06-29 16:51 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/093872.shtml)
-- 2026-06-29 16:56 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/870073.shtml)
-- 2026-06-29 16:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/708321892.shtml)
+- 2026-06-29 17:09 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/95392020034.shtml)
+- 2026-06-29 16:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/229660858.shtml)
+- 2026-06-29 17:04 - [第一炉香](https://www.share.kurohicncr.top/Article/details/18909619111.shtml)
+- 2026-06-29 17:03 - [机器人学校开学了](https://www.blog.minike.top/Article/details/944066.shtml)
+- 2026-06-29 16:58 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/14853197.shtml)
+- 2026-06-29 17:01 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/78584830.shtml)
+- 2026-06-29 17:09 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/075008668610.shtml)
+- 2026-06-29 17:06 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/7396176779.shtml)
+- 2026-06-29 17:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/86260.shtml)
+- 2026-06-29 17:04 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/30610130440.shtml)
+- 2026-06-29 16:50 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/488397.shtml)
+- 2026-06-29 16:46 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/3388902359.shtml)
+- 2026-06-29 16:54 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/537261.shtml)
+- 2026-06-29 16:47 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/642144011566.shtml)
+- 2026-06-29 16:46 - [扬名立万](http://www.share.kurohicncr.top/Article/details/26756879350.shtml)

@@ -1,58 +1,57 @@
-# 抢跑人形机器人赛道，六大行科技贷款23万亿创新高！工行6万亿领跑、农行增速第一
+# 一艘液化天然气船驶向霍尔木兹海峡 美伊协议带来海峡重开希望
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-来源：时代周报 今年4月举行的北京亦庄人形机器人半程马拉松，工商银行聚焦人形机器人产业全链条发展需求，从产业金融支持、场景应用落地、行业生态赋能等多维度发力，提供全面金融解决方案，为人形机器人产业注入强劲金融动能。 这也是当前国有大行深耕科技金融、精准赋能新兴科创产业的真实缩影。 自中央金融工作会议明确要求做好科技金融以来，科技金融已成为银行业转型的核心驱动力，而国有大行稳定发
+一艘在波斯湾滞留三个多月的液化天然气运输船似乎正驶向霍尔木兹海峡，与此同时，美国和伊朗称已经达成重新开放该海峡的协议。 船舶追踪数据显示，这艘与印度一家国有进口商签订了长期租约的船舶名为Disha，位于阿拉伯联合酋长国北部，正接近阿曼。 数据显示，这艘油轮于3月1日左右从卡塔尔Ras Laffan装载了一批液化天然气，但此后一直无法离开。 周一凌晨，海峡周围的其他活动似乎有限，
 
 ## 正文
 
-来源：时代周报 今年4月举行的北京亦庄人形机器人半程马拉松，工商银行聚焦人形机器人产业全链条发展需求，从产业金融支持、场景应用落地、行业生态赋能等多维度发力，提供全面金融解决方案，为人形机器人产业注入强劲金融动能。
+一艘在波斯湾滞留三个多月的液化天然气运输船似乎正驶向霍尔木兹海峡，与此同时，美国和伊朗称已经达成重新开放该海峡的协议。
 
-这也是当前国有大行深耕科技金融、精准赋能新兴科创产业的真实缩影。
+船舶追踪数据显示，这艘与印度一家国有进口商签订了长期租约的船舶名为Disha，位于阿拉伯联合酋长国北部，正接近阿曼。
 
-自中央金融工作会议明确要求做好科技金融以来，科技金融已成为银行业转型的核心驱动力，而国有大行稳定发挥“压舱石”作用，是科技金融供给的绝对主力。
+数据显示，这艘油轮于3月1日左右从卡塔尔Ras Laffan装载了一批液化天然气，但此后一直无法离开。
 
-截至2025年末，六家国有大行科技贷款余额超过23万亿元。
+周一凌晨，海峡周围的其他活动似乎有限，因为鉴于美国宣布并经伊朗确认的协议缺乏细节，船东和贸易商仍然保持谨慎。
 
-苏商银行特约研究员武泽伟向时代周报记者表示，超23万亿元的体量与15%以上的增速，表明国有大行的信贷资源配置已发生方向性调整，科技创新领域正成为资产扩张的关键板块。
+欧洲天然气价格周一亚洲早盘交易中一度下跌5.8%。
 
-在传统行业有效信贷需求相对不足的背景下，这一规模意味着银行对技术型企业的支持从局部探索进入系统推进阶段，金融资源与国家创新战略的衔接更加紧密。
+恢复经由霍尔木兹港的液化天然气运输将有助于缓解自3月以来一直推高欧洲和亚洲天然气价格的供应紧张局面。
 
-另一方面，2025年，六家国有大行在科技投入力度整体进一步加强，科技投入合计超1300亿元，较2024年进一步增长。
+原油价格开盘也大幅下跌， 布伦特跌幅超过3%。
 
-从投入领域来看，AI成为六家国有大行年报的热门关键词。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 16:54 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 17:02 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 16:57 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 16:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 17:00 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 16:36 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 16:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 16:46 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 16:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 16:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 16:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 16:51 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 17:05 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 16:48 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 17:10 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 16:59 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 17:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 16:48 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 17:08 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 16:59 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 17:09 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 16:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/964950611402.shtml)
-- 2026-06-29 16:59 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/2653392026.shtml)
-- 2026-06-29 17:05 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/003202250558.shtml)
-- 2026-06-29 16:56 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/18739548.shtml)
-- 2026-06-29 16:54 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/4845976.shtml)
-- 2026-06-29 17:03 - [速度与激情9](http://www.share.minike.top/Article/details/57332322438.shtml)
-- 2026-06-29 16:51 - [送你一朵小红花](https://www.share.minike.top/Article/details/31729061956.shtml)
-- 2026-06-29 16:46 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/973729212224.shtml)
-- 2026-06-29 16:43 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/03942069.shtml)
-- 2026-06-29 16:46 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/3273591.shtml)
-- 2026-06-29 16:50 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/6425436548.shtml)
-- 2026-06-29 16:37 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/7699584907.shtml)
-- 2026-06-29 16:47 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/1624831.shtml)
-- 2026-06-29 16:41 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/7186339.shtml)
-- 2026-06-29 16:41 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/844271342723.shtml)
+- 2026-06-29 17:03 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/90746491215.shtml)
+- 2026-06-29 17:05 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/90736523.shtml)
+- 2026-06-29 16:56 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/356107774295.shtml)
+- 2026-06-29 17:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/1324612.shtml)
+- 2026-06-29 16:56 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/9828842.shtml)
+- 2026-06-29 17:05 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/12819.shtml)
+- 2026-06-29 17:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/962742842121.shtml)
+- 2026-06-29 17:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/703950.shtml)
+- 2026-06-29 16:48 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/5491618165.shtml)
+- 2026-06-29 16:59 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/44718.shtml)
+- 2026-06-29 17:05 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/097191.shtml)
+- 2026-06-29 16:44 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/83355.shtml)
+- 2026-06-29 16:46 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/133111673.shtml)
+- 2026-06-29 16:53 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/157423.shtml)
+- 2026-06-29 17:12 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/5536433.shtml)

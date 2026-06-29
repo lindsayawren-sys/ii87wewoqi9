@@ -1,59 +1,59 @@
-# 年度医保药品目录调整工作启动，恒生创新药ETF华泰柏瑞（520500）单日“吸金”超1.6亿元！
+# 股价破发，重要股东接连减持！盛泰集团回应两个关键问题
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。而这已经是该股东近一年的第二次减持。除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减
 
 ## 正文
 
-今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可期。
+近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。
 
-创新药赛道近期受到资金青睐。
+而这已经是该股东近一年的第二次减持。
 
-Wind及交易所数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额最新（26/5/15）单日资金净流入高达1.61亿元，5月以来资金累计净流入4.91亿元、同期日均成交额8.61亿元。
+除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减持。
 
-连续6个交易日的资金净流入助推该ETF最新规模和份额分别达27.18亿元和18.89亿份，双双创历史新高！
+两名重要股东接连减持的背后是公司近三年持续下滑的业绩。
 
-2026年5月17日，国家医保局宣布启动年度医保药品目录调整工作。
+公司2025年的营业收入较2022年下滑超四成，2025年归母净利润较2022年下滑超九成。
 
-本次调整首次允许已纳入2025年商业健康保险创新药品目录的药品申报国家医保目录，并新增“预申报”环节，进一步加快创新药准入。
+而公司的股价也长期处于破发状态。
 
-工作方案预计5月底发布，新版国家医保目录及商保创新药目录将于11月底前正式公布。
+对于公司的业绩情况及未来增长点，公司回复了《每日经济新闻》记者的采访。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 16:57 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 16:50 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 16:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 16:40 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:37 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 16:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 16:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 16:48 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 16:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 16:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 16:36 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 16:48 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 16:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 17:05 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 16:44 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 17:08 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 16:52 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 16:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 17:03 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 16:53 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 16:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 16:51 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 16:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 16:47 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/284237.shtml)
-- 2026-06-29 16:49 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/817879033512.shtml)
-- 2026-06-29 16:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/5664254.shtml)
-- 2026-06-29 16:37 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/309065058442.shtml)
-- 2026-06-29 16:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/8495321.shtml)
-- 2026-06-29 16:59 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/5814079808.shtml)
-- 2026-06-29 16:42 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/33215029.shtml)
-- 2026-06-29 17:01 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/064214921.shtml)
-- 2026-06-29 16:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/7398471521.shtml)
-- 2026-06-29 16:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/67795004376.shtml)
-- 2026-06-29 16:42 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/049013812.shtml)
-- 2026-06-29 16:57 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/2178005328.shtml)
-- 2026-06-29 17:01 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/92519.shtml)
-- 2026-06-29 16:47 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/856924.shtml)
-- 2026-06-29 16:44 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/4228312.shtml)
+- 2026-06-29 16:49 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/88893587.shtml)
+- 2026-06-29 16:45 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/95888717346.shtml)
+- 2026-06-29 17:04 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/588019.shtml)
+- 2026-06-29 17:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/973104888537.shtml)
+- 2026-06-29 16:45 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/954575510420.shtml)
+- 2026-06-29 16:43 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/87041.shtml)
+- 2026-06-29 17:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/879361537862.shtml)
+- 2026-06-29 16:50 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/080433.shtml)
+- 2026-06-29 16:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/99201522.shtml)
+- 2026-06-29 16:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/6478602.shtml)
+- 2026-06-29 16:52 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/97465096622.shtml)
+- 2026-06-29 16:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/563648248568.shtml)
+- 2026-06-29 17:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/46398536.shtml)
+- 2026-06-29 16:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/82298744216.shtml)
+- 2026-06-29 17:03 - [女心理师](https://www.share.minike.top/Article/details/966040513672.shtml)

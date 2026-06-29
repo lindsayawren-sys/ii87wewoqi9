@@ -1,57 +1,57 @@
-# First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元
+# 2026中国与中东欧青年政治家论坛武汉闭幕
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-增长数据 First Eagle Investments宣布，截至2026年5月12日，其主动管理型ETF平台的管理资产规模已超过30亿美元，距离该平台推出不到18个月。年初至今的资金流入主要由全球策略驱动，在不到一半的时间内已追平2025年全年的总额。 产品矩阵 该平台于2024年底推出，目前包括四只股票型ETF：First Eagle全球股票ETF、First Eagle海
+中新网武汉6月15日电 (记者 梁婷)2026中国与中东欧青年政治家论坛闭幕式15日在华中师范大学举行。来自中东欧国家的政党、智库、民间组织青年代表，走进校园，与高校学子互动，并亲身体验楚香、武汉面塑等湖北省非遗代表性项目。 华中师范大学党委书记夏立新在致辞中介绍，该校重视与中东欧国家教育合作与人文交流，与波兰华沙大学等20多所高校及机构建立了交流合作关系，迄今共培养中东欧留学
 
 ## 正文
 
-增长数据 First Eagle Investments宣布，截至2026年5月12日，其主动管理型ETF平台的管理资产规模已超过30亿美元，距离该平台推出不到18个月。
+中新网武汉6月15日电 (记者 梁婷)2026中国与中东欧青年政治家论坛闭幕式15日在华中师范大学举行。
 
-年初至今的资金流入主要由全球策略驱动，在不到一半的时间内已追平2025年全年的总额。
+来自中东欧国家的政党、智库、民间组织青年代表，走进校园，与高校学子互动，并亲身体验楚香、武汉面塑等湖北省非遗代表性项目。
 
-产品矩阵 该平台于2024年底推出，目前包括四只股票型ETF：First Eagle全球股票ETF、First Eagle海外股票ETF、First Eagle美国股票ETF和First Eagle中型股股票ETF。
+华中师范大学党委书记夏立新在致辞中介绍，该校重视与中东欧国家教育合作与人文交流，与波兰华沙大学等20多所高校及机构建立了交流合作关系，迄今共培养中东欧留学生百余名，并聘请了50余位中东欧的专家学者来校任教讲学，并开展合作研究，取得丰硕成果。
 
-这些基金由First Eagle旗下成熟的投资团队管理，包括Matt McLennan领导的全球价值团队和Bill Hench领导的小盘股团队。
+“中国与中东欧国家虽相隔万里，但青年对话能跨越山海。
 
-行业趋势 在市场高度集中和波动加剧的背景下，投资者日益转向主动、估值驱动的策略。
+”华中师范大学波兰籍留学生安娜在交流分享中表示，在武汉的求学经历，为她打开了了解中国的窗口。
 
-主动型ETF被视作获得更具选择性、估值驱动的投资敞口并具有下行保护潜力的有效工具。
+在这里，不仅可以感受大学与青年的蓬勃活力，也能体会到科技文化与日常生活交织相融的城市节奏。
 
-管理层表态 First Eagle美国财富解决方案主管Frank Riccio表示，突破30亿美元既反映了对主动管理型ETF日益增长的需求，也体现了投资者对投资组合构建思路的变化。
+“现代化不只是数字、速度与规模，归根结底，它回归人的生活，关乎教育、公共服务、文化认同，更关乎人们畅想美好未来的权利与机会。
 
-在当前环境下，投资者在追求增长的同时，正优先考虑多元化和资本保值，并使用主动型ETF来实现这些目标。
+”她说。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 16:58 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 16:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 16:52 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 17:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 16:37 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 16:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 16:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 17:02 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 17:00 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 17:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 16:48 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 16:43 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 16:49 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 16:48 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:58 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 16:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 17:09 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:43 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 16:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 16:42 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/97823155501.shtml)
-- 2026-06-29 16:58 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/254916.shtml)
-- 2026-06-29 16:55 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/00181209.shtml)
-- 2026-06-29 16:36 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/1390214.shtml)
-- 2026-06-29 16:56 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/87071247988.shtml)
-- 2026-06-29 16:52 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/18506.shtml)
-- 2026-06-29 16:58 - [一生一世](https://www.share.minike.top/Article/details/74605491.shtml)
-- 2026-06-29 17:03 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/887636420.shtml)
-- 2026-06-29 16:51 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/886593555285.shtml)
-- 2026-06-29 16:58 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/3127307879.shtml)
-- 2026-06-29 17:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/77916.shtml)
-- 2026-06-29 16:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/22656374.shtml)
-- 2026-06-29 16:46 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/08362154.shtml)
-- 2026-06-29 16:50 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/801106282338.shtml)
-- 2026-06-29 16:37 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/254174.shtml)
+- 2026-06-29 16:47 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/51024941584.shtml)
+- 2026-06-29 16:53 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/05449065.shtml)
+- 2026-06-29 17:01 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/312275398209.shtml)
+- 2026-06-29 17:10 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/410319.shtml)
+- 2026-06-29 16:52 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/215623.shtml)
+- 2026-06-29 16:51 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/891281956336.shtml)
+- 2026-06-29 16:42 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/26091.shtml)
+- 2026-06-29 16:56 - [新能源车能当外接空调用吗](https://www.blog.minike.top/Article/details/5157449555.shtml)
+- 2026-06-29 16:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/25829444604.shtml)
+- 2026-06-29 16:49 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/129785099519.shtml)
+- 2026-06-29 16:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/130585972340.shtml)
+- 2026-06-29 16:54 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/34057.shtml)
+- 2026-06-29 17:04 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/6314772633.shtml)
+- 2026-06-29 17:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/174431537768.shtml)
+- 2026-06-29 16:48 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/91483486.shtml)

@@ -1,57 +1,56 @@
-# 露露乐蒙敦促股东否决创始人威尔逊代理权之争
+# 一线调研丨算力网织就数字经济新底座
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-本月早些时候，威尔逊升级了针对公司的代理权争夺战，随后露露乐蒙正式做出此番表态 内容速览 露露乐蒙运动服饰公司敦促股东投票反对创始人奇普・威尔逊提名的董事会人选，称其对企业未来发展布局的观念早已落伍。 露露乐蒙正式呼吁全体股东，否决由创始人奇普・威尔逊提名的一众董事候选人，直言其在运动服饰零售品牌未来发展战略上理念陈旧过时。 本月初威尔逊率先升级对公司的代理权之争，指出现任董事
+人工智能爆发式增长，对算力需求正呈现出指数级攀升。如何让用算力也像用水电一样既普惠又方便？一张互联互通的全国一体化算力网，正从无到有，不断生长起来。来看记者的一线调研。 记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。调度平台上的两个数字，引起了记者的注意。 京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。我们可以从内蒙古、宁
 
 ## 正文
 
-本月早些时候，威尔逊升级了针对公司的代理权争夺战，随后露露乐蒙正式做出此番表态 内容速览 露露乐蒙运动服饰公司敦促股东投票反对创始人奇普・威尔逊提名的董事会人选，称其对企业未来发展布局的观念早已落伍。
+人工智能爆发式增长，对算力需求正呈现出指数级攀升。
 
-露露乐蒙正式呼吁全体股东，否决由创始人奇普・威尔逊提名的一众董事候选人，直言其在运动服饰零售品牌未来发展战略上理念陈旧过时。
+如何让用算力也像用水电一样既普惠又方便？
 
-本月初威尔逊率先升级对公司的代理权之争，指出现任董事会存在多项履职疏漏，包括聚焦核心客群、优化商品运营与线下门店运营、加大营销及产品研发投入等核心经营方向均被忽视，此后露露乐蒙随即发起反击。
+一张互联互通的全国一体化算力网，正从无到有，不断生长起来。
 
-威尔逊目前仍是露露乐蒙最大的在职投资方，此前他提名三名人士进入公司董事会，分别为马克・莫雷尔、劳拉・詹蒂莱以及埃里克・赫希伯格，三人曾先后任职于昂跑运动品牌、娱乐体育节目电视网、动视暴雪游戏公司。
+来看记者的一线调研。
 
-露露乐蒙于周一表态称，威尔逊此番接连发难，既损害品牌声誉，也辜负了其口中所要维护的全体股东及利益相关方权益。
+记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。
 
-公司表示：“若推选威尔逊提名的任何候选人进入董事会，无异于认同其错误经营理念，会大幅拉低董事会整体专业能力与决策水平。
+调度平台上的两个数字，引起了记者的注意。
 
-在企业发展关键阶段，此举将阻碍现任管理团队与新任首席执行官落地、提速既定经营战略，严重拖累公司发展。
+京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。
 
-” 露露乐蒙透露，双方此前已洽谈和解方案，但威尔逊始终拒绝配合协商，令公司倍感失望。
+我们可以从内蒙古、宁夏这些节点给北京调算力，这会儿的调度率几乎是100%，也就是说能调的基本调完了。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 16:46 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 17:02 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 16:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 17:02 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 17:01 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 16:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 17:03 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 16:42 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 16:56 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 16:43 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 16:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 17:01 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 16:45 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:00 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 17:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 17:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 17:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 16:47 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 17:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 16:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/90346.shtml)
-- 2026-06-29 16:56 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/2180861.shtml)
-- 2026-06-29 16:46 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/06990412.shtml)
-- 2026-06-29 16:46 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/738658509.shtml)
-- 2026-06-29 16:51 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/52477.shtml)
-- 2026-06-29 16:59 - [毒液2](http://www.share.minike.top/Article/details/6326415010.shtml)
-- 2026-06-29 16:41 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/95246.shtml)
-- 2026-06-29 16:48 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/282623584434.shtml)
-- 2026-06-29 16:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/8429758.shtml)
-- 2026-06-29 16:59 - [扬名立万](https://www.share.minike.top/Article/details/321783557084.shtml)
-- 2026-06-29 16:39 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/6473991.shtml)
-- 2026-06-29 16:51 - [小娘惹](https://www.share.kurohicncr.top/Article/details/865718120886.shtml)
-- 2026-06-29 16:57 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/50884.shtml)
-- 2026-06-29 17:00 - [众星恭喜吴建豪](https://www.share.kurohicncr.top/Article/details/01512051.shtml)
-- 2026-06-29 16:54 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/238382358050.shtml)
+- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/795640147625.shtml)
+- 2026-06-29 16:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/32753765.shtml)
+- 2026-06-29 16:53 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/973263179282.shtml)
+- 2026-06-29 17:01 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/79337045171.shtml)
+- 2026-06-29 16:48 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/85716284.shtml)
+- 2026-06-29 17:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/82336.shtml)
+- 2026-06-29 17:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/44812.shtml)
+- 2026-06-29 16:50 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8881860.shtml)
+- 2026-06-29 16:46 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/01328274.shtml)
+- 2026-06-29 17:06 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/929879990.shtml)
+- 2026-06-29 17:10 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/1130613001.shtml)
+- 2026-06-29 16:53 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/60765.shtml)
+- 2026-06-29 16:58 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/8679943.shtml)
+- 2026-06-29 17:09 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/77149.shtml)
+- 2026-06-29 17:05 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/4742586.shtml)

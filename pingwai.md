@@ -1,60 +1,54 @@
-# 特斯拉跌近3%，金银油价同步上涨
+# 波音：八人在B-52轰炸机坠毁事故中遇难
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-当地时间5月18日，美股三大股指收盘涨跌不一，道指涨0.32%，标普500指数跌0.07%，纳指跌0.51%。 万得美国科技七巨头指数跌0.61%，特斯拉跌近3%，英伟达跌超1%。纳斯达克中国金龙指数跌0.72%，理想汽车跌近10%。 大宗商品市场方面，国际贵金属价格上涨，油价上涨。 新华社消息，美东时间18日下午，美国总统特朗普在社交媒体发文称，在卡塔尔、沙特阿拉伯、阿联酋领
+波音表示，在加利福尼亚州爱德华兹空军基地发生的B-52轰炸机坠毁事故中，8名机组人员丧生。机上有两名波音公司员工。 波音表示已与家属取得联系并提供支持。此前美国五角大楼声明称，一架美国空军B-52“同温层堡垒”轰炸机周一在加利福尼亚州爱德华兹空军基地起飞后不久坠毁。声明称，事故发生时飞机正在执行“例行测试任务”，坠机时间为太平洋时间11：20。责任编辑：王永生
 
 ## 正文
 
-当地时间5月18日，美股三大股指收盘涨跌不一，道指涨0.32%，标普500指数跌0.07%，纳指跌0.51%。
+波音表示，在加利福尼亚州爱德华兹空军基地发生的B-52轰炸机坠毁事故中，8名机组人员丧生。
 
-万得美国科技七巨头指数跌0.61%，特斯拉跌近3%，英伟达跌超1%。
+机上有两名波音公司员工。
 
-纳斯达克中国金龙指数跌0.72%，理想汽车跌近10%。
+波音表示已与家属取得联系并提供支持。
 
-大宗商品市场方面，国际贵金属价格上涨，油价上涨。
+此前美国五角大楼声明称，一架美国空军B-52“同温层堡垒”轰炸机周一在加利福尼亚州爱德华兹空军基地起飞后不久坠毁。
 
-新华社消息，美东时间18日下午，美国总统特朗普在社交媒体发文称，在卡塔尔、沙特阿拉伯、阿联酋领导人要求下，他已下令“明天（19日）”不按原计划对伊朗发动攻击。
+声明称，事故发生时飞机正在执行“例行测试任务”，坠机时间为太平洋时间11：20。
 
-伊朗最高领袖穆杰塔巴·哈梅内伊的社交媒体账号18日摘发其上任后首份声明，重申将考虑在敌人不擅长的领域开辟新战线。
-
-美股三大股指涨跌不一 当地时间5月18日，美股三大股指收盘涨跌不一。
-
-Wind数据显示，截至收盘，道指涨0.32%报49686.12点，标普500指数跌0.07%报7403.05点，纳指跌0.51%报26090.73点。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 16:49 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 16:39 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 16:36 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 16:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 16:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 16:48 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 16:37 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 16:58 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 16:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 16:52 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 16:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 16:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 16:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 17:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 17:01 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 17:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 16:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 17:03 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 16:44 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 17:04 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 16:58 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 16:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 16:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 17:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 17:01 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/414167748.shtml)
-- 2026-06-29 17:04 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/9177581.shtml)
-- 2026-06-29 16:50 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/98850.shtml)
-- 2026-06-29 16:44 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/07942190.shtml)
-- 2026-06-29 16:47 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/71200776283.shtml)
-- 2026-06-29 16:56 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/403368533.shtml)
-- 2026-06-29 16:59 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/957683970.shtml)
-- 2026-06-29 16:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/778187.shtml)
-- 2026-06-29 17:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/333543119.shtml)
-- 2026-06-29 16:57 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/7941792545.shtml)
-- 2026-06-29 16:49 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/4197774600.shtml)
-- 2026-06-29 16:59 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/0774302270.shtml)
-- 2026-06-29 16:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/20882983758.shtml)
-- 2026-06-29 16:47 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/5802065.shtml)
-- 2026-06-29 16:43 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/17502.shtml)
+- 2026-06-29 16:59 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/840216967.shtml)
+- 2026-06-29 16:46 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/8313530139.shtml)
+- 2026-06-29 16:53 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/926007.shtml)
+- 2026-06-29 17:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/178489.shtml)
+- 2026-06-29 16:48 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/979047286050.shtml)
+- 2026-06-29 16:56 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/26910.shtml)
+- 2026-06-29 16:59 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/313737298.shtml)
+- 2026-06-29 16:50 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/07249086811.shtml)
+- 2026-06-29 17:03 - [小娘惹](https://www.blog.minike.top/Article/details/99314719878.shtml)
+- 2026-06-29 16:46 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/1881497.shtml)
+- 2026-06-29 16:59 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/321823008005.shtml)
+- 2026-06-29 16:58 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/8352291391.shtml)
+- 2026-06-29 17:01 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/493377059.shtml)
+- 2026-06-29 17:06 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/903996.shtml)
+- 2026-06-29 17:00 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/5505288.shtml)

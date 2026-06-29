@@ -1,56 +1,59 @@
-# 特朗普撤销对美国国税局的100亿美元诉讼
+# 2026和合文明论坛在乌兹别克斯坦举行
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-核心要点 迈阿密联邦法院提交的文件显示，美国总统唐纳德・特朗普、他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）价值 100 亿美元的诉讼。 此前有报道称，美国司法部正与特朗普协商一项和解方案，联邦政府将出资 17 亿美元设立基金，用于赔偿声称遭拜登政府不当对待的特朗普盟友，此事引发强烈反对，特朗普随即撤诉。 据迈阿密联邦法院提交的文件，美国总统唐纳德・特朗普、他的
+中新网北京6月15日电 2026和合文明论坛近日在乌兹别克斯坦首都塔什干举行。来自中国、乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦、土库曼斯坦、俄罗斯等7个国家的学界、文化界、政界、工商界代表与会交流。 本次论坛由国际儒学联合会、塔什干国立东方大学共同主办，主题为“‘和合智慧’与‘一带一路’高质量发展”。 国际儒学联合会会长孙春兰在视频致辞中指出，儒家先哲很早就认识到，
 
 ## 正文
 
-核心要点 迈阿密联邦法院提交的文件显示，美国总统唐纳德・特朗普、他的两个长子以及特朗普集团于周一撤销了对美国国税局（IRS）价值 100 亿美元的诉讼。
+中新网北京6月15日电 2026和合文明论坛近日在乌兹别克斯坦首都塔什干举行。
 
-此前有报道称，美国司法部正与特朗普协商一项和解方案，联邦政府将出资 17 亿美元设立基金，用于赔偿声称遭拜登政府不当对待的特朗普盟友，此事引发强烈反对，特朗普随即撤诉。
+来自中国、乌兹别克斯坦、哈萨克斯坦、吉尔吉斯斯坦、塔吉克斯坦、土库曼斯坦、俄罗斯等7个国家的学界、文化界、政界、工商界代表与会交流。
 
-据迈阿密联邦法院提交的文件，美国总统唐纳德・特朗普、他的两个长子小唐纳德・特朗普、埃里克・特朗普以及特朗普集团于周一撤销了对美国国税局的 100 亿美元诉讼。
+本次论坛由国际儒学联合会、塔什干国立东方大学共同主办，主题为“‘和合智慧’与‘一带一路’高质量发展”。
 
-特朗普律师提交的文件未说明这一意外举动的原因，但文件显示，此举实际上阻止了法官审查特朗普民事诉讼的法律效力，也避免法官在认定诉讼无效时将其驳回。
+国际儒学联合会会长孙春兰在视频致辞中指出，儒家先哲很早就认识到，要承认并尊重差异的客观存在，并在此基础上寻求和谐共生。
 
-此前有报道称，美国司法部正与特朗普协商和解，联邦政府将出资 17 亿美元设立基金，赔偿声称遭拜登政府不当对待的特朗普盟友，此事引发争议，随后特朗普便撤销了诉讼。
+中亚各国文化同样饱含热爱和平、珍视团结、主张包容的思想。
 
-国会民主党议员称该基金将成为 “贿赂基金”。
+两千多年来，中国同中亚人民秉承“和合智慧”，一道推动丝绸之路兴起和繁荣。
 
-CNBC 已询问美国司法部，特朗普撤销诉讼是否与政府在庭外和解其诉求有关。
+如今，“互尊、互信、互利、互助，以高质量发展推进共同现代化”的“中国-中亚精神”正引领地区合作不断开创新局面。
 
-周一提交的法院文件显示，唐纳德・特朗普、小唐纳德・特朗普、埃里克・特朗普以及特朗普集团自愿且不可再诉地撤回对美国国税局的诉讼。
+中国人民大学校长马怀德表示，中国人民大学以传承“和合”文化、服务“一带一路”高质量发展、推动文明互鉴为使命。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 16:59 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 16:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 16:49 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 16:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 16:36 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 16:39 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 16:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 16:59 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 16:45 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 16:45 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 17:06 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 16:59 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 17:09 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 17:05 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 16:52 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 17:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 17:02 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 17:01 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 17:10 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 17:02 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/89350.shtml)
-- 2026-06-29 16:39 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/0371794397.shtml)
-- 2026-06-29 16:41 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/659804544.shtml)
-- 2026-06-29 16:36 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/38128.shtml)
-- 2026-06-29 16:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/55636579386.shtml)
-- 2026-06-29 16:44 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/479411.shtml)
-- 2026-06-29 17:05 - [千与千寻](https://www.share.kurohicncr.top/Article/details/3490167.shtml)
-- 2026-06-29 16:45 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/012129527318.shtml)
-- 2026-06-29 16:43 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/503005.shtml)
-- 2026-06-29 17:00 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/4951476575.shtml)
-- 2026-06-29 16:36 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/059862391.shtml)
-- 2026-06-29 16:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/75448032070.shtml)
-- 2026-06-29 17:06 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/39747467.shtml)
-- 2026-06-29 17:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/378550.shtml)
-- 2026-06-29 16:54 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/59613.shtml)
+- 2026-06-29 17:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/05153.shtml)
+- 2026-06-29 17:01 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/64092522.shtml)
+- 2026-06-29 17:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/504244594.shtml)
+- 2026-06-29 16:53 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/10489.shtml)
+- 2026-06-29 17:10 - [《贺子珍》](http://www.blog.minike.top/Article/details/505357815390.shtml)
+- 2026-06-29 16:50 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/905606732778.shtml)
+- 2026-06-29 17:08 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/8641401609.shtml)
+- 2026-06-29 16:50 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/1593470.shtml)
+- 2026-06-29 16:49 - [流金岁月](https://www.share.minike.top/Article/details/278703127.shtml)
+- 2026-06-29 17:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/662036435.shtml)
+- 2026-06-29 16:50 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/524565955968.shtml)
+- 2026-06-29 17:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/16015268607.shtml)
+- 2026-06-29 17:08 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/01043026034.shtml)
+- 2026-06-29 17:02 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/42592.shtml)
+- 2026-06-29 16:44 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/72952498.shtml)

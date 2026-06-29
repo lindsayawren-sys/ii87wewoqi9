@@ -1,52 +1,59 @@
-# 日经指数上涨0.7% 受金融和建筑股领涨提振
+# ATFX前瞻:美联储及四家央行决议 日本央行加息概率高
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-日本股市早盘走高，得益于人们对美伊可能达成结束战争的协议抱有持续希望。 日经指数上涨0.7%，至61235.36点。 金融和建筑类股领涨。瑞穗金融集团上涨4.1%，Kajima上涨3.9%。投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的任何措施。责任编辑：王永生
+专题：ATFX外汇专栏投稿 美联储利率决议 6月15日，本周四2：00，美联储将公布利率决议结果，主流预期认为，维持3.75%的基准利率不变。2：30，美联储主席沃什召开货币政策新闻发布会，这是沃什首次公开以美联储主席身份露面，市场关注度极高。重点关注沃什对未来利率路径、经济数据的看法。 ATFX图▲ 决定美联储货币政策的核心经济数据是通胀率。上图是美国CPI年率和核心CPI年
 
 ## 正文
 
-日本股市早盘走高，得益于人们对美伊可能达成结束战争的协议抱有持续希望。
+专题：ATFX外汇专栏投稿 美联储利率决议 6月15日，本周四2：00，美联储将公布利率决议结果，主流预期认为，维持3.75%的基准利率不变。
 
-日经指数上涨0.7%，至61235.36点。
+2：30，美联储主席沃什召开货币政策新闻发布会，这是沃什首次公开以美联储主席身份露面，市场关注度极高。
 
-金融和建筑类股领涨。
+重点关注沃什对未来利率路径、经济数据的看法。
 
-瑞穗金融集团上涨4.1%，Kajima上涨3.9%。
+ATFX图▲ 决定美联储货币政策的核心经济数据是通胀率。
 
-投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的任何措施。
+上图是美国CPI年率和核心CPI年率曲线叠加图。
 
-责任编辑：王永生
+因为美国和伊朗的冲突，导致国际油价持续高位运行，美国的CPI数据自3月份之后明显升高，绝对值已经达到4.2%，远超2%的温和通胀标准。
+
+美联储为了遏制高通胀风险，有可能采取加息政策。
+
+消息面，美国和伊朗已经就协议备忘录达成一致，本周五大概率签署停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 16:45 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 16:59 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 16:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 16:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 16:56 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 16:59 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 16:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 16:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 16:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 16:53 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 16:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 16:42 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 16:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 17:03 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 16:58 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:00 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 16:44 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 16:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 17:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 16:58 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 17:06 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 17:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/042041397.shtml)
-- 2026-06-29 17:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/71179009.shtml)
-- 2026-06-29 16:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/885971983.shtml)
-- 2026-06-29 16:52 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/97660.shtml)
-- 2026-06-29 16:37 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/43641.shtml)
-- 2026-06-29 17:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/67086440100.shtml)
-- 2026-06-29 16:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/1301422.shtml)
-- 2026-06-29 16:43 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/362912.shtml)
-- 2026-06-29 16:44 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/798280854.shtml)
-- 2026-06-29 16:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/9441570369.shtml)
-- 2026-06-29 16:37 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2267827976.shtml)
-- 2026-06-29 16:44 - [爸爸当家](http://www.share.minike.top/Article/details/70735.shtml)
-- 2026-06-29 16:55 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/738318558.shtml)
-- 2026-06-29 16:38 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/10763068.shtml)
-- 2026-06-29 16:45 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/257602.shtml)
+- 2026-06-29 17:00 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/09233730901.shtml)
+- 2026-06-29 16:57 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/1737798636.shtml)
+- 2026-06-29 16:55 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/52376953106.shtml)
+- 2026-06-29 17:04 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/091660.shtml)
+- 2026-06-29 16:46 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/090302037779.shtml)
+- 2026-06-29 17:05 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/49455703643.shtml)
+- 2026-06-29 16:45 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/808845107.shtml)
+- 2026-06-29 16:57 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/6235209.shtml)
+- 2026-06-29 17:01 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/36072291034.shtml)
+- 2026-06-29 17:10 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/059707.shtml)
+- 2026-06-29 16:57 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/125555.shtml)
+- 2026-06-29 17:07 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/50873806481.shtml)
+- 2026-06-29 17:11 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/62865873403.shtml)
+- 2026-06-29 16:50 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/855916650887.shtml)
+- 2026-06-29 16:43 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/882759399.shtml)

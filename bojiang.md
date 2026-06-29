@@ -1,57 +1,49 @@
-# 吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐
+# 仙工智能于6月15日至6月18日招股 预期6月24日上市
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-原标题：21独家|吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐 21世纪经济报道 记者郭聪聪 5月19日，21世纪经济报道记者从多名业内人士处获悉，中信信托董事长吕天贵回归中信银行。经过必要程序后，他将补位中信银行行长一职，目前该职位已空缺近五个月。 一位接近吕天贵的银行高管向21世纪经济报道记者表示：“他（吕天贵）非常具有战略眼光，业务经验非常丰富，管过零售、公司金融，
+仙工智能（06106）于2026年6月15日-2026年6月18日招股，拟全球发售1049.73万股H股，香港公开发售占5%（可予重新分配），国际发售占95%（可予重新分配），另有15%发售量调整权及15%超额配股权。发售价将为每股发售股份101.60港元，每手50股，预期H股将于2026年6月24日（星期三）上午九时正在联交所开始买卖。责任编辑：卢昱君
 
 ## 正文
 
-原标题：21独家|吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐 21世纪经济报道 记者郭聪聪 5月19日，21世纪经济报道记者从多名业内人士处获悉，中信信托董事长吕天贵回归中信银行。
+仙工智能（06106）于2026年6月15日-2026年6月18日招股，拟全球发售1049.73万股H股，香港公开发售占5%（可予重新分配），国际发售占95%（可予重新分配），另有15%发售量调整权及15%超额配股权。
 
-经过必要程序后，他将补位中信银行行长一职，目前该职位已空缺近五个月。
+发售价将为每股发售股份101.60港元，每手50股，预期H股将于2026年6月24日（星期三）上午九时正在联交所开始买卖。
 
-一位接近吕天贵的银行高管向21世纪经济报道记者表示：“他（吕天贵）非常具有战略眼光，业务经验非常丰富，管过零售、公司金融，也管过信托。
-
-金融专业知识和业务经验都很扎实，为人也比较务实。
-
-” 此番回归，意味着中信集团内部两大金融机构完成第二次高管轮换，吕天贵将与董事长方合英组成新的管理组合，共同掌舵这家资产规模已突破10万亿元的股份制商业银行。
-
-待其任职资格获批后，中信银行高管层将得以补齐，形成“一正六副”的管理架构。
-
-从中信银行走出的金融干将 公开资料显示，吕天贵，1972年生人，毕业于四川大学工商管理专业，拥有高级会计师职称以及国际注册内部审计师、中国注册会计师等专项资格。
-
-其金融从业生涯始于1993年，在中国银行吉林分行工作近十年，曾任风险管理处副处长。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 16:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 17:03 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 16:58 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 17:00 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:40 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 16:55 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 16:49 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 17:04 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 16:39 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 16:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 16:52 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 16:48 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 16:46 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 17:10 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 16:58 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 17:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 17:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 16:47 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 17:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 17:10 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 16:54 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 17:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/52793669.shtml)
-- 2026-06-29 17:02 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/306491642546.shtml)
-- 2026-06-29 16:45 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/7880306.shtml)
-- 2026-06-29 16:45 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/74950643261.shtml)
-- 2026-06-29 17:02 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/76774722.shtml)
-- 2026-06-29 16:44 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/19768486.shtml)
-- 2026-06-29 16:37 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/877397363.shtml)
-- 2026-06-29 16:57 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/119852.shtml)
-- 2026-06-29 16:37 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/08034666970.shtml)
-- 2026-06-29 17:03 - [AG 宫斗](https://www.share.minike.top/Article/details/241006929.shtml)
-- 2026-06-29 16:46 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/29414057.shtml)
-- 2026-06-29 16:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/029939361.shtml)
-- 2026-06-29 16:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/047351.shtml)
-- 2026-06-29 16:52 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/8349468.shtml)
-- 2026-06-29 17:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/48228893.shtml)
+- 2026-06-29 17:06 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/76075641.shtml)
+- 2026-06-29 17:01 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/827050697.shtml)
+- 2026-06-29 16:42 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/457774.shtml)
+- 2026-06-29 16:57 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/14852605300.shtml)
+- 2026-06-29 17:04 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/61904498.shtml)
+- 2026-06-29 16:56 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/088765239.shtml)
+- 2026-06-29 17:04 - [一见倾心](https://www.share.minike.top/Article/details/033675.shtml)
+- 2026-06-29 17:05 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/87088772711.shtml)
+- 2026-06-29 16:58 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/40805290.shtml)
+- 2026-06-29 16:50 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/1658097.shtml)
+- 2026-06-29 16:53 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/396336851.shtml)
+- 2026-06-29 17:07 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/704944.shtml)
+- 2026-06-29 17:09 - [T1零封KC MSI](https://www.share.minike.top/Article/details/22199611643.shtml)
+- 2026-06-29 16:52 - [上海一小区水池内出现一条鳄鱼](http://www.blog.kurohicncr.top/Article/details/265558060239.shtml)
+- 2026-06-29 16:45 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/56926809231.shtml)

@@ -1,60 +1,49 @@
-# 俄罗斯尤日乌拉尔黄金公司被没收股权因无人竞标流拍
+# 华亿金控公布于今日上午起停牌 以待发布内幕消息
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-俄罗斯国家拍卖网站18日发布通报指出，由于在规定期限内未收到任何竞标申请，该国大型黄金生产商尤日乌拉尔黄金公司（UGC）部分被没收国有股权的公开拍卖已宣告流拍。 此次公开拍卖的标的为俄罗斯商人康斯坦丁·斯特鲁科夫此前持有的尤日乌拉尔黄金公司67.2%的股权。尤日乌拉尔黄金公司系俄罗斯排名前十的黄金开采企业，该笔股权最新估值达1404.3亿卢布。俄罗斯国家拍卖网站确认本次招标无效
+华亿金控（08123）公布，公司股份已于2026年6月16日（星期二）上午九时正起暂停于香港联合交易所有限公司买卖，以待发出一则有关根据GEM证券上市规则第 17.10条及根据香港证券及期货事务监察委员会颁布的香港公司收购及合并守则的公司内幕消息公告。责任编辑：卢昱君
 
 ## 正文
 
-俄罗斯国家拍卖网站18日发布通报指出，由于在规定期限内未收到任何竞标申请，该国大型黄金生产商尤日乌拉尔黄金公司（UGC）部分被没收国有股权的公开拍卖已宣告流拍。
+华亿金控（08123）公布，公司股份已于2026年6月16日（星期二）上午九时正起暂停于香港联合交易所有限公司买卖，以待发出一则有关根据GEM证券上市规则第 17.10条及根据香港证券及期货事务监察委员会颁布的香港公司收购及合并守则的公司内幕消息公告。
 
-此次公开拍卖的标的为俄罗斯商人康斯坦丁·斯特鲁科夫此前持有的尤日乌拉尔黄金公司67.2%的股权。
-
-尤日乌拉尔黄金公司系俄罗斯排名前十的黄金开采企业，该笔股权最新估值达1404.3亿卢布。
-
-俄罗斯国家拍卖网站确认本次招标无效，目前俄官方暂未明确是否将筹备启动新一轮拍卖程序。
-
-去年7月，俄罗斯法院裁定将斯特鲁科夫名下的上述股权予以没收并收归国有。
-
-俄罗斯检察机关此前指控其通过腐败手段获取相关资产。
-
-本月上旬，俄罗斯联邦国有财产管理署正式将斯特鲁科夫名下总估值约1620.2亿卢布（约合22.2亿美元）的资产挂牌拍卖。
-
-据悉，斯特鲁科夫目前尚未遭到正式起诉或羁押。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 17:04 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 16:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 17:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 16:54 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 16:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 16:55 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 16:59 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 16:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:58 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:56 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 16:54 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 16:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 16:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:06 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 16:59 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 17:06 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 16:47 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 16:52 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 16:46 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 17:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 16:53 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 17:03 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 16:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 16:53 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:54 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 17:10 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:45 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/284252.shtml)
-- 2026-06-29 16:52 - [金刚川](https://www.share.minike.top/Article/details/08508.shtml)
-- 2026-06-29 17:03 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/447225.shtml)
-- 2026-06-29 16:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/795058710859.shtml)
-- 2026-06-29 16:36 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/64628.shtml)
-- 2026-06-29 16:45 - [起风了](https://www.blog.minike.top/Article/details/73877.shtml)
-- 2026-06-29 16:50 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/1779957799.shtml)
-- 2026-06-29 16:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/66638537.shtml)
-- 2026-06-29 17:02 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/80271216832.shtml)
-- 2026-06-29 16:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/7012905171.shtml)
-- 2026-06-29 16:55 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/464526.shtml)
-- 2026-06-29 16:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/03484139.shtml)
-- 2026-06-29 16:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/3753709.shtml)
-- 2026-06-29 16:44 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/18834176.shtml)
-- 2026-06-29 16:46 - [绘画区你赢了](http://www.share.minike.top/Article/details/15295114.shtml)
+- 2026-06-29 17:04 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/80788.shtml)
+- 2026-06-29 17:10 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/591550.shtml)
+- 2026-06-29 16:47 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/251689707938.shtml)
+- 2026-06-29 16:52 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/12504710512.shtml)
+- 2026-06-29 16:53 - [急先锋](https://www.share.minike.top/Article/details/40620970.shtml)
+- 2026-06-29 16:47 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/820470978.shtml)
+- 2026-06-29 17:02 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/84592.shtml)
+- 2026-06-29 16:42 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/78851769040.shtml)
+- 2026-06-29 17:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/3807783425.shtml)
+- 2026-06-29 16:51 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/850205.shtml)
+- 2026-06-29 16:55 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/78902147.shtml)
+- 2026-06-29 16:45 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/439788471166.shtml)
+- 2026-06-29 17:04 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/4297242574.shtml)
+- 2026-06-29 16:58 - [逃狱兄弟](https://www.share.minike.top/Article/details/127003.shtml)
+- 2026-06-29 16:46 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/56552824.shtml)

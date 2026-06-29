@@ -1,59 +1,45 @@
-# “夜归人巴士”：预约制发车 回家“最后一公里”的新选择
+# 揭秘直播间里的“特供酒”新骗局 生产车间随意堆放杂物 更无正规酿造窖池
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-在浙江杭州，有一趟深夜公交车：“夜归人巴士”。和常规公交线路不同，这趟车没有固定线路和时刻表，司机接单响应，按需发车，由近及远将下单的乘客送到家门口。每天晚上9点到11点半，这趟预约制的巴士，护送夜归人们平安回家的最后一段路程。 预约制发车 回家“最后一公里”的新选择 晚上9点，“夜归人巴士”准时出现在九和路公交站，驾驶员刘兵收拾好车厢，擦拭干净车门前窗，等待着乘客上车。 乘客
+发布时间：2026年06月15日 10:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-在浙江杭州，有一趟深夜公交车：“夜归人巴士”。
-
-和常规公交线路不同，这趟车没有固定线路和时刻表，司机接单响应，按需发车，由近及远将下单的乘客送到家门口。
-
-每天晚上9点到11点半，这趟预约制的巴士，护送夜归人们平安回家的最后一段路程。
-
-预约制发车 回家“最后一公里”的新选择 晚上9点，“夜归人巴士”准时出现在九和路公交站，驾驶员刘兵收拾好车厢，擦拭干净车门前窗，等待着乘客上车。
-
-乘客上车时，刘兵要核对他们的手机尾号，发车前，再逐一点名，确保所有预约乘客都已落座。
-
-“夜归人巴士”司机 刘兵：乘客通过云公交下单以后，利用这个系统我们就能收到预约信息。
-
-我们会看屏幕确认乘客有没有上车。
-
-到最后发车之前，我们会确认一下他来了没有。
+发布时间：2026年06月15日 10:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 16:47 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 16:39 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 16:55 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 16:36 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 16:44 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 16:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 16:41 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 17:00 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 16:42 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 16:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 16:44 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 16:48 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 17:09 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 17:05 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 17:05 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 17:00 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 17:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 16:53 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 16:44 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:09 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 17:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 16:42 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 16:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 16:49 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/64046017058.shtml)
-- 2026-06-29 16:43 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/52299206.shtml)
-- 2026-06-29 16:57 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/86832992.shtml)
-- 2026-06-29 17:03 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/1434185708.shtml)
-- 2026-06-29 16:38 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/4821434574.shtml)
-- 2026-06-29 16:53 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/922854.shtml)
-- 2026-06-29 16:40 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/063576779560.shtml)
-- 2026-06-29 16:43 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/5943135461.shtml)
-- 2026-06-29 16:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/4596951.shtml)
-- 2026-06-29 16:36 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/449272256110.shtml)
-- 2026-06-29 17:04 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/25093060635.shtml)
-- 2026-06-29 16:46 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/3709346002.shtml)
-- 2026-06-29 17:01 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/618219177142.shtml)
-- 2026-06-29 16:59 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/1919558621.shtml)
-- 2026-06-29 17:01 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/376571312.shtml)
+- 2026-06-29 16:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/49699371.shtml)
+- 2026-06-29 17:09 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/636921.shtml)
+- 2026-06-29 16:50 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/42640.shtml)
+- 2026-06-29 17:04 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/17425216.shtml)
+- 2026-06-29 17:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/527239030692.shtml)
+- 2026-06-29 16:43 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/90953553.shtml)
+- 2026-06-29 16:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/56997662.shtml)
+- 2026-06-29 17:11 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/57210043466.shtml)
+- 2026-06-29 16:43 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/585938208059.shtml)
+- 2026-06-29 17:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/663613862040.shtml)
+- 2026-06-29 16:56 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/3091409104.shtml)
+- 2026-06-29 17:02 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/488142760.shtml)
+- 2026-06-29 16:52 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/70531287044.shtml)
+- 2026-06-29 17:02 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/208221.shtml)
+- 2026-06-29 16:47 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/990034777438.shtml)

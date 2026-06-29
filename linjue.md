@@ -1,60 +1,58 @@
-# 日本财务大臣暗示政府编制补充预算时会考虑债市因素
+# “张雪机车”再夺冠 中国制造彰显实力
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。 “鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。整个金融市场本身就是风险之一。” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着
+13日，2026世界超级摩托车锦标赛意大利艾米利亚-罗马涅站WorldSSP组别首回合比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。这是该车手与“张雪机车”的赛季第六冠。一个成立仅两年的中国品牌，凭借自主研发的赛车，已经成为年度冠军有力争夺者。在世界级的赛场上，中国制造正在不断彰显强大实力。总台记者 殷欣：这里是世界超级摩托车锦标赛意大利艾米利亚-罗马涅
 
 ## 正文
 
-日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。
+13日，2026世界超级摩托车锦标赛意大利艾米利亚-罗马涅站WorldSSP组别首回合比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。
 
-“鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。
+这是该车手与“张雪机车”的赛季第六冠。
 
-整个金融市场本身就是风险之一。
+一个成立仅两年的中国品牌，凭借自主研发的赛车，已经成为年度冠军有力争夺者。
 
-” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。
+在世界级的赛场上，中国制造正在不断彰显强大实力。
 
-片山皋月并未透露有关新支出规模以及如何筹集资金的明确信息。
+总台记者 殷欣：这里是世界超级摩托车锦标赛意大利艾米利亚-罗马涅站的赛场。
 
-“从某种意义上说，首相的指示是让我们全面评估形势，并考虑确保资金来源的措施，而这正是我们打算做的，”片山皋月说道，但并未回答有关政府是否需要发行新债的问题。
+在我身边机车轰鸣声不绝于耳，在这条低速技术型赛道上，以“张雪机车”为代表的中国自主研制的中大排量摩托车，要面对的是弯道稳定性和灵活性的多重考验。
 
-日本30年期国债收益率周一跃升，触及自1999年该债券推出以来的最高水平。
+艾米利亚-罗马涅站的米萨诺赛道全长约4.2公里，共有16个弯道，其中大部分为低速技术型弯角。
 
-基准10年期国债和20年期国债收益率也大幅飙升，达到1996年以来的最高水平。
+面对不同的赛道，凭借供应链进行精准的“赛道适应性调校”，是取胜的关键因素之一。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 16:50 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 16:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 16:43 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 16:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 16:47 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 16:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 16:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 17:06 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 17:03 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 16:43 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 16:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 16:56 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 16:42 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 17:06 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 16:44 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 17:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 16:55 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 16:54 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 16:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:01 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 16:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 16:51 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 16:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 17:07 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/743167.shtml)
-- 2026-06-29 16:46 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/75006553758.shtml)
-- 2026-06-29 16:51 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/28365222.shtml)
-- 2026-06-29 16:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7191664898.shtml)
-- 2026-06-29 17:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/545545.shtml)
-- 2026-06-29 16:51 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/22413578785.shtml)
-- 2026-06-29 16:40 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/962605586.shtml)
-- 2026-06-29 17:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/08186141.shtml)
-- 2026-06-29 16:56 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/799025904.shtml)
-- 2026-06-29 16:48 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/64836.shtml)
-- 2026-06-29 16:53 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/131780.shtml)
-- 2026-06-29 17:00 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/962492354030.shtml)
-- 2026-06-29 16:53 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/64012.shtml)
-- 2026-06-29 16:53 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/076623635692.shtml)
-- 2026-06-29 16:40 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2757753499.shtml)
+- 2026-06-29 16:53 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/9623711.shtml)
+- 2026-06-29 16:52 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/679960.shtml)
+- 2026-06-29 16:49 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/1570077.shtml)
+- 2026-06-29 16:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/88407100.shtml)
+- 2026-06-29 17:11 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/463266.shtml)
+- 2026-06-29 16:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/00626.shtml)
+- 2026-06-29 16:56 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/31398277.shtml)
+- 2026-06-29 16:43 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/778126198094.shtml)
+- 2026-06-29 16:53 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/6801541549.shtml)
+- 2026-06-29 16:49 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/118498.shtml)
+- 2026-06-29 16:57 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/453525127.shtml)
+- 2026-06-29 17:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/677159499199.shtml)
+- 2026-06-29 16:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/67389.shtml)
+- 2026-06-29 17:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/241513.shtml)
+- 2026-06-29 16:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/69890007000.shtml)

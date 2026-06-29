@@ -1,58 +1,57 @@
-# 业内人士：债券市场已成为央行宏观调控和政策传导的重要阵地
+# 港股午评：恒指涨0.45% 科指涨0.92% 黄金股普涨 芯片股强势 华虹宏力涨超11% 溜溜梅上市首日涨超189%
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。 “这显示，随着融资结构变化和银行经营转型，
+6月15日消息，港股三大指数集体上涨。截至午间收盘，恒生指数涨0.45%，报24829.11，恒生科技指数涨0.92%，国企指数涨0.08%。盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超3%，阿里巴巴跌超1%；黄金股集体上涨，紫金黄金国际涨超12%；芯片股强势，华虹宏力涨超11%；航空股大涨，东方航空涨超9%；溜溜梅今日上市，首日涨超189%。 黄金股集体上涨，紫金黄金国际
 
 ## 正文
 
-来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。
+6月15日消息，港股三大指数集体上涨。
 
-银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。
+截至午间收盘，恒生指数涨0.45%，报24829.11，恒生科技指数涨0.92%，国企指数涨0.08%。
 
-”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。
+盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超3%，阿里巴巴跌超1%；黄金股集体上涨，紫金黄金国际涨超12%；芯片股强势，华虹宏力涨超11%；航空股大涨，东方航空涨超9%；溜溜梅今日上市，首日涨超189%。
 
-“这显示，随着融资结构变化和银行经营转型，商业银行债券投融资行为已成为影响货币供应和信用创造的重要渠道。
+黄金股集体上涨，紫金黄金国际涨超12%。
 
-”平安银行有关业务负责人如是表示。
+6月15日， 黄金站上4300美元/盎司。
 
-“央行遴选的一级交易商和做市商，正在扮演三重关键角色——流动性枢纽、定价锚点、市场稳定器。
+据央视新闻，美东时间14日，美国总统特朗普在社交媒体上说，随着美伊协议19日签署，霍尔木兹海峡将重新开放，以便进行排雷作业。
 
-”受访专家在接受采访时指出，通俗来说，银行既是政策落地的“传导器”，也是市场运行的“压舱石”。
+中金财富期货指出，黄金是美伊达成协议的最受益标的。
 
-与此同时，管好债市的意义也尤为凸显。
+后续关注霍尔木兹海峡油轮通过情况及油价走势。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 16:49 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 16:56 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 16:40 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 16:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 16:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 16:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 16:57 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 17:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 17:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 17:02 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 17:05 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 17:08 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 16:47 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 16:46 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 16:59 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 16:42 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 16:58 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 16:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 16:58 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 16:46 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 16:51 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/762799420.shtml)
-- 2026-06-29 17:05 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/774935474382.shtml)
-- 2026-06-29 17:04 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/13311568.shtml)
-- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/146272473008.shtml)
-- 2026-06-29 16:36 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/428211.shtml)
-- 2026-06-29 16:37 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/5308304.shtml)
-- 2026-06-29 17:00 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/179584661973.shtml)
-- 2026-06-29 16:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/44733.shtml)
-- 2026-06-29 16:47 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/93261097740.shtml)
-- 2026-06-29 16:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/55254480.shtml)
-- 2026-06-29 17:01 - [乔家的儿女](https://www.share.minike.top/Article/details/5453413.shtml)
-- 2026-06-29 16:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/2577775.shtml)
-- 2026-06-29 17:00 - [扫黑风暴](https://www.blog.minike.top/Article/details/3727713.shtml)
-- 2026-06-29 17:04 - [T1 KC](http://www.share.kurohicncr.top/Article/details/209629.shtml)
-- 2026-06-29 16:57 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/506060064.shtml)
+- 2026-06-29 17:01 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/4840111.shtml)
+- 2026-06-29 16:49 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/4616619.shtml)
+- 2026-06-29 16:58 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/28389.shtml)
+- 2026-06-29 17:06 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/09842560.shtml)
+- 2026-06-29 16:44 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/756502.shtml)
+- 2026-06-29 16:51 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/62307223175.shtml)
+- 2026-06-29 16:51 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/39967698676.shtml)
+- 2026-06-29 17:00 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/49775679.shtml)
+- 2026-06-29 16:45 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/6605667.shtml)
+- 2026-06-29 17:02 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/82296483.shtml)
+- 2026-06-29 17:08 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/48939026.shtml)
+- 2026-06-29 16:46 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/72897959978.shtml)
+- 2026-06-29 17:11 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/2203250.shtml)
+- 2026-06-29 17:06 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/561730.shtml)
+- 2026-06-29 16:48 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/0515999.shtml)

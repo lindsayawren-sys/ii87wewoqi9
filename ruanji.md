@@ -1,56 +1,42 @@
-# 印度法院要求苹果在反垄断案中“配合”
+# 总书记的关切事｜文脉守护
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-印度一家法院要求苹果在涉及iPhone应用市场的反垄断案件中“全面配合”调查人员，并驳回了这家美国公司关于在对反垄断处罚相关法律提出异议期间暂缓审理该案的请求。 德里高等法院周六在其官网发布的裁决中表示，苹果“应全面配合”，但要求印度竞争委员会（CCI）至少在7月15日之前不要就此案作出最终裁决。 据报道，苹果希望暂停此案审理，并指控印度竞争委员会越权，强迫该公司提交通常用于计
+发布时间：2026年06月14日 15:20 来源：央视网 责任编辑：【李骏】
 
 ## 正文
 
-印度一家法院要求苹果在涉及iPhone应用市场的反垄断案件中“全面配合”调查人员，并驳回了这家美国公司关于在对反垄断处罚相关法律提出异议期间暂缓审理该案的请求。
-
-德里高等法院周六在其官网发布的裁决中表示，苹果“应全面配合”，但要求印度竞争委员会（CCI）至少在7月15日之前不要就此案作出最终裁决。
-
-据报道，苹果希望暂停此案审理，并指控印度竞争委员会越权，强迫该公司提交通常用于计算罚款的财务数据，而苹果针对罚款相关法律的挑战目前尚在审理中。
-
-自2024年一项调查发现苹果滥用其主导地位以来，CCI一直试图获取苹果的财务信息。
-
-苹果否认有任何不当行为，并抵制CCI的要求，辩称其已对印度整个反垄断罚款计算法律提出质疑，监管机构必须等待。
-
-印度此案是苹果在全球因涉嫌违反反垄断法而面临的众多案件之一。
-
-据Counterpoint Research称，印度是苹果的关键市场，其iPhone在该国的市场份额为9%，而两年前仅为4%。
-
-苹果未回应置评请求。
+发布时间：2026年06月14日 15:20 来源：央视网 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 16:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 16:51 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 17:04 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 16:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 16:58 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 16:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 16:45 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 16:48 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 16:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:45 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 16:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 16:45 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 16:58 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 16:52 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 16:59 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 17:09 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:08 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 16:47 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/45787.shtml)
-- 2026-06-29 16:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/6983255.shtml)
-- 2026-06-29 16:51 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/52439.shtml)
-- 2026-06-29 16:41 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/654821063099.shtml)
-- 2026-06-29 16:48 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/1569907.shtml)
-- 2026-06-29 16:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/13326824.shtml)
-- 2026-06-29 16:36 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/740057691994.shtml)
-- 2026-06-29 17:03 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/078090.shtml)
-- 2026-06-29 17:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/76273967.shtml)
-- 2026-06-29 16:43 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/0889554.shtml)
-- 2026-06-29 17:05 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/5119083699.shtml)
-- 2026-06-29 16:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/67312133.shtml)
-- 2026-06-29 17:04 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/7331198105.shtml)
-- 2026-06-29 17:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/97976058.shtml)
-- 2026-06-29 16:44 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/207978374.shtml)
+- 2026-06-29 17:06 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/66197175.shtml)
+- 2026-06-29 16:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/7466392751.shtml)
+- 2026-06-29 16:43 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/300196.shtml)
+- 2026-06-29 17:03 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/758628449.shtml)
+- 2026-06-29 17:07 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/939405552.shtml)
+- 2026-06-29 16:55 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/0110177.shtml)
+- 2026-06-29 16:48 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/54867.shtml)
+- 2026-06-29 16:55 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/822653587085.shtml)
+- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/08864.shtml)
+- 2026-06-29 17:03 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/0336832339.shtml)
+- 2026-06-29 16:50 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/317924844.shtml)
+- 2026-06-29 17:03 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/32053010.shtml)
+- 2026-06-29 16:42 - [啊啊啊](http://www.blog.minike.top/Article/details/35794606151.shtml)
+- 2026-06-29 17:09 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/28990111026.shtml)
+- 2026-06-29 16:58 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/100810.shtml)

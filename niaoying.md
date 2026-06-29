@@ -1,58 +1,57 @@
-# 零售商接连遭遇重重经营困境
+# （活力中国调研行）从火箭动力到太空算力 北京以AI加速“算力上天”
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-此外：私募借贷暗藏价值陷阱，华盛顿地区出现可疑博彩交易 作者：李真珠 早安，今日由我代班斯宾塞・雅卡布。目前市场依旧未能摆脱上周五的震荡情绪，股指期货预示美股开盘小幅走低，布伦特原油价格微涨，美债收益率在上周末大幅走高后维持高位。周末海湾地区局势摩擦不断，加之社交平台上的舆论交锋，令投资者意识到霍尔木兹海峡仍处于关停状态，短期内重启希望渺茫。 行情数据（截至 2026 年 5
+中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。 中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。 AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业
 
 ## 正文
 
-此外：私募借贷暗藏价值陷阱，华盛顿地区出现可疑博彩交易 作者：李真珠 早安，今日由我代班斯宾塞・雅卡布。
+中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。
 
-目前市场依旧未能摆脱上周五的震荡情绪，股指期货预示美股开盘小幅走低，布伦特原油价格微涨，美债收益率在上周末大幅走高后维持高位。
+中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。
 
-周末海湾地区局势摩擦不断，加之社交平台上的舆论交锋，令投资者意识到霍尔木兹海峡仍处于关停状态，短期内重启希望渺茫。
+AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业布局热点。
 
-行情数据（截至 2026 年 5 月 18 日） 标普 500 迷你股指期货：7402.75 点，下跌 29.50 点，跌幅 0.40% 道琼斯迷你股指期货：49297.00 点，下跌 320 点，跌幅 0.64% 纳斯达克 100 迷你股指期货：29129.00 点，下跌 102.75 点，跌幅 0.35% 美国 10 年期国债收益率：4.61%，上涨 0.01 个百分点，涨幅 0.28% 原油期货：106.50 美元，上涨 1.08 美元，涨幅 1.02% 油价冲击 vs 退税红利 近些年来，零售行业始终深陷各类供应链难题，如今又恰逢中东局势冲突带来新挑战。
+北京太空数据中心建设正处技术验证阶段。
 
-各大零售商正陆续发布 2 至 4 月的第一财季财报，这一财季完整横跨两个月冲突期。
+“尽管整体建造成本较高，但一旦建成，运营成本极低。
 
-沃尔玛与塔吉特新任首席执行官均于近期上任，本周两家企业将披露业绩，此次市场冲击也将成为两位新管理者上任后的首场大考。
+”北京星辰未来空间技术研究院副院长武江涛表示，太空数据中心优势在于能源供给免费且持续，太空太阳能利用效率远高于地面，且无需支付电费；散热依靠辐射散热板，无需配备大量水冷设备。
 
-两位高管均为公司资深老员工，在企业发展关键阶段接过管理权。
+武江涛说，该院在能源获取和散热上取得创新突破，独创设计了聚光型太阳电池和石墨烯轻质散热系统，在地面完成工程化实验基础上，正通过试验星在轨进行验证，后续将逐步推进小规模、全系统应用。
 
-塔吉特正全力推进业务扭亏计划，沃尔玛则着力打造科技型增长模式，两大企业的发展前景备受投资者看好。
+在北京科学智能研究院内，人工智能赋能科学研究(AI for Science)有效帮助打破学科与学科、理论与实验、科研与产业之间的壁垒，火箭发动机研发周期由以年计缩短至按月计，推动更多原创性、引领性成果落地。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 16:58 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 16:46 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 16:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 17:04 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 16:54 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 16:50 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 16:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 17:05 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 16:59 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 17:00 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 16:54 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 17:10 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 17:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 16:48 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:00 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 17:06 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 16:58 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 17:03 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 16:49 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 17:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 16:49 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 16:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/142010.shtml)
-- 2026-06-29 16:39 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/94210834325.shtml)
-- 2026-06-29 16:44 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/858558.shtml)
-- 2026-06-29 16:39 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/56792008285.shtml)
-- 2026-06-29 16:56 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/8666251800.shtml)
-- 2026-06-29 16:57 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/5759693.shtml)
-- 2026-06-29 17:01 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/155928313.shtml)
-- 2026-06-29 16:55 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/32787412946.shtml)
-- 2026-06-29 17:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/3136937.shtml)
-- 2026-06-29 16:42 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/382988778996.shtml)
-- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/7405309.shtml)
-- 2026-06-29 17:01 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/3068992765.shtml)
-- 2026-06-29 16:41 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/088060872329.shtml)
-- 2026-06-29 17:06 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/829219.shtml)
-- 2026-06-29 17:05 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/560431220258.shtml)
+- 2026-06-29 16:53 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/3062374.shtml)
+- 2026-06-29 16:46 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/5949304775.shtml)
+- 2026-06-29 16:47 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/06930.shtml)
+- 2026-06-29 16:55 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/17951178266.shtml)
+- 2026-06-29 16:51 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/639856120121.shtml)
+- 2026-06-29 16:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/720600091.shtml)
+- 2026-06-29 17:07 - [极限挑战第一季](http://www.share.minike.top/Article/details/154138953348.shtml)
+- 2026-06-29 17:04 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/30717385.shtml)
+- 2026-06-29 16:51 - [逆天祖国人](http://www.blog.minike.top/Article/details/1982956.shtml)
+- 2026-06-29 16:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/806040.shtml)
+- 2026-06-29 17:02 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/58887939.shtml)
+- 2026-06-29 17:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/4428585770.shtml)
+- 2026-06-29 16:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/284391773838.shtml)
+- 2026-06-29 16:44 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/64530272848.shtml)
+- 2026-06-29 16:46 - [NBA交易](https://www.share.kurohicncr.top/Article/details/41447.shtml)

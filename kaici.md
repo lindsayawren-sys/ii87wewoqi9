@@ -1,56 +1,56 @@
-# 操盘必读：影响股市利好或利空消息_2026年5月19日_财经新闻
+# （聚焦海峡论坛）2026海峡两岸科技社团高端对话活动在厦门举办
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-专题：获利盘回吐压力显现 中期上行趋势不改 影响股市利好与利空消息 宏观新闻 1、中共中央政治局常委、国务院总理李强5月18日在北京调研。他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济
+中新网厦门6月14日电 (吴冠标)6月14日，2026海峡两岸科技社团高端对话暨海峡两岸数字经济融合发展交流活动在厦门举办。 该活动为2026海峡科技专家论坛的专题分论坛，以“数智创新，融合发展”为主题，聚焦AI大模型研发应用、数字经济转型升级、两岸产业协同联动、科技社团赋能发展等议题，旨在搭建两岸深度交流、产业对接、项目合作、资源互通的平台，探索两岸数字科技融合发展新路径、新
 
 ## 正文
 
-专题：获利盘回吐压力显现 中期上行趋势不改 影响股市利好与利空消息 宏观新闻 1、中共中央政治局常委、国务院总理李强5月18日在北京调研。
+中新网厦门6月14日电 (吴冠标)6月14日，2026海峡两岸科技社团高端对话暨海峡两岸数字经济融合发展交流活动在厦门举办。
 
-他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。
+该活动为2026海峡科技专家论坛的专题分论坛，以“数智创新，融合发展”为主题，聚焦AI大模型研发应用、数字经济转型升级、两岸产业协同联动、科技社团赋能发展等议题，旨在搭建两岸深度交流、产业对接、项目合作、资源互通的平台，探索两岸数字科技融合发展新路径、新模式。
 
-2、近日，中共中央政治局常委、国务院副总理丁薛祥先后在北京、河北、内蒙古调研算力网建设。
+本次活动共促成五个合作项目落地，涵盖两岸科创平台共建、行业标准服务、前沿技术孵化等领域，畅通两岸技术、人才、项目、资源双向流通渠道，加速两岸优质科技成果产业化落地。
 
-他强调，要深入贯彻落实习近平总书记重要指示精神，按照“十五五”规划纲要部署，加强顶层设计和科学谋划，推进全国一体化算力网建设和集约高效利用，赋能经济社会高质量发展。
+高端对话环节，两岸专家学者围绕两岸AI+产业协同创新、科技社团平台赋能价值、新形势下两岸融合发展新路径三大核心议题展开研讨，凝聚深化两岸科创合作的共识。
 
-丁薛祥表示，算力是国家综合国力的重要体现，要统筹布局、有序建设。
+多位嘉宾在活动中指出，两岸数字科技产业互补性强、合作空间广阔、发展潜力巨大；未来可重点聚焦行业大模型研发、绿色算力建设、智能制造升级、智慧医疗应用等优质赛道，持续深化全方位、多层次务实合作。
 
-3、就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。
+该活动在中国信息协会支持指导下，由福建省科学技术协会主办，海峡两岸数字科技学会联合体、福建省科协闽台科技交流中心、厦门市信息协会承办。
 
-台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
-
-“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 16:46 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 17:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 16:43 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 17:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 16:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 16:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 16:46 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 16:50 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 16:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 16:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 16:56 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 16:47 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:50 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 17:07 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 16:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 17:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 16:59 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 17:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 16:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 16:49 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 17:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/0056255.shtml)
-- 2026-06-29 17:01 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/244514796706.shtml)
-- 2026-06-29 17:04 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/31245513028.shtml)
-- 2026-06-29 16:39 - [第一炉香](http://www.share.kurohicncr.top/Article/details/24685995.shtml)
-- 2026-06-29 17:00 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/16261936.shtml)
-- 2026-06-29 16:45 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/50372039.shtml)
-- 2026-06-29 16:45 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/2713157668.shtml)
-- 2026-06-29 16:49 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/44801738.shtml)
-- 2026-06-29 16:59 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/6022279.shtml)
-- 2026-06-29 16:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/2752831.shtml)
-- 2026-06-29 16:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/8467126.shtml)
-- 2026-06-29 16:36 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/504923.shtml)
-- 2026-06-29 16:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/75605.shtml)
-- 2026-06-29 16:56 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/0138596464.shtml)
-- 2026-06-29 16:47 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/843421.shtml)
+- 2026-06-29 17:05 - [绘画区你赢了](https://www.share.minike.top/Article/details/54559629346.shtml)
+- 2026-06-29 16:59 - [逃狱兄弟](https://www.blog.minike.top/Article/details/61150443116.shtml)
+- 2026-06-29 16:57 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/380857.shtml)
+- 2026-06-29 17:04 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/459989.shtml)
+- 2026-06-29 16:46 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/78561101681.shtml)
+- 2026-06-29 16:46 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/81332634.shtml)
+- 2026-06-29 17:03 - [女心理师](http://www.share.minike.top/Article/details/55282.shtml)
+- 2026-06-29 16:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/7469968.shtml)
+- 2026-06-29 16:47 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/592608720155.shtml)
+- 2026-06-29 17:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/661094932.shtml)
+- 2026-06-29 16:47 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/2682730421.shtml)
+- 2026-06-29 16:54 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/29028286.shtml)
+- 2026-06-29 16:46 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/5457628.shtml)
+- 2026-06-29 16:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/01546925.shtml)
+- 2026-06-29 16:53 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/450586168932.shtml)

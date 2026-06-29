@@ -1,60 +1,60 @@
-# 上海文史馆馆员走进山深村 建言文化赋能沪派江南建设
+# 广东强降雨致多地停课 全省累计转移逾1.3万人
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网上海5月19日电(范宇斌)18日，上海市文史研究馆举办“沪派江南 海上名家”乡村行调研活动走进上海市青浦区西岑村山深自然村。上海市文史研究馆馆员实地调研沪派江南建设成果，聚焦水乡风貌保护、历史文脉传承、文旅融合发展等议题开展文化对谈，为西岑单元规划落地、乡村文化活化、水乡风貌保护等注入专业智慧。上海市文史研究馆副馆长王开峰参加活动。 文化对谈会上，上海市城市规划设计研究院
+中新社广州6月15日电 (记者 王坚)广东15日持续强降雨。受此轮强降雨影响，广东多地当天停课，目前全省累计转移人员超1.3万人。 广东气象部门介绍，此轮降雨主要集中在揭阳、汕尾、汕头和惠州等地。气象水文监测显示，14日8时到15日8时，广东有684个镇街遭遇暴雨。其中，汕尾陆丰市录得全省最大降雨量709.5毫米，揭阳惠来县东港镇的降雨量也达到671.2毫米。 受强降雨影响，普
 
 ## 正文
 
-中新网上海5月19日电(范宇斌)18日，上海市文史研究馆举办“沪派江南 海上名家”乡村行调研活动走进上海市青浦区西岑村山深自然村。
+中新社广州6月15日电 (记者 王坚)广东15日持续强降雨。
 
-上海市文史研究馆馆员实地调研沪派江南建设成果，聚焦水乡风貌保护、历史文脉传承、文旅融合发展等议题开展文化对谈，为西岑单元规划落地、乡村文化活化、水乡风貌保护等注入专业智慧。
+受此轮强降雨影响，广东多地当天停课，目前全省累计转移人员超1.3万人。
 
-上海市文史研究馆副馆长王开峰参加活动。
+广东气象部门介绍，此轮降雨主要集中在揭阳、汕尾、汕头和惠州等地。
 
-文化对谈会上，上海市城市规划设计研究院党委书记朱丽芳解读了沪派江南整体建设体系，介绍西岑试点单元的规划思路、建设进度与空间布局方案；青浦区规划和自然资源局相关负责人围绕西岑单元区位优势、生态基底、水系肌理等地域禀赋展开说明，剖析片区发展核心价值；青浦区文化和旅游局相关负责人阐释本地文化资源挖掘路径，以及文旅融合、业态升级的发展思路。
+气象水文监测显示，14日8时到15日8时，广东有684个镇街遭遇暴雨。
 
-调研中，9位馆员沉浸式探访山深自然村，实地察看湖沼荡田原生态风貌与古桥街巷格局，并通过写生、拍摄、文学创作等方式留存水乡原生态风貌。
+其中，汕尾陆丰市录得全省最大降雨量709.5毫米，揭阳惠来县东港镇的降雨量也达到671.2毫米。
 
-文化对谈会上，馆员们从文化溯源、艺术赋能、产业升级、企地共建等角度，梳理村落发展痛点，提出针对性优化方案，助力沪派江南高质量建设。
+受强降雨影响，普宁市15日全市各级各类学校(中小学、幼儿园、职业技术学校)、各类培训机构停课一天。
 
-据悉，沪派江南是上海重点部署的系统性乡村振兴工程，聚焦乡村风貌保护、生态修复治理、本土文化传承，坚守“最江南、最乡土、最沪派”发展底色，保留自然生态空间肌理与传统村落文脉，着力塑造辨识度鲜明的沪派江南乡村风貌，计划至2027年建成约20个特色村落风貌保护传承示范样本。
+惠来县当天停课，寄宿制学校通知未到校的学生一律不返校，在家勿外出；校外培训机构停止一切培训活动。
 
-其中，西岑单元是沪派江南建设的重要试点，依托珠链水乡特色，打造“水包村”独特空间形态，系统性保护修复江南圩田溇沼农业文化遗存。
+揭西县所有学校、幼儿园、校外培训机构也临时停课1天。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 16:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 16:39 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 16:48 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 17:00 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 16:46 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:56 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 16:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 17:01 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 16:43 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 17:00 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 17:00 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 16:42 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 17:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 16:42 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 17:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 16:55 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 17:08 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 16:47 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 16:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 16:59 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 16:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 16:54 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 17:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 16:50 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 17:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 17:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 16:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/870577.shtml)
-- 2026-06-29 16:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/12854192.shtml)
-- 2026-06-29 16:37 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/4468093274.shtml)
-- 2026-06-29 16:48 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/25687298.shtml)
-- 2026-06-29 17:02 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/313088137.shtml)
-- 2026-06-29 16:41 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/069429650890.shtml)
-- 2026-06-29 16:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/860069.shtml)
-- 2026-06-29 16:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/55505792.shtml)
-- 2026-06-29 16:49 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/12609.shtml)
-- 2026-06-29 16:51 - [逃狱兄弟](https://www.blog.minike.top/Article/details/866370835070.shtml)
-- 2026-06-29 16:51 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/7237685.shtml)
-- 2026-06-29 16:39 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/42481437019.shtml)
-- 2026-06-29 17:04 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/688666396.shtml)
-- 2026-06-29 17:05 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/9255802912.shtml)
-- 2026-06-29 16:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/039985.shtml)
+- 2026-06-29 16:51 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/9469159.shtml)
+- 2026-06-29 17:11 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/9468214342.shtml)
+- 2026-06-29 17:00 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/874314184.shtml)
+- 2026-06-29 16:42 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/133338.shtml)
+- 2026-06-29 17:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/603722629935.shtml)
+- 2026-06-29 17:02 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/32667414481.shtml)
+- 2026-06-29 17:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/603131112779.shtml)
+- 2026-06-29 17:04 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/023632973.shtml)
+- 2026-06-29 17:04 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/09946698301.shtml)
+- 2026-06-29 16:59 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/72016458012.shtml)
+- 2026-06-29 17:05 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/445088680425.shtml)
+- 2026-06-29 16:57 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/329881698.shtml)
+- 2026-06-29 16:48 - [普京介绍前线战事](http://www.share.minike.top/Article/details/464472.shtml)
+- 2026-06-29 17:10 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/575276.shtml)
+- 2026-06-29 16:57 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/5562785.shtml)

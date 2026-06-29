@@ -1,58 +1,57 @@
-# 福田深通拟吸收合并宝安桂银，“村并村”背后：两城商行退出，深圳农商行进场
+# 台胞点赞大陆社区：既有松弛感又有凝聚力
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 靴子落地！ 5月18日，市场关注已久的深圳宝安桂银村镇银行（下称“宝安桂银”）吸收合并一事迎来最新进展，公告显示，吸收方为深圳福田深通村镇银行（下称“福田深通”），而深圳农商行于近日收购了福田深通75%的股份。 近段时间以来，“村并村”、“村改支”等村镇银行改革案例持续涌现。在政策指引下，我国村镇银行改革正迈入减量提质、强化主责
+中新网银川6月14日电 (记者 杨迪)“这里的居民还蛮快乐的，很有松弛感。”6月14日参访宁夏银川市阅海万家社区时，台胞丽娟(化名)如是感慨。 6月10日至16日，“社区再牵手 共叙两岸情”宁台社区牵手交流活动在宁夏举办。连日来，30名台湾同胞参访宁夏多个社区，了解当地社区管理模式及居民生活面貌。 丽娟告诉中新网记者，这是她第一次来到宁夏，感触最深的是当地民众丰富的文化娱乐生活
 
 ## 正文
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 靴子落地！
+中新网银川6月14日电 (记者 杨迪)“这里的居民还蛮快乐的，很有松弛感。
 
-5月18日，市场关注已久的深圳宝安桂银村镇银行（下称“宝安桂银”）吸收合并一事迎来最新进展，公告显示，吸收方为深圳福田深通村镇银行（下称“福田深通”），而深圳农商行于近日收购了福田深通75%的股份。
+”6月14日参访宁夏银川市阅海万家社区时，台胞丽娟(化名)如是感慨。
 
-近段时间以来，“村并村”、“村改支”等村镇银行改革案例持续涌现。
+6月10日至16日，“社区再牵手 共叙两岸情”宁台社区牵手交流活动在宁夏举办。
 
-在政策指引下，我国村镇银行改革正迈入减量提质、强化主责的“深水区”。
+连日来，30名台湾同胞参访宁夏多个社区，了解当地社区管理模式及居民生活面貌。
 
-“百亿级”吸收合并 5月18日，界面新闻记者留意到，宝安桂银发布公告称，经福田深通（吸收方，注册资本40000万元）和宝安桂银（被吸收方，注册资本71066.4万元）内部决策机构审议通过，福田深通拟吸收合并宝安桂银，并将宝安桂银改建设立为福田深通的分支机构。
+丽娟告诉中新网记者，这是她第一次来到宁夏，感触最深的是当地民众丰富的文化娱乐生活：“树荫下随处可见下棋的居民，节日时还可体验扎染等活动；周边的夜市里，大人带着小朋友逛街、游玩，很有生活的氛围。
 
-公告称，本次吸收合并尚待监管部门核准实施。
+” 台胞泳荣(化名)则对当地的社区服务印象颇深。
 
-本次吸收合并完成后，吸收方注册资本保持不变，被吸收方将解散并注销法人资格，被吸收方全部业务、财产、债权债务及其他一切权利义务由吸收方承继，被吸收方原有客户可在被吸收方原有网点继续办理相关业务，债权人的合法权益不受影响，产品服务不会中断，被吸收方已经合法订立的合同依然有效。
+在吴忠市金花园社区，居民王兰花带动周边民众组建志愿服务队，历经多年已发展至上万人。
 
-被吸收方宝安桂银成立于2011年，当时由桂林银行主发起，并由深圳市宝安区投资管理集团有限公司、深圳市中跃投资有限公司等七家企业出资成立，总部设在深圳宝安中心区。
+“我觉得他们是用心在做社区服务，像对待家人一样对待社区居民。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 16:48 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 16:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 16:54 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 16:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 16:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 16:55 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 16:50 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 16:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 16:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 17:01 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 16:46 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 16:55 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 16:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 17:11 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 16:46 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 16:59 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 17:04 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 17:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 17:07 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 16:45 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 16:54 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 17:11 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/473326610049.shtml)
-- 2026-06-29 17:04 - [女心理师](https://www.share.kurohicncr.top/Article/details/4086074604.shtml)
-- 2026-06-29 16:39 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/3566015051.shtml)
-- 2026-06-29 17:04 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/14493576238.shtml)
-- 2026-06-29 16:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/837773479675.shtml)
-- 2026-06-29 16:55 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/745318.shtml)
-- 2026-06-29 16:48 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/883202.shtml)
-- 2026-06-29 16:37 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/51085945760.shtml)
-- 2026-06-29 16:54 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/20439379.shtml)
-- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/20322264.shtml)
-- 2026-06-29 16:37 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/09931342681.shtml)
-- 2026-06-29 16:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/09965377.shtml)
-- 2026-06-29 16:41 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/3206431018.shtml)
-- 2026-06-29 16:50 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1502137.shtml)
-- 2026-06-29 16:55 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/41249796950.shtml)
+- 2026-06-29 17:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/854387968378.shtml)
+- 2026-06-29 16:53 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/16700.shtml)
+- 2026-06-29 17:01 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/14330720857.shtml)
+- 2026-06-29 17:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/76251.shtml)
+- 2026-06-29 16:51 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/49521098.shtml)
+- 2026-06-29 16:59 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/214314199608.shtml)
+- 2026-06-29 16:59 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/42800601039.shtml)
+- 2026-06-29 16:53 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/25298163.shtml)
+- 2026-06-29 16:44 - [时光音乐会](https://www.blog.minike.top/Article/details/6569470226.shtml)
+- 2026-06-29 16:43 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/4266505.shtml)
+- 2026-06-29 16:58 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/79970.shtml)
+- 2026-06-29 16:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/487783472522.shtml)
+- 2026-06-29 17:03 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/4176202.shtml)
+- 2026-06-29 16:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/2982116568.shtml)
+- 2026-06-29 16:51 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/76507868.shtml)

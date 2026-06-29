@@ -1,58 +1,58 @@
-# 长春TIR单月车次创纪录 加速打造国际物流枢纽
+# 王毅同蒙古国外长巴特策策格会谈
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网长春5月18日电 (记者 郭佳)记者18日从长春海关获悉，今年4月，长春兴隆综保区TIR进出境车次达到150车次，大幅刷新此前全国口岸TIR业务单月87车次的纪录，不靠海、不沿边的内陆城市，跑出了跨境物流“加速度”。 TIR系统是基于联合国《国际公路运输公约》建立的跨境货运通关体系，目前全球已有70余个缔约国。在该体系下，持TIR证的车辆可在起运地和目的地办理海关手续后，
+新华社乌兰巴托6月14日电(记者宝乐日其其格)6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格举行会谈。 王毅表示，中蒙是友好近邻。中国始终坚持大小国家一律平等，遵循亲诚惠容周边外交理念和与邻为善、以邻为伴方针，将蒙古国置于周边外交的重要位置，积极推进两国睦邻友好合作。《中蒙友好合作关系条约》明确规定中蒙坚持和平共处五项原则，不允许第三国利用其领土损
 
 ## 正文
 
-中新网长春5月18日电 (记者 郭佳)记者18日从长春海关获悉，今年4月，长春兴隆综保区TIR进出境车次达到150车次，大幅刷新此前全国口岸TIR业务单月87车次的纪录，不靠海、不沿边的内陆城市，跑出了跨境物流“加速度”。
+新华社乌兰巴托6月14日电(记者宝乐日其其格)6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格举行会谈。
 
-TIR系统是基于联合国《国际公路运输公约》建立的跨境货运通关体系，目前全球已有70余个缔约国。
+王毅表示，中蒙是友好近邻。
 
-在该体系下，持TIR证的车辆可在起运地和目的地办理海关手续后，途经各国无需重复开箱检查，实现高效跨境通行。
+中国始终坚持大小国家一律平等，遵循亲诚惠容周边外交理念和与邻为善、以邻为伴方针，将蒙古国置于周边外交的重要位置，积极推进两国睦邻友好合作。
 
-吉林省兴隆陆海国际物流有限公司总经理林密表示，TIR运输全程无需换车、倒装或卸货，具有物流时间短、运输灵活的优势，叠加海关通关便利化措施，通关成本大幅下降。
+《中蒙友好合作关系条约》明确规定中蒙坚持和平共处五项原则，不允许第三国利用其领土损害另一方国家主权和安全。
 
-为提高通关效率，长春海关与口岸海关建立业务现场联系配合机制，并设立TIR业务专岗，实现“专人负责、全程跟进”，构建“事前智能审批、事中一键送检、事后秒签证明”的全流程智慧监管体系。
+这是中蒙关系健康发展的重要保障。
 
-该举措将冷链货物检验时长压缩5至7天，有效降低企业物流成本。
+面对百年未有之大变局，中蒙应牢牢把握友好合作大方向，在涉及彼此核心利益问题上继续坚定相互支持，坚持从两国人民根本和长远利益出发，不断赋予中蒙全面战略伙伴关系新的时代内涵，共同应对各种外部挑战。
 
-统计显示，今年1至4月，长春兴隆综保区累计完成TIR进出境业务344车次，货值达3.37亿元人民币，运输规模占全国总量的22%，稳居全国首位。
+王毅强调，中方愿同蒙方一道，在两国元首战略引领下，朝着共建和平共处、守望相助、合作共赢的两国命运共同体方向继续作出努力。
 
-目前，该通道已覆盖冷链、轻工业产品、汽车零部件等多品类货物，形成稳定的双向运输市场。
+中国对外政策始终保持连续性、稳定性，愿继续做蒙方可信赖可依靠的伙伴，为蒙古国的发展振兴提供可持续助力。
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 16:57 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 17:05 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:53 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 16:57 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:39 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 16:37 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 16:39 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 17:00 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 16:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 17:01 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 17:05 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 17:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 17:08 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 16:59 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 16:50 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 16:48 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 17:06 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 16:54 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:03 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 16:44 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 16:59 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/2970622.shtml)
-- 2026-06-29 16:36 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/13977944626.shtml)
-- 2026-06-29 16:36 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/907732684.shtml)
-- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/469020811.shtml)
-- 2026-06-29 16:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/517733.shtml)
-- 2026-06-29 16:49 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/3624711.shtml)
-- 2026-06-29 16:43 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/71087126.shtml)
-- 2026-06-29 17:01 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/8194296.shtml)
-- 2026-06-29 16:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/251289639565.shtml)
-- 2026-06-29 16:57 - [抓特务票房破亿](https://www.share.minike.top/Article/details/79551138.shtml)
-- 2026-06-29 16:53 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/264215.shtml)
-- 2026-06-29 16:43 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/914350487.shtml)
-- 2026-06-29 16:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/59324499141.shtml)
-- 2026-06-29 16:43 - [金刚川](http://www.share.minike.top/Article/details/030336232070.shtml)
-- 2026-06-29 16:53 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/18723677.shtml)
+- 2026-06-29 17:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/00463528161.shtml)
+- 2026-06-29 16:44 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/274317020573.shtml)
+- 2026-06-29 16:51 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/942994002.shtml)
+- 2026-06-29 16:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/357068886354.shtml)
+- 2026-06-29 16:43 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/83863730464.shtml)
+- 2026-06-29 16:44 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/17256137.shtml)
+- 2026-06-29 16:56 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/02693679002.shtml)
+- 2026-06-29 16:46 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/82552936297.shtml)
+- 2026-06-29 16:50 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/70429469.shtml)
+- 2026-06-29 16:42 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/596751995.shtml)
+- 2026-06-29 17:06 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/72965053.shtml)
+- 2026-06-29 16:53 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/525602.shtml)
+- 2026-06-29 16:55 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/9535862621.shtml)
+- 2026-06-29 17:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/77110614504.shtml)
+- 2026-06-29 16:50 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/79894.shtml)

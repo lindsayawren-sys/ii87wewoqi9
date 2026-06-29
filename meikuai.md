@@ -1,48 +1,59 @@
-# 外交部：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的
+# 湖北兴山：朝天吼“漂”出乡村好“钱”景
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。有记者就赖清德涉美对台军售有关言论提问。 郭嘉昆：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的。(完)
+中新网宜昌6月13日电 题：湖北兴山：朝天吼“漂”出乡村好“钱”景 作者 董晓斌 蔡亮 杨雪 距离漂流旺季尚有时日，但位于湖北省兴山县水月寺镇高岚村的景源农家乐仍来了不少游客，店主罗晶和父母忙个不停。 13日，2026年第十三届中国宜昌朝天吼自然水域漂流大赛在兴山朝天吼漂流景区开赛，来自全国各地的2000余名漂流运动爱好者、800多支参赛队伍在青山绿水间逐浪竞技。 朝天吼漂流全
 
 ## 正文
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
+中新网宜昌6月13日电 题：湖北兴山：朝天吼“漂”出乡村好“钱”景 作者 董晓斌 蔡亮 杨雪 距离漂流旺季尚有时日，但位于湖北省兴山县水月寺镇高岚村的景源农家乐仍来了不少游客，店主罗晶和父母忙个不停。
 
-有记者就赖清德涉美对台军售有关言论提问。
+13日，2026年第十三届中国宜昌朝天吼自然水域漂流大赛在兴山朝天吼漂流景区开赛，来自全国各地的2000余名漂流运动爱好者、800多支参赛队伍在青山绿水间逐浪竞技。
 
-郭嘉昆：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的。
+朝天吼漂流全长6.5公里，落差高达148米，被誉为“华中第一漂”。
 
-(完)
+罗晶的农家乐位于朝天吼漂流河道旁，距离景区大门仅几十米。
+
+2014年，31岁的罗晶从深圳返乡创业。
+
+“因为我家就在漂流河道旁边，所以我就和爸妈一起，在家开起了农家乐酒店。
+
+”罗晶一边招呼客人，一边告诉记者。
+
+朝天吼景区负责人杨成介绍，自2006年正式运营以来，景区累计接待游客已突破800万人次。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 17:01 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 16:55 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 16:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 16:52 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 17:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 16:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 16:52 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 16:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 17:03 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:56 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 16:48 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 16:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 16:44 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 17:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 16:53 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:50 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 16:46 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 17:10 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 17:01 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 16:54 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/540134.shtml)
-- 2026-06-29 16:43 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/6681746.shtml)
-- 2026-06-29 16:55 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/09132.shtml)
-- 2026-06-29 17:03 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/4702909.shtml)
-- 2026-06-29 17:03 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/87443.shtml)
-- 2026-06-29 16:38 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/98105609025.shtml)
-- 2026-06-29 16:43 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/5768660.shtml)
-- 2026-06-29 16:49 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/2438215.shtml)
-- 2026-06-29 16:37 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/111780465956.shtml)
-- 2026-06-29 16:56 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/1358174853.shtml)
-- 2026-06-29 16:42 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/36500860.shtml)
-- 2026-06-29 16:48 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/32998346041.shtml)
-- 2026-06-29 16:45 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/09280115094.shtml)
-- 2026-06-29 16:54 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/84170349.shtml)
-- 2026-06-29 16:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/030594539.shtml)
+- 2026-06-29 17:00 - [扬名立万](http://www.blog.minike.top/Article/details/14944410.shtml)
+- 2026-06-29 16:56 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/12065271779.shtml)
+- 2026-06-29 16:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/94314282666.shtml)
+- 2026-06-29 17:08 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/487718853683.shtml)
+- 2026-06-29 16:53 - [送你一朵小红花](https://www.share.minike.top/Article/details/256010590351.shtml)
+- 2026-06-29 17:07 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/15098060601.shtml)
+- 2026-06-29 17:08 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/09649487151.shtml)
+- 2026-06-29 16:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/56861366.shtml)
+- 2026-06-29 16:42 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/4515635526.shtml)
+- 2026-06-29 17:05 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/56272833.shtml)
+- 2026-06-29 17:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/933955860555.shtml)
+- 2026-06-29 16:47 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/060509576.shtml)
+- 2026-06-29 16:50 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/352249.shtml)
+- 2026-06-29 16:54 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/645381036.shtml)
+- 2026-06-29 17:10 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/70418562153.shtml)

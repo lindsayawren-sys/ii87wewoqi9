@@ -1,57 +1,61 @@
-# 利用工作便利做起买卖公民个人信息“生意” 网警严厉打击
+# （聚焦海峡论坛）评论：两岸交流必是“堂堂溪水出前村”
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据公安部网安局微信公众号消息，公积金账户，看似只是个人的缴存凭证，实则承载着大量核心的身份信息。非法买卖？已涉嫌犯罪。 案件回顾 近日，四川省攀枝花市公安机关网安部门破获一起利用工作便利条件，非法买卖公民公积金信息案件，犯罪嫌疑人王某等10人因涉嫌侵犯公民个人信息罪被依法采取刑事强制措施。 经查，犯罪嫌疑人王某曾任职于某信息技术公司，利用维护公积金相关系统的
+中新社厦门6月13日电 题：两岸交流必是“堂堂溪水出前村” 中新社记者 路梅 徐雪莹 6月鹭岛，凤凰花燃，第十八届海峡论坛大会13日在福建厦门启幕。来自宝岛基层的力量，再次突破阻隔、参与交流对话，开辟两岸互动向前而行的广阔空间。 今年论坛，赖清德当局变本加厉、设障恫吓，仍有数千名台湾嘉宾如约而来。无论台海局势如何变幻，这一连续举办18届的两岸民间交流盛会始终步履不停，彰显两岸同
 
 ## 正文
 
-中新网5月19日电 据公安部网安局微信公众号消息，公积金账户，看似只是个人的缴存凭证，实则承载着大量核心的身份信息。
+中新社厦门6月13日电 题：两岸交流必是“堂堂溪水出前村” 中新社记者 路梅 徐雪莹 6月鹭岛，凤凰花燃，第十八届海峡论坛大会13日在福建厦门启幕。
 
-非法买卖？
+来自宝岛基层的力量，再次突破阻隔、参与交流对话，开辟两岸互动向前而行的广阔空间。
 
-已涉嫌犯罪。
+今年论坛，赖清德当局变本加厉、设障恫吓，仍有数千名台湾嘉宾如约而来。
 
-案件回顾 近日，四川省攀枝花市公安机关网安部门破获一起利用工作便利条件，非法买卖公民公积金信息案件，犯罪嫌疑人王某等10人因涉嫌侵犯公民个人信息罪被依法采取刑事强制措施。
+无论台海局势如何变幻，这一连续举办18届的两岸民间交流盛会始终步履不停，彰显两岸同胞走亲走近的决心。
 
-经查，犯罪嫌疑人王某曾任职于某信息技术公司，利用维护公积金相关系统的便利条件，非法获取了一批公民的公积金缴存信息，并通过社交网络向贷款中介、理财公司兜售，宣称 “信息真实、可核验、可精准定位客户资质”。
+以情为纽，架起民间“连心桥”。
 
-经进一步查证，王某等人累计向他人出售公民公积金信息500余万条。
+大陆影片《给阿嬷的情书》引发海内外观众共鸣，也成为今年论坛嘉宾热议话题。
 
-经审讯，王某对其非法获取并出售公民个人信息的犯罪事实供认不讳。
+无论东南亚或宝岛台湾，时空的间隔割不断血缘与共同历史记忆。
 
-目前，王某等人因非法获取和买卖公民个人信息已被依法采取刑事强制措施。
+从泛黄家书到“数智寻根”，从两岸婚姻福祉到民俗信仰话题，论坛以多元方式编织情感纽带。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 16:45 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 17:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 16:55 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 16:57 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 17:00 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 17:02 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 16:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 17:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 16:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 16:40 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 17:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 16:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 16:50 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 17:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 17:10 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 16:46 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 16:45 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 16:46 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 16:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 17:11 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 16:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 17:10 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 16:44 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/36436.shtml)
-- 2026-06-29 17:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/563658179.shtml)
-- 2026-06-29 16:48 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/041183897.shtml)
-- 2026-06-29 16:51 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/57504389081.shtml)
-- 2026-06-29 16:56 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/016615972.shtml)
-- 2026-06-29 16:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/20116.shtml)
-- 2026-06-29 16:58 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/644981365.shtml)
-- 2026-06-29 17:02 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/9558905.shtml)
-- 2026-06-29 16:47 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/83165.shtml)
-- 2026-06-29 16:58 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/278529.shtml)
-- 2026-06-29 16:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/33736159.shtml)
-- 2026-06-29 16:41 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/08845.shtml)
-- 2026-06-29 17:04 - [请回答王牌2019](https://www.blog.minike.top/Article/details/30016423934.shtml)
-- 2026-06-29 17:04 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/75134099303.shtml)
-- 2026-06-29 16:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/42029358.shtml)
+- 2026-06-29 16:52 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/088972.shtml)
+- 2026-06-29 17:04 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/684512.shtml)
+- 2026-06-29 17:08 - [急先锋](https://www.blog.minike.top/Article/details/779420.shtml)
+- 2026-06-29 17:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/47482.shtml)
+- 2026-06-29 17:09 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/93838789077.shtml)
+- 2026-06-29 17:09 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/696596.shtml)
+- 2026-06-29 17:02 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/05359548.shtml)
+- 2026-06-29 16:44 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/76604110.shtml)
+- 2026-06-29 16:59 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/89364273347.shtml)
+- 2026-06-29 16:56 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/561949.shtml)
+- 2026-06-29 16:47 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/766063854.shtml)
+- 2026-06-29 17:01 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/305308.shtml)
+- 2026-06-29 17:08 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/8914982.shtml)
+- 2026-06-29 16:47 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/405764058.shtml)
+- 2026-06-29 16:43 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/0634152.shtml)

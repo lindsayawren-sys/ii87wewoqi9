@@ -1,50 +1,59 @@
-# 中国人寿获平安保险(集团)增持1626万股 每股均价约29.87港元
+# 市场分析 ：市场喜迎美伊和平协议，但预计油价将维持于高位
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月14日，中国平安保险（集团）股份有限公司增持中国人寿（02628）1626万股，每股均价29.8736港元，总金额约为4.86亿港元。增持后最新持股数目约为10.44亿股，最新持股比例为14.03%。责任编辑：卢昱君
+股市和债市在周一亚洲时段双双上涨，美元下跌，此前美伊达成和平协议，同意重新开放霍尔木兹海峡，并解除美国对伊朗的封锁。美国原油期货下跌逾4%，标普500指数期货上涨约0.8%，美元普遍走软。ATFX Global驻悉尼首席市场策略师Nick Twidale称，市场将持观望态度，关注海峡究竟可以多快重启，以及石油供应何时能真正恢复正常。这肯定需要数月而非数周时间。我认为油价短期内不
 
 ## 正文
 
-香港联交所最新资料显示，5月14日，中国平安保险（集团）股份有限公司增持中国人寿（02628）1626万股，每股均价29.8736港元，总金额约为4.86亿港元。
+股市和债市在周一亚洲时段双双上涨，美元下跌，此前美伊达成和平协议，同意重新开放霍尔木兹海峡，并解除美国对伊朗的封锁。
 
-增持后最新持股数目约为10.44亿股，最新持股比例为14.03%。
+美国原油期货下跌逾4%，标普500指数期货上涨约0.8%，美元普遍走软。
 
-责任编辑：卢昱君
+ATFX Global驻悉尼首席市场策略师Nick Twidale称，市场将持观望态度，关注海峡究竟可以多快重启，以及石油供应何时能真正恢复正常。
+
+这肯定需要数月而非数周时间。
+
+我认为油价短期内不会很快回到70美元。
+
+澳新银行（ANZ）驻悉尼外汇研究主管Mahjabeen Zaman称，这一利好消息早有预期，市场此前已呈缓慢上行态势、持续观望，部分正面情绪已经消化。
+
+从周期性外汇走势来看，我认为当前水平仍有上行空间。
+
+今天或许会因市场情绪高涨而看到（油价）跌破80美元．．．但随后市场可能会意识到：等等，这项协议的条款可能并不那么有利。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 16:36 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 16:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 16:49 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 16:46 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:47 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 17:05 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 16:59 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 16:38 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 16:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 16:39 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 16:50 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 16:53 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 17:05 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 16:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 17:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 17:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 17:11 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 16:52 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 16:58 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 17:04 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 17:07 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:58 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 16:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 16:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 16:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [20年前的周杰伦](https://www.share.minike.top/Article/details/50348110914.shtml)
-- 2026-06-29 16:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/198890614594.shtml)
-- 2026-06-29 17:05 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/951492110125.shtml)
-- 2026-06-29 16:41 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/994973570090.shtml)
-- 2026-06-29 16:57 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/34107005.shtml)
-- 2026-06-29 16:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/1568476.shtml)
-- 2026-06-29 16:49 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/76549.shtml)
-- 2026-06-29 16:48 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/28447881136.shtml)
-- 2026-06-29 16:55 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/2267723.shtml)
-- 2026-06-29 16:55 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/7786276377.shtml)
-- 2026-06-29 16:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/5895763.shtml)
-- 2026-06-29 17:03 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/38236.shtml)
-- 2026-06-29 16:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/13561447.shtml)
-- 2026-06-29 16:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/5405848277.shtml)
-- 2026-06-29 16:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/084359527.shtml)
+- 2026-06-29 17:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/267020569079.shtml)
+- 2026-06-29 16:57 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/67317273033.shtml)
+- 2026-06-29 16:52 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/74335586.shtml)
+- 2026-06-29 16:45 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/1104076872.shtml)
+- 2026-06-29 17:08 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/40583.shtml)
+- 2026-06-29 16:47 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/137639239.shtml)
+- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/949775956213.shtml)
+- 2026-06-29 17:08 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/9002725.shtml)
+- 2026-06-29 17:08 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/1040991.shtml)
+- 2026-06-29 16:42 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/49150957342.shtml)
+- 2026-06-29 17:11 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/56666869.shtml)
+- 2026-06-29 16:55 - [女心理师](http://www.share.kurohicncr.top/Article/details/687812428.shtml)
+- 2026-06-29 17:05 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/213311036879.shtml)
+- 2026-06-29 17:07 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/52094426901.shtml)
+- 2026-06-29 16:45 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/81795.shtml)

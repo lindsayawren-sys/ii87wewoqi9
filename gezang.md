@@ -1,61 +1,57 @@
-# 韩正出席2026年全球贸易投资促进峰会开幕式并致辞
+# A股200亿白银龙头，被立案调查！超7万股民受波及
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。 韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。 韩正提出4点建议，一是共同营造开
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。 公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占
 
 ## 正文
 
-中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。
+6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
 
-习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。
+公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占用并已解决等情况的公告》，对公司控股股东及其附属企业非经营性资金占用情况进行了披露。
 
-我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。
+截至本公告披露日，公司已收回全部被占用资金及占用利息。
 
-韩正提出4点建议，一是共同营造开放合作的国际经济环境，坚定维护多边主义和开放合作，持续推动全球贸易投资自由化便利化。
+公司已积极对相关问题进行整改，公司将依法履行相关信息披露义务。
 
-二是共同塑造创新发展新优势，充分发挥新技术的驱动和赋能作用，让科技创新成果更好造福各国人民。
+目前，公司生产经营活动正常开展，该事项不会对公司生产经营产生重大影响。
 
-三是共同提升产业链供应链韧性，加强产业协同、技术交流和标准对接。
+同日，盛达资源再发公告称，公司实际控制人赵满堂于2026年6月15日收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对其立案。
 
-四是共同推动全球经济治理体系改革，积极落实全球治理倡议，坚持共商共建共享，坚定维护以世贸组织为核心、以规则为基础的多边贸易体制。
+赵满堂将积极配合调查并履行信息披露义务。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 17:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 16:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 16:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 16:44 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 16:56 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 17:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 17:01 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 16:37 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 16:42 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 16:57 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 16:41 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 17:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 16:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 16:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 16:43 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 17:04 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 16:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 16:49 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 17:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 16:53 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 16:59 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 16:56 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 16:43 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 16:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [沙丘](https://www.blog.minike.top/Article/details/2088043.shtml)
-- 2026-06-29 16:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/807840441.shtml)
-- 2026-06-29 16:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/864078.shtml)
-- 2026-06-29 16:41 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/325508637.shtml)
-- 2026-06-29 16:53 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/32559628792.shtml)
-- 2026-06-29 16:36 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/35267125.shtml)
-- 2026-06-29 16:53 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/012603.shtml)
-- 2026-06-29 17:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/187670757363.shtml)
-- 2026-06-29 16:49 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9072986622.shtml)
-- 2026-06-29 17:00 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0856878902.shtml)
-- 2026-06-29 16:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/6702064366.shtml)
-- 2026-06-29 16:40 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/21779293.shtml)
-- 2026-06-29 16:56 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/29714789.shtml)
-- 2026-06-29 17:00 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/8053851583.shtml)
-- 2026-06-29 17:03 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/433732606.shtml)
+- 2026-06-29 16:42 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/6901528.shtml)
+- 2026-06-29 16:43 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/87392254769.shtml)
+- 2026-06-29 16:48 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/542891.shtml)
+- 2026-06-29 16:49 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/628344368612.shtml)
+- 2026-06-29 16:45 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/61915834946.shtml)
+- 2026-06-29 16:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/45472429.shtml)
+- 2026-06-29 17:11 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/79795529.shtml)
+- 2026-06-29 16:56 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/715080218450.shtml)
+- 2026-06-29 16:47 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/07098866404.shtml)
+- 2026-06-29 16:59 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/2694862089.shtml)
+- 2026-06-29 17:03 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/6032939152.shtml)
+- 2026-06-29 17:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/50796621.shtml)
+- 2026-06-29 16:57 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/338104195673.shtml)
+- 2026-06-29 16:49 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/4774284720.shtml)
+- 2026-06-29 16:58 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/7288757.shtml)

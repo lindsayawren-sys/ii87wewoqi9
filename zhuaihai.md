@@ -1,48 +1,57 @@
-# 汇丰预计高油价将不利于多数亚洲货币汇率
+# 【在希望的田野上】全国小麦收获过八成 夏播进入高峰
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-汇丰上调了美元兑多数亚洲货币的年末汇率预测，因预计油价将在第二季度及第三季度大部分时间维持高位。 外汇策略师Paul Mackel和Joey Chew等人在报告中表示，在伊朗问题达成协议前可能出现长期僵局，与此同时，经济增长面临的下行风险不断上升，将给顺周期的亚洲货币带来进一步压力。 报告指出，马来西亚林吉特、新加坡元和新台币将更具韧性，因为它们具备不同组合的支撑因素：包括较好
+央视网消息(新闻联播)：农业农村部6月12日的小麦机收进度显示，目前，全国已收获小麦2.78亿亩，收获进度过八成。随着麦收推进，夏播进入高峰。 眼下，黄淮海主产区延续晴好天气，利于山东、江苏、河北等省集中机收快速推进。 在山东汶上县，75万亩小麦已集中成熟，一批新型农机装备正在助力当地农民抢收抢种。 收完小麦，几台新型玉米播种机加紧作业。如今，增施底肥、节水浇灌、精量播种几道工
 
 ## 正文
 
-汇丰上调了美元兑多数亚洲货币的年末汇率预测，因预计油价将在第二季度及第三季度大部分时间维持高位。
+央视网消息(新闻联播)：农业农村部6月12日的小麦机收进度显示，目前，全国已收获小麦2.78亿亩，收获进度过八成。
 
-外汇策略师Paul Mackel和Joey Chew等人在报告中表示，在伊朗问题达成协议前可能出现长期僵局，与此同时，经济增长面临的下行风险不断上升，将给顺周期的亚洲货币带来进一步压力。
+随着麦收推进，夏播进入高峰。
 
-报告指出，马来西亚林吉特、新加坡元和新台币将更具韧性，因为它们具备不同组合的支撑因素：包括较好的能源安全状况（林吉特）、替代增长来源（新台币）、财政空间（新加坡元）以及当局捍卫本币的意愿和能力。
+眼下，黄淮海主产区延续晴好天气，利于山东、江苏、河北等省集中机收快速推进。
 
-责任编辑：江学思
+在山东汶上县，75万亩小麦已集中成熟，一批新型农机装备正在助力当地农民抢收抢种。
+
+收完小麦，几台新型玉米播种机加紧作业。
+
+如今，增施底肥、节水浇灌、精量播种几道工序能一次性完成。
+
+今年“三夏”，全国1700多万台套农机具投入抢收抢种。
+
+智能高端农机加大推广应用，成为不少主产区的突出亮点。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 16:52 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 16:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 16:47 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 16:55 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 16:54 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 17:00 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:54 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 16:45 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 16:51 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 16:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 17:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 16:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 16:42 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 16:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 16:48 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 16:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 17:10 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 16:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/5457363.shtml)
-- 2026-06-29 16:57 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/21079912202.shtml)
-- 2026-06-29 16:39 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/59143445.shtml)
-- 2026-06-29 16:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/2392974.shtml)
-- 2026-06-29 16:39 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/6437778.shtml)
-- 2026-06-29 16:48 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/766188.shtml)
-- 2026-06-29 16:50 - [急先锋](https://www.share.kurohicncr.top/Article/details/3382193.shtml)
-- 2026-06-29 16:59 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/49777534.shtml)
-- 2026-06-29 17:02 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/131349.shtml)
-- 2026-06-29 17:00 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/73019.shtml)
-- 2026-06-29 16:53 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/41553.shtml)
-- 2026-06-29 16:55 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/092870.shtml)
-- 2026-06-29 16:50 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/6090435343.shtml)
-- 2026-06-29 16:37 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/3720465.shtml)
-- 2026-06-29 16:46 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/53489.shtml)
+- 2026-06-29 16:54 - [《贺子珍》](https://www.blog.minike.top/Article/details/640146626.shtml)
+- 2026-06-29 16:44 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/8424569142.shtml)
+- 2026-06-29 17:07 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/5292493048.shtml)
+- 2026-06-29 17:08 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/598281023697.shtml)
+- 2026-06-29 16:53 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/98834640181.shtml)
+- 2026-06-29 17:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/8506751.shtml)
+- 2026-06-29 16:58 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/59701947.shtml)
+- 2026-06-29 16:42 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/36267563.shtml)
+- 2026-06-29 17:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/1347505570.shtml)
+- 2026-06-29 16:54 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/85229.shtml)
+- 2026-06-29 16:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/461978093.shtml)
+- 2026-06-29 17:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/5291556583.shtml)
+- 2026-06-29 16:51 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/299157448459.shtml)
+- 2026-06-29 17:05 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/71674218558.shtml)
+- 2026-06-29 16:52 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/7443851642.shtml)

@@ -1,58 +1,56 @@
-# 被传“英伟达供应商”后六连板，家居建材板块妖股迭出
+# 世界超级摩托车锦标赛：“张雪机车”夺赛季第六冠
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-涨停、急速拉升与跌停，正在A股家居板块频繁上演。 近期，A股家居与建材板块频现“妖股”，多个长期低迷的传统家居企业突然被资金热炒，涨停、急速拉升与跌停频繁上演。 其中，金螳螂（002081.SZ）、蒙娜丽莎（002918.SZ）、ST美克（600337.SH）成为典型代表。 它们原本都属于房地产周期下承压明显的传统行业公司，但在“算力基建”“半导体材料”“商业航天”等新概念包装
+中新社北京6月13日电 当地时间13日进行的2026世界超级摩托车锦标赛(WSBK)意大利艾米利亚-罗马涅站WorldSSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军，这也是他与“张雪机车”的赛季第六冠。上一站西班牙阿拉贡站中，由于高温条件下的赛车调校问题等挑战，德比斯在正赛两个回合均获得第八名。德比斯在受访时曾表示，出现问题是一个新项目成
 
 ## 正文
 
-涨停、急速拉升与跌停，正在A股家居板块频繁上演。
+中新社北京6月13日电 当地时间13日进行的2026世界超级摩托车锦标赛(WSBK)意大利艾米利亚-罗马涅站WorldSSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军，这也是他与“张雪机车”的赛季第六冠。
 
-近期，A股家居与建材板块频现“妖股”，多个长期低迷的传统家居企业突然被资金热炒，涨停、急速拉升与跌停频繁上演。
+上一站西班牙阿拉贡站中，由于高温条件下的赛车调校问题等挑战，德比斯在正赛两个回合均获得第八名。
 
-其中，金螳螂（002081.SZ）、蒙娜丽莎（002918.SZ）、ST美克（600337.SH）成为典型代表。
+德比斯在受访时曾表示，出现问题是一个新项目成长过程中不可避免的一部分。
 
-它们原本都属于房地产周期下承压明显的传统行业公司，但在“算力基建”“半导体材料”“商业航天”等新概念包装下，被资金重新定价，股价短期剧烈波动。
+车队已基本明确问题方向，并计划在意大利站引入新的零部件，改善赛车在高温条件下的表现。
 
-金螳螂15天11板后跌停 在本轮行情中，最受市场关注的是金螳螂。
+在6月12日的本站超级杆位赛中，德比斯排名第三。
 
-这家国内建筑装饰行业龙头企业，曾长期位居中国建筑装饰企业营收规模第一，巅峰时期年营收超过300亿元、净利润超过30亿元。
+第一回合正赛开始后，德比斯处于第三位。
 
-但随着房地产行业进入下行周期，该公司自2021年起业绩持续承压。
+数圈过后，他追到第二位，此后多数时间保持在驾驶雅马哈赛车的阿雷纳斯身后。
 
-2021年恒大风险事件爆发后，金螳螂营收下滑，净利润由盈转亏。
+最后一圈时，德比斯完成超车，阿雷纳斯又反超，德比斯在最后的弯道实现极限超车，率先冲线夺冠。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 16:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 16:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 17:00 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 16:38 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 16:58 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 16:56 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 16:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 16:38 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 16:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 16:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 16:57 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 17:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 16:49 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 17:05 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 16:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 16:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 16:58 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 17:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 16:59 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 16:45 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 16:43 - [叠纸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [《贺子珍》](https://www.blog.minike.top/Article/details/973258756939.shtml)
-- 2026-06-29 17:01 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/1804008.shtml)
-- 2026-06-29 16:57 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/85511842.shtml)
-- 2026-06-29 16:42 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/12928686815.shtml)
-- 2026-06-29 16:46 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/89601579.shtml)
-- 2026-06-29 16:37 - [逆天祖国人](https://www.share.minike.top/Article/details/02254231.shtml)
-- 2026-06-29 17:00 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/888083201231.shtml)
-- 2026-06-29 16:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/6016226499.shtml)
-- 2026-06-29 17:04 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/322105050.shtml)
-- 2026-06-29 16:45 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/64853950724.shtml)
-- 2026-06-29 17:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/90994401375.shtml)
-- 2026-06-29 16:55 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/50038407647.shtml)
-- 2026-06-29 16:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/98414161525.shtml)
-- 2026-06-29 16:58 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/7256616314.shtml)
-- 2026-06-29 17:03 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/21785937826.shtml)
+- 2026-06-29 17:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/916106.shtml)
+- 2026-06-29 16:51 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/13361997963.shtml)
+- 2026-06-29 17:08 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/98613938417.shtml)
+- 2026-06-29 16:59 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/77843756.shtml)
+- 2026-06-29 16:48 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/622239686.shtml)
+- 2026-06-29 16:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/6759826452.shtml)
+- 2026-06-29 17:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/922960.shtml)
+- 2026-06-29 16:48 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/417184362.shtml)
+- 2026-06-29 17:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/04264.shtml)
+- 2026-06-29 17:07 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/935103256056.shtml)
+- 2026-06-29 16:55 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/038745.shtml)
+- 2026-06-29 16:53 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/502617.shtml)
+- 2026-06-29 16:59 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/59451488772.shtml)
+- 2026-06-29 16:51 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/21757.shtml)
+- 2026-06-29 17:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/17939216.shtml)

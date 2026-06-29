@@ -1,48 +1,50 @@
-# 探访海南琼海更路簿博物馆 解码古代南海“北斗导航”
+# 时习之丨与总书记一起守护中华文化瑰宝
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 19:43 来源：中国新闻网 5月18日是2026年国际博物馆日，中新社记者走进琼海市更路簿博物馆，探访古代海上“北斗导航”。 《更路簿》孕育于宋元时期，明代时走向成熟，是南海航海针经的一种，也是帆船时代海南渔民在南海航海指南的纸质书，记载了中国南海诸岛及海南岛周边的航线、地名、航向等诸多元素，尤以西沙、中沙和南沙群岛为主。 《更路簿》不仅是渔
+我国是世界文化和自然遗产大国，山河锦绣、文脉悠长。一直以来，习近平总书记对“守护好中华民族的文化瑰宝和自然珍宝”念之系之，强调“要持续加强文化和自然遗产传承、利用工作，使其在新时代焕发新活力、绽放新光彩，更好满足人民群众的美好生活需求”。(人民网-中国共产党新闻网)
 
 ## 正文
 
-发布时间：2026年05月18日 19:43 来源：中国新闻网 5月18日是2026年国际博物馆日，中新社记者走进琼海市更路簿博物馆，探访古代海上“北斗导航”。
+我国是世界文化和自然遗产大国，山河锦绣、文脉悠长。
 
-《更路簿》孕育于宋元时期，明代时走向成熟，是南海航海针经的一种，也是帆船时代海南渔民在南海航海指南的纸质书，记载了中国南海诸岛及海南岛周边的航线、地名、航向等诸多元素，尤以西沙、中沙和南沙群岛为主。
+一直以来，习近平总书记对“守护好中华民族的文化瑰宝和自然珍宝”念之系之，强调“要持续加强文化和自然遗产传承、利用工作，使其在新时代焕发新活力、绽放新光彩，更好满足人民群众的美好生活需求”。
 
-《更路簿》不仅是渔民闯荡南海的生存指南，更镌刻着中国人最早发现、命名、开发、经营南海诸岛的历史印记——这些由渔民世代传承的航线与地名，构成了南海主权的重要历史证据。
-
-陈英清李宇凡林士杰海南琼海报道 责任编辑：【李季】
+(人民网-中国共产党新闻网)
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 17:04 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:43 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 16:42 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 16:38 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 16:43 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 16:53 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 16:44 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 16:37 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 16:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 16:42 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 17:10 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 16:44 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 16:56 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 17:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 16:59 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 16:42 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 17:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 16:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 17:02 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 16:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 17:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 17:02 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/0345507712.shtml)
-- 2026-06-29 16:42 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/8389405270.shtml)
-- 2026-06-29 16:59 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/16769772.shtml)
-- 2026-06-29 16:57 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/66924064.shtml)
-- 2026-06-29 16:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/900042.shtml)
-- 2026-06-29 16:48 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/55467463965.shtml)
-- 2026-06-29 16:44 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/7685189037.shtml)
-- 2026-06-29 17:00 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9314615777.shtml)
-- 2026-06-29 16:50 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/402477.shtml)
-- 2026-06-29 16:54 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/30674.shtml)
-- 2026-06-29 17:02 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/0735749.shtml)
-- 2026-06-29 16:38 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/85208.shtml)
-- 2026-06-29 16:38 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/622205453226.shtml)
-- 2026-06-29 16:43 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/9364973.shtml)
-- 2026-06-29 16:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/864169664.shtml)
+- 2026-06-29 16:48 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/239258334374.shtml)
+- 2026-06-29 17:06 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/511401099.shtml)
+- 2026-06-29 17:01 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/14547434146.shtml)
+- 2026-06-29 16:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/478724087139.shtml)
+- 2026-06-29 16:59 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/99618.shtml)
+- 2026-06-29 17:03 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/75771285.shtml)
+- 2026-06-29 16:54 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/67380.shtml)
+- 2026-06-29 16:46 - [T1 KC](https://www.share.kurohicncr.top/Article/details/9977078.shtml)
+- 2026-06-29 17:10 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/92086133447.shtml)
+- 2026-06-29 17:09 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/89490146.shtml)
+- 2026-06-29 16:57 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/50087656.shtml)
+- 2026-06-29 16:49 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/203218.shtml)
+- 2026-06-29 17:00 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/88657.shtml)
+- 2026-06-29 16:46 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/72152.shtml)
+- 2026-06-29 17:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/943185382.shtml)

@@ -1,61 +1,46 @@
-# 柬埔寨跨境自驾游车队横穿柬老中三国推介文化旅游
+# “民众的心是无法阻挡的”郑龙水建议：邀请台湾有意从事基层工作的年轻人到大陆实践，为两岸基层治理探索可行路径
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新社金边5月18日电 (记者 杨强)5月18日，一个由数十辆汽车组成的“澜湄跨境自驾车队”从柬埔寨首都金边市启程，横穿柬老中三国边境推介柬埔寨旅游资源。柬埔寨旅游业界代表共同出席当天发车仪式。 柬埔寨旅游部大臣胡哈表示，该活动旨在激发澜沧江—湄公河沿岸国家的旅游发展潜力，所到之处致力推广沿途旅游景点，并在澜沧江—湄公河合作框架内促进各国文化旅游交流，充分体现相关国家持续深化旅
+发布时间：2026年06月13日 23:33 来源：中国新闻网 “民众的心是无法阻挡的”郑龙水建议：邀请台湾有意从事基层工作的年轻人到大陆实践，为两岸基层治理探索可行路径 责任编辑：【郭梦媛】
 
 ## 正文
 
-中新社金边5月18日电 (记者 杨强)5月18日，一个由数十辆汽车组成的“澜湄跨境自驾车队”从柬埔寨首都金边市启程，横穿柬老中三国边境推介柬埔寨旅游资源。
-
-柬埔寨旅游业界代表共同出席当天发车仪式。
-
-柬埔寨旅游部大臣胡哈表示，该活动旨在激发澜沧江—湄公河沿岸国家的旅游发展潜力，所到之处致力推广沿途旅游景点，并在澜沧江—湄公河合作框架内促进各国文化旅游交流，充分体现相关国家持续深化旅游合作与人文交流取得的积极成果。
-
-据介绍，此次车队从柬埔寨金边出发，经老挝进入中国云南省，全程开展为期20余天的跨境自驾旅游推广活动。
-
-车队预计于今年6月上旬沿原路返回金边。
-
-柬埔寨旅游协会主席蔡秀玲表示，此次跨境自驾游活动将配合柬政府推出的“绿色季节·畅游柬埔寨”旅游推广计划，重点面向中国及老挝热衷自驾游的游客群体，推广柬埔寨丰富的旅游资源。
-
-她表示，这不仅是一场旅游推广活动，更是深化区域合作与民间交流的重要平台。
-
-近年来，自驾游逐渐成为中国及老挝游客青睐的旅游方式之一。
+发布时间：2026年06月13日 23:33 来源：中国新闻网 “民众的心是无法阻挡的”郑龙水建议：邀请台湾有意从事基层工作的年轻人到大陆实践，为两岸基层治理探索可行路径 责任编辑：【郭梦媛】
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 16:40 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 17:01 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 16:37 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 16:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 16:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 16:51 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 16:51 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 16:42 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 16:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 16:40 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 17:00 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 17:03 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:03 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 16:56 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 17:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:01 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 16:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 16:57 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 17:09 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 16:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 17:10 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 17:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 17:08 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 17:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 16:43 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 17:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 16:51 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/91355.shtml)
-- 2026-06-29 17:01 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/61063902.shtml)
-- 2026-06-29 16:39 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/1971174243.shtml)
-- 2026-06-29 16:53 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/412386609248.shtml)
-- 2026-06-29 16:52 - [人形机器人](https://www.blog.minike.top/Article/details/387676.shtml)
-- 2026-06-29 16:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/62699263191.shtml)
-- 2026-06-29 16:58 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/168636.shtml)
-- 2026-06-29 16:59 - [爱很美味](http://www.share.kurohicncr.top/Article/details/814397566.shtml)
-- 2026-06-29 16:46 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/97068.shtml)
-- 2026-06-29 16:55 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/86418.shtml)
-- 2026-06-29 16:59 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/0600175.shtml)
-- 2026-06-29 17:01 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/1045727.shtml)
-- 2026-06-29 16:38 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/50788514.shtml)
-- 2026-06-29 16:49 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/36752335198.shtml)
-- 2026-06-29 16:39 - [扫黑风暴](http://www.share.minike.top/Article/details/9154956024.shtml)
+- 2026-06-29 16:53 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/17826132.shtml)
+- 2026-06-29 16:44 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/8209516909.shtml)
+- 2026-06-29 16:47 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/079753.shtml)
+- 2026-06-29 17:07 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/7898017.shtml)
+- 2026-06-29 17:06 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/21101050.shtml)
+- 2026-06-29 16:49 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/351833458.shtml)
+- 2026-06-29 16:53 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/3113432.shtml)
+- 2026-06-29 17:03 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/44551468.shtml)
+- 2026-06-29 17:07 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/26865742.shtml)
+- 2026-06-29 16:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/926085452218.shtml)
+- 2026-06-29 17:05 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/66119.shtml)
+- 2026-06-29 17:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/608587843.shtml)
+- 2026-06-29 16:58 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/6027643604.shtml)
+- 2026-06-29 17:00 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/5053090595.shtml)
+- 2026-06-29 16:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/82366.shtml)

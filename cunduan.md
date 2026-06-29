@@ -1,59 +1,60 @@
-# 乌干达报告埃博拉病毒输入病例 卢旺达暂时关闭口岸
+# 广东湛江：“绿色通道”助推世界级项目建设“加速度”
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 综合消息：外媒18日消息称，乌干达报告2例埃博拉病毒输入性病例，其中1人死亡。本轮埃博拉疫情暴发以来，非洲疾病预防控制中心已报告疑似病例336例，相关死亡病例88例。疫情防控、遏制跨境传播面临多重挑战。法新社、英国广播公司18日消息称，刚果(金)邻国乌干达报告2例埃博拉病毒输入病例，其中1人已经死亡。 卢旺达媒体17日援引当地官员的话称，出于埃博拉疫情防
+中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。 巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。该基地于2026年3月26日全面建成投产，成为巴
 
 ## 正文
 
-中新网北京5月18日电 综合消息：外媒18日消息称，乌干达报告2例埃博拉病毒输入性病例，其中1人死亡。
+中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。
 
-本轮埃博拉疫情暴发以来，非洲疾病预防控制中心已报告疑似病例336例，相关死亡病例88例。
+记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。
 
-疫情防控、遏制跨境传播面临多重挑战。
+巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。
 
-法新社、英国广播公司18日消息称，刚果(金)邻国乌干达报告2例埃博拉病毒输入病例，其中1人已经死亡。
+该基地于2026年3月26日全面建成投产，成为巴斯夫在全球的第三大生产基地，仅次于德国路德维希港基地和比利时安特卫普基地。
 
-卢旺达媒体17日援引当地官员的话称，出于埃博拉疫情防控需要，刚果(金)东部城市戈马与卢旺达西部城市吉塞尼之间的两个边境口岸已暂时关闭。
+巴斯夫集团执行董事会成员兼首席技术官柯迪文在接受媒体采访时表示，巴斯夫湛江基地的全面投产，将为汽车、电子、医药、服装、日化等产业提供稳定的高品质原材料，有助于降低中国市场对高端产品的进口依赖，为广东加快打造世界级绿色石化产业集群、构建更加强大的现代化产业体系提供有力支撑，还有利于发挥跨国化工企业资源、技术、管理等优势，推动中国高端石化产品发展，促进产业结构调整和绿色低碳转型。
 
-世界卫生组织(简称“世卫组织”)17日宣布，刚果(金)和乌干达出现的埃博拉疫情构成“国际关注的突发公共卫生事件”。
+据湛江市发展和改革局介绍，巴斯夫湛江基地的全面投产是外资企业把握中国发展新机遇、深度融入中国市场的典范，也再次印证中国市场是跨国企业实现长期盈利与可持续增长的核心战略支点。
 
-“国际关注的突发公共卫生事件”是《国际卫生条例》规定的第二高警报级别，本轮埃博拉疫情尚未达到最高级别“大流行病突发事件”标准。
+巴斯夫湛江基地从一开始便积极推动智能制造、数字化与绿色低碳等先进技术在基地落地。
 
-世卫组织指出，由于人口流动、贸易往来和持续的流行病学不确定性，本轮疫情存在进一步传播风险。
+从智能管理平台到安全、公用工程、技术服务、生产、物流与供应链、智能仓库等，智能化与数字化渗透在基地的每一个角落。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 16:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 17:04 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 16:58 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 16:42 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 17:04 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 17:05 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 17:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 16:58 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 16:46 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 16:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 16:48 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 16:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 17:04 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 16:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 17:01 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 16:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 16:43 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 16:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 17:10 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 17:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 17:05 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 16:47 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 16:56 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 16:48 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:59 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 16:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/84175.shtml)
-- 2026-06-29 16:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/8059589.shtml)
-- 2026-06-29 16:40 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/0343287.shtml)
-- 2026-06-29 16:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/535332878.shtml)
-- 2026-06-29 16:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/73498.shtml)
-- 2026-06-29 17:02 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/941329643.shtml)
-- 2026-06-29 16:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/202995.shtml)
-- 2026-06-29 16:40 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/37642892.shtml)
-- 2026-06-29 16:56 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/153289210.shtml)
-- 2026-06-29 17:00 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/928775.shtml)
-- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/73714373.shtml)
-- 2026-06-29 16:56 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/007853606106.shtml)
-- 2026-06-29 16:47 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/2962141758.shtml)
-- 2026-06-29 16:44 - [扬名立万](https://www.blog.minike.top/Article/details/21239869.shtml)
-- 2026-06-29 16:38 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/71702.shtml)
+- 2026-06-29 17:03 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/5549274011.shtml)
+- 2026-06-29 16:56 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/83858833.shtml)
+- 2026-06-29 16:47 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/9800158784.shtml)
+- 2026-06-29 17:09 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/77197010.shtml)
+- 2026-06-29 17:10 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/0557025739.shtml)
+- 2026-06-29 17:10 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/46640.shtml)
+- 2026-06-29 17:06 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/73341383903.shtml)
+- 2026-06-29 17:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/38568930.shtml)
+- 2026-06-29 16:56 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/64408462.shtml)
+- 2026-06-29 16:45 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/63884.shtml)
+- 2026-06-29 16:54 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/2365310.shtml)
+- 2026-06-29 17:06 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/705184652.shtml)
+- 2026-06-29 16:49 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/075022195.shtml)
+- 2026-06-29 16:48 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/445836.shtml)
+- 2026-06-29 16:53 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/58653.shtml)

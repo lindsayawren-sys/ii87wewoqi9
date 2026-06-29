@@ -1,51 +1,58 @@
-# 国际博物馆日：这首“湘”味十足的Rap里，藏着几千年前的潮流DNA
+# 张国清在青海调研时强调 高质量推进盐湖产业基地建设 着力提高防范应对自然灾害能力
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 15:27 来源：中国新闻网 谁说千年文物只会静默沉淀？5月18日是国际博物馆日，来解锁独属于湖湘的潮流DNA！当湖南省博物馆的传世瑰宝遇上超燃嘻哈Rap，尘封几千年的湘韵破壁出圈！(赵强 邓霞 张翀） 责任编辑：【罗攀】
+新华社西宁6月14日电 中共中央政治局委员、国务院副总理张国清12日至14日在青海省调研盐湖产业发展、防灾减灾等工作。他强调，要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，高质量推进盐湖产业基地建设，着力提高防范应对自然灾害能力，更好统筹发展和安全。 张国清来到青海盐湖镁业、钾肥、锂电等企业和西部矿业智慧管控中心，详细了解生产经营、研发创新和产业发展等情况
 
 ## 正文
 
-发布时间：2026年05月18日 15:27 来源：中国新闻网 谁说千年文物只会静默沉淀？
+新华社西宁6月14日电 中共中央政治局委员、国务院副总理张国清12日至14日在青海省调研盐湖产业发展、防灾减灾等工作。
 
-5月18日是国际博物馆日，来解锁独属于湖湘的潮流DNA！
+他强调，要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，高质量推进盐湖产业基地建设，着力提高防范应对自然灾害能力，更好统筹发展和安全。
 
-当湖南省博物馆的传世瑰宝遇上超燃嘻哈Rap，尘封几千年的湘韵破壁出圈！
+张国清来到青海盐湖镁业、钾肥、锂电等企业和西部矿业智慧管控中心，详细了解生产经营、研发创新和产业发展等情况。
 
-(赵强 邓霞 张翀） 责任编辑：【罗攀】
+他强调，盐湖资源是国家战略性资源，要处理好资源开发利用和生态环境保护的关系，加快绿色低碳循环发展，提高资源安全保障能力，不断增强盐湖产业国际竞争力和影响力。
+
+要统筹推进盐湖产业布局、产能规划、标准升级、要素保障，因地制宜发展盐湖资源精深加工、有色金属冶炼、新材料等特色优势产业，促进产业链向高附加值领域延伸。
+
+要围绕盐湖资源综合利用和高效开发，强化关键核心技术、关键共性技术攻关，积极推进相关产业流程、技术、工艺创新和数字赋能，促进绿色开采和节约集约利用，努力做到低消耗、低排放、高效益。
+
+要发挥国资国企示范带动作用，开放应用场景，推进产业链上下游紧密合作，打造大中小企业融通发展的先进产业集群。
+
+张国清来到西宁市古城应急避险中心、青海省地震预警中心，调研灾害监测、防灾避险等工作。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 17:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 16:41 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 17:04 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 16:55 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 16:41 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 16:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 16:40 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 16:37 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 16:38 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 16:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 16:52 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:39 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 16:55 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 16:52 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 17:10 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 16:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 17:03 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 17:06 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 16:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 16:42 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 17:00 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 17:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 16:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/42878.shtml)
-- 2026-06-29 16:51 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/221501286.shtml)
-- 2026-06-29 16:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/7462532.shtml)
-- 2026-06-29 16:41 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/035352.shtml)
-- 2026-06-29 17:01 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/204358497.shtml)
-- 2026-06-29 16:39 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/00087.shtml)
-- 2026-06-29 17:00 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/5181600.shtml)
-- 2026-06-29 16:52 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/858104765.shtml)
-- 2026-06-29 16:41 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/035063.shtml)
-- 2026-06-29 16:44 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/5121250.shtml)
-- 2026-06-29 16:59 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/682147767.shtml)
-- 2026-06-29 16:48 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/36794398.shtml)
-- 2026-06-29 16:39 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/43621.shtml)
-- 2026-06-29 16:59 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/962540254773.shtml)
-- 2026-06-29 16:53 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/972002.shtml)
+- 2026-06-29 17:03 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/051601624.shtml)
+- 2026-06-29 16:52 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/071613505.shtml)
+- 2026-06-29 16:50 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/192431.shtml)
+- 2026-06-29 17:07 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/2350081.shtml)
+- 2026-06-29 17:06 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/92076042036.shtml)
+- 2026-06-29 17:10 - [一生一世](https://www.share.minike.top/Article/details/46288471.shtml)
+- 2026-06-29 17:02 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/674258820250.shtml)
+- 2026-06-29 16:50 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/78751809598.shtml)
+- 2026-06-29 17:09 - [时光音乐会](http://www.share.minike.top/Article/details/3832957991.shtml)
+- 2026-06-29 16:50 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0643929066.shtml)
+- 2026-06-29 16:42 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/51436.shtml)
+- 2026-06-29 16:58 - [乔家的儿女](https://www.share.minike.top/Article/details/79833302114.shtml)
+- 2026-06-29 16:53 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/2514634.shtml)
+- 2026-06-29 17:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/92279.shtml)
+- 2026-06-29 17:09 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/6979590.shtml)

@@ -1,53 +1,46 @@
-# 南京银行：注册资本完成变更登记，由约100.07亿元变更为约123.64亿元
+# 收评|国内期货主力合约跌多涨少 沪银涨超7%
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-5月18日金融一线消息，南京银行公告称，公司于2025 年11 月21 日披露了《南京银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2025-080），国家金融监督管理总局江苏监管局同意公司变更注册资本。 近日，公司已完成注册资本的变更登记手续，并取得南京市市场监督管理局换发的《营业执照》，公司注册资本由 10，007，016，973 元人民币变更为12，3
+2026年6月15日，国内期货主力合约跌多涨少，燃料油、甲醇跌超8%，SC原油跌超7%，低硫燃料油（LU）、PTA、PX0>对二甲苯、沥青跌超6%，瓶片跌近6%。涨幅方面，沪银涨超7%，沪锡涨近5%，沪金涨超4%，玻璃、沪锌、铂、不锈钢（SS）涨超2%，钯涨近2%。 责任编辑：赵思远
 
 ## 正文
 
-5月18日金融一线消息，南京银行公告称，公司于2025 年11 月21 日披露了《南京银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2025-080），国家金融监督管理总局江苏监管局同意公司变更注册资本。
+2026年6月15日，国内期货主力合约跌多涨少，燃料油、甲醇跌超8%，SC原油跌超7%，低硫燃料油（LU）、PTA、PX0>对二甲苯、沥青跌超6%，瓶片跌近6%。
 
-近日，公司已完成注册资本的变更登记手续，并取得南京市市场监督管理局换发的《营业执照》，公司注册资本由 10，007，016，973 元人民币变更为12，363，567，245 元人民币。
+涨幅方面，沪银涨超7%，沪锡涨近5%，沪金涨超4%，玻璃、沪锌、铂、不锈钢（SS）涨超2%，钯涨近2%。
 
-公司修订后的《南京银行股份有限公司章程》已完成备案。
-
-责任编辑：李琳琳
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 17:03 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:03 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 16:40 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 17:03 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 16:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 16:54 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 16:39 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 17:05 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 16:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 16:43 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 16:40 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 17:05 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 16:54 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 16:55 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 16:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 16:59 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 16:46 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 16:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 17:01 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 16:53 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 16:48 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 16:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 16:49 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/4023399.shtml)
-- 2026-06-29 16:55 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/723855488275.shtml)
-- 2026-06-29 16:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/55316104.shtml)
-- 2026-06-29 16:55 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/3809769632.shtml)
-- 2026-06-29 16:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/707117.shtml)
-- 2026-06-29 17:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/20790867500.shtml)
-- 2026-06-29 16:38 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/6026173874.shtml)
-- 2026-06-29 16:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/9262498.shtml)
-- 2026-06-29 16:41 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/379521374047.shtml)
-- 2026-06-29 17:02 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/683713.shtml)
-- 2026-06-29 16:52 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/00905477052.shtml)
-- 2026-06-29 16:55 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/50189.shtml)
-- 2026-06-29 17:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/7322847236.shtml)
-- 2026-06-29 16:49 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/71423234712.shtml)
-- 2026-06-29 17:03 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/119185056.shtml)
+- 2026-06-29 17:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/410337293387.shtml)
+- 2026-06-29 16:46 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/57488405.shtml)
+- 2026-06-29 16:51 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/861115114885.shtml)
+- 2026-06-29 17:04 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/215648322216.shtml)
+- 2026-06-29 17:07 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/179870683400.shtml)
+- 2026-06-29 16:49 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/815249206.shtml)
+- 2026-06-29 16:43 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/4044301010.shtml)
+- 2026-06-29 17:09 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/3470560.shtml)
+- 2026-06-29 17:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/051178741.shtml)
+- 2026-06-29 17:11 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/6442865683.shtml)
+- 2026-06-29 16:44 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/662765791616.shtml)
+- 2026-06-29 17:06 - [流金岁月](https://www.blog.minike.top/Article/details/383381.shtml)
+- 2026-06-29 16:57 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/83514762870.shtml)
+- 2026-06-29 16:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/114986391140.shtml)
+- 2026-06-29 17:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/674419834.shtml)

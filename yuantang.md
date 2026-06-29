@@ -1,61 +1,56 @@
-# 中国地震台网中心：柳州5.2级地震属前震-主震-余震型地震
+# 日经指数上涨逾4% 芯片和建筑股领涨
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-据中国地震台网测定，2026年5月18日0时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。 地震发生后，中国地震台网中心组织专家对此次地震活动进行研究分析，此次地震位于桂东北地区，距离最近的断层是百朋断裂，距离小于5公里；此外，距离河池-宜山断裂约23公里。初步震源机制解结果显示，此次地震为逆冲型破裂。 河池-宜山断裂展布于桂
+伊朗和美国达成和平协议后，日本股市走高。芯片和建筑股领涨。随着对能源和石化产品短缺的担忧缓解，铠侠上涨6.3%，Shimizu上涨11%。投资者正密切关注中东局势的任何进展以及原油价格。日经指数上涨4.0%，报68672.98点。责任编辑：王永生
 
 ## 正文
 
-据中国地震台网测定，2026年5月18日0时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。
+伊朗和美国达成和平协议后，日本股市走高。
 
-地震发生后，中国地震台网中心组织专家对此次地震活动进行研究分析，此次地震位于桂东北地区，距离最近的断层是百朋断裂，距离小于5公里；此外，距离河池-宜山断裂约23公里。
+芯片和建筑股领涨。
 
-初步震源机制解结果显示，此次地震为逆冲型破裂。
+随着对能源和石化产品短缺的担忧缓解，铠侠上涨6.3%，Shimizu上涨11%。
 
-河池-宜山断裂展布于桂中坳陷北部，属于桂中凹陷与桂北隆起的分界线。
+投资者正密切关注中东局势的任何进展以及原油价格。
 
-该断裂带总体走向北西-近东西向，由南向北推覆，由一系列逆冲断层组成，沿走向可分为河池、宜山、柳城、英山四个构造段。
+日经指数上涨4.0%，报68672.98点。
 
-该区域以中等地震活动为主，总体表现为强度弱、频度低的特点。
-
-1900年以来，震中100公里范围内仅发生过1次5.0级以上地震，为1960年11月5日广西河池市都安县5.0级地震(距离约88公里)，震中300公里范围内发生5.0级以上地震8次(不含本次)，其中5.0-5.9级地震7次，6.0-6.9级地震1次，为1936年4月1日广西灵山6.7级地震(距离约为210公里)；时间最近的为2019年10月12日广西北流5.2级地震(距离约为277公里)。
-
-1900年以来5级以上地震序列类型统计结果显示，震中附近300公里范围内历史地震序列类型均为主余型。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 16:59 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 16:43 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 16:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 16:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 16:53 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 16:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 16:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 16:54 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 16:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 17:05 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 16:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 16:36 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 16:55 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 16:38 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 16:43 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 17:12 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 16:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 17:01 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 17:10 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 17:10 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 16:43 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 16:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 17:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 16:44 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 17:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 17:11 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 16:52 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/2933136.shtml)
-- 2026-06-29 16:41 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/041757612.shtml)
-- 2026-06-29 17:02 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/119939.shtml)
-- 2026-06-29 16:55 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/365012337742.shtml)
-- 2026-06-29 16:57 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/0587411.shtml)
-- 2026-06-29 16:49 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/41211663654.shtml)
-- 2026-06-29 16:46 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/01706807.shtml)
-- 2026-06-29 17:00 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/210798.shtml)
-- 2026-06-29 16:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/44132185801.shtml)
-- 2026-06-29 16:54 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/81263353577.shtml)
-- 2026-06-29 16:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/251263491.shtml)
-- 2026-06-29 16:39 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/7700993133.shtml)
-- 2026-06-29 16:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/75639379051.shtml)
-- 2026-06-29 16:46 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/64168533.shtml)
-- 2026-06-29 17:02 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/543025.shtml)
+- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/064273112861.shtml)
+- 2026-06-29 17:03 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/007155.shtml)
+- 2026-06-29 16:52 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/2779907505.shtml)
+- 2026-06-29 16:57 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/3094952.shtml)
+- 2026-06-29 16:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/56896.shtml)
+- 2026-06-29 17:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/66393.shtml)
+- 2026-06-29 17:11 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/176992072888.shtml)
+- 2026-06-29 17:03 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/49315001.shtml)
+- 2026-06-29 16:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/931954.shtml)
+- 2026-06-29 16:46 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/0902389527.shtml)
+- 2026-06-29 16:47 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/8882018.shtml)
+- 2026-06-29 16:53 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/17265.shtml)
+- 2026-06-29 16:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/772372580.shtml)
+- 2026-06-29 16:51 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/6645273.shtml)
+- 2026-06-29 16:50 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/71419.shtml)

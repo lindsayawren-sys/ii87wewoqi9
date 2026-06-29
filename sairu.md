@@ -1,61 +1,61 @@
-# 2026清华五道口全球金融论坛盛大开幕
+# 东西问｜张文涛：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
 
-> 更新时间：2026-06-29 17:06:02 UTC+8
+> 更新时间：2026-06-29 17:12:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 2026年5月18日，2026清华五道口全球金融论坛在四川省成都市盛大召开。 第十二届全国政协副主席、中国人民银行原行长周小川出席开幕式。清华大学党委副书记过勇，清华大学五道口金融学院院长焦捷，浦发银行行长谢伟分别发表讲话。清华大学五道口金融学院副院长张晓燕担任开幕式主持人。 在随后环节，中国人民银行原副行长、
+中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？ ——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。 孟子的“仁
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 2026年5月18日，2026清华五道口全球金融论坛在四川省成都市盛大召开。
+中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
 
-第十二届全国政协副主席、中国人民银行原行长周小川出席开幕式。
+——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。
 
-清华大学党委副书记过勇，清华大学五道口金融学院院长焦捷，浦发银行行长谢伟分别发表讲话。
+二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。
 
-清华大学五道口金融学院副院长张晓燕担任开幕式主持人。
+孟子的“仁义之国”与柏拉图的“正义之邦”，是否殊途同归？
 
-在随后环节，中国人民银行原副行长、国际货币基金组织原副总裁朱民，2001年诺贝尔经济学奖得主、斯坦福大学商学院菲利普·H·奈特管理学荣休教授迈克尔・斯宾塞，日本央行前行长白川方明展开高端对话。
+中西古典政治理想如何隔空共鸣？
 
-2026清华五道口全球金融论坛于5月17日-20日在四川省成都举办，以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题，召开多场主题论坛、报告与成果发布会、闭门会议以及国际战略咨询会议。
+古典智慧对当下有何启示？
 
-中外高级别政经领袖、重磅专家学者齐聚论坛，关注全球金融发展的新思想、新趋势、新实践、新动力，为实现金融高质量发展，助力金融强国建设、完善全球金融治理探寻新路径、注入新智慧。
+第二届世界古典学大会6月9日至10日在希腊雅典举行，受邀参加大会的重庆大学古典文明与政治哲学研究中心主任张文涛，近日就上述问题接受了中新社“东西问”专访。
 
-本次论坛由战略合作伙伴浦发银行，合作伙伴华为、新网银行、成都银行、成都农商银行、成都交子金控集团、锦泰保险公司共同支持举办。
+现将访谈实录摘要如下： 中新社记者：为何将孟子的“仁义之国”与柏拉图的“正义之邦”视作中西古典政治文明的典型理想？
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 16:44 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 16:39 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 16:50 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:59 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 16:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 16:36 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 16:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 16:55 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 16:40 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 16:51 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 16:41 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 16:53 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:42 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 16:38 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:53 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 17:02 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 17:04 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 17:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 16:56 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 16:52 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 16:53 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 16:52 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 16:49 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 16:51 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 17:08 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 16:45 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:49 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:07 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 16:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/140111412469.shtml)
-- 2026-06-29 16:46 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/08605.shtml)
-- 2026-06-29 16:45 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/2540443460.shtml)
-- 2026-06-29 16:51 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/84967597.shtml)
-- 2026-06-29 16:49 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/06886607.shtml)
-- 2026-06-29 17:04 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/44249051.shtml)
-- 2026-06-29 16:53 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/834864.shtml)
-- 2026-06-29 16:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/4593876.shtml)
-- 2026-06-29 16:46 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/3912472.shtml)
-- 2026-06-29 16:43 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/865485198912.shtml)
-- 2026-06-29 17:05 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/274925622.shtml)
-- 2026-06-29 16:54 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/492036337613.shtml)
-- 2026-06-29 16:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/685703312745.shtml)
-- 2026-06-29 16:50 - [女心理师](https://www.share.minike.top/Article/details/497894.shtml)
-- 2026-06-29 17:02 - [逃狱兄弟](https://www.share.minike.top/Article/details/6813363649.shtml)
+- 2026-06-29 17:03 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/0594196970.shtml)
+- 2026-06-29 16:56 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/017741.shtml)
+- 2026-06-29 17:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/1344860.shtml)
+- 2026-06-29 17:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/986268.shtml)
+- 2026-06-29 16:56 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/909973397.shtml)
+- 2026-06-29 16:46 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/6666181977.shtml)
+- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/32132713.shtml)
+- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/228341468991.shtml)
+- 2026-06-29 17:09 - [女心理师](http://www.share.minike.top/Article/details/292889.shtml)
+- 2026-06-29 16:43 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/465012.shtml)
+- 2026-06-29 16:46 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/36362445445.shtml)
+- 2026-06-29 16:48 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/383590335.shtml)
+- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/30791379.shtml)
+- 2026-06-29 17:08 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/6786283.shtml)
+- 2026-06-29 16:46 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/70949730.shtml)
