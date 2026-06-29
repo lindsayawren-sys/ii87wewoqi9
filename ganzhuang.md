@@ -1,46 +1,44 @@
-# 陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力
+# 建设银行黄石分行被罚33.7万元：违反人民币银行结算账户管理规定等
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 12:41 来源：中国新闻网 近年来，榆林大力推进能源结构优化调整，一场深刻的绿电革命正在这片厚重的黄土地上蓬勃展开。作为榆林能源电力保障的中坚力量，国网榆林供电公司始终坚守绿色发展底线，以坚强电网为硬核支撑，全力保障风光项目接得进、送得出、消纳好；科学统筹风光火多能互补协同调度，健全新能源优先消纳机制，全力推动绿电全额并网、足额外送，为地方能
+5月29日金融一线消息，据中国人民银行湖北省分行行政处罚决定信息公示表显示，中国建设银行股份有限公司黄石分行因违反人民币银行结算账户管理规定，未履行对异常账户、可疑交易的风险监测和相关处置义务，违反网络安全管理规定，违反反假货币业务管理规定，占压财政存款或者资金，违反信用信息采集、提供、查询及相关管理规定，被警告，罚款33.7万元。 责任编辑：秦艺
 
 ## 正文
 
-发布时间：2026年05月05日 12:41 来源：中国新闻网 近年来，榆林大力推进能源结构优化调整，一场深刻的绿电革命正在这片厚重的黄土地上蓬勃展开。
+5月29日金融一线消息，据中国人民银行湖北省分行行政处罚决定信息公示表显示，中国建设银行股份有限公司黄石分行因违反人民币银行结算账户管理规定，未履行对异常账户、可疑交易的风险监测和相关处置义务，违反网络安全管理规定，违反反假货币业务管理规定，占压财政存款或者资金，违反信用信息采集、提供、查询及相关管理规定，被警告，罚款33.7万元。
 
-作为榆林能源电力保障的中坚力量，国网榆林供电公司始终坚守绿色发展底线，以坚强电网为硬核支撑，全力保障风光项目接得进、送得出、消纳好；科学统筹风光火多能互补协同调度，健全新能源优先消纳机制，全力推动绿电全额并网、足额外送，为地方能源转型和“双碳”目标落地筑牢坚实电力保障。
-
-(记者 梅镱泷） 责任编辑：【卢岩】
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 23:39 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 23:18 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 23:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 23:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 23:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 23:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:47 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 23:30 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 23:25 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 23:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 23:47 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 23:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 23:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 23:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 23:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 23:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 23:29 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 23:40 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/9090321.shtml)
-- 2026-06-29 23:39 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/53825203369.shtml)
-- 2026-06-29 23:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/969492863437.shtml)
-- 2026-06-29 23:39 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/97368.shtml)
-- 2026-06-29 23:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4459880.shtml)
-- 2026-06-29 23:38 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/70070892.shtml)
-- 2026-06-29 23:19 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/11432796458.shtml)
-- 2026-06-29 23:47 - [爱很美味](https://www.share.minike.top/Article/details/5542630935.shtml)
-- 2026-06-29 23:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8987026.shtml)
-- 2026-06-29 23:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/06242656270.shtml)
-- 2026-06-29 23:32 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/95401438222.shtml)
-- 2026-06-29 23:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/934130.shtml)
-- 2026-06-29 23:18 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/2140771934.shtml)
-- 2026-06-29 23:18 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/90685643.shtml)
-- 2026-06-29 23:29 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/131386.shtml)
+- 2026-06-29 23:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/9297455.shtml)
+- 2026-06-29 23:42 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/894882882722.shtml)
+- 2026-06-29 23:25 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/041270.shtml)
+- 2026-06-29 23:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/34671818496.shtml)
+- 2026-06-29 23:51 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/95279.shtml)
+- 2026-06-29 23:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0119653996.shtml)
+- 2026-06-29 23:32 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/301458638.shtml)
+- 2026-06-29 23:51 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/1518313213.shtml)
+- 2026-06-29 23:45 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/894139969.shtml)
+- 2026-06-29 23:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/06731182081.shtml)
+- 2026-06-29 23:25 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/84235612466.shtml)
+- 2026-06-29 23:46 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/52027130660.shtml)
+- 2026-06-29 23:51 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/602119.shtml)
+- 2026-06-29 23:39 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/405597.shtml)
+- 2026-06-29 23:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/648269826141.shtml)

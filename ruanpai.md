@@ -1,48 +1,56 @@
-# 天齐锂业获摩根大通增持83.4597万股 每股作价61.937港元
+# SK海力士园区火灾，影响多大？最新消息来了
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月29日，摩根大通增持天齐锂业（09696）83.4597万股，每股作价61.937港元，总金额约为5169.24万港元。增持后最新持股数目约为3018.42万股，最新持股比例为13.17%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！韩国SK海力士一园区气体室发生火灾 有毒气体泄漏 央视记者获悉，当地时间6月1日上午10时32分左右，位于韩国忠清北道清州市的SK海力士第四园区内，连接两个生产间的气体室发生火灾，自动喷淋系统在起火后随即启动，火势及时得到控制。但有氟气发生泄露，7人被送往医院接受治疗。 在有毒气体泄漏后，SK海力士方面立即
 
 ## 正文
 
-香港联交所最新资料显示，4月29日，摩根大通增持天齐锂业（09696）83.4597万股，每股作价61.937港元，总金额约为5169.24万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-增持后最新持股数目约为3018.42万股，最新持股比例为13.17%。
+韩国SK海力士一园区气体室发生火灾 有毒气体泄漏 央视记者获悉，当地时间6月1日上午10时32分左右，位于韩国忠清北道清州市的SK海力士第四园区内，连接两个生产间的气体室发生火灾，自动喷淋系统在起火后随即启动，火势及时得到控制。
 
-责任编辑：卢昱君
+但有氟气发生泄露，7人被送往医院接受治疗。
+
+在有毒气体泄漏后，SK海力士方面立即疏散了工厂内约3600名员工并于当地时间13时38分左右完成残留气体清除工作。
+
+在确认无异常情况后，重新开放全部工厂建筑，并宣布事件处置结束。
+
+SK海力士方面表示，工厂的生产设备运行未受影响，不会使生产中断，目前公司正在调查事故发生的确切原因。
+
+SK海力士今年股价因存储周期景气而节节攀升，最新市值已站上1万亿美元。
+
+今日SK海力士股价上涨1.29%，续创历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 23:45 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 23:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 23:33 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 23:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 23:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 23:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 23:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 23:40 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 23:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 23:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 23:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 23:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 23:32 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 23:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 23:32 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:37 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 23:41 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 23:35 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 23:27 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/21614.shtml)
-- 2026-06-29 23:24 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/04909489.shtml)
-- 2026-06-29 23:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/8363619.shtml)
-- 2026-06-29 23:43 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/009469307373.shtml)
-- 2026-06-29 23:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/166139.shtml)
-- 2026-06-29 23:20 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/568113883625.shtml)
-- 2026-06-29 23:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/214951111576.shtml)
-- 2026-06-29 23:30 - [逃狱兄弟](http://www.blog.minike.top/Article/details/03736626.shtml)
-- 2026-06-29 23:31 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/99788368.shtml)
-- 2026-06-29 23:26 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/5820219203.shtml)
-- 2026-06-29 23:36 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/130747165820.shtml)
-- 2026-06-29 23:27 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/5767333.shtml)
-- 2026-06-29 23:24 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/9060121.shtml)
-- 2026-06-29 23:20 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/3100768.shtml)
-- 2026-06-29 23:39 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/304962617.shtml)
+- 2026-06-29 23:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/432298999.shtml)
+- 2026-06-29 23:25 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/8508835256.shtml)
+- 2026-06-29 23:39 - [东方风云榜直播](http://www.share.minike.top/Article/details/65114621.shtml)
+- 2026-06-29 23:39 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/86174750.shtml)
+- 2026-06-29 23:24 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/909940.shtml)
+- 2026-06-29 23:39 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/032944809.shtml)
+- 2026-06-29 23:38 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/29247.shtml)
+- 2026-06-29 23:33 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/40194714.shtml)
+- 2026-06-29 23:29 - [世界杯](https://www.share.kurohicncr.top/Article/details/53779.shtml)
+- 2026-06-29 23:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/437050385.shtml)
+- 2026-06-29 23:24 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/98208.shtml)
+- 2026-06-29 23:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/425090328217.shtml)
+- 2026-06-29 23:27 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/861850669.shtml)
+- 2026-06-29 23:25 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3335985761.shtml)
+- 2026-06-29 23:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/615217230628.shtml)

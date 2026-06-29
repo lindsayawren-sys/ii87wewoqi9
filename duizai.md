@@ -1,61 +1,56 @@
-# 张果彤:黄金五月二次探底概率较大
+# 湖南举行人工智能创新大赛赋能产业升级
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-5月4日，美指四月下半个月走了蓝线分析，先是99.40跌至97.70再得以支撑反弹至99.40，月末再次99.40承压，一直在这个区间震荡，月线收盘也偏低，故中线的主方向先不做选择，本月先打短线，走一步看一步吧。从目前的图形来看，重要卡点仍是上方的99.40和79.70，上破中线反弹概率加大，下破仍在低位震荡。本周仍然先关注这个区间，周一短线操作策略：98.00附近做多，止损9
+中新网长沙5月29日电(汤承霖)由三一集团与中南大学联合主办的“AI引领共筑生态”人工智能创新应用大赛自2026年3月启动以来，备受社会各界关注。组委会29日透露，日前，大赛已顺利完成半决赛入围筛选及公示工作，共有31个优秀项目脱颖而出，成功晋级半决赛。 本次大赛以“AI引领共筑生态”为主题，在国家大力推进“人工智能+”行动的背景下，依托三一集团千亿级产业链资源与中南大学雄厚的
 
 ## 正文
 
-5月4日，美指四月下半个月走了蓝线分析，先是99.40跌至97.70再得以支撑反弹至99.40，月末再次99.40承压，一直在这个区间震荡，月线收盘也偏低，故中线的主方向先不做选择，本月先打短线，走一步看一步吧。
+中新网长沙5月29日电(汤承霖)由三一集团与中南大学联合主办的“AI引领共筑生态”人工智能创新应用大赛自2026年3月启动以来，备受社会各界关注。
 
-从目前的图形来看，重要卡点仍是上方的99.40和79.70，上破中线反弹概率加大，下破仍在低位震荡。
+组委会29日透露，日前，大赛已顺利完成半决赛入围筛选及公示工作，共有31个优秀项目脱颖而出，成功晋级半决赛。
 
-本周仍然先关注这个区间，周一短线操作策略：98.00附近做多，止损97.50，目标看向98.30和98.50附近。
+本次大赛以“AI引领共筑生态”为主题，在国家大力推进“人工智能+”行动的背景下，依托三一集团千亿级产业链资源与中南大学雄厚的学科实力，聚焦智能建造、工程机械、智能制造、智慧矿山、新能源+等重点领域，旨在推动人工智能技术与实体经济的深度融合，培育引领行业变革的标杆项目。
 
-若短线继续向下运行，向下测试97.30和97.10的概率将加大。
+自3月1日报名通道在“筑享云平台”正式开启以来，大赛面向全国高校、科研院所、初创企业及社会团队广泛征集，共吸引了来自各地的134个前沿创新团队踊跃报名。
 
-控制仓量，严格止损。
+经大赛组委会组织专家团队围绕技术创新性、产业应用价值、商业可行性等多维度进行严格评审与综合遴选，最终共有31个项目入围半决赛名单。
 
-欧元4月13日分析思路走了蓝线，到达1.1840后在区间震荡。
+根据赛程安排，半决赛将于6月5日在长沙三湘银行正式举行。
 
-从图形来看，后市中线是深度回踩1.1210，还是一直在1.1410上方震荡后长线拉涨，目前不确定，两手准备吧。
+届时，所有入围团队将通过现场路演与专家评审，角逐晋级决赛的资格，半决赛将最终产生6支优胜队伍，晋级次日的总决赛。
 
-五月先打周内短线吧，走一步看一步。
+总决赛定于6月6日在长沙三湘一品举办，6支晋级队伍将通过路演答辩、现场演示及专家评审等环节，全面展示项目成果，争夺大赛一、二、三等奖。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 23:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 23:24 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 23:33 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 23:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 23:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:33 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 23:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 23:39 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 23:31 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 23:41 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 23:34 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 23:21 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 23:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 23:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 23:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 23:43 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 23:24 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 23:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:28 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 23:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 23:30 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 23:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 23:53 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:26 - [请回答王牌2019](https://www.blog.minike.top/Article/details/81145389.shtml)
-- 2026-06-29 23:38 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/4687054097.shtml)
-- 2026-06-29 23:26 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/6855573324.shtml)
-- 2026-06-29 23:36 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/834568030130.shtml)
-- 2026-06-29 23:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/74745.shtml)
-- 2026-06-29 23:38 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/627436614.shtml)
-- 2026-06-29 23:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/610987691155.shtml)
-- 2026-06-29 23:36 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/5089369.shtml)
-- 2026-06-29 23:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/81715.shtml)
-- 2026-06-29 23:29 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/36207012.shtml)
-- 2026-06-29 23:38 - [扬名立万](http://www.share.minike.top/Article/details/6853857834.shtml)
-- 2026-06-29 23:25 - [美人鱼](http://www.share.kurohicncr.top/Article/details/05894.shtml)
-- 2026-06-29 23:18 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/085995570.shtml)
-- 2026-06-29 23:22 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/4881526966.shtml)
-- 2026-06-29 23:18 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/184761670828.shtml)
+- 2026-06-29 23:27 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/37110.shtml)
+- 2026-06-29 23:53 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/6283366939.shtml)
+- 2026-06-29 23:28 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/288740267459.shtml)
+- 2026-06-29 23:44 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/9863539.shtml)
+- 2026-06-29 23:46 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/1771870072.shtml)
+- 2026-06-29 23:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/19301021210.shtml)
+- 2026-06-29 23:38 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/37434.shtml)
+- 2026-06-29 23:43 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/82180564.shtml)
+- 2026-06-29 23:33 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/585697805.shtml)
+- 2026-06-29 23:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/0822094752.shtml)
+- 2026-06-29 23:41 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/574900004.shtml)
+- 2026-06-29 23:50 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/831207336.shtml)
+- 2026-06-29 23:31 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/826321894.shtml)
+- 2026-06-29 23:46 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/8280191759.shtml)
+- 2026-06-29 23:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/11785.shtml)

@@ -1,54 +1,59 @@
-# （机遇香港）“五一”假期约100.3万人次内地旅客访港 同比增近一成
+# 当“药二代”接班遇上13亿亏损，珍宝岛转型困局何解？
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社香港5月5日电 (记者 刘玥晴)中新社记者5日从香港特区政府入境事务处获悉，截至当天21时，今年内地“五一”假期(5月1日至5日)共约100.3万人次内地旅客入境香港，较去年同期增加近一成。 数据显示，内地访客入境高峰为5月2日，录得26.3万人次。假期期间，经落马洲支线口岸(即福田口岸)出入香港的内地旅客最多，高铁西九龙站入境口岸次之。 香港特区立法会议员、美丽华集团首
+新一届董事会换届选举，把黑龙江珍宝岛药业股份有限公司（股票简称“珍宝岛”）实控人方同华之女方福鑫推到台前，其将出任公司董事长一职。 去年逾13亿元的亏损，是摆在新一届董事会面前的一大“难题”：这不仅是珍宝岛自2015年上市以来的首次亏损，而且13.67亿元的亏损规模，相当于公司此前四年净利润之和。虽然珍宝岛近年来致力于打造中药、生物药、化药“三驾马车”并驾齐驱的发展主线，但目前
 
 ## 正文
 
-中新社香港5月5日电 (记者 刘玥晴)中新社记者5日从香港特区政府入境事务处获悉，截至当天21时，今年内地“五一”假期(5月1日至5日)共约100.3万人次内地旅客入境香港，较去年同期增加近一成。
+新一届董事会换届选举，把黑龙江珍宝岛药业股份有限公司（股票简称“珍宝岛”）实控人方同华之女方福鑫推到台前，其将出任公司董事长一职。
 
-数据显示，内地访客入境高峰为5月2日，录得26.3万人次。
+去年逾13亿元的亏损，是摆在新一届董事会面前的一大“难题”：这不仅是珍宝岛自2015年上市以来的首次亏损，而且13.67亿元的亏损规模，相当于公司此前四年净利润之和。
 
-假期期间，经落马洲支线口岸(即福田口岸)出入香港的内地旅客最多，高铁西九龙站入境口岸次之。
+虽然珍宝岛近年来致力于打造中药、生物药、化药“三驾马车”并驾齐驱的发展主线，但目前生物药与化药带来的营收与公司传统中药业务仍不在一个量级。
 
-香港特区立法会议员、美丽华集团首席营运总裁陈宗彝表示，香港近年积极发展盛事经济，内地“五一”假期期间亦有多场演唱会等大型活动在港举办，对内地旅客具有吸引力。
+珍宝岛业绩增长的确定性，更多仍源自中药。
 
-他续指，“粤车南下”政策带来部分家庭旅客，对酒店住宿业有一定拉动作用。
+今年“药二代”密集接班 “药二代”接班的风吹到了珍宝岛，公司创始人方同华之女方福鑫当选公司第六届董事会董事长。
 
-香港旅游业议会总干事杨淑芬认为，受地缘政治和航班燃油附加费上调影响，内地旅客赴海外长途旅行意愿有所回落，香港安全稳定、交通便捷的优势凸显，预计今年暑假内地访港旅客人次亦将可观。
+与此同时，曾短暂担任董事长一职的闫久江任公司总经理。
 
-(完)
+作为一家集多元化于一体的医药制造企业，珍宝岛业务覆盖药品研发创新、智能化生产、全域市场推广、医药流通及中药材全产业链建设。
+
+2015年4月，公司在上交所挂牌上市。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 23:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 23:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 23:21 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 23:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 23:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 23:47 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:20 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 23:23 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 23:53 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 23:41 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 23:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 23:51 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 23:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 23:52 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 23:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 23:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 23:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 23:40 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 23:27 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 23:30 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 23:32 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/67145576790.shtml)
-- 2026-06-29 23:38 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/09367.shtml)
-- 2026-06-29 23:25 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/00875376554.shtml)
-- 2026-06-29 23:31 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/110693.shtml)
-- 2026-06-29 23:34 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/741438.shtml)
-- 2026-06-29 23:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/302958769873.shtml)
-- 2026-06-29 23:38 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/008103662.shtml)
-- 2026-06-29 23:29 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/72242.shtml)
-- 2026-06-29 23:32 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/192611.shtml)
-- 2026-06-29 23:32 - [周生如故](http://www.blog.kurohicncr.top/Article/details/115774789723.shtml)
-- 2026-06-29 23:31 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/90036.shtml)
-- 2026-06-29 23:19 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/007023.shtml)
-- 2026-06-29 23:40 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/543693.shtml)
-- 2026-06-29 23:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/570124650036.shtml)
-- 2026-06-29 23:42 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/110786810.shtml)
+- 2026-06-29 23:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/393461.shtml)
+- 2026-06-29 23:52 - [恋与深空 巧合](https://www.share.minike.top/Article/details/123190.shtml)
+- 2026-06-29 23:43 - [东方风云榜直播](https://www.share.minike.top/Article/details/85969.shtml)
+- 2026-06-29 23:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/180488.shtml)
+- 2026-06-29 23:27 - [东方风云榜直播](https://www.share.minike.top/Article/details/799439612.shtml)
+- 2026-06-29 23:49 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/673295888.shtml)
+- 2026-06-29 23:26 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/0668996581.shtml)
+- 2026-06-29 23:34 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/0280082.shtml)
+- 2026-06-29 23:42 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/71782030034.shtml)
+- 2026-06-29 23:30 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/8991660439.shtml)
+- 2026-06-29 23:37 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/3454279472.shtml)
+- 2026-06-29 23:49 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/88575134.shtml)
+- 2026-06-29 23:32 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/85839775084.shtml)
+- 2026-06-29 23:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/935350789091.shtml)
+- 2026-06-29 23:40 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/7334393.shtml)

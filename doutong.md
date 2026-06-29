@@ -1,57 +1,56 @@
-# “五一”假期首日广东水上出行迎来客流高峰
+# “香会”中方团长：人工智能军事应用要智能向“安”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社广州5月2日电 (郭军 黄鸣鹤)广东海事局2日通报，“五一”假期首日，广东沿海水上出行迅速升温，多地旅客水上出行数量呈增长态势。 琼州海峡5月1日迎来进出岛高峰，发送旅客11.4万人次、车辆2.8万台次，其中新能源车5722辆，同比增长61.09%。为应对高峰，海口至海安航线投入54艘船舶参与运输，其中4艘甲板货船专门用于新能源车辆专属运输，新能源专班单日最大发班60个，
+中新社新加坡5月30日电 (记者 李纯)参加第二十三届香格里拉对话会的中国人民解放军专家学者代表团团长、国防大学教授孟祥青30日在新加坡指出，人工智能的军事应用要坚持以人为本，不仅要智能向善，还要智能向“安”。当天，孟祥青在以“如何管理对战略稳定的威胁”为主题的平行分组会议上作发言。他指出，要积极管控新兴技术风险，防止军事领域“规则真空”。以算法掌控人的生杀大权，很可能导致技术
 
 ## 正文
 
-中新社广州5月2日电 (郭军 黄鸣鹤)广东海事局2日通报，“五一”假期首日，广东沿海水上出行迅速升温，多地旅客水上出行数量呈增长态势。
+中新社新加坡5月30日电 (记者 李纯)参加第二十三届香格里拉对话会的中国人民解放军专家学者代表团团长、国防大学教授孟祥青30日在新加坡指出，人工智能的军事应用要坚持以人为本，不仅要智能向善，还要智能向“安”。
 
-琼州海峡5月1日迎来进出岛高峰，发送旅客11.4万人次、车辆2.8万台次，其中新能源车5722辆，同比增长61.09%。
+当天，孟祥青在以“如何管理对战略稳定的威胁”为主题的平行分组会议上作发言。
 
-为应对高峰，海口至海安航线投入54艘船舶参与运输，其中4艘甲板货船专门用于新能源车辆专属运输，新能源专班单日最大发班60个，可满足每日5000辆新能源汽车的过海需求。
+他指出，要积极管控新兴技术风险，防止军事领域“规则真空”。
 
-假期首日，珠江游开航班次超170个，接待游客约3.3万人次。
+以算法掌控人的生杀大权，很可能导致技术失控，甚至使美国电影《终结者》中的场景成为现实。
 
-节前新投运的电池动力船“不夜侯”号提供430客位，与“状元舫”号等形成互补，目前珠江游纯电池动力船舶占比接近三分之一，绿色低碳成为出行新亮点。
+任何时候都要确保战争控制权和相关武器系统牢牢攥在人类手中。
 
-深圳蛇口邮轮母港假期首日发送旅客超4.8万人次，同比增长约18%。
+孟祥青表示，中方已在联合国《特定常规武器公约》框架下提交了规范人工智能军事应用的立场文件，支持在条件成熟时达成具有法律约束力的国际文书。
 
-与此同时，深圳海上旅游消费同样火爆，假期特别开通了湾区观光、夜游船等特色航线，吸引大量市民和游客“海上打卡”。
+在随后的现场答问环节中，孟祥青指出，近年来的几场局部冲突已经深刻反映出人工智能对战争的影响。
 
-假期首日约有1万人次参与这类海上文旅消费项目，夜间经济、湾区微度假等新兴消费场景正在加速释放活力。
+人工智能的军事应用要坚持以人为本，“不仅要智能向善，还要智能向‘安’”。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 23:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 23:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 23:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 23:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 23:26 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 23:25 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 23:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 23:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 23:47 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 23:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 23:24 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 23:46 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 23:24 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 23:31 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 23:33 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 23:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 23:52 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 23:32 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 23:35 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/52187224002.shtml)
-- 2026-06-29 23:25 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/8416564.shtml)
-- 2026-06-29 23:35 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/11910960.shtml)
-- 2026-06-29 23:32 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/72797.shtml)
-- 2026-06-29 23:33 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/46670207.shtml)
-- 2026-06-29 23:19 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/724816501.shtml)
-- 2026-06-29 23:26 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/21775070.shtml)
-- 2026-06-29 23:20 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/60764357947.shtml)
-- 2026-06-29 23:25 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/76462165.shtml)
-- 2026-06-29 23:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/78109814.shtml)
-- 2026-06-29 23:35 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/173676443.shtml)
-- 2026-06-29 23:22 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/22433899740.shtml)
-- 2026-06-29 23:18 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/382392907.shtml)
-- 2026-06-29 23:44 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/7529726419.shtml)
-- 2026-06-29 23:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/2578524.shtml)
+- 2026-06-29 23:34 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/665051174.shtml)
+- 2026-06-29 23:35 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/02674.shtml)
+- 2026-06-29 23:24 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/68210434661.shtml)
+- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/6428262585.shtml)
+- 2026-06-29 23:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/4881038758.shtml)
+- 2026-06-29 23:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/7968697.shtml)
+- 2026-06-29 23:36 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/892998316581.shtml)
+- 2026-06-29 23:36 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/15953.shtml)
+- 2026-06-29 23:31 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/1417449674.shtml)
+- 2026-06-29 23:27 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/0520910.shtml)
+- 2026-06-29 23:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/39071175.shtml)
+- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7855160745.shtml)
+- 2026-06-29 23:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/785815955814.shtml)
+- 2026-06-29 23:41 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/0250223767.shtml)
+- 2026-06-29 23:46 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/72838402.shtml)

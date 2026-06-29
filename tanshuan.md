@@ -1,57 +1,60 @@
-# 水磨腔贴近童心 昆曲儿童剧《跃龙门》升级上演
+# 千里助学励少年 台商在渝许下“未来之约”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网苏州5月3日电 (记者 钟升)昆曲儿童剧《跃龙门》经过打磨升级后，2日在昆山梁辰鱼昆曲剧场亮相，正式拉开昆山当代昆剧院庆祝昆曲被列入联合国教科文组织“人类口头和非物质遗产代表作”25周年系列活动的序幕。 《跃龙门》是昆山当代昆剧院首部专为儿童量身定制的昆曲剧目，改编自“鲤鱼跃龙门”的古老传说，讲述小鱼赤鳞在朋友的帮助下逆流而上的成长故事，将昆曲的典雅与儿童剧的童趣融入水磨
+中新网重庆5月29日电 (罗永皓)“读书是改变命运最公平的阶梯。”29日，在渝台商、中国生命集团董事长刘添财在“添财励志奖学金”发放仪式上如是说道。现场，重庆市荣昌区清江镇中心小学6名学子获得此项由台商出资设立的奖学金。 据悉，该项奖学金资助周期为3年，每年按照该校学生总数约5%的比例择优评定，标准为每人每年1000元(人民币，下同)，三年资助总金额共计18000元。奖学金旨在
 
 ## 正文
 
-中新网苏州5月3日电 (记者 钟升)昆曲儿童剧《跃龙门》经过打磨升级后，2日在昆山梁辰鱼昆曲剧场亮相，正式拉开昆山当代昆剧院庆祝昆曲被列入联合国教科文组织“人类口头和非物质遗产代表作”25周年系列活动的序幕。
+中新网重庆5月29日电 (罗永皓)“读书是改变命运最公平的阶梯。
 
-《跃龙门》是昆山当代昆剧院首部专为儿童量身定制的昆曲剧目，改编自“鲤鱼跃龙门”的古老传说，讲述小鱼赤鳞在朋友的帮助下逆流而上的成长故事，将昆曲的典雅与儿童剧的童趣融入水磨腔的一咏三叹之中。
+”29日，在渝台商、中国生命集团董事长刘添财在“添财励志奖学金”发放仪式上如是说道。
 
-如何让孩子们坐得住、看得懂、喜欢看？
+现场，重庆市荣昌区清江镇中心小学6名学子获得此项由台商出资设立的奖学金。
 
-青年主创团队从文本、表演、声音等多方面做了调整和思考，在保留昆曲唱念做打的同时，让《跃龙门》更富有童趣、联动生活日常、互动感更强。
+据悉，该项奖学金资助周期为3年，每年按照该校学生总数约5%的比例择优评定，标准为每人每年1000元(人民币，下同)，三年资助总金额共计18000元。
 
-导演胡翰驰说：“大家努力寻找平衡传统昆曲美学与现代舞台语汇，力求打造一部老少咸宜的作品，把孩子们带进昆曲世界，沉浸式感受传统文化魅力。
+奖学金旨在表彰和奖励品行端正、学业优良、积极向上的学生，同时兼顾家庭经济困难学生的帮扶需求，以公益助学之力，激励乡村学子笃学奋进。
 
-” 舞台上，赤鳞不畏困难、逆流而上、重情重义深深打动了观众。
+作为此项奖学金的捐资设立人，刘添财深耕重庆发展十九载，早已将重庆视作第二故乡。
 
-主演邹译瑶介绍，赤鳞这个角色打破了传统行当的束缚，有小花旦的唱念、娃娃生的表演、武旦的开打以及武生的厚底大靠，很有挑战性。
+在他看来，设立该奖学金不仅是对乡村学子的暖心帮扶和精神嘉奖，更是关注两岸共同的未来。
 
-为了表现赤鳞在水里欢快打转时水面和鱼鳞波光粼粼的画面，团队特别设计了带斗篷的转卧鱼，希望通过这些精心打磨的细节呈现更生动的角色形象，让观众全情投入剧情。
+重庆市台湾同胞投资企业协会副会长彭健嘉介绍，该协会深耕重庆发展的同时，聚焦基础教育发展、关爱少年儿童成长，支持教育事业、守护孩童成长，正以实际行动浇灌两岸同源的文化根脉。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:30 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 23:33 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 23:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 23:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 23:26 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 23:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 23:24 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 23:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 23:25 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 23:29 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 23:52 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 23:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 23:44 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 23:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 23:34 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 23:24 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 23:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 23:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 23:41 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 23:51 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 23:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 23:28 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/358347993.shtml)
-- 2026-06-29 23:41 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/262393329.shtml)
-- 2026-06-29 23:46 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/564856.shtml)
-- 2026-06-29 23:47 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/28854.shtml)
-- 2026-06-29 23:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/1763561.shtml)
-- 2026-06-29 23:33 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5235903.shtml)
-- 2026-06-29 23:40 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/759173.shtml)
-- 2026-06-29 23:37 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/3300561.shtml)
-- 2026-06-29 23:44 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/6652150.shtml)
-- 2026-06-29 23:31 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/4474892.shtml)
-- 2026-06-29 23:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/2626859371.shtml)
-- 2026-06-29 23:47 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/593811067.shtml)
-- 2026-06-29 23:37 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/686335464.shtml)
-- 2026-06-29 23:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/69491607535.shtml)
-- 2026-06-29 23:41 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/446757798109.shtml)
+- 2026-06-29 23:25 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/914888890838.shtml)
+- 2026-06-29 23:37 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/324435221.shtml)
+- 2026-06-29 23:40 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/87511761909.shtml)
+- 2026-06-29 23:47 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/38676619.shtml)
+- 2026-06-29 23:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/466213492.shtml)
+- 2026-06-29 23:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/774976405.shtml)
+- 2026-06-29 23:45 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/1450452794.shtml)
+- 2026-06-29 23:26 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/347818831.shtml)
+- 2026-06-29 23:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/11260.shtml)
+- 2026-06-29 23:36 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/36453.shtml)
+- 2026-06-29 23:35 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/018666.shtml)
+- 2026-06-29 23:32 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/281765568.shtml)
+- 2026-06-29 23:30 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/6380090629.shtml)
+- 2026-06-29 23:43 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/66996.shtml)
+- 2026-06-29 23:25 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/502135.shtml)

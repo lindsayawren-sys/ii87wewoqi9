@@ -1,60 +1,61 @@
-# Peter Thiel领投10亿美元估值海洋数据中心初创公司
+# 白宫就美伊协议前景释放矛盾信号 市场聚焦特朗普周末有何动作
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-PayPal联合创始人、知名科技投资人Peter Thiel领投了美国初创公司Panthalassa的1.4亿美元B轮融资，该公司估值已接近10亿美元。这家总部位于俄勒冈州波特兰的企业正开发一项独特技术：利用海洋波浪能为浮动人工智能数据中心供电。 Panthalassa的系统核心是85米高的浮动发电平台，大部分结构沉于海面以下。该平台利用波浪的上下运动驱动内部涡轮机发电，电力直
+白宫一直就与伊朗达成协议的前景发出相互矛盾的信号，凸显出美国总统唐纳德·特朗普难以找到途径结束这场已进入第四个月的冲突。 周五这一模式仍在延续。 特朗普周五在社交媒体发帖称，他准备就延长脆弱停火的初步协议做出“最终决定”。然而几小时后，美媒援引高级政府官员报道，特朗普结束了战情室会议，但未做出任何决定。 这种反复延续了这样一种模式，即双方一再暗示协议接近达成，但又在伊朗铀库存去
 
 ## 正文
 
-PayPal联合创始人、知名科技投资人Peter Thiel领投了美国初创公司Panthalassa的1.4亿美元B轮融资，该公司估值已接近10亿美元。
+白宫一直就与伊朗达成协议的前景发出相互矛盾的信号，凸显出美国总统唐纳德·特朗普难以找到途径结束这场已进入第四个月的冲突。
 
-这家总部位于俄勒冈州波特兰的企业正开发一项独特技术：利用海洋波浪能为浮动人工智能数据中心供电。
+周五这一模式仍在延续。
 
-Panthalassa的系统核心是85米高的浮动发电平台，大部分结构沉于海面以下。
+特朗普周五在社交媒体发帖称，他准备就延长脆弱停火的初步协议做出“最终决定”。
 
-该平台利用波浪的上下运动驱动内部涡轮机发电，电力直接在船上用于运行AI推理模型，计算结果通过SpaceX的星链卫星网络传回陆地。
+然而几小时后，美媒援引高级政府官员报道，特朗普结束了战情室会议，但未做出任何决定。
 
-这一设计绕过了波浪能项目的历史性难题——将电力从海洋传输回电网的高昂成本。
+这种反复延续了这样一种模式，即双方一再暗示协议接近达成，但又在伊朗铀库存去向、核计划以及霍尔木兹海峡通航等长期困扰谈判的问题上显露分歧。
 
-该方案同时解决了陆地数据中心的两大瓶颈：电网容量限制和冷却成本。
+公开发言的陡然转向令交易员措手不及，但对停火协议可能为结束冲突铺平道路的希望，仍推动股市迈向历史性的周度连涨。
 
-该发电平台无需连接陆地电网，而周围冰冷的海水可直接为计算硬件提供免费散热。
+不过，投资者仍面临预期因特朗普再度转向而落空的风险。
 
-联合创始人兼首席执行官Garth Sheldon-Coulson表示，平台发电成本可低至每千瓦时0.02美元。
+位于华盛顿的咨询公司ClearView Energy Partners董事总经理Kevin Book表示，目前存在一种“不确定性折价”，市场正面临“步入周末不知道总统又会作何发言”的挑战。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 23:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 23:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 23:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 23:39 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 23:43 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 23:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 23:44 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 23:42 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 23:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 23:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 23:34 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 23:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 23:29 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 23:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 23:48 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 23:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 23:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 23:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:33 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 23:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 23:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 23:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 23:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 23:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 23:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 23:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:48 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [张凌赫 客串](https://www.blog.minike.top/Article/details/542698209051.shtml)
-- 2026-06-29 23:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/86464689.shtml)
-- 2026-06-29 23:31 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/45486498594.shtml)
-- 2026-06-29 23:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7034260804.shtml)
-- 2026-06-29 23:47 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/89822094.shtml)
-- 2026-06-29 23:41 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/042247578766.shtml)
-- 2026-06-29 23:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/921244.shtml)
-- 2026-06-29 23:39 - [周生如故](https://www.blog.kurohicncr.top/Article/details/6538637546.shtml)
-- 2026-06-29 23:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/21929.shtml)
-- 2026-06-29 23:42 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/31144794.shtml)
-- 2026-06-29 23:25 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/92604.shtml)
-- 2026-06-29 23:44 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/66968604866.shtml)
-- 2026-06-29 23:21 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/89661.shtml)
-- 2026-06-29 23:29 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/392536609.shtml)
-- 2026-06-29 23:26 - [第一炉香](http://www.share.kurohicncr.top/Article/details/572410.shtml)
+- 2026-06-29 23:30 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/480804020.shtml)
+- 2026-06-29 23:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/5243617.shtml)
+- 2026-06-29 23:49 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/7911049.shtml)
+- 2026-06-29 23:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/20187683.shtml)
+- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/112379786759.shtml)
+- 2026-06-29 23:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/61939.shtml)
+- 2026-06-29 23:31 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/66005.shtml)
+- 2026-06-29 23:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/454960484761.shtml)
+- 2026-06-29 23:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/4985813408.shtml)
+- 2026-06-29 23:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/2758718.shtml)
+- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/02580271118.shtml)
+- 2026-06-29 23:28 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/648434.shtml)
+- 2026-06-29 23:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/275100253881.shtml)
+- 2026-06-29 23:45 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/04907.shtml)
+- 2026-06-29 23:27 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/7627907671.shtml)

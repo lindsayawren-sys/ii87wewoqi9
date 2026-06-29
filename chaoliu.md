@@ -1,47 +1,57 @@
-# FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益
+# A股超3700只个股上涨，AI应用端爆发
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。 声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月1日，A股三大指数集体下跌。截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。 盘面上，全市场超3700只个股上涨，其中170只个股涨停。 板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、
 
 ## 正文
 
-美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
+来源：国际金融报 6月1日，A股三大指数集体下跌。
+
+截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。
+
+盘面上，全市场超3700只个股上涨，其中170只个股涨停。
+
+板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、久其软件涨停。
+
+AI PC概念表现活跃，春秋电子2连板，胜利精密、英力股份、雷神科技涨停。
+
+消息面上，6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
+
+英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 23:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:33 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 23:37 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 23:45 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 23:37 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 23:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 23:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 23:40 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 23:20 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 23:41 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 23:29 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 23:25 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 23:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 23:39 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 23:32 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 23:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 23:37 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 23:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 23:45 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 23:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 23:31 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/749858164.shtml)
-- 2026-06-29 23:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/773249786930.shtml)
-- 2026-06-29 23:47 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/56841498293.shtml)
-- 2026-06-29 23:40 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/1683735.shtml)
-- 2026-06-29 23:20 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/409250196216.shtml)
-- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/1206018904.shtml)
-- 2026-06-29 23:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4918660265.shtml)
-- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/064384.shtml)
-- 2026-06-29 23:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/329424.shtml)
-- 2026-06-29 23:19 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/30296881532.shtml)
-- 2026-06-29 23:32 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6313449774.shtml)
-- 2026-06-29 23:38 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/2586829.shtml)
-- 2026-06-29 23:35 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/15201633.shtml)
-- 2026-06-29 23:18 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/382319356789.shtml)
-- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/243758947.shtml)
+- 2026-06-29 23:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/88235625.shtml)
+- 2026-06-29 23:31 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/88520351976.shtml)
+- 2026-06-29 23:29 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/18608.shtml)
+- 2026-06-29 23:27 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/80045965.shtml)
+- 2026-06-29 23:26 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/560538268.shtml)
+- 2026-06-29 23:25 - [东方风云榜](http://www.blog.minike.top/Article/details/465265834699.shtml)
+- 2026-06-29 23:26 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/959332570634.shtml)
+- 2026-06-29 23:44 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/162818.shtml)
+- 2026-06-29 23:50 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/00973744496.shtml)
+- 2026-06-29 23:48 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/47769.shtml)
+- 2026-06-29 23:45 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/5963122522.shtml)
+- 2026-06-29 23:34 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/66721.shtml)
+- 2026-06-29 23:24 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/719247544182.shtml)
+- 2026-06-29 23:35 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/6277139040.shtml)
+- 2026-06-29 23:34 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/13498799.shtml)

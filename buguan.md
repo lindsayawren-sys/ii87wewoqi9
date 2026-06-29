@@ -1,45 +1,56 @@
-# 【追光的你】习言道｜时代的责任赋予青年，时代的光荣属于青年
+# 2026大湾区康复论坛启幕：建统一服务标准 培育专业人才
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-青年是祖国的前途、民族的希望、创新的未来。习近平总书记一直十分重视青年工作，关心青年成长，强调只有把人生理想融入国家和民族的事业中，才能最终成就一番事业。
+中新网广州5月31日电 (记者 蔡敏婕)“香港、澳门老年人口多，不少老人选择到湾区内地城市养老，但医疗保障、福利制度需要进一步实现互认互通。”广东省康复医学会会长窦祖林30日在广州表示，湾区跨境康养大有可为，目前已有多项“湾区标准”发布，涉及养老服务范畴，将整合借鉴港澳成熟照护规范，打通三地康复、康养服务流程。2026中国康复医学会“一带一路”粤港澳大湾区康复论坛暨广东省康复医
 
 ## 正文
 
-青年是祖国的前途、民族的希望、创新的未来。
+中新网广州5月31日电 (记者 蔡敏婕)“香港、澳门老年人口多，不少老人选择到湾区内地城市养老，但医疗保障、福利制度需要进一步实现互认互通。
 
-习近平总书记一直十分重视青年工作，关心青年成长，强调只有把人生理想融入国家和民族的事业中，才能最终成就一番事业。
+”广东省康复医学会会长窦祖林30日在广州表示，湾区跨境康养大有可为，目前已有多项“湾区标准”发布，涉及养老服务范畴，将整合借鉴港澳成熟照护规范，打通三地康复、康养服务流程。
+
+2026中国康复医学会“一带一路”粤港澳大湾区康复论坛暨广东省康复医学会综合学术年会29日至31日在广州举办。
+
+作为大会核心板块，主论坛“康养专场”以康养趋势、全人理念、人才建设、居家实践四大篇章系统构建康养服务新范式。
+
+人才培育是康复、康养事业行稳致远的根本支撑。
+
+“专业人才缺口是制约行业提质升级的核心瓶颈。
+
+”窦祖林介绍，当前养老机构一线从业者需要进行系统专业培训，尤其在老人心理疏导、压疮防护、防误吸喂食等专业康复护理工作上。
+
+“这件事需要卫健、民政部门及康养社会组织协同，打破培训壁垒，分工明确：谁牵头、谁考核、谁发证、谁回访持证人员服务质量，都需要统筹协调。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 23:21 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 23:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 23:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 23:33 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 23:35 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 23:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 23:46 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 23:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 23:40 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 23:41 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 23:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 23:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 23:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 23:43 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 23:53 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 23:26 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 23:25 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 23:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 23:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 23:47 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/95694722.shtml)
-- 2026-06-29 23:43 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/61547.shtml)
-- 2026-06-29 23:18 - [青春环游记第三季](https://www.blog.minike.top/Article/details/856502135.shtml)
-- 2026-06-29 23:45 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/798275448.shtml)
-- 2026-06-29 23:26 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/457147892274.shtml)
-- 2026-06-29 23:32 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/9347293.shtml)
-- 2026-06-29 23:38 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/442064526523.shtml)
-- 2026-06-29 23:22 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/05810964251.shtml)
-- 2026-06-29 23:46 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/607372213.shtml)
-- 2026-06-29 23:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/37393.shtml)
-- 2026-06-29 23:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/34770.shtml)
-- 2026-06-29 23:19 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/144621.shtml)
-- 2026-06-29 23:30 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/183037903.shtml)
-- 2026-06-29 23:19 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/9665205.shtml)
-- 2026-06-29 23:45 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/04802.shtml)
+- 2026-06-29 23:48 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/555419.shtml)
+- 2026-06-29 23:41 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/1749066738.shtml)
+- 2026-06-29 23:46 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/56365084.shtml)
+- 2026-06-29 23:43 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/3949117.shtml)
+- 2026-06-29 23:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/7550675.shtml)
+- 2026-06-29 23:48 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/58277978780.shtml)
+- 2026-06-29 23:47 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/543345708.shtml)
+- 2026-06-29 23:38 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/4355646.shtml)
+- 2026-06-29 23:42 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/4246360.shtml)
+- 2026-06-29 23:29 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/893396.shtml)
+- 2026-06-29 23:46 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/81015.shtml)
+- 2026-06-29 23:40 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/816525267215.shtml)
+- 2026-06-29 23:53 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/849998967.shtml)
+- 2026-06-29 23:50 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/84450498.shtml)
+- 2026-06-29 23:42 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/81869.shtml)

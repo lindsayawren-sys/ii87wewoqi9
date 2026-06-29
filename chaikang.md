@@ -1,48 +1,57 @@
-# 港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%
+# 欧美同学会（中国留学人员联谊会）第二次全国会员代表大会召开 李干杰出席开幕会并讲话
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。 责任编辑：郝欣煜
+新华社北京6月1日电 欧美同学会(中国留学人员联谊会)第二次全国会员代表大会1日在京召开。中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。 李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业发展新局面。 李
 
 ## 正文
 
-5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。
+新华社北京6月1日电 欧美同学会(中国留学人员联谊会)第二次全国会员代表大会1日在京召开。
 
-恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。
+中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。
 
-责任编辑：郝欣煜
+李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业发展新局面。
+
+李干杰表示，以习近平同志为核心的党中央高度重视留学人员工作，习近平总书记作出一系列重要论述，为做好新时代留学人员工作指明了前进方向、提供了根本遵循。
+
+欧美同学会要坚持正确政治方向，加强对留学人员的团结引导。
+
+要着眼“十五五”时期经济社会发展任务要求，发挥“留学报国人才库、建言献策智囊团、民间外交生力军”优势作用。
+
+要发扬改革创新精神，不断提高引领力、组织力、服务力。
+
+全国人大常委会副委员长、欧美同学会会长丁仲礼代表第八届理事会作工作报告。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 23:38 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 23:33 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 23:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:21 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 23:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 23:30 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 23:43 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 23:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 23:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 23:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 23:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 23:37 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 23:30 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 23:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 23:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 23:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 23:46 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 23:46 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 23:32 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 23:47 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/262964428.shtml)
-- 2026-06-29 23:32 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/7926644735.shtml)
-- 2026-06-29 23:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/955953.shtml)
-- 2026-06-29 23:37 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/979154421.shtml)
-- 2026-06-29 23:23 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/151743.shtml)
-- 2026-06-29 23:18 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/37191755.shtml)
-- 2026-06-29 23:20 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/376987414.shtml)
-- 2026-06-29 23:22 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/204553316.shtml)
-- 2026-06-29 23:24 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/061791190623.shtml)
-- 2026-06-29 23:45 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/270617.shtml)
-- 2026-06-29 23:46 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/401977346.shtml)
-- 2026-06-29 23:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/96809.shtml)
-- 2026-06-29 23:42 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/9329739.shtml)
-- 2026-06-29 23:21 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/45686045324.shtml)
-- 2026-06-29 23:27 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/1738650.shtml)
+- 2026-06-29 23:51 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/319799658088.shtml)
+- 2026-06-29 23:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/5309270967.shtml)
+- 2026-06-29 23:48 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/703857282.shtml)
+- 2026-06-29 23:38 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/25608444.shtml)
+- 2026-06-29 23:30 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/3214939235.shtml)
+- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/30868581.shtml)
+- 2026-06-29 23:38 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/891707279499.shtml)
+- 2026-06-29 23:29 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/895129101.shtml)
+- 2026-06-29 23:45 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/590128835.shtml)
+- 2026-06-29 23:51 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/873584748.shtml)
+- 2026-06-29 23:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/3525289631.shtml)
+- 2026-06-29 23:24 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/48050.shtml)
+- 2026-06-29 23:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8241195.shtml)
+- 2026-06-29 23:38 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/285921981275.shtml)
+- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/16007173534.shtml)

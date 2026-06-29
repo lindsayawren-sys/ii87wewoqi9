@@ -1,59 +1,57 @@
-# 陈茂波：香港加快构建成为全球高增值供应链管理中心
+# 湖北随州：文旅新场景让炎帝文化“走出”典籍
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。 陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
+中新网随州5月31日电 题：湖北随州：文旅新场景让炎帝文化“走出”典籍 作者 卢琪 焦缘 宿雨荟 作为华夏人文始祖炎帝神农的诞生地，湖北随州坐拥世界级文化名片——炎帝文化。近年，当地以谒祖祈福、非遗体验、农耕研学等多元方式，将炎帝文化转化为可触、可感的文旅新场景。 近日，步入炎帝文化旅游区，肃穆静谧的氛围扑面而来。神农大殿内，炎帝神农圣像巍然矗立。谒祖广场上，钟鼓齐鸣，在礼官引
 
 ## 正文
 
-中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。
+中新网随州5月31日电 题：湖北随州：文旅新场景让炎帝文化“走出”典籍 作者 卢琪 焦缘 宿雨荟 作为华夏人文始祖炎帝神农的诞生地，湖北随州坐拥世界级文化名片——炎帝文化。
 
-陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
+近年，当地以谒祖祈福、非遗体验、农耕研学等多元方式，将炎帝文化转化为可触、可感的文旅新场景。
 
-他强调，香港作为国际贸易枢纽，新的增长空间与发展机遇不断涌现，并且是“量”与“质”同步提升。
+近日，步入炎帝文化旅游区，肃穆静谧的氛围扑面而来。
 
-同时，香港全力推动“AI+”与“金融+”相互促进的发展策略，加速千行百业升级转型，加强香港经济动能与韧性，以更好应对可能出现的不利因素。
+神农大殿内，炎帝神农圣像巍然矗立。
 
-陈茂波称，在国家“十五五”规划下，正全速推动构建现代化产业体系，促进科技创新与产业创新深度融合，推动产业结构向智能化、绿色化和融合化方向提升，并与区域内的产供链实现更深度互补分工。
+谒祖广场上，钟鼓齐鸣，在礼官引导下，佩戴黄丝巾的游客行古礼、敬高香，体验国家级非遗“炎帝神农祭典”的庄重仪轨。
 
-香港在以自身所长服务国家所需的发展过程中，正更好地发挥自身功能。
+“从仪程设计到服饰道具，拜谒仪式每一处细节都还原传统礼制。
 
-他提到，私人消费持续改善，出口及固定投资表现继续向好，即将公布的今年一季度香港本地生产总值预估数据，将较去年第四季度经修订的4%增长进一步加快，成为近5年来最强劲的季度增长。
+谒祖寻根，让‘炎黄子孙’不再是抽象概念，而是可参与、可共情的文化认同。
 
-陈茂波指出，过去一年多，香港本地消费市道复苏趋势明显。
+”炎帝文化旅游区(谒祖祈福区)党工委副书记李莉介绍，景区常态化开展拜谒体验活动，每逢重大祭祀盛典，海内外炎黄子孙齐聚烈山、共祭先祖，同心共传华夏薪火。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 23:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 23:23 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 23:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 23:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 23:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 23:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 23:19 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 23:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 23:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 23:39 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 23:41 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 23:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 23:49 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 23:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 23:28 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 23:49 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 23:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 23:47 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 23:34 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 23:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 23:47 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/62683.shtml)
-- 2026-06-29 23:31 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/890741.shtml)
-- 2026-06-29 23:36 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/539256.shtml)
-- 2026-06-29 23:18 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/507683478.shtml)
-- 2026-06-29 23:27 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/039500.shtml)
-- 2026-06-29 23:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/455268510002.shtml)
-- 2026-06-29 23:40 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/30777999.shtml)
-- 2026-06-29 23:25 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/1099164278.shtml)
-- 2026-06-29 23:42 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/96558.shtml)
-- 2026-06-29 23:44 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/33280237.shtml)
-- 2026-06-29 23:31 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/01884908.shtml)
-- 2026-06-29 23:18 - [月亮](http://www.share.minike.top/Article/details/30525709.shtml)
-- 2026-06-29 23:42 - [周生如故](https://www.share.minike.top/Article/details/618831783.shtml)
-- 2026-06-29 23:29 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/271149372741.shtml)
-- 2026-06-29 23:47 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/6422257860.shtml)
+- 2026-06-29 23:41 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/551302.shtml)
+- 2026-06-29 23:46 - [天道](https://www.blog.minike.top/Article/details/680228810912.shtml)
+- 2026-06-29 23:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/2171833367.shtml)
+- 2026-06-29 23:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/127940289.shtml)
+- 2026-06-29 23:45 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/177831701.shtml)
+- 2026-06-29 23:37 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/480723277.shtml)
+- 2026-06-29 23:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/564863.shtml)
+- 2026-06-29 23:26 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/5228421.shtml)
+- 2026-06-29 23:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2718372.shtml)
+- 2026-06-29 23:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/4427776.shtml)
+- 2026-06-29 23:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/249353404.shtml)
+- 2026-06-29 23:46 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/02211687.shtml)
+- 2026-06-29 23:39 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/076666.shtml)
+- 2026-06-29 23:42 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/941967011301.shtml)
+- 2026-06-29 23:36 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/05887.shtml)

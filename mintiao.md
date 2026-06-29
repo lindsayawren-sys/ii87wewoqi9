@@ -1,56 +1,52 @@
-# 2026上海浪琴环球马术冠军赛 比利时选手夺冠
+# 中新健康｜儿童不是成人的缩小版，注意三个用药误区
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避
+发布时间：2026年06月01日 21:31 来源：中国新闻网 6月1日，国家卫生健康委举行“促进儿童青少年身心健康”新闻发布会。会上专家表示，儿童用药存在三大误区：切勿擅自给孩子服用成人药，含可待因的药物易引发嗜睡、呼吸抑制；感冒、病毒性腹泻随意用抗生素并无效果；叠加服用复方感冒药，易造成急性肝损伤。儿童并非缩小版成人，用药拿不准可线上问诊或咨询社区医生，保障用药安全。(张静
 
 ## 正文
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+发布时间：2026年06月01日 21:31 来源：中国新闻网 6月1日，国家卫生健康委举行“促进儿童青少年身心健康”新闻发布会。
 
-爱奇艺，到底在急什么？
+会上专家表示，儿童用药存在三大误区：切勿擅自给孩子服用成人药，含可待因的药物易引发嗜睡、呼吸抑制；感冒、病毒性腹泻随意用抗生素并无效果；叠加服用复方感冒药，易造成急性肝损伤。
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+儿童并非缩小版成人，用药拿不准可线上问诊或咨询社区医生，保障用药安全。
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
-
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
-
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
-
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
-
-孩子吃饭少、长不高、脾气暴？
+(张静） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 23:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 23:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 23:26 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 23:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:33 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 23:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 23:34 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 23:22 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 23:50 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 23:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 23:43 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 23:31 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 23:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 23:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 23:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 23:28 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 23:27 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 23:25 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 23:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 23:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 23:29 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/89857842383.shtml)
-- 2026-06-29 23:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/9737209.shtml)
-- 2026-06-29 23:21 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/41915083.shtml)
-- 2026-06-29 23:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/940502018.shtml)
-- 2026-06-29 23:42 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/04914.shtml)
-- 2026-06-29 23:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/8313177.shtml)
-- 2026-06-29 23:41 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/92348955926.shtml)
-- 2026-06-29 23:30 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/29208304338.shtml)
-- 2026-06-29 23:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/45866528263.shtml)
-- 2026-06-29 23:39 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/39571379377.shtml)
-- 2026-06-29 23:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/16223.shtml)
-- 2026-06-29 23:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/65218687479.shtml)
-- 2026-06-29 23:24 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/345919269.shtml)
-- 2026-06-29 23:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/4773905461.shtml)
-- 2026-06-29 23:39 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/290756766247.shtml)
+- 2026-06-29 23:40 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/3202204799.shtml)
+- 2026-06-29 23:30 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/6932486.shtml)
+- 2026-06-29 23:41 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/82179083.shtml)
+- 2026-06-29 23:52 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/49650096706.shtml)
+- 2026-06-29 23:35 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/51129465570.shtml)
+- 2026-06-29 23:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/7601842.shtml)
+- 2026-06-29 23:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/783744134.shtml)
+- 2026-06-29 23:48 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/419717529801.shtml)
+- 2026-06-29 23:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/265087.shtml)
+- 2026-06-29 23:26 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/11120103.shtml)
+- 2026-06-29 23:39 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/703441992.shtml)
+- 2026-06-29 23:33 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/46921631330.shtml)
+- 2026-06-29 23:26 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0175173055.shtml)
+- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/407214420.shtml)
+- 2026-06-29 23:24 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/87265.shtml)

@@ -1,58 +1,56 @@
-# 戈壁变“蓝海”！西藏扎囊县首届高原蓝莓季开启“莓”好假期
+# 49位一线科学家齐聚“追光课堂”公益课程 培养孩子AI时代的科学思维
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月2日电 (记者 贡桑拉姆)戈壁变“蓝海”！在今年的“五一”小长假期间，西藏扎囊县用一场蓝莓采摘季，开启了八方游客的“莓”好假期——以“‘蓝’得遇见·‘莓’好时光”为主题的首届高原蓝莓采摘季5月1日在该县阿扎乡“戈壁田园”农业科技园区内拉开帷幕，吸引众多民众前来体验采摘乐趣，共享“变废为宝”的丰收喜悦。 开幕式上，民族歌舞表演营造出浓厚的节日氛围，观众随着旋律哼唱、
+中新网北京6月1日电 (记者 应妮)在贵州黔南的罗甸县木引小学四年级一班的科学课堂上，孩子们围着一台100倍显微镜，争先恐后地把化纤、棉花、羊毛塞到镜头下——他们要回答一个看似平常、却被科学家郑重端到课桌上的问题：“冬天的衣服，为什么能保暖？” 这是日前发生在“追光课堂”——青少年科学素质提升项目的生动一幕。该项目由教育部基础教育司、科学技术与信息化司共同实施，依托腾讯公司、新
 
 ## 正文
 
-中新网拉萨5月2日电 (记者 贡桑拉姆)戈壁变“蓝海”！
+中新网北京6月1日电 (记者 应妮)在贵州黔南的罗甸县木引小学四年级一班的科学课堂上，孩子们围着一台100倍显微镜，争先恐后地把化纤、棉花、羊毛塞到镜头下——他们要回答一个看似平常、却被科学家郑重端到课桌上的问题：“冬天的衣服，为什么能保暖？
 
-在今年的“五一”小长假期间，西藏扎囊县用一场蓝莓采摘季，开启了八方游客的“莓”好假期——以“‘蓝’得遇见·‘莓’好时光”为主题的首届高原蓝莓采摘季5月1日在该县阿扎乡“戈壁田园”农业科技园区内拉开帷幕，吸引众多民众前来体验采摘乐趣，共享“变废为宝”的丰收喜悦。
+” 这是日前发生在“追光课堂”——青少年科学素质提升项目的生动一幕。
 
-开幕式上，民族歌舞表演营造出浓厚的节日氛围，观众随着旋律哼唱、鼓掌，欢呼声此起彼伏。
+该项目由教育部基础教育司、科学技术与信息化司共同实施，依托腾讯公司、新基石科学基金会的公益支持，项目由49位一线科学家与56位教育家深度协作研发，首批112节精品科学课覆盖物质科学、生命科学、地球与宇宙科学、工程与技术四大领域共计27个教学单元的公益课程。
 
-园区内还设置了多个网红打卡点，游客纷纷拍照留念，记录下与家人朋友共度的“莓”好时光。
+浙江大学求是讲席教授张国捷讲“演化”而非“进化”——“从演化的角度看，人不见得比蟑螂高级”，“在自然选择的过程中，能够生存下来、继续繁衍的生物，就是成功的。
 
-曾经的戈壁荒滩，如今已成为一片生机盎然的蓝莓种植基地。
+”这是对孩子整个生命观的重塑。
 
-园区依托戈壁生态农业与高原特色林果产业优势，通过“农业+旅游+科普+体验”融合发展模式，不仅实现了土地资源的再生利用，更带动了当地农牧民增收，成为扎囊县推动乡村振兴、富农惠农的生动实践。
+北京大学工学院教授杨越从“C罗的香蕉球为什么会拐弯”切入空气动力学，再带孩子亲手设计无动力飞机，完整走过“现象→原理→工程”的科学家路径。
 
-活动期间，游客与当地民众在企业负责人带领下，走进采用水肥一体化滴灌技术的智能温室，深入了解在戈壁滩上种出高品质蓝莓的科技奥秘，亲身感受“荒滩变良田”的生态农业奇迹。
+“科学家科普课程最大的价值，不是让孩子记住科学知识，而是让孩子在真实问题中，慢慢形成一种更像科学家看世界的思维方式。
 
-采摘区内，男女老少手提果篮，化身“一日果农”，兴致勃勃地穿梭在蓝莓树间。
+”这是北京海淀区教师进修学校创新教育研究中心副主任、教研员陈咏梅在参与“追光课堂”研发时的体会。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 23:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 23:34 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 23:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 23:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 23:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 23:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 23:36 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 23:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 23:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 23:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 23:38 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 23:47 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 23:48 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:36 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 23:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 23:44 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 23:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 23:50 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 23:30 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 23:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/1116627.shtml)
-- 2026-06-29 23:43 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/068771.shtml)
-- 2026-06-29 23:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/165532.shtml)
-- 2026-06-29 23:25 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/987649.shtml)
-- 2026-06-29 23:23 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/57943.shtml)
-- 2026-06-29 23:37 - [毒液2](http://www.blog.minike.top/Article/details/89760133801.shtml)
-- 2026-06-29 23:35 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/3680870793.shtml)
-- 2026-06-29 23:47 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/92208855268.shtml)
-- 2026-06-29 23:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/7088386.shtml)
-- 2026-06-29 23:35 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/5570269.shtml)
-- 2026-06-29 23:34 - [我们的少年时代2](http://www.blog.minike.top/Article/details/08625.shtml)
-- 2026-06-29 23:31 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/7067673.shtml)
-- 2026-06-29 23:30 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/505407499880.shtml)
-- 2026-06-29 23:34 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/39854.shtml)
-- 2026-06-29 23:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/0067136.shtml)
+- 2026-06-29 23:30 - [毒液2](http://www.blog.kurohicncr.top/Article/details/891481.shtml)
+- 2026-06-29 23:38 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/96792869865.shtml)
+- 2026-06-29 23:51 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/0243812.shtml)
+- 2026-06-29 23:29 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/00760938771.shtml)
+- 2026-06-29 23:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/27322870.shtml)
+- 2026-06-29 23:34 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/775012.shtml)
+- 2026-06-29 23:50 - [流金岁月](https://www.share.minike.top/Article/details/49901.shtml)
+- 2026-06-29 23:29 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/202600859086.shtml)
+- 2026-06-29 23:41 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/335709.shtml)
+- 2026-06-29 23:39 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/5547914479.shtml)
+- 2026-06-29 23:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/2840430645.shtml)
+- 2026-06-29 23:40 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/02865.shtml)
+- 2026-06-29 23:31 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/80501573.shtml)
+- 2026-06-29 23:47 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/678815340594.shtml)
+- 2026-06-29 23:48 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/814235781982.shtml)

@@ -1,48 +1,55 @@
-# 此行间·让投身基础研究成为更多青少年的人生追求
+# 巴基斯坦驻华大使：75载同舟共济 巴中“铁杆友谊”历久弥新
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-视频：此行间·让投身基础研究成为更多青少年的人生追求来源：人民日报客户端 在加强基础研究座谈会上，习近平总书记深刻指出：“激发青少年的想象力和探求欲，让投身基础研究成为更多青少年的人生追求。”加强基础研究，总书记始终牵挂着青少年科学教育，并多次提出殷切期望。
+发布时间：2026年05月31日 19:35 来源：中国新闻网 5月30日，2026推进全球生态文明建设(洱海)论坛在云南省大理白族自治州开幕。来自中国、巴基斯坦、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。 今年是中巴建交75周年。巴基斯坦驻华大使卡里尔·哈什米接受记者专访。他表示，巴中“铁杆友谊”始终建立在双向尊重，彼
 
 ## 正文
 
-视频：此行间·让投身基础研究成为更多青少年的人生追求来源：人民日报客户端 在加强基础研究座谈会上，习近平总书记深刻指出：“激发青少年的想象力和探求欲，让投身基础研究成为更多青少年的人生追求。
+发布时间：2026年05月31日 19:35 来源：中国新闻网 5月30日，2026推进全球生态文明建设(洱海)论坛在云南省大理白族自治州开幕。
 
-”加强基础研究，总书记始终牵挂着青少年科学教育，并多次提出殷切期望。
+来自中国、巴基斯坦、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。
+
+今年是中巴建交75周年。
+
+巴基斯坦驻华大使卡里尔·哈什米接受记者专访。
+
+他表示，巴中“铁杆友谊”始终建立在双向尊重，彼此信任、真挚友好的基础之上，巴中深厚友谊历经岁月洗礼，愈发稳固深厚。
+
+(白玲时文枝） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 23:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 23:25 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 23:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 23:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 23:35 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 23:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 23:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 23:18 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 23:38 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 23:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 23:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 23:35 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 23:29 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 23:49 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 23:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 23:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 23:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:46 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:35 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 23:52 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 23:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 23:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 23:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:46 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/74580.shtml)
-- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/62861.shtml)
-- 2026-06-29 23:30 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/105487356.shtml)
-- 2026-06-29 23:19 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/442981.shtml)
-- 2026-06-29 23:26 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/051140.shtml)
-- 2026-06-29 23:47 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/23051559449.shtml)
-- 2026-06-29 23:29 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/1137595.shtml)
-- 2026-06-29 23:28 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/9972881772.shtml)
-- 2026-06-29 23:47 - [扫黑风暴](http://www.share.minike.top/Article/details/027880331.shtml)
-- 2026-06-29 23:30 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/4000834.shtml)
-- 2026-06-29 23:39 - [一生一世](http://www.blog.minike.top/Article/details/050672524522.shtml)
-- 2026-06-29 23:22 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/0065828181.shtml)
-- 2026-06-29 23:45 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/2877936.shtml)
-- 2026-06-29 23:33 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/99682878090.shtml)
-- 2026-06-29 23:38 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/17264916764.shtml)
+- 2026-06-29 23:40 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4184388335.shtml)
+- 2026-06-29 23:34 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/2604789.shtml)
+- 2026-06-29 23:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/91952283841.shtml)
+- 2026-06-29 23:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/454615737.shtml)
+- 2026-06-29 23:34 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/809785708.shtml)
+- 2026-06-29 23:28 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/889451925.shtml)
+- 2026-06-29 23:33 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/049613826836.shtml)
+- 2026-06-29 23:32 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/68658112531.shtml)
+- 2026-06-29 23:40 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/469540044.shtml)
+- 2026-06-29 23:50 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/8410261.shtml)
+- 2026-06-29 23:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/04051979.shtml)
+- 2026-06-29 23:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/528230869.shtml)
+- 2026-06-29 23:42 - [世界杯](https://www.blog.minike.top/Article/details/91535.shtml)
+- 2026-06-29 23:30 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/8767097.shtml)
+- 2026-06-29 23:47 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/25450145.shtml)

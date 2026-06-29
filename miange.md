@@ -1,61 +1,58 @@
-# 胃癌一发现就是晚期？专家：莫因“无症状”贻误病情
+# 国家统计局：5月官方制造业PMI为50.0%，我国经济总体产出保持扩张
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月5日电(张煜欢)近日，一条“52岁医生胃癌确诊到离世仅2个月”的话题登上热搜，引发广泛关注。报道中称，这位医生每年参加常规体检，结果基本正常，但某日突感胃部不适，胃镜检查已是晚期胃癌，从确诊到去世仅两个月。这一事件令人唏嘘，也再次将胃癌的早期发现难题推向公众视野。 胃癌真的那么难发现吗？浙江省中医院消化内镜中心主任张骏在接受记者采访时坦言，发现早期胃癌的技术难度并
+5月份综合PMI产出指数保持扩张 ——国家统计局服务业调查中心首席统计师霍丽慧解读2026年5月中国采购经理指数 2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。 5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50
 
 ## 正文
 
-中新网杭州5月5日电(张煜欢)近日，一条“52岁医生胃癌确诊到离世仅2个月”的话题登上热搜，引发广泛关注。
+5月份综合PMI产出指数保持扩张 ——国家统计局服务业调查中心首席统计师霍丽慧解读2026年5月中国采购经理指数 2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。
 
-报道中称，这位医生每年参加常规体检，结果基本正常，但某日突感胃部不适，胃镜检查已是晚期胃癌，从确诊到去世仅两个月。
+对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。
 
-这一事件令人唏嘘，也再次将胃癌的早期发现难题推向公众视野。
+5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50.1%和50.5%，比上月上升0.7个和0.4个百分点，我国经济总体产出保持扩张。
 
-胃癌真的那么难发现吗？
+一、制造业采购经理指数位于临界点 5月份，制造业PMI为50.0%，企业生产经营状况总体保持稳定。
 
-浙江省中医院消化内镜中心主任张骏在接受记者采访时坦言，发现早期胃癌的技术难度并不高，但临床上类似病例屡见不鲜。
+（一）企业生产保持扩张。
 
-主要原因有二：一是不重视筛查；二是胃癌早期基本没有症状或症状不显著。
+生产指数为51.2%，高于临界点，制造业企业生产活动继续保持扩张；新订单指数为49.9%，市场需求有所放缓。
 
-临床研究表明，约80%的早期胃癌患者几乎没有任何症状，另外20%的患者症状也轻微、不典型。
+从行业看，医药、铁路船舶航空航天设备、计算机通信电子设备等行业生产指数和新订单指数均高于53.0%，相关行业产需两端较为活跃；石油煤炭及其他燃料加工、化学纤维及橡胶塑料制品、非金属矿物制品等行业两个指数持续低于临界点，供需两端仍显不足。
 
-张骏介绍，胃镜加病理活检是发现早癌的首选“利器”，技术非常成熟，两者结合对胃癌的确诊率可达98%以上。
+（二）新动能发展态势继续向好。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 23:31 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 23:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 23:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 23:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 23:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 23:26 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 23:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:22 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 23:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 23:47 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 23:33 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 23:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 23:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 23:24 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 23:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 23:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 23:53 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 23:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 23:53 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 23:30 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 23:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 23:48 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 23:36 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 23:53 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 23:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/103454.shtml)
-- 2026-06-29 23:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/3279754798.shtml)
-- 2026-06-29 23:40 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/128763.shtml)
-- 2026-06-29 23:19 - [斛珠夫人](https://www.share.minike.top/Article/details/259070920.shtml)
-- 2026-06-29 23:31 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/934649941.shtml)
-- 2026-06-29 23:46 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/71029.shtml)
-- 2026-06-29 23:36 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/019249.shtml)
-- 2026-06-29 23:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/49666.shtml)
-- 2026-06-29 23:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/448099770652.shtml)
-- 2026-06-29 23:47 - [小娘惹](http://www.share.minike.top/Article/details/26758838267.shtml)
-- 2026-06-29 23:27 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/646256379.shtml)
-- 2026-06-29 23:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/36104591989.shtml)
-- 2026-06-29 23:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/382734038.shtml)
-- 2026-06-29 23:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/10051812.shtml)
-- 2026-06-29 23:37 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/88079507015.shtml)
+- 2026-06-29 23:39 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/356206688921.shtml)
+- 2026-06-29 23:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/9866969429.shtml)
+- 2026-06-29 23:27 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/65669386.shtml)
+- 2026-06-29 23:33 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/66138727.shtml)
+- 2026-06-29 23:34 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/277704195.shtml)
+- 2026-06-29 23:33 - [恋与深空 巧合](https://www.share.minike.top/Article/details/840548489050.shtml)
+- 2026-06-29 23:33 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/6775428.shtml)
+- 2026-06-29 23:32 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/164453201666.shtml)
+- 2026-06-29 23:35 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/6336995.shtml)
+- 2026-06-29 23:49 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/833721634875.shtml)
+- 2026-06-29 23:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/554824067219.shtml)
+- 2026-06-29 23:33 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/8864197438.shtml)
+- 2026-06-29 23:53 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/441322.shtml)
+- 2026-06-29 23:51 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/514826642.shtml)
+- 2026-06-29 23:35 - [时光音乐会](http://www.blog.minike.top/Article/details/25900480176.shtml)

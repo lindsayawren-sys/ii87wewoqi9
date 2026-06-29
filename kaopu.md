@@ -1,56 +1,56 @@
-# 阿贝尔：超大规模企业必须"承担其能源使用的全部成本"
+# 龙旗科技午后涨近15% 与非夕签署战略合作协议
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。 阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。 “超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。 在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保
+龙旗科技（09611）盘中涨近16%，截至发稿，股价上涨14.59%，现报26.70港元，成交额7205.97万港元。 5月27日，龙旗科技与非夕签署战略合作协议，将围绕智能制造场景下的机器人技术应用开展深度合作，共同推动具身智能从概念走向真实工业场景。此次合作将消费电子精密制造的“场景经验”，与自适应机器人技术的“核心优势”紧密结合，形成双向赋能。 作为全球领先的智能产品和服
 
 ## 正文
 
-伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。
+龙旗科技（09611）盘中涨近16%，截至发稿，股价上涨14.59%，现报26.70港元，成交额7205.97万港元。
 
-阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。
+5月27日，龙旗科技与非夕签署战略合作协议，将围绕智能制造场景下的机器人技术应用开展深度合作，共同推动具身智能从概念走向真实工业场景。
 
-“超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。
+此次合作将消费电子精密制造的“场景经验”，与自适应机器人技术的“核心优势”紧密结合，形成双向赋能。
 
-在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保和消费者权益倡导组织关注的焦点。
+作为全球领先的智能产品和服务提供商，龙旗科技在智能终端ODM领域持续深耕。
 
-政策研究机构“环境与能源研究所在今年2月的一份分析报告中得出结论：”随着数据中心在全国范围内扩张，公用事业公司收到了数百吉瓦的并网请求，这需要进行大规模的基础设施投资。
+此次与非夕的战略合作，标志着龙旗在“AI+制造”的战略方向上再落一子。
 
-“”许多家庭的电费正在飙升，加剧了可负担性危机。
+在AI技术与产业政策双重驱动下，龙旗正依托自身制造与研发的深厚积淀，与前沿技术伙伴开放协同，共同开辟未来增长新空间。
 
-“责任编辑：张俊 SF065
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 23:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 23:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 23:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 23:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 23:41 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 23:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 23:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 23:42 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 23:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 23:23 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 23:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 23:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 23:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 23:48 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 23:37 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:27 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 23:45 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 23:28 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 23:38 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 23:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 23:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 23:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/007196459259.shtml)
-- 2026-06-29 23:40 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/410188.shtml)
-- 2026-06-29 23:30 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/45811.shtml)
-- 2026-06-29 23:23 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/74273241.shtml)
-- 2026-06-29 23:29 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/383298726700.shtml)
-- 2026-06-29 23:21 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/15564538491.shtml)
-- 2026-06-29 23:38 - [恋与深空致歉](http://www.blog.minike.top/Article/details/538003412.shtml)
-- 2026-06-29 23:25 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/90848.shtml)
-- 2026-06-29 23:34 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/98379229730.shtml)
-- 2026-06-29 23:19 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/3976917071.shtml)
-- 2026-06-29 23:33 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/963838.shtml)
-- 2026-06-29 23:47 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/04277.shtml)
-- 2026-06-29 23:39 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/0513322830.shtml)
-- 2026-06-29 23:43 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/64162.shtml)
-- 2026-06-29 23:46 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/40291.shtml)
+- 2026-06-29 23:39 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/3660985.shtml)
+- 2026-06-29 23:49 - [扫黑风暴](https://www.blog.minike.top/Article/details/49050.shtml)
+- 2026-06-29 23:29 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/4497973.shtml)
+- 2026-06-29 23:31 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/339175710.shtml)
+- 2026-06-29 23:38 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/81928.shtml)
+- 2026-06-29 23:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/164293.shtml)
+- 2026-06-29 23:24 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/967589.shtml)
+- 2026-06-29 23:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/132082.shtml)
+- 2026-06-29 23:49 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/99802539.shtml)
+- 2026-06-29 23:50 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/86056485.shtml)
+- 2026-06-29 23:52 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/330051.shtml)
+- 2026-06-29 23:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/7741103.shtml)
+- 2026-06-29 23:34 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/84747220905.shtml)
+- 2026-06-29 23:43 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/5444461558.shtml)
+- 2026-06-29 23:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/50583.shtml)

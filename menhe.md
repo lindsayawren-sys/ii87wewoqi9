@@ -1,60 +1,61 @@
-# 广西桂林：水上客流激增 单日突破10万人次
+# 赛力斯要孵化新品牌？旗下“蓝电”更名“赛豆”，获66.7亿增资
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网桂林5月5日电(黄艺坛)“五一”假期前四天，广西桂林市水上客流突破38.21万人次。5月2日至4日，单日客流连续突破10万人次。为保障整个“五一”假期水上出行安全，桂林海事局提前部署专项保障工作，结合节假日客流集中、峰值突出的特点，制定一系列安全防控方案。 节前，桂林海事局对辖区所有涉客船舶开展安全检查全覆盖，重点核查船舶适航状况、消防救生设备配备、船员适任资质等关键环节
+【大河财立方记者陈薇文图】日前，赛力斯集团股份有限公司旗下重庆蓝电科技有限公司，正式更名为重庆赛豆科技有限公司。与此同时，赛豆科技完成总额66.71亿元的战略增资，重庆国资沙磁致远以34.50%持股比例成为第一大股东，赛力斯退居第二大股东。赛豆科技这个新的公司名称，可能意味着，赛力斯将与豆包大模型有深度合作。赛豆科技的前身蓝电科技，是2023年3月赛力斯推出的蓝电独立新能源品牌
 
 ## 正文
 
-中新网桂林5月5日电(黄艺坛)“五一”假期前四天，广西桂林市水上客流突破38.21万人次。
+【大河财立方记者陈薇文图】日前，赛力斯集团股份有限公司旗下重庆蓝电科技有限公司，正式更名为重庆赛豆科技有限公司。
 
-5月2日至4日，单日客流连续突破10万人次。
+与此同时，赛豆科技完成总额66.71亿元的战略增资，重庆国资沙磁致远以34.50%持股比例成为第一大股东，赛力斯退居第二大股东。
 
-为保障整个“五一”假期水上出行安全，桂林海事局提前部署专项保障工作，结合节假日客流集中、峰值突出的特点，制定一系列安全防控方案。
+赛豆科技这个新的公司名称，可能意味着，赛力斯将与豆包大模型有深度合作。
 
-节前，桂林海事局对辖区所有涉客船舶开展安全检查全覆盖，重点核查船舶适航状况、消防救生设备配备、船员适任资质等关键环节，完成359艘客船安全检查，发现并纠正缺陷427项，从源头剔除安全隐患，坚决杜绝船舶“带病”开航，守牢出行安全防线。
+赛豆科技的前身蓝电科技，是2023年3月赛力斯推出的蓝电独立新能源品牌。
 
-假期期间，桂林海事局依托智慧海事监管系统，采取电子巡查与现场监管联动模式，统筹定点值守、动态巡航、开航前检查、进出港秩序管控、重点水域交通流组织等举措，强化漓江等核心水域全天候监管。
+当时推出了蓝电E5、E3等多款车型，定位10万~15万元大众化家用市场，希望与旗下高端问界搭配，覆盖不同价位的市场。
 
-同时，加密重点航段巡航频次，严厉查处超载、无证经营、冒险航行、农(自)用船非法载客等违法违规行为，保障高密度客流下通航秩序安全顺畅。
+尽管2024年10月蓝电E5PLUS正式上市，官方指导价9.98万元起，试图以更具竞争力的价格走量，但蓝电品牌身处10万元级别红海市场，加上品牌声量弱，销量持续低迷。
 
-此外，桂林海事局强化多部门协同联动，针对强对流天气过程及时发布预警及安全服务信息，提级管控17家涉客航运企业和2个涉水景区，督促落实重点航段应急力量布设与点验，应急救助力量24小时待命，12395水上救助电话全天候畅通，确保水上突发事件快速处置，为游客安全保驾护航。
+据公开数据，蓝电2025年全年销量约2万辆，月均千余台，未达盈亏平衡点。
 
-截至目前，桂林辖区水上旅游秩序井然，未发生水上安全事故。
+与此同时，蓝电科技也经历了一系列股权变更。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 23:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 23:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 23:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 23:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 23:28 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 23:40 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 23:39 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:34 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 23:47 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 23:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 23:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 23:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 23:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 23:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 23:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 23:39 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 23:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 23:48 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 23:25 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 23:31 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 23:36 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 23:29 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 23:36 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/923934696.shtml)
-- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/436721482.shtml)
-- 2026-06-29 23:24 - [一见倾心](https://www.blog.minike.top/Article/details/02256.shtml)
-- 2026-06-29 23:20 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/366116.shtml)
-- 2026-06-29 23:43 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/361453816551.shtml)
-- 2026-06-29 23:46 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/97480815.shtml)
-- 2026-06-29 23:31 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/234415611950.shtml)
-- 2026-06-29 23:31 - [周生如故](http://www.blog.minike.top/Article/details/20882498.shtml)
-- 2026-06-29 23:32 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/881352559958.shtml)
-- 2026-06-29 23:36 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/791582825773.shtml)
-- 2026-06-29 23:34 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/358902228072.shtml)
-- 2026-06-29 23:46 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/5252141082.shtml)
-- 2026-06-29 23:34 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/10571711.shtml)
-- 2026-06-29 23:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/1491900.shtml)
-- 2026-06-29 23:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/3123648.shtml)
+- 2026-06-29 23:33 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/3561806.shtml)
+- 2026-06-29 23:39 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/01797.shtml)
+- 2026-06-29 23:48 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/78530.shtml)
+- 2026-06-29 23:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/75829657.shtml)
+- 2026-06-29 23:50 - [世界杯](https://www.share.minike.top/Article/details/406833799022.shtml)
+- 2026-06-29 23:46 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/9091865.shtml)
+- 2026-06-29 23:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/93466134.shtml)
+- 2026-06-29 23:52 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/028012.shtml)
+- 2026-06-29 23:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/65948078596.shtml)
+- 2026-06-29 23:46 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9481797.shtml)
+- 2026-06-29 23:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/42950097572.shtml)
+- 2026-06-29 23:26 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/71080180715.shtml)
+- 2026-06-29 23:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/028480.shtml)
+- 2026-06-29 23:31 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/27768285.shtml)
+- 2026-06-29 23:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/6592725.shtml)

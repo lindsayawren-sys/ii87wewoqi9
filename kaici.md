@@ -1,42 +1,59 @@
-# 【实干笃行创伟业 团结奋斗新征程】劳动开创美好未来 奋斗铸就时代华章
+# 注意！国家统计局6月1日启动入户调查，请积极配合！调查结果将用于加强人口变动统计，服务人口高质量发展
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月03日 13:47 来源：央视新闻客户端 责任编辑：【姜媛媛】
+请注意！请注意！入户调查6月1日启动！ 日前，国家统计局发布公告称，将于2026年在全国范围内开展两次人口固定样本跟访调查。 国家统计局决定于2026年在全国范围内开展两次人口固定样本跟访调查。调查结果将用于加强人口变动统计，服务人口高质量发展。 两次调查的标准时点分别为6月1日零时和11月1日零时。6月1日至6月25日和11月16日至12月5日期间，调查员将入户开展调查工作。
 
 ## 正文
 
-发布时间：2026年05月03日 13:47 来源：央视新闻客户端 责任编辑：【姜媛媛】
+请注意！
+
+请注意！
+
+入户调查6月1日启动！
+
+日前，国家统计局发布公告称，将于2026年在全国范围内开展两次人口固定样本跟访调查。
+
+国家统计局决定于2026年在全国范围内开展两次人口固定样本跟访调查。
+
+调查结果将用于加强人口变动统计，服务人口高质量发展。
+
+两次调查的标准时点分别为6月1日零时和11月1日零时。
+
+6月1日至6月25日和11月16日至12月5日期间，调查员将入户开展调查工作。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 23:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 23:20 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 23:47 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 23:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 23:44 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 23:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 23:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 23:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 23:26 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 23:39 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 23:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 23:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 23:52 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 23:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 23:44 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 23:39 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 23:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 23:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 23:24 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:38 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 23:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/79870804.shtml)
-- 2026-06-29 23:46 - [送你一朵小红花](http://www.blog.minike.top/Article/details/78131.shtml)
-- 2026-06-29 23:40 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/73368637963.shtml)
-- 2026-06-29 23:22 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/910329705365.shtml)
-- 2026-06-29 23:22 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/4419723170.shtml)
-- 2026-06-29 23:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/0344560537.shtml)
-- 2026-06-29 23:33 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/325859044.shtml)
-- 2026-06-29 23:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/620670733516.shtml)
-- 2026-06-29 23:28 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/0998628.shtml)
-- 2026-06-29 23:36 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/44912576.shtml)
-- 2026-06-29 23:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/3554965.shtml)
-- 2026-06-29 23:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/38473.shtml)
-- 2026-06-29 23:25 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/00443.shtml)
-- 2026-06-29 23:36 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/3710754583.shtml)
-- 2026-06-29 23:32 - [流金岁月](http://www.share.minike.top/Article/details/6653033215.shtml)
+- 2026-06-29 23:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/129121985117.shtml)
+- 2026-06-29 23:52 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/086947739.shtml)
+- 2026-06-29 23:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/92834.shtml)
+- 2026-06-29 23:41 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/641273344.shtml)
+- 2026-06-29 23:35 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/175723.shtml)
+- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/210262824.shtml)
+- 2026-06-29 23:40 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/869272.shtml)
+- 2026-06-29 23:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/077909084689.shtml)
+- 2026-06-29 23:46 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/50921.shtml)
+- 2026-06-29 23:50 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/111794618678.shtml)
+- 2026-06-29 23:45 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/63458109.shtml)
+- 2026-06-29 23:35 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/150429022102.shtml)
+- 2026-06-29 23:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/8862724.shtml)
+- 2026-06-29 23:41 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/93572922405.shtml)
+- 2026-06-29 23:42 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/5623486.shtml)

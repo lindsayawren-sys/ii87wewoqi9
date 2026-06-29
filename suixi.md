@@ -1,59 +1,56 @@
-# 剂泰科技-P于5月5日至5月8日招股 拟全球发售2.01亿股H股
+# 科技未来照进现实 生活温度更有“智”感
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-剂泰科技-P（07666）于2026年5月5日至2026年5月8日招股，该公司拟全球发售2.01亿股H股，其中，香港公开发售占约5%，国际发售占约95%，另有15%超额配股权。发售价每股10.5港元。每手500股H股，预期H股将于2026年5月13日（星期三）上午九时正开始在联交所买卖。 集团是人工智能纳米材料创新的领军者，致力于有效载荷（Payload）在各种生命体中的递送与
+央广网天津5月31日消息(记者周思杨 见习记者杨辉 实习记者路婧纯 蔺子贤)当机器人烹制烟火三餐、AI眼镜重构学习场景、全屋智能实现“无人家务”、智慧康养守护全龄健康……5月28日，记者在天津举办的2026世界智能产业博览会上看到，前沿科技褪去冰冷外衣，与温暖日常撞了个满怀，以诗意而鲜活的姿态融入吃、住、行、医、教、养等领域，让生活有温度更“智”感。智能走进三餐烟火，生活趣味十
 
 ## 正文
 
-剂泰科技-P（07666）于2026年5月5日至2026年5月8日招股，该公司拟全球发售2.01亿股H股，其中，香港公开发售占约5%，国际发售占约95%，另有15%超额配股权。
+央广网天津5月31日消息(记者周思杨 见习记者杨辉 实习记者路婧纯 蔺子贤)当机器人烹制烟火三餐、AI眼镜重构学习场景、全屋智能实现“无人家务”、智慧康养守护全龄健康……5月28日，记者在天津举办的2026世界智能产业博览会上看到，前沿科技褪去冰冷外衣，与温暖日常撞了个满怀，以诗意而鲜活的姿态融入吃、住、行、医、教、养等领域，让生活有温度更“智”感。
 
-发售价每股10.5港元。
+智能走进三餐烟火，生活趣味十足 28日上午，记者走进N32馆1700平方米的机器人小镇，看到科技与市井烟火温柔在此交融。
 
-每手500股H股，预期H股将于2026年5月13日（星期三）上午九时正开始在联交所买卖。
+机械臂轻巧翻转，金黄酥脆的煎饼香气四溢；精准萃取的拉花咖啡缓缓入杯，暖意顺着指尖蔓延开来；仿生机器狗灵动巡游，机器人乐队轻奏旋律，人机对弈、智能互动轮番上演。
 
-集团是人工智能纳米材料创新的领军者，致力于有效载荷（Payload）在各种生命体中的递送与应用，以AI纳米创新开启健康未来。
+这里没有冰冷的陈列与隔阂，近百种智能机器人化身生活伙伴，覆盖生产服务、医疗健康、文娱互动、家居陪伴多元场景，将科幻未来变成眼前的真实日常。
 
-NanoForge是集团专有的、协同整合的人工智能驱动纳米科技创新体系的基础，涵盖集团自主生成的庞大脂质库、人工智能基础模型、METiS AI智能体、量子化学与分子动力学模拟及人工智能驱动的高通量筛选平台。
+在智慧居家空间，生活被赋予更从容的诗意。
 
-在此基础上，集团开发了三大专业的解决方案（即AiTEM、AiLNP及 AiRNA平台），用以模拟、预测及阐释纳米级别的相互作用关系，从而实现对先进纳米材料及其相关有效载荷的合理设计、优化及验证。
+记者在海尔智家展厅看到，“无人家务”从想象走进现实。
 
-按发售价为每股发售股份10.50港元计算，扣除与全球发售有关的包销佣金及集团已支付或应支付的估计费用后并假设超额配股权未获行使，集团估计将从全球发售获得的所得款项净额约为19.77亿港元。
+本次展出行业首套L4级智能家电Seeker套系搭载AI之眼感知细微需求。
 
-根据集团的策略，集团拟于未来3至5年将全球发售的所得款项净额按如下金额用于以下用途：（1）约50.0%将用于支撑集团的人工智能基础设施及人工智能驱动纳米材料平台的核心技术研究、开发及推进；（2）约20.0%将用于集团人工智能开发产品管线中正在进行及计划开展的临床试验，推动候选药物在多个治疗领域及治疗模式中的进展。
+智家大脑联动全屋场景，一声轻唤，灯光渐暖、窗帘轻合、家电有序运转。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 23:39 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:18 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 23:27 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 23:37 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 23:40 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 23:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 23:32 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 23:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 23:26 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 23:45 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 23:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 23:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 23:44 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 23:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 23:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:45 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 23:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 23:43 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 23:45 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 23:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 23:27 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/699792204415.shtml)
-- 2026-06-29 23:29 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/261546517217.shtml)
-- 2026-06-29 23:43 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/63618719.shtml)
-- 2026-06-29 23:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/299414755.shtml)
-- 2026-06-29 23:31 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/041326216926.shtml)
-- 2026-06-29 23:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/067113.shtml)
-- 2026-06-29 23:24 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/71733733624.shtml)
-- 2026-06-29 23:21 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/20278207137.shtml)
-- 2026-06-29 23:25 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/964163037.shtml)
-- 2026-06-29 23:20 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/5532318563.shtml)
-- 2026-06-29 23:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/39935802.shtml)
-- 2026-06-29 23:29 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/673408.shtml)
-- 2026-06-29 23:46 - [请回答王牌2019](http://www.blog.minike.top/Article/details/17034006057.shtml)
-- 2026-06-29 23:25 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/96542402.shtml)
-- 2026-06-29 23:33 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/77124.shtml)
+- 2026-06-29 23:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/332144787.shtml)
+- 2026-06-29 23:43 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/72997.shtml)
+- 2026-06-29 23:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/11022225830.shtml)
+- 2026-06-29 23:45 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/08021941.shtml)
+- 2026-06-29 23:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/47856594663.shtml)
+- 2026-06-29 23:45 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/764317753.shtml)
+- 2026-06-29 23:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/63866.shtml)
+- 2026-06-29 23:43 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/00778044.shtml)
+- 2026-06-29 23:29 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/983651.shtml)
+- 2026-06-29 23:50 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/4995367.shtml)
+- 2026-06-29 23:52 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/57385620.shtml)
+- 2026-06-29 23:36 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/2095276108.shtml)
+- 2026-06-29 23:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5648860.shtml)
+- 2026-06-29 23:28 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/36776.shtml)
+- 2026-06-29 23:50 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/31638.shtml)

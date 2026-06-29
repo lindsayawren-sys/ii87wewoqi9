@@ -1,58 +1,56 @@
-# 哈萨克斯坦总统部署多项举措推动人工智能融入实体经济
+# 中银国际：滔搏目标价下调至2.90港元 维持“持有”评级
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳5月4日电 (记者 单璐)哈萨克斯坦总统托卡耶夫4日在阿拉木图主持召开人工智能发展委员会第二次会议，就加强数字基础设施建设、推进数字化平台应用等作出部署，推动人工智能加快融入实体经济。 托卡耶夫在会上表示，当前全球正进入新一轮技术变革阶段，人工智能与大数据正在重塑经济结构和产业体系，已成为推动经济发展的重要力量。 在此背景下，托卡耶夫部署多项举措，推进人工智能落地
+中银国际发布研报称，下调滔搏（06110）目标价12.1%，从3.3港元降至2.9港元，维持“持有”评级。该行表示，滔搏2026财年净利润为12.67亿元人民币（同比减2%），基本上符合该行预期。受惠于组织架构精简，下半年净利润同比增16%，呈现一定的环比改善态势。然而，就2026财年全年而言，净关店数量达660家，高于预期，反映出其全渠道策略的推进仍持续面临压力。 展望202
 
 ## 正文
 
-中新社阿斯塔纳5月4日电 (记者 单璐)哈萨克斯坦总统托卡耶夫4日在阿拉木图主持召开人工智能发展委员会第二次会议，就加强数字基础设施建设、推进数字化平台应用等作出部署，推动人工智能加快融入实体经济。
+中银国际发布研报称，下调滔搏（06110）目标价12.1%，从3.3港元降至2.9港元，维持“持有”评级。
 
-托卡耶夫在会上表示，当前全球正进入新一轮技术变革阶段，人工智能与大数据正在重塑经济结构和产业体系，已成为推动经济发展的重要力量。
+该行表示，滔搏2026财年净利润为12.67亿元人民币（同比减2%），基本上符合该行预期。
 
-在此背景下，托卡耶夫部署多项举措，推进人工智能落地应用，包括加快整合政府和社会数据资源，提升数据利用能力；推进数据中心集群等项目建设，提升算力和云服务能力；推动海关、物流、税务等领域数字化应用等。
+受惠于组织架构精简，下半年净利润同比增16%，呈现一定的环比改善态势。
 
-他表示，在人工智能和大数据加持下，哈萨克斯坦海关申报处理时间不断缩短；国家物流平台实现多源数据整合，跨境运输效率将进一步提升。
+然而，就2026财年全年而言，净关店数量达660家，高于预期，反映出其全渠道策略的推进仍持续面临压力。
 
-托卡耶夫指出，为支撑人工智能在实体经济领域应用，哈萨克斯坦正从金融、人才及制度环境等方面完善配套条件，包括提升无现金支付水平，完善引资引才政策吸引外资和专业人才，以及设立人工智能大学推动科研成果转化等。
+展望2027财年，旗下耐克正积极清理库存、为在华业务重塑铺路，其相对疲软的表现或将继续拖累滔搏的业绩表现。
 
-托卡耶夫强调，要进一步发挥人工智能对经济发展的作用，关键在于推动其与实体经济深度结合。
+鉴于公司在2027财年将持续推进门店收缩，该行认为滔搏实现净利年持平这一指引目标仍面临一定挑战。
 
-他表示，下一步将重点推进人工智能在矿业冶金、能源、农业及物流等领域的应用。
+尽管如此，滔搏的股息政策仍具一定吸引力，公司计划派发相当于2026财年净利137%的股息，预计为股价提供一定支撑，限制下行风险。
 
-此前，托卡耶夫宣布2026年为哈萨克斯坦“数字化和人工智能年”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 23:40 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 23:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 23:23 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 23:37 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 23:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 23:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 23:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 23:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:41 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 23:28 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 23:27 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 23:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 23:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 23:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 23:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 23:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 23:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 23:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 23:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 23:37 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/95163.shtml)
-- 2026-06-29 23:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/115716939.shtml)
-- 2026-06-29 23:21 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/8419374616.shtml)
-- 2026-06-29 23:20 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/7893165.shtml)
-- 2026-06-29 23:23 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/261529833.shtml)
-- 2026-06-29 23:38 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/098471657.shtml)
-- 2026-06-29 23:36 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/15333.shtml)
-- 2026-06-29 23:24 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/5785700757.shtml)
-- 2026-06-29 23:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/89487686.shtml)
-- 2026-06-29 23:29 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/84693679491.shtml)
-- 2026-06-29 23:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/79843016.shtml)
-- 2026-06-29 23:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/743829545.shtml)
-- 2026-06-29 23:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/985565.shtml)
-- 2026-06-29 23:19 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/994808.shtml)
-- 2026-06-29 23:32 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/196021.shtml)
+- 2026-06-29 23:44 - [女心理师](http://www.share.kurohicncr.top/Article/details/64921645.shtml)
+- 2026-06-29 23:29 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/3128393.shtml)
+- 2026-06-29 23:24 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/5918394263.shtml)
+- 2026-06-29 23:50 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/78678715539.shtml)
+- 2026-06-29 23:50 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/898969184.shtml)
+- 2026-06-29 23:46 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/40964146.shtml)
+- 2026-06-29 23:27 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/54166.shtml)
+- 2026-06-29 23:52 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/191997146.shtml)
+- 2026-06-29 23:27 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/9948738.shtml)
+- 2026-06-29 23:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55936807.shtml)
+- 2026-06-29 23:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/964696004594.shtml)
+- 2026-06-29 23:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/13878527928.shtml)
+- 2026-06-29 23:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/29989547334.shtml)
+- 2026-06-29 23:27 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/75494.shtml)
+- 2026-06-29 23:30 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/629183.shtml)

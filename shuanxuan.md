@@ -1,60 +1,61 @@
-# 大反弹！A股悄然收复4100点，这波行情究竟在“涨”什么？
+# 智博会观察：AI“老中医”坐诊，“望闻问切”走到哪一步了？
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股为何突然“易涨难跌”？答案藏在“大国复利”里。 “五一”小长假之前，上证指数重返4100点。自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。 “股市未必是经济的晴雨表，但一定是社会预期的晴雨表
+中新网天津5月30日电 (记者 孙玲玲)当千年中医遇上人工智能，会发生什么？本届智博会智慧医疗展区展出的多款产品给出了各自的探索方向——从舌诊、面诊到脉诊，从基层医疗到家庭健康管理，AI中医产品正从实验室走向更多应用场景。 “AI扁鹊”：3分钟完成四诊 “伸出舌头，对准镜头。”在天津中医药大学的展台前，一台名为“AI扁鹊检测仪”的设备引起不少观众驻足。体验者将面部对准摄像头、双
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网天津5月30日电 (记者 孙玲玲)当千年中医遇上人工智能，会发生什么？
 
-A股为何突然“易涨难跌”？
+本届智博会智慧医疗展区展出的多款产品给出了各自的探索方向——从舌诊、面诊到脉诊，从基层医疗到家庭健康管理，AI中医产品正从实验室走向更多应用场景。
 
-答案藏在“大国复利”里。
+“AI扁鹊”：3分钟完成四诊 “伸出舌头，对准镜头。
 
-“五一”小长假之前，上证指数重返4100点。
+”在天津中医药大学的展台前，一台名为“AI扁鹊检测仪”的设备引起不少观众驻足。
 
-自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。
+体验者将面部对准摄像头、双手放在传感器上，约3分钟后，一份涵盖舌象、面色、脉象等指标的中医体质报告自动生成。
 
-上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。
+“传统中医诊断依赖医生经验，不同医生对同一患者的判断可能存在差异。
 
-“股市未必是经济的晴雨表，但一定是社会预期的晴雨表。
+”项目研发团队核心企业天中依脉市场经理柳丽琴介绍，“AI扁鹊检测仪”由中国中医科学院重点支持，团队汇聚了天津中医药大学等多方力量，旨在通过人工智能技术推动中医四诊的客观化与标准化。
 
-”正如中国人民大学重阳研究院院长王文所说，2023年二季度到2024年三季度，上证指数长期在2600点到3400点之间徘徊，长达多月的股市低迷，多少受了“中国见顶论”悲观论调影响。
+据了解，“中医望闻问切四诊系统”“中医体质辨识系统”等智能中医设备已在部分县乡卫生院投入使用，并为多所中医药院校提供虚拟教学系统。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 23:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 23:31 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 23:42 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 23:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:42 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 23:32 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 23:24 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:21 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 23:25 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 23:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 23:30 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 23:40 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 23:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 23:52 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 23:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 23:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 23:31 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 23:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 23:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 23:52 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 23:27 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 23:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 23:44 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 23:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 23:46 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/637239730.shtml)
-- 2026-06-29 23:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/44235057075.shtml)
-- 2026-06-29 23:38 - [小娘惹](http://www.share.kurohicncr.top/Article/details/70954.shtml)
-- 2026-06-29 23:29 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/636477.shtml)
-- 2026-06-29 23:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/74806.shtml)
-- 2026-06-29 23:21 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/136343.shtml)
-- 2026-06-29 23:32 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/082512.shtml)
-- 2026-06-29 23:39 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/95476488.shtml)
-- 2026-06-29 23:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/776455763.shtml)
-- 2026-06-29 23:28 - [刘念回应](https://www.share.minike.top/Article/details/803580803.shtml)
-- 2026-06-29 23:37 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/1658530.shtml)
-- 2026-06-29 23:27 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/22300.shtml)
-- 2026-06-29 23:32 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/6201718596.shtml)
-- 2026-06-29 23:44 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/750300052332.shtml)
-- 2026-06-29 23:33 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/005487.shtml)
+- 2026-06-29 23:39 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/61908575.shtml)
+- 2026-06-29 23:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/868024718.shtml)
+- 2026-06-29 23:30 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/10152596882.shtml)
+- 2026-06-29 23:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7610761.shtml)
+- 2026-06-29 23:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/6750637.shtml)
+- 2026-06-29 23:43 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/74835.shtml)
+- 2026-06-29 23:27 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/6540694692.shtml)
+- 2026-06-29 23:53 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/47395223160.shtml)
+- 2026-06-29 23:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/353797376130.shtml)
+- 2026-06-29 23:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/0141055707.shtml)
+- 2026-06-29 23:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/9268502.shtml)
+- 2026-06-29 23:53 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/1949538.shtml)
+- 2026-06-29 23:43 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/425923.shtml)
+- 2026-06-29 23:41 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/914813413120.shtml)
+- 2026-06-29 23:33 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/82906.shtml)

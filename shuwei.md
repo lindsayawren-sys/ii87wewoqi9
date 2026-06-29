@@ -1,56 +1,61 @@
-# 港股午评：恒指涨1.7% 科指涨2.86%重返5000点 科网股普涨 汽车股活跃 半导体板块大涨 小米涨超8%
+# 瑜伽爱好者在长城体验“太极融合瑜伽”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-5月4日消息，港股三大指数高开高走。截至午间收盘，恒生指数涨1.7%，报26215.12点，恒生科技指数涨2.86%，国企指数涨1.64%。盘面上，科网股普涨，小米涨超8%，阿里巴巴涨超5%，百度、快手涨超4%；电力设备股走强，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超15%；新能源车企股活跃，小米涨超8%。 电力设备股走强，潍柴动力涨超12%。公司近日发布的2024年一
+外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如
 
 ## 正文
 
-5月4日消息，港股三大指数高开高走。
+外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
 
-截至午间收盘，恒生指数涨1.7%，报26215.12点，恒生科技指数涨2.86%，国企指数涨1.64%。
+人这一辈子，一定要去一趟“华北明珠”白洋淀！
 
-盘面上，科网股普涨，小米涨超8%，阿里巴巴涨超5%，百度、快手涨超4%；电力设备股走强，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超15%；新能源车企股活跃，小米涨超8%。
+非法从事试管婴儿手术背后：求子路上为何陷阱重重？
 
-电力设备股走强，潍柴动力涨超12%。
+6月新规来了！
 
-公司近日发布的2024年一季度财报显示，期内实现营业收入625.6亿元，同比增长8.9%；归属于母公司净利润30.9亿元，同比增幅达13.8%。
+事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
 
-值得注意的是，数据中心发电产品销售收入同比激增超240%，成为业绩增长的核心驱动力。
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
 
-摩根大通据此上调公司目标价至52港元。
+厄尔尼诺将如何影响我国后续天气形势？
 
-半导体板块大涨，天数智芯涨超15%。
+中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 23:29 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 23:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 23:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 23:19 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 23:40 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 23:35 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 23:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 23:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 23:40 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 23:43 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 23:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 23:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 23:46 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 23:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 23:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 23:49 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:43 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 23:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 23:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 23:36 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 23:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 23:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/06979821.shtml)
-- 2026-06-29 23:47 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/955073.shtml)
-- 2026-06-29 23:34 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/351944.shtml)
-- 2026-06-29 23:29 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/492199317885.shtml)
-- 2026-06-29 23:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/240727877399.shtml)
-- 2026-06-29 23:29 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/90312990.shtml)
-- 2026-06-29 23:23 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/986744.shtml)
-- 2026-06-29 23:40 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/862867476414.shtml)
-- 2026-06-29 23:20 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/86440763617.shtml)
-- 2026-06-29 23:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/1266075.shtml)
-- 2026-06-29 23:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/4827965965.shtml)
-- 2026-06-29 23:28 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/73449835305.shtml)
-- 2026-06-29 23:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/787816156599.shtml)
-- 2026-06-29 23:44 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/222438940537.shtml)
-- 2026-06-29 23:18 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/81147716971.shtml)
+- 2026-06-29 23:41 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/512207051261.shtml)
+- 2026-06-29 23:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/462903.shtml)
+- 2026-06-29 23:52 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/68975220830.shtml)
+- 2026-06-29 23:44 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/00280.shtml)
+- 2026-06-29 23:43 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/900907.shtml)
+- 2026-06-29 23:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/22028.shtml)
+- 2026-06-29 23:30 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/5012353.shtml)
+- 2026-06-29 23:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/00986.shtml)
+- 2026-06-29 23:47 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/5779675.shtml)
+- 2026-06-29 23:51 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/19457.shtml)
+- 2026-06-29 23:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/921080783.shtml)
+- 2026-06-29 23:50 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/5078867.shtml)
+- 2026-06-29 23:45 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/89611593546.shtml)
+- 2026-06-29 23:38 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/1986736.shtml)
+- 2026-06-29 23:33 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/82061725415.shtml)

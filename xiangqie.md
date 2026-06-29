@@ -1,57 +1,44 @@
-# 股海导航_2026年5月6日_沪深股市公告与交易提示
+# 中央空管办等部门联合推广“扫码飞”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！沪深两市多家上市公司5月5日晚间发布公司公告，以下为重要公告汇总。 【品大事】 威龙股份：筹划控制权变更事项 5月6日起停牌 威龙股份公告，公司4月30日收到公司控股股东星河息壤（浙江）数智科技有限公司（简称“星河息壤”）的通知，星河息壤正在筹划公司股份协议转让事宜，该事项可能导致公司控制权
+日前，中央空管办会同国家发展改革委、公安部、中国民航局等多部门，在上海市、四川省无人机管制空域内划设固定专用空域，采取“政府协同管理、行业指导监管、用户随报随飞”模式(即“扫码飞”)，实现空域资源持续精细化保障。
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-沪深两市多家上市公司5月5日晚间发布公司公告，以下为重要公告汇总。
-
-【品大事】 威龙股份：筹划控制权变更事项 5月6日起停牌 威龙股份公告，公司4月30日收到公司控股股东星河息壤（浙江）数智科技有限公司（简称“星河息壤”）的通知，星河息壤正在筹划公司股份协议转让事宜，该事项可能导致公司控制权发生变更。
-
-经申请，公司股票将于5月6日开市起停牌，预计停牌不超2个交易日。
-
-金利华电：筹划购买中科西光股权 5月6日起停牌 金利华电公告，公司正在筹划发行股份及支付现金购买西安中科西光航天科技集团有限公司（简称“中科西光”）全部或部分股权，并同步募集配套资金。
-
-公司与主要交易对方西安达科讯飞企业管理咨询合伙企业（有限合伙）、龙华天启（西安）企业咨询合伙企业（有限合伙）以及中科西光实控人秦静已签署框架协议，初步达成购买资产意向。
-
-经申请，公司证券自5月6日开市起停牌。
-
-ST萃华（维权）：无法在法定期限内披露定期报告 5月6日起停牌 ST萃华公告，公司原定于4月29日披露2025年年度报告和2026年第一季度报告。
+日前，中央空管办会同国家发展改革委、公安部、中国民航局等多部门，在上海市、四川省无人机管制空域内划设固定专用空域，采取“政府协同管理、行业指导监管、用户随报随飞”模式(即“扫码飞”)，实现空域资源持续精细化保障。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 23:30 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 23:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 23:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 23:37 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 23:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 23:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 23:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 23:27 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 23:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 23:34 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 23:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 23:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 23:36 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 23:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 23:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 23:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 23:48 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 23:42 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 23:49 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 23:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 23:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:28 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/641532638917.shtml)
-- 2026-06-29 23:38 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/03929.shtml)
-- 2026-06-29 23:29 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/81886862659.shtml)
-- 2026-06-29 23:41 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/3875671.shtml)
-- 2026-06-29 23:37 - [恋与深空致歉](https://www.blog.minike.top/Article/details/5381901.shtml)
-- 2026-06-29 23:22 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/465582.shtml)
-- 2026-06-29 23:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/393599.shtml)
-- 2026-06-29 23:37 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/1987266874.shtml)
-- 2026-06-29 23:35 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/7542579211.shtml)
-- 2026-06-29 23:37 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/99897562580.shtml)
-- 2026-06-29 23:29 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/251336354.shtml)
-- 2026-06-29 23:21 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/367882581.shtml)
-- 2026-06-29 23:43 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/34492.shtml)
-- 2026-06-29 23:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/32354078366.shtml)
-- 2026-06-29 23:38 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/5003594793.shtml)
+- 2026-06-29 23:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/45805.shtml)
+- 2026-06-29 23:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/63707.shtml)
+- 2026-06-29 23:24 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/04393.shtml)
+- 2026-06-29 23:38 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/783020.shtml)
+- 2026-06-29 23:33 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/19700724.shtml)
+- 2026-06-29 23:27 - [勇敢的心第二部](https://www.share.minike.top/Article/details/293673167.shtml)
+- 2026-06-29 23:46 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/363623801948.shtml)
+- 2026-06-29 23:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/534983908312.shtml)
+- 2026-06-29 23:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/446973158503.shtml)
+- 2026-06-29 23:38 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/30564388554.shtml)
+- 2026-06-29 23:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/83949478058.shtml)
+- 2026-06-29 23:30 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/27037160.shtml)
+- 2026-06-29 23:35 - [我和我的家乡](https://www.blog.minike.top/Article/details/41918869995.shtml)
+- 2026-06-29 23:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/72567.shtml)
+- 2026-06-29 23:45 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/005647862400.shtml)

@@ -1,59 +1,57 @@
-# 黄河实业订立股份互换及优先购买权协议
+# 国家医疗保障局发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。 b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Sl
+中新网5月31日电 据国家医保局网站消息，国家医疗保障局31日通知，根据工作安排，现将《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南》《谈判药品续约规则》以及《非独家药品竞价规则》正式发布。同时，为帮助社会各界加深对政策的理解，组织编制
 
 ## 正文
 
-黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。
+中新网5月31日电 据国家医保局网站消息，国家医疗保障局31日通知，根据工作安排，现将《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南》《谈判药品续约规则》以及《非独家药品竞价规则》正式发布。
 
-b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Slencor AI 过往收益相联系的预定公式，则应向下调整，且在任何情况下，行使所有优先购买权的总额上限为 1.2 亿港元。
+同时，为帮助社会各界加深对政策的理解，组织编制了《国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整常用问答(2026年版)》，在此一并公布。
 
-c） 本公司以2400万港元的价格向交易对手出售其在 VCFC 的 60%股权。
+2026年6月1日-6月10日，国家医保局国家医保服务平台(网址：https://fuwu.nhsa.gov.cn/)开通网上申报系统，请符合条件的申报主体予以关注。
 
-收购和出售在签署协议时同时完成，各项代价透过相互抵销的方式处理。
+需要说明的是，因今年整体工作时间提前，《工作方案》在社会公开征求意见过程中，我们收到较多企业关于适当延长截止日期的反映。
 
-收购 Slencor AI 将使本集团能进一步扩展至快速演进的人工智能领域，特别是在需求日益增长的人工智能代理数据训练及人类回馈强化学习领域。
+为尽量减少对行业的影响，更好体现对医药创新的支持，在国家药监部门大力支持下，决定将药品申报条件的截止时间延后为“6月10日前已正式获批或完成技术评审”。
 
-董事会相信，此次收购将强化本集团的科技实力，使本集团能捕捉人工智能相关服务的新兴市场机遇，并与现有业务产生潜在的协同效应。
+自2027年开始，截止日期将确定为方案发布之日。
 
-此外，Slencor AI 管理与营运团队的专业知识与经验，预计将为本集团在人工智能及科技驱动解决方案方面的发展提供有力支持。
-
-与此同时，出售 VCFC 使本集团能够精简业务，并减少在非核心消费金融投资领域的风险。
+附件：1.2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案 2.2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南 3.谈判药品续约规则 4.非独家药品竞价规则 5.国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整常用问答(2026年版)
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 23:42 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 23:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 23:35 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:31 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 23:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 23:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 23:43 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 23:31 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 23:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 23:29 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 23:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 23:50 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 23:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 23:43 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 23:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 23:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 23:38 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 23:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 23:28 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 23:38 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 23:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/6488863515.shtml)
-- 2026-06-29 23:29 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/025336974056.shtml)
-- 2026-06-29 23:26 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/27426564.shtml)
-- 2026-06-29 23:22 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/19496.shtml)
-- 2026-06-29 23:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/359403902.shtml)
-- 2026-06-29 23:26 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/74788.shtml)
-- 2026-06-29 23:23 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/174003466194.shtml)
-- 2026-06-29 23:46 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/29286922612.shtml)
-- 2026-06-29 23:32 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/071458850476.shtml)
-- 2026-06-29 23:18 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/844174.shtml)
-- 2026-06-29 23:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/820872986.shtml)
-- 2026-06-29 23:27 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/65025.shtml)
-- 2026-06-29 23:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/41477.shtml)
-- 2026-06-29 23:31 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/6055459918.shtml)
-- 2026-06-29 23:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/758403.shtml)
+- 2026-06-29 23:42 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/2768156.shtml)
+- 2026-06-29 23:31 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/127354892071.shtml)
+- 2026-06-29 23:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/84890.shtml)
+- 2026-06-29 23:53 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4289107.shtml)
+- 2026-06-29 23:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/1048720.shtml)
+- 2026-06-29 23:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/790729185305.shtml)
+- 2026-06-29 23:30 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/9714419.shtml)
+- 2026-06-29 23:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/822382752965.shtml)
+- 2026-06-29 23:28 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/4587970.shtml)
+- 2026-06-29 23:45 - [一生一世](https://www.blog.kurohicncr.top/Article/details/19654343816.shtml)
+- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/0489284291.shtml)
+- 2026-06-29 23:46 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/86708089197.shtml)
+- 2026-06-29 23:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/892672.shtml)
+- 2026-06-29 23:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/97677.shtml)
+- 2026-06-29 23:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/32535726.shtml)

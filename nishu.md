@@ -1,61 +1,59 @@
-# “五一”假期 浙江篮球“冠中冠”比赛吸引民众
+# 瑞银收购瑞信后持续瘦身 再度裁员数百人
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+瑞银集团在欧洲、中东及非洲地区裁减数百个岗位，这是该行三年前收购瑞信以来实施的最新一轮相关裁员。 知情人士透露，此次裁员主要波及后勤支持部门的员工，但也影响到一些对接客户的银行家。这些因讨论非公开信息而要求匿名的知情人士表示，为了减轻裁员的影响，瑞银为部分被裁员工提供了公司内部的新职位。 瑞银一位发言人表示，无论是在瑞士本土还是在全球范围内，该行都将尽可能把收购导致的裁员人数控
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+瑞银集团在欧洲、中东及非洲地区裁减数百个岗位，这是该行三年前收购瑞信以来实施的最新一轮相关裁员。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+知情人士透露，此次裁员主要波及后勤支持部门的员工，但也影响到一些对接客户的银行家。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+这些因讨论非公开信息而要求匿名的知情人士表示，为了减轻裁员的影响，瑞银为部分被裁员工提供了公司内部的新职位。
 
-孩子吃饭少、长不高、脾气暴？
+瑞银一位发言人表示，无论是在瑞士本土还是在全球范围内，该行都将尽可能把收购导致的裁员人数控制在“尽可能低”的水平。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+发言人还称，为减少冗余，瑞银致力于将目前由第三方供应商承担的岗位转移到内部。
 
-中国文学何以打动世界读者？
+最新数据显示，自完成收购瑞信的交易以来，瑞银的员工总数已减少了约17500人。
 
-凤何以成为中华民族文化标识？
+此前有报道称，在交易完成后的几个月里，该行曾计划最终裁员约35000人。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+2023年收购瑞信以来，瑞银一直寻求精简员工队伍。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 23:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 23:43 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 23:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 23:29 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:34 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 23:43 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 23:38 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 23:44 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 23:31 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 23:26 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 23:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 23:30 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 23:18 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 23:50 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 23:39 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 23:38 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 23:40 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 23:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 23:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 23:32 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 23:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 23:33 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 23:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 23:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 23:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/17452.shtml)
-- 2026-06-29 23:28 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/6215004.shtml)
-- 2026-06-29 23:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/9167688.shtml)
-- 2026-06-29 23:33 - [张凌赫 客串](https://www.share.minike.top/Article/details/76457328112.shtml)
-- 2026-06-29 23:27 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/55720668188.shtml)
-- 2026-06-29 23:34 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/43102.shtml)
-- 2026-06-29 23:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/52484835051.shtml)
-- 2026-06-29 23:21 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/290983.shtml)
-- 2026-06-29 23:46 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/51458212.shtml)
-- 2026-06-29 23:30 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/8354691.shtml)
-- 2026-06-29 23:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/75292.shtml)
-- 2026-06-29 23:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/703155270.shtml)
-- 2026-06-29 23:40 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/316083.shtml)
-- 2026-06-29 23:42 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/584606024.shtml)
-- 2026-06-29 23:31 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/698459986658.shtml)
+- 2026-06-29 23:40 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/44369.shtml)
+- 2026-06-29 23:49 - [恋与深空 巧合](http://www.share.minike.top/Article/details/6910867073.shtml)
+- 2026-06-29 23:34 - [一生一世](https://www.share.minike.top/Article/details/213389277.shtml)
+- 2026-06-29 23:43 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/8102379.shtml)
+- 2026-06-29 23:41 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/0006668960.shtml)
+- 2026-06-29 23:26 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/563000625.shtml)
+- 2026-06-29 23:48 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/58313366.shtml)
+- 2026-06-29 23:24 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/17055204.shtml)
+- 2026-06-29 23:46 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/98917.shtml)
+- 2026-06-29 23:49 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3737621.shtml)
+- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/0385578348.shtml)
+- 2026-06-29 23:27 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/046215.shtml)
+- 2026-06-29 23:28 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/25167280.shtml)
+- 2026-06-29 23:36 - [扬名立万](http://www.share.minike.top/Article/details/12155870.shtml)
+- 2026-06-29 23:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/91876236147.shtml)

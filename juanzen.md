@@ -1,59 +1,58 @@
-# “国民理财神器”收益率正式跌破1%，余额宝每万元每日收益仅2毛多
+# 花旗：在美国发布关税评估前 铜价6月料将触及每吨14500美元
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-昔日的“国民理财神器”正悄然步入历史性的低收益区间。 5月2日，管理规模超7900亿元、持有人户数高达7.9亿的天弘余额宝货币市场基金，其近7日年化收益率已降至0.999%，正式跌破1%的整数关口。 回顾历史，余额宝在2014年初曾创下超过6.7%的七日年化收益率高点，此后经历数轮下行周期，其间虽偶有反弹，但整体趋势向下。2020年4月，其收益率首度跌破2%；2022年11月又
+花旗集团表示，由于担心美国可能征收进口关税，铜价看涨情绪升温，预计未来一个月可能上涨至每吨14500美元。 Max Layton等分析师在电子邮件报告中写道，“美国对精炼铜加征关税的持续担忧可能会支撑市场情绪，至少到6月底的评估截止日期前将是如此”。 美国商务部将于6月30日前发布关于精炼铜进口关税的最新建议。 花旗集团预计美国将采取“战略模糊”策略：不征收精炼铜关税，但也不完
 
 ## 正文
 
-昔日的“国民理财神器”正悄然步入历史性的低收益区间。
+花旗集团表示，由于担心美国可能征收进口关税，铜价看涨情绪升温，预计未来一个月可能上涨至每吨14500美元。
 
-5月2日，管理规模超7900亿元、持有人户数高达7.9亿的天弘余额宝货币市场基金，其近7日年化收益率已降至0.999%，正式跌破1%的整数关口。
+Max Layton等分析师在电子邮件报告中写道，“美国对精炼铜加征关税的持续担忧可能会支撑市场情绪，至少到6月底的评估截止日期前将是如此”。
 
-回顾历史，余额宝在2014年初曾创下超过6.7%的七日年化收益率高点，此后经历数轮下行周期，其间虽偶有反弹，但整体趋势向下。
+美国商务部将于6月30日前发布关于精炼铜进口关税的最新建议。
 
-2020年4月，其收益率首度跌破2%；2022年11月又跌破1.5%关口；如今再下一个台阶，进入“0时代”，成为当前货币市场极致定价的缩影。
+花旗集团预计美国将采取“战略模糊”策略：不征收精炼铜关税，但也不完全排除这种可能性，以维持美国过剩的铜库存。
 
-一家大型基金公司表示，天弘余额宝等部分货基产品收益率破“1”，主要是因为在内外部经济环境复杂严峻的背景下，央行保持适度宽松的货币政策，流动性保持充裕，货币市场利率持续下行，以7天公开市场逆回购操作利率为代表的政策利率已下行至1.4%，为历史极低水平。
+预计未来6-12个月铜价将达到每盎司15000美元，由于能源转型和人工智能行业的需求强劲，来自矿山或回收的供应增长可能低于预期。
 
-货币基金所投资产跟随市场下行，符合市场运行规律。
+伦敦金属交易所（LME）铜价最新报每吨13665美元。
 
-“展望未来一段时间，在低利率的大环境下，货币基金收益率大概率还会持续下行。
-
-”上述货币基金经理也分析，随着过去利率稍高的资产陆续到期，新配置的资产收益率又相对偏低，货基收益率下行或成为暂时无法逆转的大趋势。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 23:19 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 23:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 23:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 23:21 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 23:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 23:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 23:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 23:34 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 23:34 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 23:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 23:39 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 23:30 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 23:51 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 23:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 23:36 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 23:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 23:36 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:38 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 23:38 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 23:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 23:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 23:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 23:28 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 23:27 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 23:50 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 23:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/130054.shtml)
-- 2026-06-29 23:25 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/185641.shtml)
-- 2026-06-29 23:32 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/222185318424.shtml)
-- 2026-06-29 23:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/333261.shtml)
-- 2026-06-29 23:41 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/90333256225.shtml)
-- 2026-06-29 23:25 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/350988412.shtml)
-- 2026-06-29 23:30 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/680588855.shtml)
-- 2026-06-29 23:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/792555550776.shtml)
-- 2026-06-29 23:30 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/0550502069.shtml)
-- 2026-06-29 23:34 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/58645887069.shtml)
-- 2026-06-29 23:46 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/2308018887.shtml)
-- 2026-06-29 23:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/47972127293.shtml)
-- 2026-06-29 23:47 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/7816862.shtml)
-- 2026-06-29 23:32 - [逃狱兄弟](http://www.share.minike.top/Article/details/192236127.shtml)
-- 2026-06-29 23:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/905329858199.shtml)
+- 2026-06-29 23:48 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/57771532.shtml)
+- 2026-06-29 23:44 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/99092474.shtml)
+- 2026-06-29 23:26 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/181692131433.shtml)
+- 2026-06-29 23:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/4798871692.shtml)
+- 2026-06-29 23:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/47209.shtml)
+- 2026-06-29 23:27 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/1532979.shtml)
+- 2026-06-29 23:36 - [斗破苍穹](https://www.share.minike.top/Article/details/329836464.shtml)
+- 2026-06-29 23:43 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/72221.shtml)
+- 2026-06-29 23:53 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/39525112.shtml)
+- 2026-06-29 23:25 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/90428627035.shtml)
+- 2026-06-29 23:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/980117667042.shtml)
+- 2026-06-29 23:39 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/17260483.shtml)
+- 2026-06-29 23:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/77363081.shtml)
+- 2026-06-29 23:25 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/47413306.shtml)
+- 2026-06-29 23:41 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/617694239.shtml)

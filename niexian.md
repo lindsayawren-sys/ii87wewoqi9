@@ -1,56 +1,58 @@
-# 比特币时隔1月再度站上8万美元，股市同步上扬
+# 广西柳工第60万台装载机交付 见证中国制造成“智造”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-受市场乐观情绪推动，风险资产集体走高，亚洲股市上扬、美国科技股期货续涨，比特币价格于周一突破 8 万美元，为今年 1 月以来首次。 这一最早诞生的加密货币周一最高上涨 2.1%，触及 80594 美元，创 1 月 31 日以来新高；伦敦时间上午 10 时，涨幅收窄，交投于 79700 美元附近。以太坊、索拉纳等小众代币也小幅上涨。 自美以对伊朗开战以来，比特币涨幅约 20%，凸
+中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。 5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。本次客户节吸引来自5
 
 ## 正文
 
-受市场乐观情绪推动，风险资产集体走高，亚洲股市上扬、美国科技股期货续涨，比特币价格于周一突破 8 万美元，为今年 1 月以来首次。
+中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。
 
-这一最早诞生的加密货币周一最高上涨 2.1%，触及 80594 美元，创 1 月 31 日以来新高；伦敦时间上午 10 时，涨幅收窄，交投于 79700 美元附近。
+60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。
 
-以太坊、索拉纳等小众代币也小幅上涨。
+”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。
 
-自美以对伊朗开战以来，比特币涨幅约 20%，凸显数字资产基本经受住了冲突及由此引发的油价飙升冲击。
+5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。
 
-此外，市场对美国就关键稳定币收益条款达成协议的乐观预期，或为参议院推进全面加密货币立法扫清障碍，进一步提振了风险偏好情绪。
+本次客户节吸引来自50多个国家和地区的1200余名嘉宾参与。
 
-FalconX 亚太衍生品交易主管肖恩・麦克纳尔蒂表示，衍生品市场的机构交易活动显示，“市场强烈看涨，预计本月中旬比特币将涨至 85000 美元”。
+在柳工挖掘机智慧工厂，5G智能生产线、AGV物流、机器人焊接装配等场景，让外国嘉宾零距离感受中国智能制造的魅力。
 
-加密货币上涨之际，摩根士丹利资本国际（MSCI）亚洲股指逼近 2 月创下的历史新高 —— 该高点恰好在美以对伊朗开战前触及。
+当天，柳工发布全场景电智数解决方案，涵盖纯电、混动、拖电、换电等多种动力路线，以及玄甲电池、电驱桥等核心技术。
 
-上周科技企业财报超预期，点燃投资者乐观情绪，推动股指上扬。
+其中，自主研发的智慧矿山管理系统4.0，通过“5G+人工智能+北斗技术”，实现全矿生产可视化管控与智能调度，作业效率提升20%以上。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 23:36 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 23:31 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 23:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 23:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 23:22 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 23:22 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 23:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 23:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 23:29 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 23:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 23:43 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 23:49 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 23:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 23:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 23:27 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 23:32 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 23:48 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 23:53 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 23:24 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 23:49 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 23:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/15473368271.shtml)
-- 2026-06-29 23:29 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/53083214.shtml)
-- 2026-06-29 23:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/787936.shtml)
-- 2026-06-29 23:42 - [TOP Prada](https://www.share.minike.top/Article/details/5096323957.shtml)
-- 2026-06-29 23:42 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/30706.shtml)
-- 2026-06-29 23:28 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/625834.shtml)
-- 2026-06-29 23:29 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/7502345.shtml)
-- 2026-06-29 23:35 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/219713.shtml)
-- 2026-06-29 23:37 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/911885.shtml)
-- 2026-06-29 23:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/742707.shtml)
-- 2026-06-29 23:46 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/8522287162.shtml)
-- 2026-06-29 23:34 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/520045890.shtml)
-- 2026-06-29 23:24 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/350327.shtml)
-- 2026-06-29 23:38 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/99930798.shtml)
-- 2026-06-29 23:34 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/33998135.shtml)
+- 2026-06-29 23:31 - [起风了](http://www.share.kurohicncr.top/Article/details/6874198040.shtml)
+- 2026-06-29 23:24 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/39838.shtml)
+- 2026-06-29 23:35 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/29335875.shtml)
+- 2026-06-29 23:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/294999.shtml)
+- 2026-06-29 23:34 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/13598.shtml)
+- 2026-06-29 23:27 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/58185802.shtml)
+- 2026-06-29 23:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/382805395545.shtml)
+- 2026-06-29 23:37 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/897109.shtml)
+- 2026-06-29 23:47 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/0837352.shtml)
+- 2026-06-29 23:53 - [毒液2](https://www.blog.kurohicncr.top/Article/details/68453601116.shtml)
+- 2026-06-29 23:28 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/9241656164.shtml)
+- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/758221313142.shtml)
+- 2026-06-29 23:33 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/71072505.shtml)
+- 2026-06-29 23:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/534017263.shtml)
+- 2026-06-29 23:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/3468931288.shtml)

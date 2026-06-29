@@ -1,44 +1,48 @@
-# 辽宁丹东交通事故已致8人死亡
+# 《联合国可转让货物单证公约》将于10月开放签署
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网丹东5月4日电 (记者 于海洋)4日从辽宁省及丹东市相关部门获悉，5月3日，丹东境内发生一起交通事故，截至目前已造成8人死亡。事故具体情况和原因正在调查中。
+记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。 《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更
 
 ## 正文
 
-中新网丹东5月4日电 (记者 于海洋)4日从辽宁省及丹东市相关部门获悉，5月3日，丹东境内发生一起交通事故，截至目前已造成8人死亡。
+记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。
 
-事故具体情况和原因正在调查中。
+《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更多保障。
+
+(央视新闻客户端 总台央视记者 吴昊 高媛)
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 23:32 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 23:22 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 23:34 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 23:41 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 23:34 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 23:36 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 23:37 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 23:20 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 23:36 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 23:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 23:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 23:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 23:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 23:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 23:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 23:52 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 23:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 23:42 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 23:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 23:26 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 23:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/74063605.shtml)
-- 2026-06-29 23:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/103565820.shtml)
-- 2026-06-29 23:30 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/99627.shtml)
-- 2026-06-29 23:27 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/0673480453.shtml)
-- 2026-06-29 23:36 - [月亮](http://www.blog.kurohicncr.top/Article/details/567429877.shtml)
-- 2026-06-29 23:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/26631414.shtml)
-- 2026-06-29 23:39 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/715775.shtml)
-- 2026-06-29 23:38 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/952712572227.shtml)
-- 2026-06-29 23:32 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/4883121.shtml)
-- 2026-06-29 23:31 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/6200984.shtml)
-- 2026-06-29 23:23 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/6793974.shtml)
-- 2026-06-29 23:24 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/1913533.shtml)
-- 2026-06-29 23:43 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/51613758.shtml)
-- 2026-06-29 23:44 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/58462209.shtml)
-- 2026-06-29 23:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/829931678.shtml)
+- 2026-06-29 23:33 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/9412394.shtml)
+- 2026-06-29 23:52 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/47022967442.shtml)
+- 2026-06-29 23:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/741977.shtml)
+- 2026-06-29 23:46 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/18156.shtml)
+- 2026-06-29 23:53 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/75140697944.shtml)
+- 2026-06-29 23:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/03918.shtml)
+- 2026-06-29 23:46 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/9964023082.shtml)
+- 2026-06-29 23:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/78921762.shtml)
+- 2026-06-29 23:53 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/856037133525.shtml)
+- 2026-06-29 23:27 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/96200682684.shtml)
+- 2026-06-29 23:41 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/764553064.shtml)
+- 2026-06-29 23:34 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/48665.shtml)
+- 2026-06-29 23:47 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/0842688740.shtml)
+- 2026-06-29 23:28 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/570644407802.shtml)
+- 2026-06-29 23:31 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/65489328.shtml)

@@ -1,61 +1,57 @@
-# “毒马铃薯”只是前菜，美国零关税花生又将来袭，台湾食安再遭“背刺”！
+# 中国人民大学发布“观天 短临降水智能预报系统”等最新成果
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-“毒马铃薯”风波未平，来自美国的零关税花生又将来袭，给台湾本就严峻的食品安全和农业危机新添了一把火…… 三成价格降维打击，台湾农户直呼“只能喝西北风” 根据所谓“美台对等贸易协议”(ART)，美国花生即将零关税入台。 有人算了一笔账。台湾本地花生每公斤成本约150至160元(新台币，下同)，美国去壳花生每公斤仅需47元，价格不到本地三成。台湾约三万人从事花生种植，一旦美国花生零
+中新社北京5月30日电 (记者 曾玥)中国人民大学高瓴人工智能学院30日在北京发布“观天 短临降水智能预报系统”“玉兰-万象 社会模拟平台2.0”两项最新研究成果。 当日，以“智汇未来 青年引领”为主题的人工智能青年科学家论坛在北京举办。中国人民大学高瓴人工智能学院执行院长文继荣现场发布上述成果并介绍，前者将人工智能引入极端天气预报，为极端天气预警、防汛应急和城市安全运行提供新
 
 ## 正文
 
-“毒马铃薯”风波未平，来自美国的零关税花生又将来袭，给台湾本就严峻的食品安全和农业危机新添了一把火…… 三成价格降维打击，台湾农户直呼“只能喝西北风” 根据所谓“美台对等贸易协议”(ART)，美国花生即将零关税入台。
+中新社北京5月30日电 (记者 曾玥)中国人民大学高瓴人工智能学院30日在北京发布“观天 短临降水智能预报系统”“玉兰-万象 社会模拟平台2.0”两项最新研究成果。
 
-有人算了一笔账。
+当日，以“智汇未来 青年引领”为主题的人工智能青年科学家论坛在北京举办。
 
-台湾本地花生每公斤成本约150至160元(新台币，下同)，美国去壳花生每公斤仅需47元，价格不到本地三成。
+中国人民大学高瓴人工智能学院执行院长文继荣现场发布上述成果并介绍，前者将人工智能引入极端天气预报，为极端天气预警、防汛应急和城市安全运行提供新的技术支撑；后者以智能计算重构社会科学研究范式，服务国家治理现代化。
 
-台湾约三万人从事花生种植，一旦美国花生零关税入台，当地花生产业将遭“降维打击”。
+“观天 短临降水智能预报系统”由中国人民大学高瓴人工智能学院孙浩教授团队与中国气象局地球系统数值预报中心韩威研究员团队合作完成，以三维雷达观测资料为核心输入，深入刻画降水云团在不同高度上的结构变化、运动差异和发展过程。
 
-台农业部门声称要用“价值战”取代“价格战”，但在现实市场，花生油、花生酱等加工业者势必倒向廉价进口原料。
+据介绍，此前在北京怀柔强降水、广东茂名大暴雨的预报试验中，“观天 短临降水智能预报系统”在强回波结构、降水位置和未来发展趋势等方面展现出良好的预报能力。
 
-台湾云林县县长张丽善痛心疾首直言，这是“灭农”噩耗。
+目前，模型正在从实验室走向一线业务单位，在天津气象台、广西气象台等单位开展模型部署与业务应用，并推进在巴基斯坦、蒙古国等“一带一路”共建国家的业务应用。
 
-对此，台农业部门官员竟轻飘飘甩出一句“去种别的就好啦”。
+“玉兰-万象 社会模拟平台2.0”同期发布。
 
-“今年花生早已下种，采收时美国花生已兵临城下，农业部门慢拍却要由农民吞苦果？
+去年，中国人民大学高瓴人工智能学院已发布“玉兰-万象 社会模拟平台1.0”。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 23:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 23:33 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 23:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 23:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 23:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 23:42 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 23:26 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 23:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 23:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 23:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 23:28 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 23:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 23:30 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 23:41 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 23:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 23:33 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 23:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 23:33 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 23:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 23:34 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 23:45 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 23:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 23:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/86103068173.shtml)
-- 2026-06-29 23:26 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/669285797335.shtml)
-- 2026-06-29 23:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/1544644003.shtml)
-- 2026-06-29 23:25 - [一生一世](https://www.share.minike.top/Article/details/7727100844.shtml)
-- 2026-06-29 23:31 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/586837754.shtml)
-- 2026-06-29 23:32 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/961170873600.shtml)
-- 2026-06-29 23:35 - [斗破苍穹](http://www.share.minike.top/Article/details/216488.shtml)
-- 2026-06-29 23:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/2861534565.shtml)
-- 2026-06-29 23:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/76140180.shtml)
-- 2026-06-29 23:38 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/543470.shtml)
-- 2026-06-29 23:47 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/71307590953.shtml)
-- 2026-06-29 23:33 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/023320182943.shtml)
-- 2026-06-29 23:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/7868173.shtml)
-- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/713801.shtml)
-- 2026-06-29 23:18 - [流金岁月](https://www.blog.minike.top/Article/details/053874727261.shtml)
+- 2026-06-29 23:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/78780358.shtml)
+- 2026-06-29 23:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/9384154101.shtml)
+- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/89190.shtml)
+- 2026-06-29 23:41 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/2291472603.shtml)
+- 2026-06-29 23:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/37785438.shtml)
+- 2026-06-29 23:34 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/200617635449.shtml)
+- 2026-06-29 23:47 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/87288.shtml)
+- 2026-06-29 23:40 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/479194504848.shtml)
+- 2026-06-29 23:42 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/865596143.shtml)
+- 2026-06-29 23:45 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/43275788288.shtml)
+- 2026-06-29 23:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/17466319740.shtml)
+- 2026-06-29 23:49 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/987070434993.shtml)
+- 2026-06-29 23:41 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/399064.shtml)
+- 2026-06-29 23:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/98843796980.shtml)
+- 2026-06-29 23:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/745594568.shtml)

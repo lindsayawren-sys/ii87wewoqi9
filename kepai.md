@@ -1,55 +1,59 @@
-# 大摩：中国中免目标价降至77港元 给予“与大市同步”评级
+# A股更香？南向资金罕见单月净卖出，AI叙事正发生变化
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，考虑到近期市场趋势及中国中免（01880） 首季业绩，将公司2026至2027年每股盈利预测下调6%至7%，并将收入预测各下调13%；H股目标价由89 港元下调至77港元，评级“与大市同步”。 该行指，3月海南免税销售慢于预期，4月数据亦显示增长进一步减速，将全年增长预测由25%至30%，下调至20%至30%。同时，公司正调整上海及北京机场免税店，预计于今
+近期，A股和港股市场表现出不同的资金变化。外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。相对港股，A股近期呈现更强的韧性。不过，机构人士认为，中长期看，南向资金增配趋势还将延续。 从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。 南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.5
 
 ## 正文
 
-摩根士丹利发布研报称，考虑到近期市场趋势及中国中免（01880） 首季业绩，将公司2026至2027年每股盈利预测下调6%至7%，并将收入预测各下调13%；H股目标价由89 港元下调至77港元，评级“与大市同步”。
+近期，A股和港股市场表现出不同的资金变化。
 
-该行指，3月海南免税销售慢于预期，4月数据亦显示增长进一步减速，将全年增长预测由25%至30%，下调至20%至30%。
+外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。
 
-同时，公司正调整上海及北京机场免税店，预计于今年次季至第三季完成，进度较预期慢。
+相对港股，A股近期呈现更强的韧性。
 
-公司亦正整合线上平台，转型期间销售或面临风险。
+不过，机构人士认为，中长期看，南向资金增配趋势还将延续。
 
-由于机场及线上业务利润率较低，对盈利影响较小；首季利润率仍优于预期。
+从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。
 
-责任编辑：卢昱君
+南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.54亿港元，折合人民币29.83亿元。
+
+南向资金单月净卖出的情况较为少见，2022年以后，仅2023年6月出现过单月净卖出，当时的净卖出金额为58.48亿港元。
+
+个股方面，阿里巴巴、腾讯控股等大型互联网公司5月南向资金净卖出量居前，以阿里巴巴为例，5月14日单日南向资金净卖出37.96亿港元，5月最后7个交易日更是连续呈现净卖出。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 23:43 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 23:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 23:33 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 23:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 23:43 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 23:32 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 23:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 23:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:26 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 23:45 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 23:35 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 23:35 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 23:27 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 23:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 23:47 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 23:26 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 23:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 23:46 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 23:45 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 23:50 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 23:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 23:44 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 23:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 23:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/4971214927.shtml)
-- 2026-06-29 23:25 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/03171.shtml)
-- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/566219701.shtml)
-- 2026-06-29 23:35 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/68716724276.shtml)
-- 2026-06-29 23:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/64028.shtml)
-- 2026-06-29 23:21 - [沉睡花园](http://www.share.minike.top/Article/details/7781384.shtml)
-- 2026-06-29 23:21 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/61039438.shtml)
-- 2026-06-29 23:28 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/7821333230.shtml)
-- 2026-06-29 23:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/09279317998.shtml)
-- 2026-06-29 23:37 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/9417346428.shtml)
-- 2026-06-29 23:22 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/713798.shtml)
-- 2026-06-29 23:46 - [扫黑风暴](https://www.blog.minike.top/Article/details/49651.shtml)
-- 2026-06-29 23:45 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/67877929635.shtml)
-- 2026-06-29 23:44 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/05705575.shtml)
-- 2026-06-29 23:26 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/3247131185.shtml)
+- 2026-06-29 23:50 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/86456.shtml)
+- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/844090281633.shtml)
+- 2026-06-29 23:32 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/8841346.shtml)
+- 2026-06-29 23:37 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/024716.shtml)
+- 2026-06-29 23:38 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/740416.shtml)
+- 2026-06-29 23:38 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/398539559.shtml)
+- 2026-06-29 23:44 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/7603401776.shtml)
+- 2026-06-29 23:46 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/619682.shtml)
+- 2026-06-29 23:52 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/9003978.shtml)
+- 2026-06-29 23:28 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/543417.shtml)
+- 2026-06-29 23:44 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/547264.shtml)
+- 2026-06-29 23:28 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/15974709.shtml)
+- 2026-06-29 23:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/9318153553.shtml)
+- 2026-06-29 23:43 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/53336.shtml)
+- 2026-06-29 23:52 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/410323091.shtml)

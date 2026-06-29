@@ -1,49 +1,58 @@
-# 美军称“布什”号航空母舰正在穿越阿拉伯海
+# Oppenheimer预计博通Q2业绩超预期 AI订单成核心驱动力
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿5月5日电美军中央司令部5日在社交媒体上发文称，美军“乔治·H·W·布什”号航空母舰正在穿越阿拉伯海。（完）责任编辑：宋雅芳
+在芯片巨头博通即将于6月3日公布第二财季业绩之际，Oppenheimer发布乐观前瞻报告，预计公司将交出击败预期并上调展望的亮眼成绩单，AI相关业务将成为主要增长引擎。 Oppenheimer分析师Rick Schafer在报告中指出，博通在AI领域的收入环比增长约30%，主要得益于定制化ASIC芯片和网络产品的强劲需求。公司被市场视为仅次于英伟达的第二大AI性能硬件厂商，凭借
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在芯片巨头博通即将于6月3日公布第二财季业绩之际，Oppenheimer发布乐观前瞻报告，预计公司将交出击败预期并上调展望的亮眼成绩单，AI相关业务将成为主要增长引擎。
 
-新华社华盛顿5月5日电美军中央司令部5日在社交媒体上发文称，美军“乔治·H·W·布什”号航空母舰正在穿越阿拉伯海。
+Oppenheimer分析师Rick Schafer在报告中指出，博通在AI领域的收入环比增长约30%，主要得益于定制化ASIC芯片和网络产品的强劲需求。
 
-（完）责任编辑：宋雅芳
+公司被市场视为仅次于英伟达的第二大AI性能硬件厂商，凭借自研XPU和网络解决方案构建了独特的竞争壁垒。
+
+Schafer强调，博通已与多家科技巨头建立了深度合作关系，主要客户包括谷歌、Meta、TikTok USA、Anthropic和OpenAI。
+
+公司的供应保障已延伸至2028年，未来订单可见度较高。
+
+具体来看，Anthropic预计今年部署1GW算力，有望带来150至200亿美元的订单；OpenAI则计划在2027财年完成1GW部署。
+
+值得关注的是，博通近期与OpenAI签订了多年期战略合作协议，共同设计定制化AI加速芯片。
+
+公司管理层此前已勾勒出清晰蓝图，预计到2027年底，年AI芯片收入有望突破1000亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 23:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 23:35 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 23:46 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 23:47 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 23:40 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 23:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 23:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 23:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 23:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 23:41 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:24 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 23:37 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 23:25 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 23:45 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 23:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 23:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 23:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 23:36 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 23:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 23:46 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 23:40 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 23:53 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 23:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 23:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/34048001.shtml)
-- 2026-06-29 23:45 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/30207836361.shtml)
-- 2026-06-29 23:32 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/443155641.shtml)
-- 2026-06-29 23:42 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/08042139.shtml)
-- 2026-06-29 23:31 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/58599153.shtml)
-- 2026-06-29 23:28 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/7527301930.shtml)
-- 2026-06-29 23:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/87349941333.shtml)
-- 2026-06-29 23:44 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/89986515542.shtml)
-- 2026-06-29 23:37 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/369183.shtml)
-- 2026-06-29 23:43 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/38401.shtml)
-- 2026-06-29 23:40 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/0601704407.shtml)
-- 2026-06-29 23:40 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/669824987.shtml)
-- 2026-06-29 23:33 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/8855396341.shtml)
-- 2026-06-29 23:39 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/742832.shtml)
-- 2026-06-29 23:47 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/28264612.shtml)
+- 2026-06-29 23:38 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/11951969223.shtml)
+- 2026-06-29 23:35 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/85530929920.shtml)
+- 2026-06-29 23:37 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/1953254621.shtml)
+- 2026-06-29 23:26 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/4762278.shtml)
+- 2026-06-29 23:47 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/868844.shtml)
+- 2026-06-29 23:40 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/991348949.shtml)
+- 2026-06-29 23:44 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/825565.shtml)
+- 2026-06-29 23:53 - [天道](https://www.share.kurohicncr.top/Article/details/59468433068.shtml)
+- 2026-06-29 23:48 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/13358.shtml)
+- 2026-06-29 23:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/138128425264.shtml)
+- 2026-06-29 23:47 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/864343612.shtml)
+- 2026-06-29 23:42 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/985426.shtml)
+- 2026-06-29 23:51 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/71646.shtml)
+- 2026-06-29 23:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1283549637.shtml)
+- 2026-06-29 23:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/33131738248.shtml)

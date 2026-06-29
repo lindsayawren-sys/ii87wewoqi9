@@ -1,61 +1,61 @@
-# 东西问｜贾春阳：带滤镜看中国，欧洲议会正上演荒诞剧
+# 江风里听交响 “乐汇两江”点亮重庆艺术之夜
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月4日电 题：带滤镜看中国，欧洲议会正上演荒诞剧 作者 贾春阳 国务院发展研究中心民族发展研究所研究员 4月30日，欧洲议会上演了一出荒诞剧：通过一份涉华决议，对中国今年3月通过的民族团结进步促进法及中国民族政策大肆恶意抹黑。这种罔顾事实、满纸荒唐的指责，恰恰暴露了某些西方政客固守冷战思维的顽疾。 放眼当下，百年变局加速演进，地缘冲突久拖不决，全球经济持续低迷。欧洲
+中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。 重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。 没有传统剧院的围墙，只有晚风、江涛和满天星光。20
 
 ## 正文
 
-中新社北京5月4日电 题：带滤镜看中国，欧洲议会正上演荒诞剧 作者 贾春阳 国务院发展研究中心民族发展研究所研究员 4月30日，欧洲议会上演了一出荒诞剧：通过一份涉华决议，对中国今年3月通过的民族团结进步促进法及中国民族政策大肆恶意抹黑。
+中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。
 
-这种罔顾事实、满纸荒唐的指责，恰恰暴露了某些西方政客固守冷战思维的顽疾。
+5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。
 
-放眼当下，百年变局加速演进，地缘冲突久拖不决，全球经济持续低迷。
+重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。
 
-欧洲自身正深陷极右翼崛起、政治碎片化与经济停滞的“多重危机”之中，可谓焦头烂额。
+没有传统剧院的围墙，只有晚风、江涛和满天星光。
 
-然而，在自身治理一团乱麻之际，欧洲议会的某些“议员老爷”不去寻找出路，反倒隔着千山万水对中国指手画脚。
+20时整，重庆交响乐团以一曲欢快热烈的《蝙蝠序曲》拉开序幕，弦乐与铜管交相呼应，瞬间点燃现场气氛。
 
-这份颠倒黑白、充满偏见的决议，究竟说明了什么？
+这支深耕“交响乐中国化、重庆化”的乐团，展现出扎实的艺术功底与昂扬的时代风貌。
 
-其一，抱着“文明优越论”，走不出意识形态茧房。
+音乐会曲目中西合璧、精彩纷呈，既有《九儿》《天路》《亲吻祖国》等民族金曲，也有《春之声圆舞曲》《斗牛士之歌》等世界名篇。
 
-这份决议的出笼，根源在于欧洲议会仍未摒弃近代以来的“欧洲中心论”与文明优越感。
+张宇一曲《父亲的草原母亲的河》清澈悠远，沈晶晶演唱《天上雾腾腾》尽显民歌韵味，谭学胜献唱《天路》高亢磅礴，赵丹妮的花腔演绎华丽灵动，刘广带来《贝加尔湖畔》温暖醇厚，王丽达以《亲吻祖国》《共圆中国梦》将全场气氛推向高潮……每位艺术家都以独特的声音，在江风中留下难忘的回响。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 23:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 23:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 23:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 23:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 23:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 23:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 23:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 23:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 23:37 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 23:40 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 23:34 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 23:40 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:48 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:52 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 23:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 23:35 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 23:41 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:28 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:35 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 23:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 23:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 23:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 23:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 23:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 23:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 23:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 23:30 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/534766278.shtml)
-- 2026-06-29 23:21 - [时光音乐会](http://www.share.minike.top/Article/details/500249800.shtml)
-- 2026-06-29 23:40 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/6317310247.shtml)
-- 2026-06-29 23:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/374957147631.shtml)
-- 2026-06-29 23:21 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/6895970152.shtml)
-- 2026-06-29 23:29 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/584823996674.shtml)
-- 2026-06-29 23:42 - [逃狱兄弟](https://www.blog.minike.top/Article/details/18131.shtml)
-- 2026-06-29 23:38 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/79790.shtml)
-- 2026-06-29 23:44 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/95002233277.shtml)
-- 2026-06-29 23:30 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/39141.shtml)
-- 2026-06-29 23:38 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/4768672989.shtml)
-- 2026-06-29 23:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/37095.shtml)
-- 2026-06-29 23:34 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/80295079.shtml)
-- 2026-06-29 23:46 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/7942935061.shtml)
-- 2026-06-29 23:47 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/22874649.shtml)
+- 2026-06-29 23:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/39362772.shtml)
+- 2026-06-29 23:49 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/029032.shtml)
+- 2026-06-29 23:52 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/07681736793.shtml)
+- 2026-06-29 23:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/6707111.shtml)
+- 2026-06-29 23:42 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/609941714.shtml)
+- 2026-06-29 23:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/38236280.shtml)
+- 2026-06-29 23:49 - [美人鱼](http://www.share.kurohicncr.top/Article/details/97534137.shtml)
+- 2026-06-29 23:25 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/973483716.shtml)
+- 2026-06-29 23:29 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/528383138025.shtml)
+- 2026-06-29 23:41 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/5399554701.shtml)
+- 2026-06-29 23:49 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/154596.shtml)
+- 2026-06-29 23:35 - [世界杯](https://www.share.kurohicncr.top/Article/details/621323022.shtml)
+- 2026-06-29 23:32 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/26237.shtml)
+- 2026-06-29 23:42 - [美股](http://www.share.kurohicncr.top/Article/details/498877053.shtml)
+- 2026-06-29 23:48 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/160471831.shtml)

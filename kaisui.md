@@ -1,59 +1,56 @@
-# 世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍
+# 重庆银行股价、市值创五年新高，强劲表现的底层逻辑是什么？
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-随着2026年美加墨世界杯临近，美国部分主办城市的公共交通票价引发巨大争议。往返纽约至新泽西大都会人寿体育场的火车票价，从日常的12.9美元飙升至150美元，涨幅超过10倍。这一票价仅涵盖约30公里、半小时车程的短途旅行。 此次票价暴涨主要源于新泽西公共交通公司高达6200万美元的赛事运营成本，其中联邦政府和组委会仅承担了部分。新泽西州长米基·谢里尔直言：“新泽西纳税人不应为世
+两江财经 撰文|金融研究员 5月29日，重庆银行（601963）A股收报12.02元，单日涨幅5.90%，领涨银行板块。今年以来，该行A股股价累计涨幅12.75%，市值涨幅超20%，股价与市值双双创下近五年新高。尤其值得关注的是，该行不仅单日行情表现突出，年初至今，在5日、10日、20日、60日四个时间维度的股价，涨幅均居A股上市银行首位。 在分析人士看来，这既是重庆银行取得的
 
 ## 正文
 
-随着2026年美加墨世界杯临近，美国部分主办城市的公共交通票价引发巨大争议。
+两江财经 撰文|金融研究员 5月29日，重庆银行（601963）A股收报12.02元，单日涨幅5.90%，领涨银行板块。
 
-往返纽约至新泽西大都会人寿体育场的火车票价，从日常的12.9美元飙升至150美元，涨幅超过10倍。
+今年以来，该行A股股价累计涨幅12.75%，市值涨幅超20%，股价与市值双双创下近五年新高。
 
-这一票价仅涵盖约30公里、半小时车程的短途旅行。
+尤其值得关注的是，该行不仅单日行情表现突出，年初至今，在5日、10日、20日、60日四个时间维度的股价，涨幅均居A股上市银行首位。
 
-此次票价暴涨主要源于新泽西公共交通公司高达6200万美元的赛事运营成本，其中联邦政府和组委会仅承担了部分。
+在分析人士看来，这既是重庆银行取得的“十五五”开门红标志性成果，也是资本市场非常鲜明的重庆辨识度。
 
-新泽西州长米基·谢里尔直言：“新泽西纳税人不应为世界杯买单”，她呼吁国际足联承担这笔费用。
+那么重庆银行强劲的市场表现，到底有着什么样的逻辑呢？
 
-纽约州长凯西·霍楚尔也批评道：“支付超过100美元乘坐这么短的火车，在我看来太高了。
+第一层逻辑：基本面提供了有力支撑。
 
-” 这是自1994年美国世界杯以来，该赛事首次重返北美。
+业绩是股价可持续上涨的重要支撑。
 
-国际足联预计将从本届世界杯获得约110亿美元收入，而决赛门票最高已达1.1万美元。
+2025年年报显示，重庆银行全年实现营业收入151.13亿元，同比增长10.48%；归母净利润56.54亿元，同比增长10.49%。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 23:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:41 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 23:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 23:25 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 23:28 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 23:40 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 23:26 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 23:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 23:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 23:30 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 23:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 23:32 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 23:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 23:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 23:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 23:30 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 23:29 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 23:41 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 23:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 23:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 23:40 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 23:30 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [TOP Prada](http://www.blog.minike.top/Article/details/65325950856.shtml)
-- 2026-06-29 23:47 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/013659916037.shtml)
-- 2026-06-29 23:35 - [恋与深空致歉](http://www.share.minike.top/Article/details/26965367.shtml)
-- 2026-06-29 23:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/717797159872.shtml)
-- 2026-06-29 23:23 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/35715492504.shtml)
-- 2026-06-29 23:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/13648043.shtml)
-- 2026-06-29 23:29 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/825891552533.shtml)
-- 2026-06-29 23:46 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/3507521.shtml)
-- 2026-06-29 23:25 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/29893039692.shtml)
-- 2026-06-29 23:18 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/718589701.shtml)
-- 2026-06-29 23:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/520324088985.shtml)
-- 2026-06-29 23:45 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/066719.shtml)
-- 2026-06-29 23:30 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/318978.shtml)
-- 2026-06-29 23:40 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/578396675881.shtml)
-- 2026-06-29 23:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/83348677322.shtml)
+- 2026-06-29 23:47 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/878773774620.shtml)
+- 2026-06-29 23:47 - [乔家的儿女](https://www.share.minike.top/Article/details/16779.shtml)
+- 2026-06-29 23:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/574478.shtml)
+- 2026-06-29 23:44 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/361691540449.shtml)
+- 2026-06-29 23:36 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/49652664582.shtml)
+- 2026-06-29 23:37 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/769407631.shtml)
+- 2026-06-29 23:53 - [逃狱兄弟](http://www.share.minike.top/Article/details/86670837.shtml)
+- 2026-06-29 23:25 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2615823148.shtml)
+- 2026-06-29 23:25 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/2700272.shtml)
+- 2026-06-29 23:51 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/77195803133.shtml)
+- 2026-06-29 23:41 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/13242858.shtml)
+- 2026-06-29 23:50 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/61982289882.shtml)
+- 2026-06-29 23:38 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/835822.shtml)
+- 2026-06-29 23:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/3897292.shtml)
+- 2026-06-29 23:36 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/398126312.shtml)

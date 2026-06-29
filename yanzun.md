@@ -1,58 +1,57 @@
-# 山西北武当山非遗展演燃动“五一”
+# 锂电池出口暴增30%！化工板块延续强势，华宝基金化工ETF（516020）涨超2%！
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+化工板块今日（6月1日）午后延续强势。反映化工板块整体走势的化工ETF华宝（516020）持续高位震荡，截至发稿，场内价格涨2.19%。 成份股方面，氟化工、锂电等板块部分个股涨幅居前。截至发稿，圣泉集团、巨化股份双双涨停，新凤鸣、三美股份、昊华科技涨超8%，星源材质、易普力、桐昆股份等亦涨幅居前。 消息面上，5月29日，乘用车市场信息联席会秘书长崔东树发布4月锂电池出口分析。
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+化工板块今日（6月1日）午后延续强势。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+反映化工板块整体走势的化工ETF华宝（516020）持续高位震荡，截至发稿，场内价格涨2.19%。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+成份股方面，氟化工、锂电等板块部分个股涨幅居前。
 
-孩子吃饭少、长不高、脾气暴？
+截至发稿，圣泉集团、巨化股份双双涨停，新凤鸣、三美股份、昊华科技涨超8%，星源材质、易普力、桐昆股份等亦涨幅居前。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+消息面上，5月29日，乘用车市场信息联席会秘书长崔东树发布4月锂电池出口分析。
 
-中国文学何以打动世界读者？
+数据显示，2026年1-4月锂电池出口达到319亿美元，年增速达48%；4月锂电池出口暴增到80亿美元，同比增长30%。
 
-凤何以成为中华民族文化标识？
+中银证券表示，随着需求旺季来临，看好2026年全球新能源汽车销量有望保持较快增长，带动电池和材料需求增长。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+动力电池方面，锂电旺季来临，有望推动企业订单签订和盈利修复。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 23:19 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 23:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 23:40 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 23:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 23:24 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 23:33 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 23:33 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 23:24 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 23:46 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 23:31 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 23:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 23:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 23:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 23:27 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 23:48 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 23:29 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:40 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 23:42 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 23:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 23:51 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:46 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [锐评T1零封KC](https://www.share.minike.top/Article/details/1323051768.shtml)
-- 2026-06-29 23:22 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6041262.shtml)
-- 2026-06-29 23:41 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/865401066.shtml)
-- 2026-06-29 23:32 - [小娘惹](http://www.share.minike.top/Article/details/7003471.shtml)
-- 2026-06-29 23:37 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/52320604.shtml)
-- 2026-06-29 23:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/816075528944.shtml)
-- 2026-06-29 23:38 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/963912.shtml)
-- 2026-06-29 23:44 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/65470.shtml)
-- 2026-06-29 23:28 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/994777.shtml)
-- 2026-06-29 23:27 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/69115.shtml)
-- 2026-06-29 23:29 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/7815159727.shtml)
-- 2026-06-29 23:33 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/8869373722.shtml)
-- 2026-06-29 23:27 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/50984314.shtml)
-- 2026-06-29 23:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/57120523.shtml)
-- 2026-06-29 23:30 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/355864270562.shtml)
+- 2026-06-29 23:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/314906310.shtml)
+- 2026-06-29 23:25 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/038971397.shtml)
+- 2026-06-29 23:29 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/955238842610.shtml)
+- 2026-06-29 23:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/7549936.shtml)
+- 2026-06-29 23:45 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/71602.shtml)
+- 2026-06-29 23:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/9909902331.shtml)
+- 2026-06-29 23:35 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/6597239960.shtml)
+- 2026-06-29 23:27 - [周生如故](http://www.blog.minike.top/Article/details/3860500.shtml)
+- 2026-06-29 23:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/92032850957.shtml)
+- 2026-06-29 23:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/7181734.shtml)
+- 2026-06-29 23:53 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/38346816.shtml)
+- 2026-06-29 23:37 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/093759.shtml)
+- 2026-06-29 23:47 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/77299076402.shtml)
+- 2026-06-29 23:41 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/319329143.shtml)
+- 2026-06-29 23:32 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/493422798134.shtml)

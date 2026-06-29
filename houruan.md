@@ -1,57 +1,60 @@
-# 希腊财政部长：欧洲需要更多银行业整合
+# 股海导航_2026年6月1日_沪深股市公告与交易提示
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-希腊财政部长Kyriakos Pierrakakis表示，欧洲需要更多的银行业整合。 他在布鲁塞尔一次会议的间隙表示：“我们需要的是欧洲冠军企业，而不是国家冠军企业，而且，欧洲确实需要更多的银行业整合。我们需要更多的跨境并购。情况确实如此。“ 他说，评估形势的一个指标是，与美国的同行相比，欧洲银行的技术投资情况。责任编辑：李桐
+专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 603721 *ST天择 002848 *ST高斯 300685 艾德生物 002969 嘉美包装 【复牌】 600421 退市华嵘（维权） 600696 退市岩石 600636 退市国化（维权） 600599 退市熊猫（维权） 301096 百诚医药 000691 亚太实业 【热
 
 ## 正文
 
-希腊财政部长Kyriakos Pierrakakis表示，欧洲需要更多的银行业整合。
+专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-他在布鲁塞尔一次会议的间隙表示：“我们需要的是欧洲冠军企业，而不是国家冠军企业，而且，欧洲确实需要更多的银行业整合。
+【停牌】 603721 *ST天择 002848 *ST高斯 300685 艾德生物 002969 嘉美包装 【复牌】 600421 退市华嵘（维权） 600696 退市岩石 600636 退市国化（维权） 600599 退市熊猫（维权） 301096 百诚医药 000691 亚太实业 【热点】 *ST沪科（维权）：收到股票终止上市决定，6月8日进入退市整理期。
 
-我们需要更多的跨境并购。
+*ST创兴：收到股票终止上市决定，6月8日进入退市整理期。
 
-情况确实如此。
+*ST太和（维权）：收到股票终止上市决定，6月8日进入退市整理期。
 
-“ 他说，评估形势的一个指标是，与美国的同行相比，欧洲银行的技术投资情况。
+亨通光电：拟分拆控股子公司亨通华海至科创板上市。
 
-责任编辑：李桐
+汇成股份：已向香港联交所递交H股发行并上市申请。
+
+厦门钨业：控股子公司金龙稀土拟申请在北交所上市。
+
+3连板合锻智能：未取得核聚变和PCB相关业务收入。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 23:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 23:31 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 23:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 23:40 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 23:35 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 23:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 23:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 23:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 23:28 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 23:42 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 23:43 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 23:18 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 23:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 23:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 23:28 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 23:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 23:41 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 23:50 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 23:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 23:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 23:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 23:49 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 23:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 23:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 23:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 23:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/77231138453.shtml)
-- 2026-06-29 23:47 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/472422180.shtml)
-- 2026-06-29 23:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/358514672.shtml)
-- 2026-06-29 23:38 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/3180899905.shtml)
-- 2026-06-29 23:41 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/3040456653.shtml)
-- 2026-06-29 23:29 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/68300.shtml)
-- 2026-06-29 23:23 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/769877890672.shtml)
-- 2026-06-29 23:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/126865652.shtml)
-- 2026-06-29 23:18 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/4121551.shtml)
-- 2026-06-29 23:41 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/54295147039.shtml)
-- 2026-06-29 23:47 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/1567796430.shtml)
-- 2026-06-29 23:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/903168.shtml)
-- 2026-06-29 23:27 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/078975764705.shtml)
-- 2026-06-29 23:28 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/321153640045.shtml)
-- 2026-06-29 23:22 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/95940753.shtml)
+- 2026-06-29 23:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/16528.shtml)
+- 2026-06-29 23:34 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/87490964.shtml)
+- 2026-06-29 23:53 - [世界杯](http://www.blog.kurohicncr.top/Article/details/474488.shtml)
+- 2026-06-29 23:28 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/273908412811.shtml)
+- 2026-06-29 23:41 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/177221.shtml)
+- 2026-06-29 23:33 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/699381933279.shtml)
+- 2026-06-29 23:35 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/6779365.shtml)
+- 2026-06-29 23:44 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/902544600.shtml)
+- 2026-06-29 23:27 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/79094.shtml)
+- 2026-06-29 23:26 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/7988847.shtml)
+- 2026-06-29 23:28 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/797343352.shtml)
+- 2026-06-29 23:44 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/304817400258.shtml)
+- 2026-06-29 23:51 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/3970957.shtml)
+- 2026-06-29 23:25 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/940501.shtml)
+- 2026-06-29 23:27 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/58618.shtml)

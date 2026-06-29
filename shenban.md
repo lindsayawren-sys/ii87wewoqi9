@@ -1,59 +1,56 @@
-# 高盛：料碳酸锂价今年上半年见顶 赣锋锂业目标价上调至60港元
+# 美伊持续相互打击 伊方强调对谈判进展讨论均属猜测
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，由于短期内缺乏绿地投资项目，预示锂长远供应弹性有限。因此，未来锂周期的走向将主要取决于需求强度。2026至2027年锂市场若要维持上升周期，储能系统（ESS）及电动车均需录得大幅度增长。赣锋锂业（01772） 目标价由35港元上调至60港元，评级“沽售”；天齐锂业（09696） 目标价由26港元上调至48港元，评级“沽售”。 该行基本情境预期基准碳酸锂价格在今年
+中新社北京6月1日电 综合消息：伊朗伊斯兰革命卫队6月1日称，作为对美军袭击的回应，当天打击一处美军基地。美军中央司令部称，美军日前对伊朗军事设施实施打击。伊朗外长阿拉格齐5月31日就伊美谈判进展表示，当前讨论均属猜测。伊朗法尔斯通讯社6月1日称，伊朗伊斯兰革命卫队称，当天打击一处对伊发动袭击的美军空军基地并摧毁目标。伊方未说明该空军基地的具体位置。 美军中央司令部5月31日发
 
 ## 正文
 
-高盛发布研报称，由于短期内缺乏绿地投资项目，预示锂长远供应弹性有限。
+中新社北京6月1日电 综合消息：伊朗伊斯兰革命卫队6月1日称，作为对美军袭击的回应，当天打击一处美军基地。
 
-因此，未来锂周期的走向将主要取决于需求强度。
+美军中央司令部称，美军日前对伊朗军事设施实施打击。
 
-2026至2027年锂市场若要维持上升周期，储能系统（ESS）及电动车均需录得大幅度增长。
+伊朗外长阿拉格齐5月31日就伊美谈判进展表示，当前讨论均属猜测。
 
-赣锋锂业（01772） 目标价由35港元上调至60港元，评级“沽售”；天齐锂业（09696） 目标价由26港元上调至48港元，评级“沽售”。
+伊朗法尔斯通讯社6月1日称，伊朗伊斯兰革命卫队称，当天打击一处对伊发动袭击的美军空军基地并摧毁目标。
 
-该行基本情境预期基准碳酸锂价格在今年上半年见顶，达每吨16.4万元人民币（约2.1万美元），其后在今年下半年至2028年回落至每吨碳酸锂当量1.01万至1.6万美元。
+伊方未说明该空军基地的具体位置。
 
-需求方面，该行数据显示，今年上半年全球锂市场将维持紧张，但预计在今年下半年及2027年将出现20%至22%的供应过剩。
+美军中央司令部5月31日发表声明称，美军30日和31日对伊朗戈鲁克地区和格什姆岛的雷达及无人机指挥控制设施实施打击，摧毁伊方防空系统、一处地面控制站，以及对地区水域航行船只“构成明确威胁”的两架无人机。
 
-基于月度电动车销售及储能系统电池交付数据，该行估计今年首三个月全球锂需求同比增长25%。
+声明还称，上述打击旨在回应伊朗击落美军MQ-1无人机等行为。
 
-责任编辑：卢昱君
+伊朗伊斯兰革命卫队当天证实，5月31日凌晨，一架美军MQ-1无人机进入伊朗领海上空，伊方迅速发现并使用导弹将其击落。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 23:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 23:35 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 23:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 23:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 23:28 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 23:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 23:31 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 23:25 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 23:41 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 23:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 23:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 23:40 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 23:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 23:27 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 23:37 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 23:33 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 23:40 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 23:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 23:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/774997863.shtml)
-- 2026-06-29 23:28 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/895394.shtml)
-- 2026-06-29 23:25 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/50545738087.shtml)
-- 2026-06-29 23:29 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/790755.shtml)
-- 2026-06-29 23:43 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/385660.shtml)
-- 2026-06-29 23:37 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/9321660744.shtml)
-- 2026-06-29 23:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/923296974.shtml)
-- 2026-06-29 23:46 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/68246.shtml)
-- 2026-06-29 23:21 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/81521.shtml)
-- 2026-06-29 23:18 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/019668612131.shtml)
-- 2026-06-29 23:27 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/757506701492.shtml)
-- 2026-06-29 23:39 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/75201567.shtml)
-- 2026-06-29 23:30 - [世界杯](https://www.share.kurohicncr.top/Article/details/0085336529.shtml)
-- 2026-06-29 23:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/297753068.shtml)
-- 2026-06-29 23:47 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/28426817799.shtml)
+- 2026-06-29 23:37 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/6488782481.shtml)
+- 2026-06-29 23:32 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/708585452266.shtml)
+- 2026-06-29 23:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/1559799847.shtml)
+- 2026-06-29 23:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/2503963.shtml)
+- 2026-06-29 23:41 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/7518646377.shtml)
+- 2026-06-29 23:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/957008276338.shtml)
+- 2026-06-29 23:44 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/88036359.shtml)
+- 2026-06-29 23:27 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1057469546.shtml)
+- 2026-06-29 23:24 - [扬名立万](http://www.blog.minike.top/Article/details/041691168131.shtml)
+- 2026-06-29 23:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/42667.shtml)
+- 2026-06-29 23:34 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/518097154453.shtml)
+- 2026-06-29 23:32 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/124688.shtml)
+- 2026-06-29 23:52 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/2372998.shtml)
+- 2026-06-29 23:51 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/28235172.shtml)
+- 2026-06-29 23:26 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/4599424699.shtml)

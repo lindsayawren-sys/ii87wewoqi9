@@ -1,58 +1,60 @@
-# 让游客从“看戏人”到“戏中人”：一座小镇的红色文旅“变形记”
+# 五折接盘！中信银行9.8亿元入股“烟草系”城商行
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网晋中5月4日电 题：让游客从“看戏人”到“戏中人”：一座小镇的红色文旅“变形记” 作者 陆祁国 刚一走进桐峪1941小镇南门，时光仿佛被猛地拽回80多年前。 几名身着灰色八路军军装的NPC正笑呵呵地招呼着刚到的游客，“老乡，来来来，扭起来！”说着便拉起游客的手，在青石板街道上扭起了秧歌。动作不见得多标准，但那股子热乎劲儿，让原本还有些拘谨的游客瞬间放开手脚。 在山西左权县
+日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。股权受让方为中信银行，成交价9.8亿元。 红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。 2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推
 
 ## 正文
 
-中新网晋中5月4日电 题：让游客从“看戏人”到“戏中人”：一座小镇的红色文旅“变形记” 作者 陆祁国 刚一走进桐峪1941小镇南门，时光仿佛被猛地拽回80多年前。
+日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。
 
-几名身着灰色八路军军装的NPC正笑呵呵地招呼着刚到的游客，“老乡，来来来，扭起来！
+股权受让方为中信银行，成交价9.8亿元。
 
-”说着便拉起游客的手，在青石板街道上扭起了秧歌。
+红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。
 
-动作不见得多标准，但那股子热乎劲儿，让原本还有些拘谨的游客瞬间放开手脚。
+2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推动下，该行前身玉溪市商业银行增资扩股，引入中国烟草总公司云南省公司、云南合和（集团）股份有限公司等多家部属、省属企业作为其主要股东后，正式更名为云南红塔银行，成为中国烟草直属管理的城商行。
 
-在山西左权县桐峪1941小镇，游客不再是隔着围栏、安坐观众席的“看戏人”，而是随时可能被拉进“戏”里的“剧中人”。
+红塔银行2025年年报显示，昆明产投为该银行第四大股东，持股比例为14.52%。
 
-桐峪1941小镇现有横街、纵街两条主街道。
+与近年登上股权交易所或拍卖平台的其他中小银行股权一样，红塔银行此次股权转让也并不顺利。
 
-沿街而行，这样的相遇随处可见：身着对襟布衫的“商铺掌柜”，扎着麻花辫的“妇救会大姐”，头上扎着白毛巾的民间老艺人。
+今年4月，该笔股权首次挂牌，底价约10.21亿元，折合每股1.116元。
 
-“一开始以为是穿着玩儿的，后来发现这个‘交通员’能跟我聊好半天的边区故事。
+相比2025年末云南红塔银行每股净资产2.21元，折价幅度高达49.5%。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 23:32 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 23:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:25 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 23:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 23:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 23:29 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 23:45 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 23:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 23:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 23:33 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 23:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 23:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:42 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 23:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:25 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 23:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:24 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 23:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 23:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 23:37 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 23:42 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 23:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 23:35 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/81633.shtml)
-- 2026-06-29 23:26 - [周生如故](http://www.blog.minike.top/Article/details/159197302.shtml)
-- 2026-06-29 23:22 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/14650680.shtml)
-- 2026-06-29 23:19 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/510428365.shtml)
-- 2026-06-29 23:44 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/486921385402.shtml)
-- 2026-06-29 23:30 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/191312392.shtml)
-- 2026-06-29 23:46 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/71339.shtml)
-- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/47560.shtml)
-- 2026-06-29 23:46 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/1447837147.shtml)
-- 2026-06-29 23:22 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/68027205328.shtml)
-- 2026-06-29 23:31 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/91640161301.shtml)
-- 2026-06-29 23:19 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/45375318.shtml)
-- 2026-06-29 23:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/15111862352.shtml)
-- 2026-06-29 23:30 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/8964201875.shtml)
-- 2026-06-29 23:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/23019686.shtml)
+- 2026-06-29 23:37 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/59447895.shtml)
+- 2026-06-29 23:44 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/8381303605.shtml)
+- 2026-06-29 23:43 - [一生一世](https://www.blog.kurohicncr.top/Article/details/6825227.shtml)
+- 2026-06-29 23:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/270117376.shtml)
+- 2026-06-29 23:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/92493.shtml)
+- 2026-06-29 23:46 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/719968698.shtml)
+- 2026-06-29 23:46 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/458357.shtml)
+- 2026-06-29 23:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/571959145045.shtml)
+- 2026-06-29 23:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/260370983.shtml)
+- 2026-06-29 23:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/00559856062.shtml)
+- 2026-06-29 23:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/354195175900.shtml)
+- 2026-06-29 23:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/816692223742.shtml)
+- 2026-06-29 23:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4046439788.shtml)
+- 2026-06-29 23:25 - [蔚来车主罚站](https://www.share.minike.top/Article/details/51275346072.shtml)
+- 2026-06-29 23:24 - [第一炉香](http://www.share.minike.top/Article/details/87003328211.shtml)

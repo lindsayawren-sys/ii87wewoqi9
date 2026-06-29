@@ -1,59 +1,61 @@
-# 看非遗、玩非遗 传统文化吸睛“出圈” “国潮热”为假日经济添活力
+# “一人公司”刷屏：拆解OPC三个字母
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-央视网消息：“五一”假期，各地非遗场馆成为文旅消费的热门打卡地，沉浸式互动、亲手体验制作，传统文化走出展柜、走进生活，在假期里焕发别样生机。 “五一”假期走进福建泉州非遗馆，游客们不仅可以观看精彩的非遗布袋戏木偶表演，还能与演员现场互动，上手体验操控木偶；同时可挑选心仪的木偶样式，用画笔勾勒五官、设计造型，打造专属特色木偶。 除了掌中木偶，古朴雅致的红砖拓印、流光溢彩的烧箔画、
+2026年以来，“一人公司”(也称OPC，One Person Company)迅速成为创业领域的热门关键词之一。 近日，全国31省份“十五五”规划纲要全部发布。梳理发现，多地已明确将OPC写入地方规划。据不完全统计，截至今年5月底，全国已有超20个城市出台OPC专项扶持政策，OPC社区也在多地密集涌现。 OPC究竟是什么？人人都能成为OPC吗？拆解OPC本身，或许能找到答案。
 
 ## 正文
 
-央视网消息：“五一”假期，各地非遗场馆成为文旅消费的热门打卡地，沉浸式互动、亲手体验制作，传统文化走出展柜、走进生活，在假期里焕发别样生机。
+2026年以来，“一人公司”(也称OPC，One Person Company)迅速成为创业领域的热门关键词之一。
 
-“五一”假期走进福建泉州非遗馆，游客们不仅可以观看精彩的非遗布袋戏木偶表演，还能与演员现场互动，上手体验操控木偶；同时可挑选心仪的木偶样式，用画笔勾勒五官、设计造型，打造专属特色木偶。
+近日，全国31省份“十五五”规划纲要全部发布。
 
-除了掌中木偶，古朴雅致的红砖拓印、流光溢彩的烧箔画、精致小巧的油纸灯笼等非遗手作项目，也备受游客青睐。
+梳理发现，多地已明确将OPC写入地方规划。
 
-在体验过程中，游客既能近距离感受传统技艺的匠心，还能将亲手制作的作品带回家。
+据不完全统计，截至今年5月底，全国已有超20个城市出台OPC专项扶持政策，OPC社区也在多地密集涌现。
 
-假期走进浙江省非遗馆的互动体验区，一件件精美的翻簧竹雕作品整齐陈列。
+OPC究竟是什么？
 
-小朋友们在传承人的悉心指导下，握紧刻刀，在薄薄的竹簧上一笔一画勾线打磨。
+人人都能成为OPC吗？
 
-馆内配备的一台台“AI非遗体验一体机”化身为专业竹编导师，不仅详细讲解技艺要领，还能实时捕捉体验者动作，通过语音提示辅助完成作品，让非遗体验更具趣味性和专业性。
+拆解OPC本身，或许能找到答案。
 
-据了解，这个“五一”假期，浙江省非遗馆除了常态化开展30多个体验项目外，还专门开设13项非遗主题系列活动，满足不同群体的体验需求。
+01One 小规模主体+AI 首先，“一人公司”是什么？
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 23:26 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:26 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 23:21 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 23:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 23:44 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 23:46 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 23:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 23:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 23:47 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 23:33 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 23:38 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 23:38 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 23:41 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 23:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 23:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 23:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 23:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 23:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 23:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 23:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 23:33 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 23:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 23:30 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 23:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 23:37 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 23:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/927159762.shtml)
-- 2026-06-29 23:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/4224072270.shtml)
-- 2026-06-29 23:45 - [极限挑战第一季](https://www.blog.minike.top/Article/details/932007663656.shtml)
-- 2026-06-29 23:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/0785109246.shtml)
-- 2026-06-29 23:41 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/235202.shtml)
-- 2026-06-29 23:21 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/6573387.shtml)
-- 2026-06-29 23:30 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/29363209.shtml)
-- 2026-06-29 23:20 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/659783359612.shtml)
-- 2026-06-29 23:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/9692217564.shtml)
-- 2026-06-29 23:34 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/4634738.shtml)
-- 2026-06-29 23:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3277827940.shtml)
-- 2026-06-29 23:43 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/525116880.shtml)
-- 2026-06-29 23:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/43558848.shtml)
-- 2026-06-29 23:37 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/242449332.shtml)
-- 2026-06-29 23:33 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/72347.shtml)
+- 2026-06-29 23:49 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/5337297.shtml)
+- 2026-06-29 23:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/612213.shtml)
+- 2026-06-29 23:31 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/869346309919.shtml)
+- 2026-06-29 23:42 - [85花告别古偶](http://www.share.minike.top/Article/details/069887.shtml)
+- 2026-06-29 23:53 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/51641389.shtml)
+- 2026-06-29 23:25 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/221647.shtml)
+- 2026-06-29 23:35 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/99977490791.shtml)
+- 2026-06-29 23:51 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/17780728027.shtml)
+- 2026-06-29 23:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/8100519459.shtml)
+- 2026-06-29 23:47 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8858324958.shtml)
+- 2026-06-29 23:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/025641644767.shtml)
+- 2026-06-29 23:26 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/686928725807.shtml)
+- 2026-06-29 23:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/954036.shtml)
+- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/261989391354.shtml)
+- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/483586140612.shtml)

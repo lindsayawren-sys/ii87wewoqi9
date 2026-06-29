@@ -1,56 +1,60 @@
-# “盲目乐观”：伊朗战争引发油价冲击，市场正不知不觉滑向衰退
+# 霍尔木兹海峡，突发大消息！美国中央司令部警告
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-核心要点 能源咨询机构 Energy Aspect 创始人兼市场情报总监阿姆里塔・森周一在 CNBC《欧洲财经早间秀》节目中表示：受投资者持续低估油价冲击影响，全球经济正在浑然不觉中走向一场严重衰退。 尽管中东战事推高能源成本 —— 自 2 月 28 日美伊冲突爆发以来，油价涨幅已超 50%—— 标普 500 指数上周仍创下盘中历史新高，5 月 1 日触及 7230.12 点。
+关注美伊局势最新动态。 当地时间5月29日，围绕美伊谅解备忘录的博弈持续升温。美国总统特朗普重申强硬立场并称将“作出最终决定”，会后却被曝无果而终；而伊朗方面则坚决否认达成协议，指美方言论“真假参半”，并重申对霍尔木兹海峡的管控权。 与此同时，美军也在霍尔木兹海峡方向持续施压。29日，美国中央司令部警告称，将在霍尔木兹海峡附近开展军事行动，并以自卫名义打击参与或支持布设水雷的船
 
 ## 正文
 
-核心要点 能源咨询机构 Energy Aspect 创始人兼市场情报总监阿姆里塔・森周一在 CNBC《欧洲财经早间秀》节目中表示：受投资者持续低估油价冲击影响，全球经济正在浑然不觉中走向一场严重衰退。
+关注美伊局势最新动态。
 
-尽管中东战事推高能源成本 —— 自 2 月 28 日美伊冲突爆发以来，油价涨幅已超 50%—— 标普 500 指数上周仍创下盘中历史新高，5 月 1 日触及 7230.12 点。
+当地时间5月29日，围绕美伊谅解备忘录的博弈持续升温。
 
-森表示：“这是目前最令人费解的现象。
+美国总统特朗普重申强硬立场并称将“作出最终决定”，会后却被曝无果而终；而伊朗方面则坚决否认达成协议，指美方言论“真假参半”，并重申对霍尔木兹海峡的管控权。
 
-在我们看来，油价本应更高，而股市理应大幅走弱。
+与此同时，美军也在霍尔木兹海峡方向持续施压。
 
-” “我认为，我们正不知不觉步入一场规模不小的经济衰退。
+29日，美国中央司令部警告称，将在霍尔木兹海峡附近开展军事行动，并以自卫名义打击参与或支持布设水雷的船只。
 
-” 她认为当前许多投资者陷入极度盲目乐观的情绪，普遍低估本轮能源紧缺的影响，误以为冲击主要局限于亚洲经济体。
+美媒：特朗普推迟就伊朗相关协议作最终决定 据美国《纽约时报》29日援引一名不愿透露姓名的政府高级官员的话报道，美国总统特朗普当天在白宫战情室同其助手们的会议持续约两个小时，但并未就与伊朗的协议作出“最终决定”。
 
-石油输出国组织（OPEC）已承诺增产，但森提醒，此次增产更多只是象征性举措，远不足以填补市场供应缺口。
+特朗普当天早些时候在社交媒体发文重申美国对伊朗谈判的立场，并称“我现正前往战情室开会，以作出最终决定”。
 
-“一场巨大的能源危机” 她指出，关键要看霍尔木兹海峡何时重开、恢复多大运力以及恢复速度。
+特朗普说，伊朗必须同意永远不拥有核武器。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:26 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 23:35 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 23:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 23:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 23:36 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 23:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 23:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 23:41 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 23:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 23:49 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 23:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 23:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 23:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 23:24 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 23:25 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 23:53 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 23:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 23:28 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 23:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 23:48 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 23:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 23:36 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 23:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/258178044574.shtml)
-- 2026-06-29 23:31 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/4117984144.shtml)
-- 2026-06-29 23:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/754855401.shtml)
-- 2026-06-29 23:38 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/72062488129.shtml)
-- 2026-06-29 23:47 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/238657281.shtml)
-- 2026-06-29 23:40 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/661146562.shtml)
-- 2026-06-29 23:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/223299530867.shtml)
-- 2026-06-29 23:41 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/439979.shtml)
-- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/660222957.shtml)
-- 2026-06-29 23:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/865455733.shtml)
-- 2026-06-29 23:43 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/089323.shtml)
-- 2026-06-29 23:24 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/9590732735.shtml)
-- 2026-06-29 23:18 - [刘念回应](http://www.blog.minike.top/Article/details/09485103.shtml)
-- 2026-06-29 23:18 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/275852335.shtml)
-- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/207610.shtml)
+- 2026-06-29 23:39 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/1559380405.shtml)
+- 2026-06-29 23:30 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/741207125843.shtml)
+- 2026-06-29 23:49 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/403700.shtml)
+- 2026-06-29 23:26 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/72469027786.shtml)
+- 2026-06-29 23:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/759524.shtml)
+- 2026-06-29 23:29 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/639670188.shtml)
+- 2026-06-29 23:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/91419355169.shtml)
+- 2026-06-29 23:49 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/4193090619.shtml)
+- 2026-06-29 23:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/358393508.shtml)
+- 2026-06-29 23:37 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/29826008.shtml)
+- 2026-06-29 23:36 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/343435556576.shtml)
+- 2026-06-29 23:24 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/458263650416.shtml)
+- 2026-06-29 23:50 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/79177003.shtml)
+- 2026-06-29 23:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/84494.shtml)
+- 2026-06-29 23:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/669303087.shtml)

@@ -1,58 +1,46 @@
-# 美联邦机构起诉《纽约时报》 指控其晋升决策涉嫌歧视白人男性
+# 庆“六一” 七部门联合启动主题活动
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-美国平等就业机会委员会（EEOC）周二向纽约南区联邦法院提起诉讼，指控《纽约时报》因过于追求多元化目标，在晋升高级编辑职位时存在基于种族和性别的歧视行为，违反了美国《民权法案》第七章。 这起备受瞩目的案件源于一名白人男性员工的投诉。据诉状文件显示，该员工此前申请了报社内部的一个高层编辑岗位，但最终并未获得认真考虑，职位被一位资质较低的候选人获得。EEOC指控称，这一决策背后是《
+发布时间：2026年06月01日 15:39 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-美国平等就业机会委员会（EEOC）周二向纽约南区联邦法院提起诉讼，指控《纽约时报》因过于追求多元化目标，在晋升高级编辑职位时存在基于种族和性别的歧视行为，违反了美国《民权法案》第七章。
-
-这起备受瞩目的案件源于一名白人男性员工的投诉。
-
-据诉状文件显示，该员工此前申请了报社内部的一个高层编辑岗位，但最终并未获得认真考虑，职位被一位资质较低的候选人获得。
-
-EEOC指控称，这一决策背后是《纽约时报》为满足内部设定的多元化目标而有意识行事的证据。
-
-诉讼正值共和党控制的EEOC严厉打击企业多元化、公平与包容（DEI）计划之际。
-
-该机构主席安德里亚·卢卡斯明确将DEI项目列为首要打击对象。
-
-针对这一指控，《纽约时报》发言人丹妮尔·罗兹·哈强烈否认了指控的合法性。
-
-《纽约时报》发言人表示，公司坚决拒绝接受特朗普政府EEOC提出的毫无根据且出于政治动机的指控。
+发布时间：2026年06月01日 15:39 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 23:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 23:35 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 23:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 23:21 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 23:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 23:18 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 23:32 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 23:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 23:46 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 23:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 23:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 23:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 23:24 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 23:25 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 23:51 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 23:53 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 23:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 23:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 23:49 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 23:46 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 23:35 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/582569367.shtml)
-- 2026-06-29 23:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/84578882129.shtml)
-- 2026-06-29 23:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/83152780273.shtml)
-- 2026-06-29 23:36 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/524108372.shtml)
-- 2026-06-29 23:44 - [恋与深空致歉](http://www.share.minike.top/Article/details/635970586938.shtml)
-- 2026-06-29 23:43 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/53964653379.shtml)
-- 2026-06-29 23:32 - [勇敢的心第二部](https://www.share.minike.top/Article/details/536727207.shtml)
-- 2026-06-29 23:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/6594540.shtml)
-- 2026-06-29 23:31 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/3426895.shtml)
-- 2026-06-29 23:19 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/06844739511.shtml)
-- 2026-06-29 23:19 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/06615451957.shtml)
-- 2026-06-29 23:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/642639222311.shtml)
-- 2026-06-29 23:41 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/73036409578.shtml)
-- 2026-06-29 23:37 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/967064.shtml)
-- 2026-06-29 23:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/65530061449.shtml)
+- 2026-06-29 23:37 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/06845.shtml)
+- 2026-06-29 23:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/09668505.shtml)
+- 2026-06-29 23:38 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/4890008993.shtml)
+- 2026-06-29 23:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/189726056.shtml)
+- 2026-06-29 23:47 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/49151282.shtml)
+- 2026-06-29 23:34 - [沙丘](https://www.share.minike.top/Article/details/56075437.shtml)
+- 2026-06-29 23:51 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/71533.shtml)
+- 2026-06-29 23:48 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/443679858815.shtml)
+- 2026-06-29 23:40 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/28617.shtml)
+- 2026-06-29 23:53 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/76021124.shtml)
+- 2026-06-29 23:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/8770136800.shtml)
+- 2026-06-29 23:30 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/4921191532.shtml)
+- 2026-06-29 23:46 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/0123191.shtml)
+- 2026-06-29 23:39 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/731889147.shtml)
+- 2026-06-29 23:34 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/307067.shtml)

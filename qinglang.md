@@ -1,58 +1,56 @@
-# 中国游中国购热情持续高涨
+# 激光精准灭蚊国货闯国际 江苏一科创产品海外受追捧
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-“购在中国”活动正如火如荼开展。各地围绕扩大优质商品和服务供给、创新多元化消费场景、促进商旅文体健深度融合、建设国际化消费环境等方面发力，创新培育了一批品质优、信誉好的中国消费名品，形成一批高水平、高能级的文化演出、文博展览和体育赛事矩阵，打造出一批多元业态融合、优质资源集聚的特色商圈和街区。“五一”假期，丰富多彩的活动和质优价美的产品供给，不仅满足了国内消费者的需求，也让不少
+发布时间：2026年06月01日 08:12 来源：中国新闻网 夏季蚊虫多发，安全高效的灭蚊产品需求持续攀升。江苏常州一家科创企业自主研发的便携式激光灭蚊设备，备受海外市场青睐。产品收获海外好评的背后，是研发团队多年的技术攻坚。企业负责人王川分享了产品的研发与出海历程。 区别于传统灭蚊产品，该设备搭载智能防控系统，配备多重安全防护机制，使用安全稳定。研发团队融合激光雷达、AI视
 
 ## 正文
 
-“购在中国”活动正如火如荼开展。
+发布时间：2026年06月01日 08:12 来源：中国新闻网 夏季蚊虫多发，安全高效的灭蚊产品需求持续攀升。
 
-各地围绕扩大优质商品和服务供给、创新多元化消费场景、促进商旅文体健深度融合、建设国际化消费环境等方面发力，创新培育了一批品质优、信誉好的中国消费名品，形成一批高水平、高能级的文化演出、文博展览和体育赛事矩阵，打造出一批多元业态融合、优质资源集聚的特色商圈和街区。
+江苏常州一家科创企业自主研发的便携式激光灭蚊设备，备受海外市场青睐。
 
-“五一”假期，丰富多彩的活动和质优价美的产品供给，不仅满足了国内消费者的需求，也让不少外国游客体验了“中国游”“中国购”的精彩。
+产品收获海外好评的背后，是研发团队多年的技术攻坚。
 
-一家老店 特色产品凭借实力出圈 “五一”假期首日，天津古文化街人气颇旺。
+企业负责人王川分享了产品的研发与出海历程。
 
-听完相声，又买下几幅杨柳青木版年画后，俄罗斯女孩尤利娅直奔此行的重要目的地——达仁堂健康生活馆。
+区别于传统灭蚊产品，该设备搭载智能防控系统，配备多重安全防护机制，使用安全稳定。
 
-“我们一家人都对中医养生感兴趣。
+研发团队融合激光雷达、AI视觉等前沿技术，优化算法参数，攻克微型目标识别等核心难题，持续迭代产品性能。
 
-”尤利娅告诉记者，在她的家乡莫斯科，有不少中医养生馆，她是养生馆的常客，最喜欢中医推拿和针灸。
+目前，产品已收获海外订单，量产筹备工作稳步推进。
 
-来天津前，她特地查了攻略，“听说这家店有很多中式养生产品。
+未来企业将持续深耕激光防控技术，拓展多元应用场景，释放科创技术价值。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 23:47 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 23:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 23:28 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 23:34 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 23:32 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 23:47 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 23:47 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 23:42 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 23:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 23:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 23:51 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 23:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 23:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 23:34 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 23:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 23:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 23:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 23:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 23:32 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/95401.shtml)
-- 2026-06-29 23:31 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/497271115.shtml)
-- 2026-06-29 23:42 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/5551622176.shtml)
-- 2026-06-29 23:30 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/549281.shtml)
-- 2026-06-29 23:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/205591679.shtml)
-- 2026-06-29 23:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/55411.shtml)
-- 2026-06-29 23:30 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/68974192.shtml)
-- 2026-06-29 23:46 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/0607523.shtml)
-- 2026-06-29 23:46 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/87754.shtml)
-- 2026-06-29 23:36 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/221561.shtml)
-- 2026-06-29 23:23 - [啊啊啊](http://www.blog.minike.top/Article/details/642572059328.shtml)
-- 2026-06-29 23:46 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/12630707.shtml)
-- 2026-06-29 23:45 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/232508288989.shtml)
-- 2026-06-29 23:43 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/06590.shtml)
-- 2026-06-29 23:19 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/385224.shtml)
+- 2026-06-29 23:33 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/515828975.shtml)
+- 2026-06-29 23:46 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/134183764083.shtml)
+- 2026-06-29 23:37 - [世界杯](http://www.share.kurohicncr.top/Article/details/9203146188.shtml)
+- 2026-06-29 23:25 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/4667186575.shtml)
+- 2026-06-29 23:29 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/473020.shtml)
+- 2026-06-29 23:36 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/703786774655.shtml)
+- 2026-06-29 23:47 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/177615842.shtml)
+- 2026-06-29 23:31 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/349835371427.shtml)
+- 2026-06-29 23:29 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/938426.shtml)
+- 2026-06-29 23:32 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/7771728.shtml)
+- 2026-06-29 23:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/687854.shtml)
+- 2026-06-29 23:26 - [第一炉香](https://www.share.kurohicncr.top/Article/details/77237565.shtml)
+- 2026-06-29 23:48 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/95794897.shtml)
+- 2026-06-29 23:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/41661.shtml)
+- 2026-06-29 23:34 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/284445.shtml)

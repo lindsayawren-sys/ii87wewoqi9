@@ -1,60 +1,52 @@
-# 非遗“焕新”展演 点亮福建宁德“五一”假日文旅
+# 香港组建“机器人义工队” 机器狗将走进香港安老院
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网福建宁德5月5日电 题：非遗“焕新”展演 点亮福建宁德“五一”假日文旅 作者 叶茂 甘叶斌 褚子强 从焕新登场的千年线狮表演，到绚丽夺目的畲族“火凤凰”展演，再到创意十足的剪纸盛宴……今年“五一”假期，在福建省宁德市，非遗以年轻化、场景化、数字化崭新姿态，既留住传统文化根脉，也点燃了假日经济的热情。 在蕉城区霍童镇的线狮馆内，国家级非物质文化遗产代表性项目霍童线狮迎来“五
+发布时间：2026年05月30日 12:14 来源：中国新闻网 5月29日，香港机器人义工队协会举行启动仪式。现场展现了多个将用于义工队的机器人、机器狗。据介绍，这些机器产品将在探访安老院、社区关爱等公益活动中发挥陪伴的价值。 普斯特有限公司创办人许佩珊表示，学生完成课程后将加入机器人义工队，参与政府或慈善团体的活动，展示所学技能。(记者 周圣昀) 责任编辑：【王凯】
 
 ## 正文
 
-中新网福建宁德5月5日电 题：非遗“焕新”展演 点亮福建宁德“五一”假日文旅 作者 叶茂 甘叶斌 褚子强 从焕新登场的千年线狮表演，到绚丽夺目的畲族“火凤凰”展演，再到创意十足的剪纸盛宴……今年“五一”假期，在福建省宁德市，非遗以年轻化、场景化、数字化崭新姿态，既留住传统文化根脉，也点燃了假日经济的热情。
+发布时间：2026年05月30日 12:14 来源：中国新闻网 5月29日，香港机器人义工队协会举行启动仪式。
 
-在蕉城区霍童镇的线狮馆内，国家级非物质文化遗产代表性项目霍童线狮迎来“五一”焕新首演。
+现场展现了多个将用于义工队的机器人、机器狗。
 
-这项拥有1300多年历史的“以索驭狮”传统技艺，借助LED巨幕、环绕立体声等现代科技，搭配原创音乐与叙事舞蹈，营造出沉浸式剧场体验。
+据介绍，这些机器产品将在探访安老院、社区关爱等公益活动中发挥陪伴的价值。
 
-现场，表演者在幕后以绳索精准操控线狮，完成凌空腾跃、扑球抢珠、辗转腾挪等高难度动作。
+普斯特有限公司创办人许佩珊表示，学生完成课程后将加入机器人义工队，参与政府或慈善团体的活动，展示所学技能。
 
-来自福州市的游客林芳说，线狮一跃之间，尽显千年传承的厚重与灵动。
-
-霍童线狮又称“抽狮”，传承中华狮舞千年文化，是一种集文功、武功于一身的传统民俗文化，被誉为“中华一绝”。
-
-此次线狮馆改造，通过科技赋能，让千年线狮从传统的“二月二”灯会走进现代剧场。
-
-蕉城区文体和旅游局相关负责人称，不仅要让线狮“活”下来，更要让它火起来、传下去。
+(记者 周圣昀) 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 23:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 23:32 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 23:47 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 23:42 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 23:23 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 23:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 23:29 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 23:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 23:31 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 23:21 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 23:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 23:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 23:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 23:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 23:52 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 23:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 23:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 23:34 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 23:34 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 23:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 23:47 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/668715.shtml)
-- 2026-06-29 23:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/37332509.shtml)
-- 2026-06-29 23:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/92564.shtml)
-- 2026-06-29 23:45 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/59199631.shtml)
-- 2026-06-29 23:44 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/0030615.shtml)
-- 2026-06-29 23:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/3007789761.shtml)
-- 2026-06-29 23:33 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/439054648571.shtml)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/113841655744.shtml)
-- 2026-06-29 23:47 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/2392401142.shtml)
-- 2026-06-29 23:24 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/409314.shtml)
-- 2026-06-29 23:46 - [这一刀 会很帅](https://www.share.minike.top/Article/details/12730468991.shtml)
-- 2026-06-29 23:20 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/567259688.shtml)
-- 2026-06-29 23:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/06334649658.shtml)
-- 2026-06-29 23:34 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/709080614.shtml)
-- 2026-06-29 23:18 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/6898241999.shtml)
+- 2026-06-29 23:24 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/0975898776.shtml)
+- 2026-06-29 23:51 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/91199095694.shtml)
+- 2026-06-29 23:52 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/3801306.shtml)
+- 2026-06-29 23:28 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/932270.shtml)
+- 2026-06-29 23:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/54084.shtml)
+- 2026-06-29 23:41 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/559138519472.shtml)
+- 2026-06-29 23:42 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/79435.shtml)
+- 2026-06-29 23:34 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/01535893684.shtml)
+- 2026-06-29 23:33 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/296986.shtml)
+- 2026-06-29 23:25 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/2641000185.shtml)
+- 2026-06-29 23:53 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/047790974.shtml)
+- 2026-06-29 23:45 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/1351939.shtml)
+- 2026-06-29 23:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/12990404.shtml)
+- 2026-06-29 23:30 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/982064961674.shtml)
+- 2026-06-29 23:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/541492.shtml)

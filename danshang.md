@@ -1,56 +1,59 @@
-# 澳大利亚与日本加强关键矿产领域合作
+# 俄总统新闻秘书：法国扣押油轮近乎“国际海盗行径”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-在日本首相进行国事访问期间，澳大利亚与日本深化了关键矿产领域合作。两国合计将为该领域提供 16.7 亿澳元（折合 12 亿美元） 资金支持，并表示后续还将追加投入。 澳大利亚政府在声明中称，澳日两国将聚焦战略项目，着力解决双方在采矿、精炼及制造环节供应链最紧迫的安全短板问题。 声明透露，澳大利亚计划出资至多 13 亿澳元，日本政府已投入约 3.7 亿澳元的投资与补贴，并表示将随
+中新网6月1日电 据俄罗斯卫星网1日报道，俄罗斯总统新闻秘书佩斯科夫表示，克里姆林宫认为法国扣押“泰戈尔”号油轮的行为“非法”，近乎“国际海盗行径”。 据此前报道，法国总统马克龙在社交媒体发文称，法国海军5月31日在大西洋海域拦截了一艘从俄罗斯驶出的油轮。他说，上述行动在国际海域进行，获得英国等多个伙伴国家配合，行动严格遵守海洋领域相关国际法。 对此，俄罗斯总统新闻秘书佩斯科夫
 
 ## 正文
 
-在日本首相进行国事访问期间，澳大利亚与日本深化了关键矿产领域合作。
+中新网6月1日电 据俄罗斯卫星网1日报道，俄罗斯总统新闻秘书佩斯科夫表示，克里姆林宫认为法国扣押“泰戈尔”号油轮的行为“非法”，近乎“国际海盗行径”。
 
-两国合计将为该领域提供 16.7 亿澳元（折合 12 亿美元） 资金支持，并表示后续还将追加投入。
+据此前报道，法国总统马克龙在社交媒体发文称，法国海军5月31日在大西洋海域拦截了一艘从俄罗斯驶出的油轮。
 
-澳大利亚政府在声明中称，澳日两国将聚焦战略项目，着力解决双方在采矿、精炼及制造环节供应链最紧迫的安全短板问题。
+他说，上述行动在国际海域进行，获得英国等多个伙伴国家配合，行动严格遵守海洋领域相关国际法。
 
-声明透露，澳大利亚计划出资至多 13 亿澳元，日本政府已投入约 3.7 亿澳元的投资与补贴，并表示将随着项目推进持续追加投资和补助。
+对此，俄罗斯总统新闻秘书佩斯科夫表示，“我们认为这种行为非法，近乎国际海盗行径。
 
-双方案以双日株式会社、日本金属能源安全机构长期支持澳大利亚莱纳斯公司为合作基础。
+我们绝不同意所谓‘这些行动完全符合国际法’的说法。
 
-莱纳斯是中国以外全球最大稀土生产商。
+” 据报道，俄罗斯驻巴黎大使馆还表示，法国并未就其针对该船的行动通知俄方。
 
-有望获得政府资金扶持的项目包括： 责任编辑：郭明煜
+俄罗斯大使馆指出，根据初步信息，该油轮的船长是俄罗斯公民。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 23:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 23:31 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 23:35 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:40 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 23:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 23:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 23:31 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 23:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 23:44 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 23:24 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 23:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 23:52 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 23:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 23:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 23:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 23:35 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 23:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 23:53 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 23:36 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 23:33 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 23:44 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 23:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 23:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/2778047061.shtml)
-- 2026-06-29 23:33 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/054575.shtml)
-- 2026-06-29 23:37 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/06745859429.shtml)
-- 2026-06-29 23:44 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/6058183092.shtml)
-- 2026-06-29 23:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/18457522724.shtml)
-- 2026-06-29 23:34 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/9887125.shtml)
-- 2026-06-29 23:43 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/40219.shtml)
-- 2026-06-29 23:19 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/3459763470.shtml)
-- 2026-06-29 23:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/0898665.shtml)
-- 2026-06-29 23:38 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/255661.shtml)
-- 2026-06-29 23:46 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/097500170191.shtml)
-- 2026-06-29 23:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/09217.shtml)
-- 2026-06-29 23:37 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/2259985.shtml)
-- 2026-06-29 23:31 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/51318524885.shtml)
-- 2026-06-29 23:43 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/46666.shtml)
+- 2026-06-29 23:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/45972823.shtml)
+- 2026-06-29 23:24 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/6861449.shtml)
+- 2026-06-29 23:31 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/92373715607.shtml)
+- 2026-06-29 23:29 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/908672206.shtml)
+- 2026-06-29 23:25 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/110503.shtml)
+- 2026-06-29 23:31 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3591069.shtml)
+- 2026-06-29 23:27 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/85757700.shtml)
+- 2026-06-29 23:30 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/180782111.shtml)
+- 2026-06-29 23:31 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/404006978963.shtml)
+- 2026-06-29 23:25 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/96852152.shtml)
+- 2026-06-29 23:44 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/3157034.shtml)
+- 2026-06-29 23:47 - [毒液2](http://www.blog.kurohicncr.top/Article/details/225707.shtml)
+- 2026-06-29 23:29 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/31512688120.shtml)
+- 2026-06-29 23:24 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/9993482344.shtml)
+- 2026-06-29 23:51 - [急先锋](http://www.blog.kurohicncr.top/Article/details/48041993845.shtml)

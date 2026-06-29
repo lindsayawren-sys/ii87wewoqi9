@@ -1,53 +1,60 @@
-# 特朗普威胁伊朗：若敢袭击美国船只将“从地球上被抹去”
+# Pinterest证券欺诈集体诉讼首席原告申请截止日将至
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普警告伊朗不要攻击霍尔木兹海峡附近的美国船只，他对一名福斯新闻记者表示，此举将带来严重后果。 据周一采访特朗普的福斯新闻记者特雷·英斯特称，特朗普表示，如果伊朗将目标对准美国船只，伊朗将“从地球上被抹去”。英斯特还称，特朗普表示美国正继续在该地区集结军事力量。责任编辑：李桐
+Pinterest公司正面临多起证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。 诉讼覆盖2025年2月7日至2026年2月12日期间购买Pinterest证券的投资者。指控称，Pinterest及其高管在此期间作出了虚假和误导性陈述，未能向投资者披露以下关键事实：公司正经历或可能经历广告合作伙伴收入减少；公司夸大了应对美国关税对经营环境
 
 ## 正文
 
-美国总统特朗普警告伊朗不要攻击霍尔木兹海峡附近的美国船只，他对一名福斯新闻记者表示，此举将带来严重后果。
+Pinterest公司正面临多起证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。
 
-据周一采访特朗普的福斯新闻记者特雷·英斯特称，特朗普表示，如果伊朗将目标对准美国船只，伊朗将“从地球上被抹去”。
+诉讼覆盖2025年2月7日至2026年2月12日期间购买Pinterest证券的投资者。
 
-英斯特还称，特朗普表示美国正继续在该地区集结军事力量。
+指控称，Pinterest及其高管在此期间作出了虚假和误导性陈述，未能向投资者披露以下关键事实：公司正经历或可能经历广告合作伙伴收入减少；公司夸大了应对美国关税对经营环境影响的能力；关税对广告收入的影响已严重到公司面临迫在眉睫的重组。
 
-责任编辑：李桐
+真相逐步浮出水面。
+
+2025年11月4日，Pinterest公布第四季度营收指引低于市场预期，承认“大型美国零售商在应对关税相关利润压力时出现广告支出放缓”。
+
+该消息导致股价暴跌21.76%，收于每股25.75美元。
+
+2026年1月27日，Pinterest宣布全球重组计划，裁员比例低于15%，预计产生3500万至4500万美元重组费用。
+
+消息公布后股价再跌9.61%。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 23:30 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 23:24 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 23:31 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 23:26 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 23:34 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 23:21 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 23:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 23:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 23:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 23:47 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 23:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 23:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 23:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:33 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 23:53 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:33 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 23:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 23:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 23:27 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:25 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:48 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 23:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 23:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 23:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 23:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 23:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/070689151.shtml)
-- 2026-06-29 23:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/610566157.shtml)
-- 2026-06-29 23:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/41140128888.shtml)
-- 2026-06-29 23:43 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/541966495274.shtml)
-- 2026-06-29 23:42 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/974348675.shtml)
-- 2026-06-29 23:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/1843892.shtml)
-- 2026-06-29 23:20 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/32662.shtml)
-- 2026-06-29 23:19 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/01626948524.shtml)
-- 2026-06-29 23:28 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/621882509916.shtml)
-- 2026-06-29 23:47 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/570601449.shtml)
-- 2026-06-29 23:39 - [85花告别古偶](http://www.share.minike.top/Article/details/88188127.shtml)
-- 2026-06-29 23:26 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/67954.shtml)
-- 2026-06-29 23:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/54345.shtml)
-- 2026-06-29 23:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/9619681051.shtml)
-- 2026-06-29 23:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/2857921570.shtml)
+- 2026-06-29 23:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/011506360.shtml)
+- 2026-06-29 23:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/6991213.shtml)
+- 2026-06-29 23:32 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/621767447.shtml)
+- 2026-06-29 23:38 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/05152181.shtml)
+- 2026-06-29 23:34 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/60080955256.shtml)
+- 2026-06-29 23:38 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/274835587394.shtml)
+- 2026-06-29 23:51 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/81372896.shtml)
+- 2026-06-29 23:32 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/1269061766.shtml)
+- 2026-06-29 23:36 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/845848593087.shtml)
+- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/403019528760.shtml)
+- 2026-06-29 23:53 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/10766512.shtml)
+- 2026-06-29 23:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/87610.shtml)
+- 2026-06-29 23:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/422164.shtml)
+- 2026-06-29 23:33 - [小娘惹](https://www.share.kurohicncr.top/Article/details/67780611772.shtml)
+- 2026-06-29 23:24 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/4509272683.shtml)

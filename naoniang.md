@@ -1,61 +1,58 @@
-# 全国大部降水增多 冷空气将自北向南制造降温
+# Mobileye获评Frost & Sullivan 2026年全球乘用车ADAS行业年度公司
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。 南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。 随着
+Mobileye近日被弗若斯特沙利文评为2026年全球乘用车高级驾驶辅助系统行业年度公司，这是该机构授予的最高行业荣誉。该奖项表彰了Mobileye在可扩展ADAS解决方案方面的全球市场领导地位。 弗若斯特沙利文的分析指出，Mobileye在ADAS领域作为领先供应商脱颖而出，在可扩展架构、成本控制、安全可信度和真实世界验证四个关键要求上均有出色表现，其技术平台覆盖从基础ADA
 
 ## 正文
 
-中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。
+Mobileye近日被弗若斯特沙利文评为2026年全球乘用车高级驾驶辅助系统行业年度公司，这是该机构授予的最高行业荣誉。
 
-随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。
+该奖项表彰了Mobileye在可扩展ADAS解决方案方面的全球市场领导地位。
 
-南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。
+弗若斯特沙利文的分析指出，Mobileye在ADAS领域作为领先供应商脱颖而出，在可扩展架构、成本控制、安全可信度和真实世界验证四个关键要求上均有出色表现，其技术平台覆盖从基础ADAS到完全自动驾驶的全系列解决方案。
 
-随着暖湿气流加强北上、冷空气南下，今起三天，南方地区自西向东将有新一轮降水过程，部分地区有暴雨，并伴有短时强降水、雷暴大风等强对流天气。
+报告特别强调了Mobileye将客户需求转化为实际执行的能力，通过灵活的协作模式，让汽车制造商可以根据自身需求选择采用其技术，无论是作为芯片供应商还是更广泛的技术合作伙伴。
 
-在北方，今天降水范围有所扩大，强度总体不强，明天起大部地区将回归晴朗。
+Mobileye首席运营官Kobi Ohayon表示：“全球汽车制造商越来越需要既能提高安全性又能提供新自动驾驶服务的系统，我们根据这些挑战调整战略和执行方案，实现规模化部署。
 
-中央气象台预计，今天，西藏中西部、新疆南疆高海拔山区、青海东部和南部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；东北地区中东部、陕西中南部、河北南部、山东中北部、重庆东北部、江汉大部、贵州中东部、湖南中北部、广西北部、西藏东南部等地部分地区有中到大雨，其中，湖北中部、湖南西部和北部、贵州中部等地部分地区有暴雨。
+我们让汽车制造商能够实施针对当地驾驶条件定制的解决方案，并设计用于真实场景。
 
-明天，西藏中部、青海大部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；湖北东部、安徽南部、江南大部、广西中东部、广东中北部等地部分地区有中到大雨，其中，湖南南部、江西东北部、浙江西南部、福建西北部、广东中北部等地部分地区有暴雨。
+弗若斯特沙利文的这一认可证实了我们的方法在整个行业引起了共鸣。
 
-后天，西藏东北部、青海南部和东部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；福建东南部、广东南部、广西东南部、海南岛北部、台湾岛东部、云南南部等地部分地区有中到大雨，其中，广东西南部和东北部等地部分地区有暴雨。
+” 弗若斯特沙利文特别提到，Mobileye在印度等新兴市场的成功是其能够在复杂驾驶环境中有效运营的典范。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 23:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 23:18 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 23:31 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 23:27 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 23:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 23:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 23:31 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 23:23 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 23:21 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 23:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 23:22 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 23:46 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 23:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 23:36 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 23:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:36 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:43 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 23:31 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 23:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 23:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 23:47 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 23:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 23:25 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 23:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/1550772182.shtml)
-- 2026-06-29 23:47 - [新官上任三把火](http://www.share.minike.top/Article/details/37265.shtml)
-- 2026-06-29 23:29 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/9520127183.shtml)
-- 2026-06-29 23:47 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/89990.shtml)
-- 2026-06-29 23:21 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/71635499502.shtml)
-- 2026-06-29 23:18 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/124681.shtml)
-- 2026-06-29 23:38 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/47150013.shtml)
-- 2026-06-29 23:32 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/20604211.shtml)
-- 2026-06-29 23:36 - [极限挑战第一季](http://www.blog.minike.top/Article/details/68722087.shtml)
-- 2026-06-29 23:21 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/0435014418.shtml)
-- 2026-06-29 23:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/793689986.shtml)
-- 2026-06-29 23:35 - [天道](https://www.share.minike.top/Article/details/13541.shtml)
-- 2026-06-29 23:27 - [沙丘](http://www.share.minike.top/Article/details/94577.shtml)
-- 2026-06-29 23:37 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/66914.shtml)
-- 2026-06-29 23:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3579575.shtml)
+- 2026-06-29 23:53 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/789094.shtml)
+- 2026-06-29 23:50 - [美人鱼](https://www.share.kurohicncr.top/Article/details/550359121315.shtml)
+- 2026-06-29 23:33 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/742292147611.shtml)
+- 2026-06-29 23:29 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/05609509362.shtml)
+- 2026-06-29 23:42 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/203277.shtml)
+- 2026-06-29 23:47 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/291652840.shtml)
+- 2026-06-29 23:50 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/3809895759.shtml)
+- 2026-06-29 23:47 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/893494149757.shtml)
+- 2026-06-29 23:44 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/575736090209.shtml)
+- 2026-06-29 23:26 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/82394315441.shtml)
+- 2026-06-29 23:27 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/969235378176.shtml)
+- 2026-06-29 23:38 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/03842197642.shtml)
+- 2026-06-29 23:46 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/28681.shtml)
+- 2026-06-29 23:40 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/68124836.shtml)
+- 2026-06-29 23:43 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/160198668.shtml)

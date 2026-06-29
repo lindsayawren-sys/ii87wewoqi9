@@ -1,56 +1,56 @@
-# 美军方称将参与恢复霍尔木兹海峡商业通航的行动
+# 广东举办2026年“全国科技工作者日”主场活动
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-央视记者获悉，当地时间5月3日，美国中央司令部发布声明表示，美国中央司令部部队将于5月4日开始支援“自由计划”，旨在恢复商业航运穿越霍尔木兹海峡的航行自由。 声明称，这项由美国总统特朗普亲自指示的任务，将为寻求自由穿越这一重要国际贸易走廊的商船提供支援。美国中央司令部司令布拉德·库珀表示：“在我们维持海上封锁的同时，我们对这项防御性任务的支援对于区域安全和全球经济至关重要。”
+中新网广州5月30日电 (记者 方伟彬 王坚)据广东省科学技术协会30日消息，在第十个“全国科技工作者日”到来之际，由该协会、省科技厅、省委宣传部联合主办的2026年广东省“全国科技工作者日”主场活动29日在广东科学馆举行。 活动宣读了致全省科技工作者的慰问信，向奋斗在各条战线的广大科技工作者致以节日问候和崇高敬意。 活动现场发布了2025年广东省“最美科技工作者”先进事迹并颁
 
 ## 正文
 
-央视记者获悉，当地时间5月3日，美国中央司令部发布声明表示，美国中央司令部部队将于5月4日开始支援“自由计划”，旨在恢复商业航运穿越霍尔木兹海峡的航行自由。
+中新网广州5月30日电 (记者 方伟彬 王坚)据广东省科学技术协会30日消息，在第十个“全国科技工作者日”到来之际，由该协会、省科技厅、省委宣传部联合主办的2026年广东省“全国科技工作者日”主场活动29日在广东科学馆举行。
 
-声明称，这项由美国总统特朗普亲自指示的任务，将为寻求自由穿越这一重要国际贸易走廊的商船提供支援。
+活动宣读了致全省科技工作者的慰问信，向奋斗在各条战线的广大科技工作者致以节日问候和崇高敬意。
 
-美国中央司令部司令布拉德·库珀表示：“在我们维持海上封锁的同时，我们对这项防御性任务的支援对于区域安全和全球经济至关重要。
+活动现场发布了2025年广东省“最美科技工作者”先进事迹并颁发证书。
 
-” 当天稍早时，美国总统特朗普在其社交媒体“真实社交”发文表示，美国将于中东地区4日上午启动一项行动，引导被困在霍尔木兹海峡的船只驶离这一区域。
+清华大学深圳国际研究生院教授王学谦分享了带领团队攻克空间机器人技术难题的攻坚经历；广东埃力生科技股份有限公司技术总工张秋华讲述了扎根粤北山区潜心钻研气凝胶绝热材料、以科技赋能“百千万工程”的坚守；华南理工大学教授樊天慧回顾了投身海上风电关键核心技术攻关的历程。
 
-此前，美国国务院宣布与国防部合作以“支援该海峡的海上安全”，行动名为“海上自由架构”，旨在将外交行动与军事协调相结合，在“自由计划”实施期间将进行支援。
+活动还为科学家精神短视频征集与传播活动获奖代表颁奖，并启动“潜行与抉择——共和国功勋黄旭华百年人生瞬间专题展”广东巡展。
 
-美国军方提供的支援将包括导弹驱逐舰、超过100架次的海陆基飞机、多域无人平台，以及15000名现役军人。
+据介绍，“全国科技工作者日”前后，主办单位紧扣“奋进‘十五五’科技谱新篇”主题，统筹全省科协系统集中开展系列活动：走访慰问在粤院士、专家及基层一线科技工作者；组织青年科技工作者国情研修、院士专家休疗养及国际科技组织任职人才培育；推动科学家精神进机关、进院校、进企业、进社区等，推动优质科普资源下沉基层，倡树崇尚科学、鼓励创新的时代风尚。
 
-(央视新闻客户端 央视记者 许骁)
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 23:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 23:36 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 23:27 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 23:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 23:28 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 23:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 23:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 23:42 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 23:27 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 23:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 23:27 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 23:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 23:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 23:48 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 23:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 23:33 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 23:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 23:27 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 23:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 23:36 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 23:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 23:43 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/5607923397.shtml)
-- 2026-06-29 23:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/79688.shtml)
-- 2026-06-29 23:25 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/049801.shtml)
-- 2026-06-29 23:20 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/89301.shtml)
-- 2026-06-29 23:27 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/85288457.shtml)
-- 2026-06-29 23:28 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/352616896281.shtml)
-- 2026-06-29 23:43 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/72407.shtml)
-- 2026-06-29 23:33 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/106922891619.shtml)
-- 2026-06-29 23:44 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/3977830.shtml)
-- 2026-06-29 23:38 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/434390990.shtml)
-- 2026-06-29 23:45 - [千与千寻](http://www.share.kurohicncr.top/Article/details/793443.shtml)
-- 2026-06-29 23:37 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/19279.shtml)
-- 2026-06-29 23:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/853529446705.shtml)
-- 2026-06-29 23:21 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/241379595340.shtml)
-- 2026-06-29 23:41 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/7324678927.shtml)
+- 2026-06-29 23:48 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/67974.shtml)
+- 2026-06-29 23:33 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/021997109.shtml)
+- 2026-06-29 23:30 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/6874967361.shtml)
+- 2026-06-29 23:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/40115.shtml)
+- 2026-06-29 23:44 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/74144551.shtml)
+- 2026-06-29 23:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/590029.shtml)
+- 2026-06-29 23:45 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/915921189.shtml)
+- 2026-06-29 23:52 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/42878662.shtml)
+- 2026-06-29 23:43 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/0260126034.shtml)
+- 2026-06-29 23:35 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/69358999.shtml)
+- 2026-06-29 23:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/0012350.shtml)
+- 2026-06-29 23:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/57225293549.shtml)
+- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/8920167862.shtml)
+- 2026-06-29 23:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/71582.shtml)
+- 2026-06-29 23:35 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/59125092.shtml)

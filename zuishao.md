@@ -1,61 +1,59 @@
-# 油价飙升、美联储立场转鹰，投资者将关注新一轮财报和最新就业数据
+# 昔日科创板标杆，高铁闸片龙头遭立案，天宜新材（688033），受损股民可索赔
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-面对油价飙升和美联储立场转鹰，投资者将关注新一轮财报和最新就业数据，审慎关注美国股市下周走势。 美国股市经历了一个月的稍许反弹，此前市场曾担忧中东战争可能引发的经济冲击。企业盈利的亮眼表现支撑了美国股市的看涨情绪，并抵消了其他市场逆风。 标普500指数和纳斯达克综合指数均于周四收官，创下2020年以来最大月度涨幅。标普500指数4月上涨逾10%，纳斯达克指数飙升超过15%，两大
+登录新浪财经APP 搜索【信披】查看更多考评等级 作为国内首批登陆科创板的上市企业，天宜上佳曾凭借打破海外垄断、实现高铁制动闸片国产替代出圈，背靠轨交+光伏新材料双赛道，曾被市场视作高端制造、国产替代的优质科创标的。如今因涉嫌信息披露违法违规被监管立案。依据《证券法》相关法规，符合持仓条件的受损投资者均可报名登记，依法发起索赔虚假陈述行为造成的损失。 上海百悦律师事务所牛彬律师
 
 ## 正文
 
-面对油价飙升和美联储立场转鹰，投资者将关注新一轮财报和最新就业数据，审慎关注美国股市下周走势。
+登录新浪财经APP 搜索【信披】查看更多考评等级 作为国内首批登陆科创板的上市企业，天宜上佳曾凭借打破海外垄断、实现高铁制动闸片国产替代出圈，背靠轨交+光伏新材料双赛道，曾被市场视作高端制造、国产替代的优质科创标的。
 
-美国股市经历了一个月的稍许反弹，此前市场曾担忧中东战争可能引发的经济冲击。
+如今因涉嫌信息披露违法违规被监管立案。
 
-企业盈利的亮眼表现支撑了美国股市的看涨情绪，并抵消了其他市场逆风。
+依据《证券法》相关法规，符合持仓条件的受损投资者均可报名登记，依法发起索赔虚假陈述行为造成的损失。
 
-标普500指数和纳斯达克综合指数均于周四收官，创下2020年以来最大月度涨幅。
+上海百悦律师事务所牛彬律师表示，天宜新材遭证监会立案，投资者或可索赔。
 
-标普500指数4月上涨逾10%，纳斯达克指数飙升超过15%，两大指数周五均以涨势开启5月。
+暂定：（天宜新材维权入口） 1． 于2024年3月13日至2024年3月15日期间买入天宜新材股票，且在2024年3月15日之后卖出或仍持有该股票的亏损投资者； 2． 于2026年5月30日之前买入天宜新材股票，且在2026年5月30日之后卖出或仍持有该股票的亏损投资者。
 
-爱德华·琼斯公司高级全球投资策略师安杰洛·库尔卡法斯表示：“一方面，企业利润快速增长；另一方面，油价和债券收益率面临上行压力。
+（最终以法院裁定为准） 索赔材料： 一、买卖天宜新材股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次笔买入天宜新材股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
-4月份市场已大幅上涨，因此随着这种拉锯战的展开，我们可能会进入一段盘整期。
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
 
-” 本周股市基本未受油价再度飙升的影响，基准布兰特原油一度突破每桶120美元，创下四年新高，随后有所回落。
+牛彬律师声明 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 23:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 23:27 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 23:31 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 23:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 23:20 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:28 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 23:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 23:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 23:22 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 23:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 23:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:23 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 23:28 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 23:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 23:45 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 23:24 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:38 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 23:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 23:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 23:44 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 23:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 23:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 23:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 23:28 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 23:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/23061.shtml)
-- 2026-06-29 23:28 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/21679280.shtml)
-- 2026-06-29 23:24 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/790942159460.shtml)
-- 2026-06-29 23:27 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/90500.shtml)
-- 2026-06-29 23:25 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/78503309.shtml)
-- 2026-06-29 23:35 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/136993.shtml)
-- 2026-06-29 23:29 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/1888047.shtml)
-- 2026-06-29 23:45 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/81475458259.shtml)
-- 2026-06-29 23:45 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/425482.shtml)
-- 2026-06-29 23:23 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/528135300324.shtml)
-- 2026-06-29 23:40 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/38273922.shtml)
-- 2026-06-29 23:34 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/640770481.shtml)
-- 2026-06-29 23:28 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/51638048529.shtml)
-- 2026-06-29 23:18 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/9784742561.shtml)
-- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/190606009174.shtml)
+- 2026-06-29 23:32 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/71359495.shtml)
+- 2026-06-29 23:24 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/472129.shtml)
+- 2026-06-29 23:40 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/0080468362.shtml)
+- 2026-06-29 23:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/91721082.shtml)
+- 2026-06-29 23:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/553000866.shtml)
+- 2026-06-29 23:33 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/99111.shtml)
+- 2026-06-29 23:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/936782259.shtml)
+- 2026-06-29 23:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/11428319.shtml)
+- 2026-06-29 23:39 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/47569687606.shtml)
+- 2026-06-29 23:40 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/59845.shtml)
+- 2026-06-29 23:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/708285267.shtml)
+- 2026-06-29 23:33 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/695532737.shtml)
+- 2026-06-29 23:43 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/839241.shtml)
+- 2026-06-29 23:28 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/0643356.shtml)
+- 2026-06-29 23:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/57244.shtml)

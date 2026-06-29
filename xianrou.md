@@ -1,61 +1,59 @@
-# 辽宁沈阳“五一”假期海洋乐园吸引游客
+# 专家带你读懂肠道“求救”信号 癌性肠梗阻者勿盲目吃泻药
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“
+中新网上海5月30日电(记者 陈静)肠梗阻是肿瘤患者最凶险的并发症之一。上海的肿瘤科专家姜昊声29日对记者表示，对晚期肿瘤患者而言，癌性肠梗阻是最棘手的“催命符”——患者本已虚弱，再无法进食，很快会耗尽生命。记者当日获悉，72岁的结肠癌患者张先生(化名)因腹胀如鼓、反复呕吐，连续多日无法进食，腹部硬胀如石到上海市静安区市北医院就诊。“肠道被肿瘤堵死了。”姜昊声解释，CT检查显示
 
 ## 正文
 
-爱奇艺，到底在急什么？
+中新网上海5月30日电(记者 陈静)肠梗阻是肿瘤患者最凶险的并发症之一。
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+上海的肿瘤科专家姜昊声29日对记者表示，对晚期肿瘤患者而言，癌性肠梗阻是最棘手的“催命符”——患者本已虚弱，再无法进食，很快会耗尽生命。
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
+记者当日获悉，72岁的结肠癌患者张先生(化名)因腹胀如鼓、反复呕吐，连续多日无法进食，腹部硬胀如石到上海市静安区市北医院就诊。
 
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+“肠道被肿瘤堵死了。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+”姜昊声解释，CT检查显示老张腹腔内肿块巨大，像一座山把肠道压得严严实实。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+什么是肠梗阻？
 
-孩子吃饭少、长不高、脾气暴？
+姜昊声解释，人的肠道长约7米-8米，负责消化吸收和排便。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方台胞组团赴湖南郴州寻味地道酱板鸭如何把动车“开”走？
+一旦肠道某处堵塞，食物、液体、气体下不去，就会越积越多，导致腹胀、呕吐、停止排便排气。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 23:40 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 23:19 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 23:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 23:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 23:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 23:33 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 23:39 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 23:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 23:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 23:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 23:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 23:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 23:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 23:27 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 23:39 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 23:35 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 23:51 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 23:29 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 23:42 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 23:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 23:25 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 23:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 23:32 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 23:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 23:53 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 23:27 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/91257.shtml)
-- 2026-06-29 23:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/070634915.shtml)
-- 2026-06-29 23:26 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/46329466668.shtml)
-- 2026-06-29 23:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/982953697712.shtml)
-- 2026-06-29 23:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/68816116.shtml)
-- 2026-06-29 23:22 - [金刚川](http://www.blog.minike.top/Article/details/636551.shtml)
-- 2026-06-29 23:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/67505551.shtml)
-- 2026-06-29 23:37 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/56545161.shtml)
-- 2026-06-29 23:38 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/574583450592.shtml)
-- 2026-06-29 23:22 - [东方风云榜直播](https://www.blog.minike.top/Article/details/56216.shtml)
-- 2026-06-29 23:21 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/251581521.shtml)
-- 2026-06-29 23:19 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/8948546.shtml)
-- 2026-06-29 23:41 - [天道](https://www.blog.minike.top/Article/details/137688.shtml)
-- 2026-06-29 23:24 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/2530625.shtml)
-- 2026-06-29 23:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/8910324.shtml)
+- 2026-06-29 23:53 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/390273.shtml)
+- 2026-06-29 23:24 - [东方风云榜](https://www.share.minike.top/Article/details/96221763.shtml)
+- 2026-06-29 23:37 - [斛珠夫人](https://www.blog.minike.top/Article/details/998722375400.shtml)
+- 2026-06-29 23:32 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/012896583904.shtml)
+- 2026-06-29 23:47 - [起风了](http://www.blog.kurohicncr.top/Article/details/80411826608.shtml)
+- 2026-06-29 23:36 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/473536.shtml)
+- 2026-06-29 23:39 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/18870973.shtml)
+- 2026-06-29 23:39 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/400369777585.shtml)
+- 2026-06-29 23:26 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/8466022.shtml)
+- 2026-06-29 23:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/566178538118.shtml)
+- 2026-06-29 23:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/2897348.shtml)
+- 2026-06-29 23:35 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/56893316553.shtml)
+- 2026-06-29 23:36 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/0543058.shtml)
+- 2026-06-29 23:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/085563.shtml)
+- 2026-06-29 23:46 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/61149732.shtml)

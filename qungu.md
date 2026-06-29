@@ -1,49 +1,56 @@
-# 颖通控股公布接获联交所复牌指引
+# 深化工业智能领域合作 “金砖大家庭”共享发展新机遇
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-颖通控股（06883）发布公告，于2026年4月28日，公司接获联交所函件，当中联交所向公司提出了以下复牌指引：（i）对公司上市后不久与三家服务供应商签订的服务协议、与其中一家服务供应商签订的意向书及╱或任何其他类似协议及╱或安排进行适当的独立法证调查，发布调查结果，评估对公司业务运营和财务状况的影响，并采取适当的补救措施；（ii）证明集团管理层及╱或任何对公司管理及营运有重大
+中新网厦门6月1日电 2026金砖国家新工业革命伙伴关系论坛工业智能产业科技创新分论坛近日在福建厦门举办。会议聚焦工业智能产业科技创新、构建工业智能产业生态、深化金砖产业科技创新合作等议题开展交流。 会议指出，当前新一轮科技革命和产业变革深入演进。金砖国家产业基础雄厚、市场空间广阔、创新潜力巨大，在工业智能领域开展深度合作，既是抢抓时代机遇、推动产业转型升级的重要选择，也是深化
 
 ## 正文
 
-颖通控股（06883）发布公告，于2026年4月28日，公司接获联交所函件，当中联交所向公司提出了以下复牌指引：（i）对公司上市后不久与三家服务供应商签订的服务协议、与其中一家服务供应商签订的意向书及╱或任何其他类似协议及╱或安排进行适当的独立法证调查，发布调查结果，评估对公司业务运营和财务状况的影响，并采取适当的补救措施；（ii）证明集团管理层及╱或任何对公司管理及营运有重大影响力的人士的诚信、能力及╱或品格方面并无合理的监管忧虑，以免为投资者构成风险及损害市场信心； （iii）委聘独立内部控制顾问进行独立内部控制审查，并证明：已纠正就暂停买卖相关所识别的重大缺陷，且已落实所有必要补救措施；及公司的内部控制就其目的而言属充分及有效，并使公司能在所有重大事项遵守上市规则，包括但不限于财务报告、须予公布及关连交易相关的披露及合规性，以及重大资料的披露；
+中新网厦门6月1日电 2026金砖国家新工业革命伙伴关系论坛工业智能产业科技创新分论坛近日在福建厦门举办。
 
-责任编辑：卢昱君
+会议聚焦工业智能产业科技创新、构建工业智能产业生态、深化金砖产业科技创新合作等议题开展交流。
+
+会议指出，当前新一轮科技革命和产业变革深入演进。
+
+金砖国家产业基础雄厚、市场空间广阔、创新潜力巨大，在工业智能领域开展深度合作，既是抢抓时代机遇、推动产业转型升级的重要选择，也是深化“大金砖合作”、促进共同发展的内在要求。
+
+会议提出三点倡议。
+
+一是深化战略对接，共建工业智能合作新机制。
+
+加强发展战略、产业政策、基础设施、标准规则和应用场景等方面沟通交流，依托金砖国家新工业革命伙伴关系论坛等平台，建立常态化对话、清单化合作、项目化推进机制，形成更加紧密、更具韧性的工业智能合作网络。
+
+二是深化协同创新，共塑工业智能产业新生态。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 23:42 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 23:37 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 23:46 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 23:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 23:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 23:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 23:22 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 23:30 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 23:43 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 23:24 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 23:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 23:44 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 23:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 23:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 23:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 23:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 23:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 23:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 23:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 23:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 23:42 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/6360177954.shtml)
-- 2026-06-29 23:22 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/48511296119.shtml)
-- 2026-06-29 23:21 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/658970.shtml)
-- 2026-06-29 23:45 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/420570727.shtml)
-- 2026-06-29 23:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/0290921419.shtml)
-- 2026-06-29 23:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/80590194.shtml)
-- 2026-06-29 23:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/07903.shtml)
-- 2026-06-29 23:28 - [金牌调解](http://www.share.kurohicncr.top/Article/details/304666280194.shtml)
-- 2026-06-29 23:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/210732664449.shtml)
-- 2026-06-29 23:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/64004.shtml)
-- 2026-06-29 23:41 - [一见倾心](https://www.blog.minike.top/Article/details/10037739.shtml)
-- 2026-06-29 23:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/9189391745.shtml)
-- 2026-06-29 23:23 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/92791593441.shtml)
-- 2026-06-29 23:45 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/464355203.shtml)
-- 2026-06-29 23:47 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/468140622076.shtml)
+- 2026-06-29 23:35 - [天道](https://www.share.kurohicncr.top/Article/details/2104018527.shtml)
+- 2026-06-29 23:50 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/482576.shtml)
+- 2026-06-29 23:25 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/778922934815.shtml)
+- 2026-06-29 23:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/629883.shtml)
+- 2026-06-29 23:47 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/39202.shtml)
+- 2026-06-29 23:48 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/748134061.shtml)
+- 2026-06-29 23:27 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/570948.shtml)
+- 2026-06-29 23:47 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/36255990.shtml)
+- 2026-06-29 23:45 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/62274168.shtml)
+- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/67600352.shtml)
+- 2026-06-29 23:48 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/254555.shtml)
+- 2026-06-29 23:42 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/153025.shtml)
+- 2026-06-29 23:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/9240677290.shtml)
+- 2026-06-29 23:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/170833212.shtml)
+- 2026-06-29 23:44 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/247251.shtml)

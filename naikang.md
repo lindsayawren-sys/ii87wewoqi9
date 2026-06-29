@@ -1,51 +1,56 @@
-# *ST东易：申请撤销退市风险警示及其他风险警示
+# 华泰期货：运价驱动向上，关注马士基6月下半月第一周报价
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-人民财讯5月5日电，*ST东易（002713）5月5日公告，大华所对公司2025年度财务报表出具了标准无保留意见的《审计报告》，截至2025年末公司归属于上市公司股东的所有者权益为8.86亿元，由负转正。截至2025年末公司营运资金5.12亿元，由负转正。同时，公司2025年度实现营业收入6.91亿元，归属于上市公司股东的净利润为3644.52万元。综上所述，公司符合向深交所申
+来源：华泰期货 作者： 高聪 市场分析 线上报价方面。 Gemini Cooperation：马士基上海-鹿特丹 WEEK24周报价2710/3970（40GP开价较week23周增加200美元/FEU）；HPL 6月上半月船期报价4000-5062美元/FEU，6月下半月船期报价5208-5563美元/FEU，7月份船期报价6016-6041美元/FEU。马士基6月份PSS
 
 ## 正文
 
-人民财讯5月5日电，*ST东易（002713）5月5日公告，大华所对公司2025年度财务报表出具了标准无保留意见的《审计报告》，截至2025年末公司归属于上市公司股东的所有者权益为8.86亿元，由负转正。
+来源：华泰期货 作者： 高聪 市场分析 线上报价方面。
 
-截至2025年末公司营运资金5.12亿元，由负转正。
+Gemini Cooperation：马士基上海-鹿特丹 WEEK24周报价2710/3970（40GP开价较week23周增加200美元/FEU）；HPL 6月上半月船期报价4000-5062美元/FEU，6月下半月船期报价5208-5563美元/FEU，7月份船期报价6016-6041美元/FEU。
 
-同时，公司2025年度实现营业收入6.91亿元，归属于上市公司股东的净利润为3644.52万元。
+马士基6月份PSS 300/600（6月10日之后开始征收），马士基公布6/15-7/15日涨价函价格为3055/4700。
 
-综上所述，公司符合向深交所申请撤销退市风险警示及其他风险警示的条件，并已向深交所申请撤销对公司股票交易实施退市风险警示及其他风险警示。
+MSC+Premier Alliance：MSC 6月上半月船期报价2840/4740；ONE 6月上半月船期报价4006美元/FEU，6月下半月船期报价5006美元/FEU，7月份船期报价5008美元/FEU；HMM 6月上半月船期报价2164/3928；YML6月上半月船期报价2250/4000。
 
-责任编辑：刘万里 SF014
+MSC 6月份 下半月涨价函价格 Ocean Alliance：CMA 上海-鹿特丹6月上半月船期报价4225-4275美元/FEU；EMC 6月上半月船期报价4560美元/FEU，6月下半月船期报价3630/5560；OOCL 6月上半月船期报价4209-4499美元/FEU。
+
+地缘端：美国总统特朗普在当晚福克斯新闻播出的一档采访节目中表示，当前美伊已接近达成一份“很好的协议”。
+
+特朗普同时在采访中表示，我们会得到一份“更好的协议”，这本当更快才对。
+
+但同时特朗普表示，如果无法达成协议，他会要求“战争部”（即美国国防部）介入。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 23:41 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 23:28 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 23:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 23:40 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 23:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 23:33 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 23:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 23:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 23:20 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 23:26 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 23:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 23:49 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:26 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 23:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 23:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:30 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 23:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 23:51 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 23:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/98875632201.shtml)
-- 2026-06-29 23:36 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/454440203107.shtml)
-- 2026-06-29 23:30 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/409121644129.shtml)
-- 2026-06-29 23:33 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/93194667.shtml)
-- 2026-06-29 23:33 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/880610788.shtml)
-- 2026-06-29 23:38 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/054555141.shtml)
-- 2026-06-29 23:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/399004.shtml)
-- 2026-06-29 23:26 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/77219627061.shtml)
-- 2026-06-29 23:19 - [金刚川](http://www.share.minike.top/Article/details/42935246.shtml)
-- 2026-06-29 23:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/190340475914.shtml)
-- 2026-06-29 23:35 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/493106.shtml)
-- 2026-06-29 23:18 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/511446554.shtml)
-- 2026-06-29 23:24 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/71291182.shtml)
-- 2026-06-29 23:35 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/94804.shtml)
-- 2026-06-29 23:34 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/626603060.shtml)
+- 2026-06-29 23:34 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/497845559491.shtml)
+- 2026-06-29 23:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/696930.shtml)
+- 2026-06-29 23:40 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/03892.shtml)
+- 2026-06-29 23:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/528090.shtml)
+- 2026-06-29 23:35 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/34217790468.shtml)
+- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/026573.shtml)
+- 2026-06-29 23:44 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/12761.shtml)
+- 2026-06-29 23:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/503684342.shtml)
+- 2026-06-29 23:28 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9931652420.shtml)
+- 2026-06-29 23:49 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/358039773891.shtml)
+- 2026-06-29 23:48 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/093498677.shtml)
+- 2026-06-29 23:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/58255902.shtml)
+- 2026-06-29 23:24 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/845709181809.shtml)
+- 2026-06-29 23:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/0544328.shtml)
+- 2026-06-29 23:32 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/79080461451.shtml)

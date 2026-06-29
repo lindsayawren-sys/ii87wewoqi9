@@ -1,58 +1,61 @@
-# 美伊临时停火以来阿联酋首次遭袭 富查伊拉石油工业区3人受伤
+# 2026中国—东盟图书文化周在吉隆坡启幕
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-新华社迪拜5月4日电(记者夏晓 赵丹亮)阿联酋4日多次通过手机向民众发布预警，称存在“潜在导弹威胁”，呼吁公众立即采取必要的避险措施。阿联酋富查伊拉石油工业区当天遭无人机袭击，造成3人受伤。 富查伊拉媒体办公室4日发布声明称，一架来自伊朗方向的无人机袭击致富查伊拉石油工业区起火，造成3名印度籍人员受伤，伤势为中度。伤者已被送往医院接受必要治疗。 此前，富查伊拉媒体办公室已证实，
+中新网吉隆坡5月30日电 (记者 刘育英)5月29日，2026中国—东盟图书文化周(2026CABF)在马来西亚吉隆坡世界贸易中心正式启幕，活动将持续至6月7日。 本届文化周以“文连东盟，书香致远”为主题，首次把主会场设置在吉隆坡国际书展展区内。活动在广西多地设立分会场，同时携手越南、文莱、印度尼西亚举办海外联展，形成主场落户东盟、境内外联动、多国参与的全新办展模式。 主会场展
 
 ## 正文
 
-新华社迪拜5月4日电(记者夏晓 赵丹亮)阿联酋4日多次通过手机向民众发布预警，称存在“潜在导弹威胁”，呼吁公众立即采取必要的避险措施。
+中新网吉隆坡5月30日电 (记者 刘育英)5月29日，2026中国—东盟图书文化周(2026CABF)在马来西亚吉隆坡世界贸易中心正式启幕，活动将持续至6月7日。
 
-阿联酋富查伊拉石油工业区当天遭无人机袭击，造成3人受伤。
+本届文化周以“文连东盟，书香致远”为主题，首次把主会场设置在吉隆坡国际书展展区内。
 
-富查伊拉媒体办公室4日发布声明称，一架来自伊朗方向的无人机袭击致富查伊拉石油工业区起火，造成3名印度籍人员受伤，伤势为中度。
+活动在广西多地设立分会场，同时携手越南、文莱、印度尼西亚举办海外联展，形成主场落户东盟、境内外联动、多国参与的全新办展模式。
 
-伤者已被送往医院接受必要治疗。
+主会场展区面积约300平方米，分为六大区域：主题出版物展区、桂版图书展销区、特邀嘉宾展销区、AI短剧展区、活动区与文创展销区。
 
-此前，富查伊拉媒体办公室已证实，该石油工业区在无人机袭击后发生大规模火灾。
+桂版图书展销区汇集广西八家出版单位的1000余种精品图书，全方位展现广西出版特色与实力。
 
-当天，阿联酋国防部通报称，已监测到4枚来自伊朗方向的巡航导弹，其中3枚在领海上空被成功拦截，另1枚坠入海中。
+AI短剧展区展出 FLYTOTO(飞兔兔)AI短剧共创平台，为文化出海插上科技翅膀。
 
-此次事件是自美国、以色列与伊朗4月8日临时停火以来，阿联酋首次遭遇相关袭击。
+本次文化周配套活动丰富多彩。
+
+5月31日中马建交日之际，《亚洲文艺复兴》中文版首发式暨中国—东盟文化遗产对话活动将举行。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 23:35 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 23:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 23:29 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 23:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 23:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 23:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 23:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 23:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 23:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 23:35 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 23:36 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 23:43 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 23:34 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 23:35 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 23:44 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 23:53 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 23:31 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 23:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 23:37 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 23:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 23:48 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 23:33 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 23:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 23:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/763914052.shtml)
-- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/333071946983.shtml)
-- 2026-06-29 23:37 - [啊啊啊](http://www.blog.minike.top/Article/details/9407392.shtml)
-- 2026-06-29 23:37 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/24099189.shtml)
-- 2026-06-29 23:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/745306.shtml)
-- 2026-06-29 23:44 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/4004747616.shtml)
-- 2026-06-29 23:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/354316175567.shtml)
-- 2026-06-29 23:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/267772069205.shtml)
-- 2026-06-29 23:31 - [速度与激情9](https://www.blog.minike.top/Article/details/71132.shtml)
-- 2026-06-29 23:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/39626126359.shtml)
-- 2026-06-29 23:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/882658121515.shtml)
-- 2026-06-29 23:25 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/49289.shtml)
-- 2026-06-29 23:23 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/94754808.shtml)
-- 2026-06-29 23:32 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/730943133.shtml)
-- 2026-06-29 23:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/72507455.shtml)
+- 2026-06-29 23:32 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/20672329.shtml)
+- 2026-06-29 23:53 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/5811219032.shtml)
+- 2026-06-29 23:40 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/0417100443.shtml)
+- 2026-06-29 23:40 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/315207694.shtml)
+- 2026-06-29 23:24 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/533172180797.shtml)
+- 2026-06-29 23:53 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/94346176178.shtml)
+- 2026-06-29 23:34 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/6949258.shtml)
+- 2026-06-29 23:34 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/554693169330.shtml)
+- 2026-06-29 23:29 - [明星大侦探第一季](https://www.share.minike.top/Article/details/4397263030.shtml)
+- 2026-06-29 23:44 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/13955.shtml)
+- 2026-06-29 23:28 - [送你一朵小红花](http://www.share.minike.top/Article/details/93762188.shtml)
+- 2026-06-29 23:44 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/867107064.shtml)
+- 2026-06-29 23:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/5367891527.shtml)
+- 2026-06-29 23:31 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/2134666.shtml)
+- 2026-06-29 23:48 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/80809297.shtml)

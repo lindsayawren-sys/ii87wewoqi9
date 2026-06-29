@@ -1,59 +1,49 @@
-# 裕信银行创纪录利润助推德商银行收购要约
+# 全国少工委：截至2025年底，全国共有少先队员1.12亿名
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-意大利裕信银行周二公布了创纪录的一季度业绩，净利润同比增长16%至32.2亿欧元，远超市场预期的27亿欧元。与此同时，该行正式启动了对德国商业银行的收购要约。 财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%，手续费及保险收入增长7.8%至25亿欧元，有效抵消了净利息收入下滑的影响。该行将2026年全年净利润目标上调至至少110亿欧元。 此次收购要约以0.485
+中新网6月1日电 据全国少工委微信公众号消息，截至2025年12月31日，全国共有少先队员1.12亿名，中小学校少先队大、中队辅导员298.9万名。中小学校少工委17.2万个、少先队大队17.2万个、中队282.8万个。
 
 ## 正文
 
-意大利裕信银行周二公布了创纪录的一季度业绩，净利润同比增长16%至32.2亿欧元，远超市场预期的27亿欧元。
+中新网6月1日电 据全国少工委微信公众号消息，截至2025年12月31日，全国共有少先队员1.12亿名，中小学校少先队大、中队辅导员298.9万名。
 
-与此同时，该行正式启动了对德国商业银行的收购要约。
-
-财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%，手续费及保险收入增长7.8%至25亿欧元，有效抵消了净利息收入下滑的影响。
-
-该行将2026年全年净利润目标上调至至少110亿欧元。
-
-此次收购要约以0.485股裕信股票换取1股德国商业银行股票，按裕信5月4日收盘价计算约合每股31.07欧元。
-
-该报价较德国商业银行前一交易日收盘价折价8.7%，遭到德商行管理层及德国政府的明确反对。
-
-裕信CEO Andrea Orcel表示，目标是将持股比例从目前的约28%提升至30%以上，但并非寻求控股。
-
-他称：“我们作为股东的存在正在推动德商行审视自身，这只会对各方产生积极影响”。
+中小学校少工委17.2万个、少先队大队17.2万个、中队282.8万个。
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 23:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 23:40 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 23:37 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 23:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 23:45 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 23:47 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 23:19 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:44 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 23:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 23:18 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 23:40 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 23:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 23:27 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 23:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 23:31 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 23:30 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 23:34 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 23:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 23:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 23:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 23:32 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 23:51 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 23:52 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 23:44 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 23:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/01050209057.shtml)
-- 2026-06-29 23:37 - [第一炉香](http://www.share.minike.top/Article/details/211325804210.shtml)
-- 2026-06-29 23:18 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/187320089.shtml)
-- 2026-06-29 23:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/62618550704.shtml)
-- 2026-06-29 23:44 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/08048308.shtml)
-- 2026-06-29 23:38 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/498057722.shtml)
-- 2026-06-29 23:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/768492135.shtml)
-- 2026-06-29 23:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/721788278343.shtml)
-- 2026-06-29 23:23 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/338257692.shtml)
-- 2026-06-29 23:37 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/21400979.shtml)
-- 2026-06-29 23:30 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/9121617998.shtml)
-- 2026-06-29 23:34 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/3817896.shtml)
-- 2026-06-29 23:39 - [爱很美味](http://www.share.minike.top/Article/details/959598324.shtml)
-- 2026-06-29 23:18 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/2956837.shtml)
-- 2026-06-29 23:32 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/827053395.shtml)
+- 2026-06-29 23:36 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/847801771956.shtml)
+- 2026-06-29 23:41 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/28003083.shtml)
+- 2026-06-29 23:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/0075360065.shtml)
+- 2026-06-29 23:53 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/89297.shtml)
+- 2026-06-29 23:33 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/65698.shtml)
+- 2026-06-29 23:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4615006244.shtml)
+- 2026-06-29 23:36 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/5580558847.shtml)
+- 2026-06-29 23:48 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/12324753.shtml)
+- 2026-06-29 23:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/986302379888.shtml)
+- 2026-06-29 23:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/872337.shtml)
+- 2026-06-29 23:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/98109977.shtml)
+- 2026-06-29 23:47 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/84017.shtml)
+- 2026-06-29 23:38 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/21070727.shtml)
+- 2026-06-29 23:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/3877662.shtml)
+- 2026-06-29 23:25 - [TOP Prada](http://www.blog.minike.top/Article/details/0341972132.shtml)

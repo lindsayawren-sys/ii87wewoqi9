@@ -1,60 +1,58 @@
-# “五一”假期广州南沙汽车口岸约7000辆汽车出口
+# 特朗普公布伊朗协议条件，称即将做出“最终决定”
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网广州5月5日电 (许青青 关悦)5日，在完成海关通关手续后，随着汽笛声响起，“穗港汽车出口快线”中的“穗港汽车01”号货轮搭载约170辆新能源汽车驶离南沙汽车码头泊位，前往中国香港。 据广州海关5日介绍，“五一”假期期间，南沙汽车口岸共有4艘船搭载约7000辆汽车出口，包括吉利、比亚迪、埃安等国产品牌，将出口到墨西哥，约旦、沙特阿拉伯等地。 广州南沙汽车口岸是华南地区规模
+美国总统唐纳德・特朗普周五上午表示，他将在白宫战情室开会 “做出最终决定”。此前，他列出了伊朗必须满足的所有条件，才会批准结束战争的协议。 特朗普在 “真实社交” 平台发文，要求伊朗 “必须同意” 永远不拥有核武器，并宣称霍尔木兹海峡必须 “立即开放”，允许船只无限制通行。 他还称，美国此前在阿曼湾对伊朗实施的报复性海上封锁 “现将解除”，但目前尚不清楚这一举措是否仅在伊朗满足
 
 ## 正文
 
-中新网广州5月5日电 (许青青 关悦)5日，在完成海关通关手续后，随着汽笛声响起，“穗港汽车出口快线”中的“穗港汽车01”号货轮搭载约170辆新能源汽车驶离南沙汽车码头泊位，前往中国香港。
+美国总统唐纳德・特朗普周五上午表示，他将在白宫战情室开会 “做出最终决定”。
 
-据广州海关5日介绍，“五一”假期期间，南沙汽车口岸共有4艘船搭载约7000辆汽车出口，包括吉利、比亚迪、埃安等国产品牌，将出口到墨西哥，约旦、沙特阿拉伯等地。
+此前，他列出了伊朗必须满足的所有条件，才会批准结束战争的协议。
 
-广州南沙汽车口岸是华南地区规模最大的汽车滚装码头集群，拥有7个万吨级以上滚装汽车专用泊位、1.8公里码头岸线、近160万平方米商品车堆场，年设计通过能力超300万辆，可停靠大型滚装船舶，是大湾区国产汽车出海的重要枢纽门户。
+特朗普在 “真实社交” 平台发文，要求伊朗 “必须同意” 永远不拥有核武器，并宣称霍尔木兹海峡必须 “立即开放”，允许船只无限制通行。
 
-为进一步畅通国产汽车跨境物流通道，广州海关所属南沙海关建立“一揽子”通关服务机制，实现“企业一次咨询、窗口全方位答疑”，通过“智慧海港”“智能监控”平台，实现出口车辆从进场到离境的全流程数字化闭环监管，创新落地“出口监管仓+海运直通”模式，变“船等车”为“车等船”，大幅压缩车辆在港停留时间。
+他还称，美国此前在阿曼湾对伊朗实施的报复性海上封锁 “现将解除”，但目前尚不清楚这一举措是否仅在伊朗满足上述先决条件后才会执行。
 
-针对节假日汽车出口需求，南沙海关指导企业应用“提前申报”模式，开展单证预审，保障审单、查验等通关环节顺畅。
+特朗普在文中还提到，去年伊朗核设施遭袭击地点存放的浓缩材料，将由美国 “与伊朗伊斯兰共和国、国际原子能机构密切协调，共同发掘并销毁”。
 
-“今年汽车出口势头继续火热，假期前我们就提前对接企业、码头，摸排出口计划，出口汽车抵达口岸后1小时内即可完成查验放行。
+“在另行通知前，不会有任何资金往来，” 特朗普补充道，“其他次要事项已达成一致。
 
-”南沙海关汽车监管科科长肖迎锋介绍。
+” “我现在将在战情室开会，做出最终决定。
 
-据统计，今年1-4月，南沙海关监管经南沙汽车码头滚装出口汽车约15.1万辆，同比增加约21.3%。
+” 他说。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 23:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:36 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 23:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 23:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 23:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 23:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 23:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 23:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 23:47 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 23:23 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 23:28 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 23:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 23:21 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 23:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 23:42 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 23:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 23:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 23:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 23:24 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 23:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 23:29 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 23:52 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 23:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 23:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 23:52 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/03268033302.shtml)
-- 2026-06-29 23:27 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/0812010168.shtml)
-- 2026-06-29 23:33 - [月亮](https://www.blog.minike.top/Article/details/4629779308.shtml)
-- 2026-06-29 23:28 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/265468.shtml)
-- 2026-06-29 23:38 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/69781218.shtml)
-- 2026-06-29 23:35 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/307533510152.shtml)
-- 2026-06-29 23:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/1662357.shtml)
-- 2026-06-29 23:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/841072.shtml)
-- 2026-06-29 23:44 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/71969009.shtml)
-- 2026-06-29 23:34 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/90171974753.shtml)
-- 2026-06-29 23:42 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/188679482084.shtml)
-- 2026-06-29 23:47 - [刘念回应](https://www.blog.minike.top/Article/details/525703059.shtml)
-- 2026-06-29 23:30 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/93402854.shtml)
-- 2026-06-29 23:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/4184367660.shtml)
-- 2026-06-29 23:48 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/80589507607.shtml)
+- 2026-06-29 23:45 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/03571074835.shtml)
+- 2026-06-29 23:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/421286051950.shtml)
+- 2026-06-29 23:35 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/603990798.shtml)
+- 2026-06-29 23:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/6721909.shtml)
+- 2026-06-29 23:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/040091123200.shtml)
+- 2026-06-29 23:49 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/996134.shtml)
+- 2026-06-29 23:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/80416.shtml)
+- 2026-06-29 23:46 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/989307946189.shtml)
+- 2026-06-29 23:26 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/586831317.shtml)
+- 2026-06-29 23:51 - [爱很美味](https://www.share.kurohicncr.top/Article/details/5824235.shtml)
+- 2026-06-29 23:38 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/911707.shtml)
+- 2026-06-29 23:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/72900083.shtml)
+- 2026-06-29 23:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/72985.shtml)
+- 2026-06-29 23:33 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/52409183.shtml)
+- 2026-06-29 23:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/49900.shtml)

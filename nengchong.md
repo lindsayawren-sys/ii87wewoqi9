@@ -1,57 +1,56 @@
-# 港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期
+# 美图公司早盘涨逾17% 高盛给予12个月目标价14.30港元
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-港股半导体股盘初集体走强，天数智芯大涨17%，澜起科技涨超9%，爱芯元智涨超8%，兆易创新、英诺赛科涨超5%，中芯国际、上海复旦涨超4%。 消息面上，国产算力芯片企业迎来业绩兑现关键期。据财联社报道，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯暂未披露一季报数据。数据显示，寒武纪、摩尔线程营收同比增速均超150%，海光信息一季度营收突破
+美图公司（01357）盘中涨超18%，截至发稿，股价上涨16.74%，现报5.09港元，成交额7.18亿港元。 PAGC 2026金帆奖于5月27日揭晓，美图公司获评2026H1 AI出海先锋、2026H1出海热度品牌两大奖项。公开信息显示，海外市场已成为美图商业化的增长阵地，尤以视频类、设计类生产力工具为主，截至2025年12月，美图旗下Vmake的年度经常性收入（ARR）已
 
 ## 正文
 
-港股半导体股盘初集体走强，天数智芯大涨17%，澜起科技涨超9%，爱芯元智涨超8%，兆易创新、英诺赛科涨超5%，中芯国际、上海复旦涨超4%。
+美图公司（01357）盘中涨超18%，截至发稿，股价上涨16.74%，现报5.09港元，成交额7.18亿港元。
 
-消息面上，国产算力芯片企业迎来业绩兑现关键期。
+PAGC 2026金帆奖于5月27日揭晓，美图公司获评2026H1 AI出海先锋、2026H1出海热度品牌两大奖项。
 
-据财联社报道，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯暂未披露一季报数据。
+公开信息显示，海外市场已成为美图商业化的增长阵地，尤以视频类、设计类生产力工具为主，截至2025年12月，美图旗下Vmake的年度经常性收入（ARR）已达约300万美元，另外两款产品X-Design和RoboNeo同样深受海外用户欢迎。
 
-数据显示，寒武纪、摩尔线程营收同比增速均超150%，海光信息一季度营收突破40亿元，行业高景气度持续验证。
+近日，高盛发布研报称，预期美图公司（01357）AI模型的整合将通过提供更先进的功能及推动更高的代币消耗量，显著提升公司生产力工具的平均每用户收入（ARPU）。
 
-值得注意的是，DeepSeek此前发布新一代旗舰大模型DeepSeek-V4并开源。
+管理层指出，公司计划自行训练垂直领域的AI模型，以取代昂贵的第三方API，这应能在中期降低成本。
 
-东方证券认为，DeepSeek-V4的强大性能与高性价比将大幅提升国产模型全球竞争力，有望以低成本供给显著拉动AI应用需求，进而带动国产算力芯片及半导体设备产业链的景气上行。
+该行维持美图12个月目标价14.30港元，给予“买入”评级。
 
-责任编辑：郝欣煜
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 23:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 23:42 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 23:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 23:35 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 23:37 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 23:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 23:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 23:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 23:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 23:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 23:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 23:26 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:42 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 23:28 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 23:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 23:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 23:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 23:26 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 23:33 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 23:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 23:32 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 23:32 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 23:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/3954700.shtml)
-- 2026-06-29 23:41 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/101827795.shtml)
-- 2026-06-29 23:33 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/2962322.shtml)
-- 2026-06-29 23:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/751035.shtml)
-- 2026-06-29 23:19 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2679100488.shtml)
-- 2026-06-29 23:39 - [一生一世](http://www.share.kurohicncr.top/Article/details/253803.shtml)
-- 2026-06-29 23:32 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/96268.shtml)
-- 2026-06-29 23:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/783213496.shtml)
-- 2026-06-29 23:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/7746855660.shtml)
-- 2026-06-29 23:41 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/72478602.shtml)
-- 2026-06-29 23:21 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/161873012869.shtml)
-- 2026-06-29 23:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/62219142340.shtml)
-- 2026-06-29 23:29 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/63308.shtml)
-- 2026-06-29 23:24 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/244721.shtml)
-- 2026-06-29 23:31 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/71346787.shtml)
+- 2026-06-29 23:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/13742203287.shtml)
+- 2026-06-29 23:45 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/084402517.shtml)
+- 2026-06-29 23:41 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/820120913583.shtml)
+- 2026-06-29 23:37 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/759805.shtml)
+- 2026-06-29 23:45 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/865990735719.shtml)
+- 2026-06-29 23:52 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/101236687.shtml)
+- 2026-06-29 23:48 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/255847236864.shtml)
+- 2026-06-29 23:44 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/19119499541.shtml)
+- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/576622159.shtml)
+- 2026-06-29 23:51 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/381305202241.shtml)
+- 2026-06-29 23:26 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/031249.shtml)
+- 2026-06-29 23:51 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/1513472325.shtml)
+- 2026-06-29 23:51 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/1943980804.shtml)
+- 2026-06-29 23:48 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/0404479460.shtml)
+- 2026-06-29 23:44 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/35570439591.shtml)

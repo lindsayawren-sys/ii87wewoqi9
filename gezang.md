@@ -1,57 +1,59 @@
-# 社区咖啡店成杭州“五一”打卡新宠
+# 大宗商品综述：油价跌至六周低点 金价收窄涨幅 伦铝走高
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新社杭州5月4日电 (奚金燕 林姝妤)“五一”假期，杭州的社区咖啡店成为新晋走红的游客打卡点。 “这些天明显感觉新面孔多了，不少人拖着行李箱专程找来。”刻雾咖啡店主理人钟文辉说，这些顾客“在店里点一杯咖啡，休憩片刻、拍一组美照，之后还会逛逛周边的街巷，品尝定胜糕等本地小吃，把喝咖啡变成深度感受杭城烟火的一部分。” “刻雾咖啡”位于杭州沈塘桥路小区，没有临街的醒目招牌，却凭借独
+受投资者对霍尔木兹海峡可能很快恢复开放的乐观情绪影响，原油价格周五跌至六周低点。金价收窄涨幅，交易员评估有关美伊潜在休战的矛盾信号。伦铝走高，由于霍尔木兹海峡关闭导致供应受阻，铝市场短缺现象正日益加剧，导致铝现货价格飙升，且交易所库存大幅下滑。 原油：油价跌至六周低点 交易员押注美伊将延长停火 受投资者对霍尔木兹海峡可能很快恢复开放的乐观情绪影响，原油价格周五跌至六周低点。 W
 
 ## 正文
 
-中新社杭州5月4日电 (奚金燕 林姝妤)“五一”假期，杭州的社区咖啡店成为新晋走红的游客打卡点。
+受投资者对霍尔木兹海峡可能很快恢复开放的乐观情绪影响，原油价格周五跌至六周低点。
 
-“这些天明显感觉新面孔多了，不少人拖着行李箱专程找来。
+金价收窄涨幅，交易员评估有关美伊潜在休战的矛盾信号。
 
-”刻雾咖啡店主理人钟文辉说，这些顾客“在店里点一杯咖啡，休憩片刻、拍一组美照，之后还会逛逛周边的街巷，品尝定胜糕等本地小吃，把喝咖啡变成深度感受杭城烟火的一部分。
+伦铝走高，由于霍尔木兹海峡关闭导致供应受阻，铝市场短缺现象正日益加剧，导致铝现货价格飙升，且交易所库存大幅下滑。
 
-” “刻雾咖啡”位于杭州沈塘桥路小区，没有临街的醒目招牌，却凭借独有的氛围感成为社交平台上的“宝藏打卡地”。
+原油：油价跌至六周低点 交易员押注美伊将延长停火 受投资者对霍尔木兹海峡可能很快恢复开放的乐观情绪影响，原油价格周五跌至六周低点。
 
-杭州的社区咖啡店往往既有邻里间的温情，也有独特的审美格调，可以串联起城市文旅与市井生活，游客们可以在店里感知杭州的“本色”模样。
+WTI原油下跌近2%，收于每桶87美元左右；全球基准的布伦特原油收于92美元附近。
 
-“门对青山千里秀，马驰大道万家春。
+美国总统唐纳德·特朗普表示，他将对延长与伊朗停火的初步协议作出“最终决定”。
 
-”在位于杭州上城区的鄰居咖啡店，门口贴着这样一副对联。
+此前一位知情人士透露，伊朗和美国已达成一项将停火延长60天的初步协议，双方将在延长停火期内就伊朗的核计划启动进一步谈判。
 
-咖啡店主理人杜苏说，对联出自一位斯洛伐克常客奥马。
+不过特朗普迟迟未作决定令协议能否最终达成的前景蒙上阴影。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 23:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 23:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 23:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 23:29 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 23:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 23:35 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 23:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 23:23 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 23:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 23:43 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 23:47 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 23:50 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 23:36 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 23:32 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 23:38 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 23:44 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 23:36 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 23:45 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:27 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 23:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 23:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 23:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/35660.shtml)
-- 2026-06-29 23:41 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/030857796136.shtml)
-- 2026-06-29 23:21 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/677493074.shtml)
-- 2026-06-29 23:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/05857953.shtml)
-- 2026-06-29 23:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/6664665748.shtml)
-- 2026-06-29 23:21 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/705160342035.shtml)
-- 2026-06-29 23:35 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/60701.shtml)
-- 2026-06-29 23:30 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/267644038.shtml)
-- 2026-06-29 23:33 - [东方风云榜直播](https://www.share.minike.top/Article/details/8279731.shtml)
-- 2026-06-29 23:36 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/228790839.shtml)
-- 2026-06-29 23:26 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/684065282842.shtml)
-- 2026-06-29 23:29 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/558783.shtml)
-- 2026-06-29 23:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/09416102526.shtml)
-- 2026-06-29 23:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/91949.shtml)
-- 2026-06-29 23:25 - [美股](http://www.share.minike.top/Article/details/022209.shtml)
+- 2026-06-29 23:26 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/045714216057.shtml)
+- 2026-06-29 23:32 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/19764487.shtml)
+- 2026-06-29 23:43 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/963707357310.shtml)
+- 2026-06-29 23:37 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/70324201927.shtml)
+- 2026-06-29 23:45 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/63120828.shtml)
+- 2026-06-29 23:43 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/645648.shtml)
+- 2026-06-29 23:32 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/0522469675.shtml)
+- 2026-06-29 23:24 - [天道](http://www.blog.kurohicncr.top/Article/details/40558041.shtml)
+- 2026-06-29 23:38 - [炽夏](http://www.blog.minike.top/Article/details/14766.shtml)
+- 2026-06-29 23:32 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/9468738871.shtml)
+- 2026-06-29 23:47 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/176766596088.shtml)
+- 2026-06-29 23:47 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/646441673330.shtml)
+- 2026-06-29 23:25 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/00874677.shtml)
+- 2026-06-29 23:27 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/650004048952.shtml)
+- 2026-06-29 23:53 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/519864817154.shtml)

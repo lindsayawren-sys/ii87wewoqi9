@@ -1,59 +1,61 @@
-# 英皇群星演唱会香港开唱勾起观众青春回忆
+# “韬定律”引爆芯片股行情！六位基金经理深度拆解
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-中新网香港5月5日电 英皇娱乐集团主办的“25+英皇群星演唱会”5月3日和4日连续两晚在香港启德体育园主场馆举行，旗下艺人谢霆锋、容祖儿、李克勤、古巨基、Twins、陈伟霆、陈慧娴等献唱。 连续两天的演唱会均由组合Twins(蔡卓妍、钟欣潼)开场，随后知名歌手轮番登台，劲歌热舞与抒情慢歌无缝切换，《下一站天后》《红日》《千千阕歌》等耳熟能详的歌曲接连响起，熟悉的旋律勾起观众们的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】六位基金经理解读AI产业链投资机会 中国基金报记者方丽孙晓辉 今年以来，存储、芯片、封测等板块行情轮番上演，AI硬件表现延续。近日华为一则关于“韬定律”的重磅消息，如一石激起千层浪。近日A股相关概念股出现明显异动，题材热度十足。 韬定律将带来怎样的产业冲击波？AI硬件何以持续霸占C
 
 ## 正文
 
-中新网香港5月5日电 英皇娱乐集团主办的“25+英皇群星演唱会”5月3日和4日连续两晚在香港启德体育园主场馆举行，旗下艺人谢霆锋、容祖儿、李克勤、古巨基、Twins、陈伟霆、陈慧娴等献唱。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-连续两天的演唱会均由组合Twins(蔡卓妍、钟欣潼)开场，随后知名歌手轮番登台，劲歌热舞与抒情慢歌无缝切换，《下一站天后》《红日》《千千阕歌》等耳熟能详的歌曲接连响起，熟悉的旋律勾起观众们的集体青春回忆。
+来源：中国基金报 【导读】六位基金经理解读AI产业链投资机会 中国基金报记者方丽孙晓辉 今年以来，存储、芯片、封测等板块行情轮番上演，AI硬件表现延续。
 
-容祖儿3日含泪唱起经典曲目《我的骄傲》，4日则风格一转，带来快歌热舞，一连唱跳19分钟。
+近日华为一则关于“韬定律”的重磅消息，如一石激起千层浪。
 
-谢霆锋4日以全黑造型亮相，演绎《逆行》《游乐场》《玉蝴蝶》等多首金曲，引得全场乐迷自发大合唱。
+近日A股相关概念股出现明显异动，题材热度十足。
 
-台上阵容强劲，台下亦云集香港商界和演艺界名人，如霍震霆、谭耀宗、吕耀东，以及张家辉等。
+韬定律将带来怎样的产业冲击波？
 
-据悉，英皇娱乐成立以来，曾于中国内地、香港、澳门及海外主办和策划流行音乐演唱会、古典音乐会、舞台剧等不同类型表演活动，累计超过1300场次。
+AI硬件何以持续霸占C位？
 
-(完)
+下半场的投资密码又是什么？
+
+为此，中国基金报记者采访了： 南方基金科创芯片ETF基金经理李佳亮 招商基金基金经理房俊一 中银先锋半导体、数字经济基金经理杨雷 兴银基金基金经理翁子晨 诺德基金基金经理周建胜 恒生前海高端制造混合基金经理龙江伟 上述基金经理普遍认为，韬定律是我国科技产业链长期自主创新能力的一次集中体现，短期对市场的影响情绪催化居多，长期有望引发范式革命。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 23:46 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 23:36 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 23:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 23:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 23:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 23:24 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:32 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 23:36 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 23:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 23:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:27 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 23:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 23:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 23:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 23:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 23:39 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 23:35 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 23:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 23:28 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 23:40 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 23:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 23:37 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 23:29 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 23:30 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 23:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 23:30 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 23:40 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 23:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 23:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/332867562.shtml)
-- 2026-06-29 23:27 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/77446.shtml)
-- 2026-06-29 23:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/421969344528.shtml)
-- 2026-06-29 23:35 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/049690316.shtml)
-- 2026-06-29 23:28 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/873683179.shtml)
-- 2026-06-29 23:38 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/0765611225.shtml)
-- 2026-06-29 23:31 - [一生一世](http://www.share.kurohicncr.top/Article/details/136536.shtml)
-- 2026-06-29 23:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/08300031.shtml)
-- 2026-06-29 23:40 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/80830422.shtml)
-- 2026-06-29 23:44 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/0275832.shtml)
-- 2026-06-29 23:27 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/519985216.shtml)
-- 2026-06-29 23:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/33612185989.shtml)
-- 2026-06-29 23:21 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/39474949199.shtml)
-- 2026-06-29 23:37 - [起风了](https://www.blog.minike.top/Article/details/106897150.shtml)
-- 2026-06-29 23:18 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/741199061254.shtml)
+- 2026-06-29 23:30 - [速度与激情9](http://www.blog.minike.top/Article/details/28131544491.shtml)
+- 2026-06-29 23:51 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/25923.shtml)
+- 2026-06-29 23:30 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/373730.shtml)
+- 2026-06-29 23:49 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/843232.shtml)
+- 2026-06-29 23:52 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/148439.shtml)
+- 2026-06-29 23:45 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/736803509528.shtml)
+- 2026-06-29 23:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/840972362984.shtml)
+- 2026-06-29 23:49 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/7027740.shtml)
+- 2026-06-29 23:49 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/2249907.shtml)
+- 2026-06-29 23:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/71066.shtml)
+- 2026-06-29 23:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/853275450667.shtml)
+- 2026-06-29 23:26 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/459844.shtml)
+- 2026-06-29 23:44 - [流金岁月](https://www.share.kurohicncr.top/Article/details/10067866098.shtml)
+- 2026-06-29 23:42 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/76842593.shtml)
+- 2026-06-29 23:38 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/06647.shtml)

@@ -1,59 +1,61 @@
-# 中信建投期货：5月6日能化早报
+# SpaceX据悉将IPO估值目标下调到至少1.8万亿美元
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-PX： 供需面供减需增。亚洲行业负荷环比减少1.7pct至64.5%，已降至五年同期低位。中国PX行业负荷环比减少0.4pct 至 80.4%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。需求端，PTA计划外检修增多将对PX需求产生阶段性压制。PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。假期期间美伊对峙升级
+据知情人士透露，SpaceX当前对首次公开募股（IPO）的目标估值至少为1.8万亿美元。 媒体4月份报道，其目标估值逾2万亿美元。知情人士透露，这家火箭、数据和人工智能公司在与顾问和投资者磋商后，将目标估值下调。由于信息尚未公开，知情人士要求匿名。 知情人士表示，IPO的发行规模和估值等细节通常会在定价前根据各方反馈调整。此前亦有知情人士透露，SpaceX计划通过此次上市融资至
 
 ## 正文
 
-PX： 供需面供减需增。
+据知情人士透露，SpaceX当前对首次公开募股（IPO）的目标估值至少为1.8万亿美元。
 
-亚洲行业负荷环比减少1.7pct至64.5%，已降至五年同期低位。
+媒体4月份报道，其目标估值逾2万亿美元。
 
-中国PX行业负荷环比减少0.4pct 至 80.4%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。
+知情人士透露，这家火箭、数据和人工智能公司在与顾问和投资者磋商后，将目标估值下调。
 
-需求端，PTA计划外检修增多将对PX需求产生阶段性压制。
+由于信息尚未公开，知情人士要求匿名。
 
-PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。
+知情人士表示，IPO的发行规模和估值等细节通常会在定价前根据各方反馈调整。
 
-假期期间美伊对峙升级，但昨日出现缓和迹象，特朗普称与伊朗取得进展，“自由计划”将短期暂停，美国国务卿鲁比奥也确认对伊朗的“史诗怒火”军事行动已结束。
+此前亦有知情人士透露，SpaceX计划通过此次上市融资至多750亿美元，将成为史上规模最大的IPO。
 
-不过，后续谈判进程预计仍不顺利，布伦特原油价格维持高位震荡。
+消息人士称，相关讨论仍在进行中，公司可能根据路演期间投资者的反馈提高目标估值。
 
-短期内，PX 现货流动性较为充裕，只有当库存去化速度加快时，才是较好的入场时机。
+SpaceX发言人未回应置评请求。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 23:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 23:45 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 23:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 23:24 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 23:35 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 23:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 23:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 23:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 23:35 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:23 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 23:43 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:52 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 23:40 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 23:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 23:35 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 23:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 23:35 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 23:25 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 23:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 23:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 23:30 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 23:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 23:51 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 23:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 23:24 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/1563359.shtml)
-- 2026-06-29 23:39 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/58628825101.shtml)
-- 2026-06-29 23:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/6970407581.shtml)
-- 2026-06-29 23:38 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/4875324517.shtml)
-- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/483149.shtml)
-- 2026-06-29 23:42 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/50129068467.shtml)
-- 2026-06-29 23:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/38227609.shtml)
-- 2026-06-29 23:21 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/843508323.shtml)
-- 2026-06-29 23:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/5505941580.shtml)
-- 2026-06-29 23:36 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/8261818.shtml)
-- 2026-06-29 23:22 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/23520535.shtml)
-- 2026-06-29 23:43 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/904229333831.shtml)
-- 2026-06-29 23:43 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/1915556.shtml)
-- 2026-06-29 23:20 - [时光音乐会](http://www.blog.minike.top/Article/details/9751056525.shtml)
-- 2026-06-29 23:18 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/83159493.shtml)
+- 2026-06-29 23:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/0596787.shtml)
+- 2026-06-29 23:51 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/54605808.shtml)
+- 2026-06-29 23:41 - [逃狱兄弟](http://www.blog.minike.top/Article/details/835650549543.shtml)
+- 2026-06-29 23:24 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/491840.shtml)
+- 2026-06-29 23:43 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/3367024682.shtml)
+- 2026-06-29 23:29 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/630021.shtml)
+- 2026-06-29 23:33 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/867505327650.shtml)
+- 2026-06-29 23:43 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/86913494.shtml)
+- 2026-06-29 23:25 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/221102317749.shtml)
+- 2026-06-29 23:24 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/9150800525.shtml)
+- 2026-06-29 23:44 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/0295519.shtml)
+- 2026-06-29 23:37 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/129509771.shtml)
+- 2026-06-29 23:43 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/91904337090.shtml)
+- 2026-06-29 23:38 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/7148156.shtml)
+- 2026-06-29 23:53 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/8701387.shtml)

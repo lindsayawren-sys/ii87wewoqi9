@@ -1,61 +1,53 @@
-# 阿拉巴马州和田纳西州推进重新划定国会选区
+# 康方生物盘初涨超12% 依沃西联合化疗战胜PD-1联合化疗OS结果发布
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-在美国最高法院大幅削弱《投票权法案》关键条款后，阿拉巴马州和田纳西州的共和党州长相继宣布召开特别立法会议，着手重新划分国会选区。此举是共和党在中期选举前在全国范围内重新划分选区攻势的一部分。 阿拉巴马州州长凯·艾维召集立法者于周一在蒙哥马利召开特别会议，制定应急计划。共和党立法领袖表示，此举“将给我们的州一个机会，向国会派出七名共和党议员”。该州七人代表团目前有两名民主党人。
+康方生物（09926）今日大幅高开，股价涨超12%，高见132.60港元，截至发稿，股价上涨7.28%，现报126.70港元，成交额17.40亿港元。 康方生物PD-1/VEGF双抗依沃西单抗联合化疗一线治疗晚期鳞状非小细胞肺癌的III期HARMONi-6研究于ASCO大会全体会议（Plenary Session）公布最新结果。与替雷利珠单抗联合化疗相比，依沃西组患者死亡风险下
 
 ## 正文
 
-在美国最高法院大幅削弱《投票权法案》关键条款后，阿拉巴马州和田纳西州的共和党州长相继宣布召开特别立法会议，着手重新划分国会选区。
+康方生物（09926）今日大幅高开，股价涨超12%，高见132.60港元，截至发稿，股价上涨7.28%，现报126.70港元，成交额17.40亿港元。
 
-此举是共和党在中期选举前在全国范围内重新划分选区攻势的一部分。
+康方生物PD-1/VEGF双抗依沃西单抗联合化疗一线治疗晚期鳞状非小细胞肺癌的III期HARMONi-6研究于ASCO大会全体会议（Plenary Session）公布最新结果。
 
-阿拉巴马州州长凯·艾维召集立法者于周一在蒙哥马利召开特别会议，制定应急计划。
+与替雷利珠单抗联合化疗相比，依沃西组患者死亡风险下降34%，OS达到统计学显著性，两年生存率64.7% vs 48.6%。
 
-共和党立法领袖表示，此举“将给我们的州一个机会，向国会派出七名共和党议员”。
+HARMONi-6共入组532例患者，中央型鳞癌占比约63%，PD-L1 TPS＜1%患者占39%，多部位转移、肝转移及脑转移患者占比约33.8%。
 
-该州七人代表团目前有两名民主党人。
+核心数据显示：依沃西组mOS达到27.89个月，对照组为23.69个月，延长近4个月；HR为0.66，p值0.0017，明显优于预设统计学边界0.0049。
 
-与此同时，田纳西州州长比尔·李也宣布从周二开始召开特别会议，让共和党控制的立法机构拆分该州唯一一个由民主党控制的国会选区。
-
-该选区以孟菲斯市为中心，当地人口以非裔美国人为主。
-
-上周，美国最高法院以6比3的票数推翻了路易斯安那州的一个非裔占多数的国会选区，认为该选区划分“过于基于种族因素”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 23:25 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 23:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 23:22 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 23:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 23:24 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 23:34 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 23:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 23:38 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 23:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 23:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 23:23 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 23:31 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 23:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 23:38 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 23:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 23:46 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 23:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 23:53 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 23:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 23:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 23:53 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 23:38 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 23:39 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/8988096.shtml)
-- 2026-06-29 23:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/2692236623.shtml)
-- 2026-06-29 23:24 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/87189894310.shtml)
-- 2026-06-29 23:21 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/720712329663.shtml)
-- 2026-06-29 23:20 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/2294564.shtml)
-- 2026-06-29 23:47 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/36954561.shtml)
-- 2026-06-29 23:42 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/80789.shtml)
-- 2026-06-29 23:18 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/3933696.shtml)
-- 2026-06-29 23:34 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/8486993562.shtml)
-- 2026-06-29 23:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/644651360.shtml)
-- 2026-06-29 23:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/371550.shtml)
-- 2026-06-29 23:27 - [青春环游记第三季](https://www.blog.minike.top/Article/details/673151071783.shtml)
-- 2026-06-29 23:32 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/4186350179.shtml)
-- 2026-06-29 23:35 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/0828270128.shtml)
-- 2026-06-29 23:42 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/71021833306.shtml)
+- 2026-06-29 23:34 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/240279.shtml)
+- 2026-06-29 23:48 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/44252.shtml)
+- 2026-06-29 23:38 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/705421846.shtml)
+- 2026-06-29 23:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/64252301.shtml)
+- 2026-06-29 23:45 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/641797.shtml)
+- 2026-06-29 23:37 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/38348.shtml)
+- 2026-06-29 23:46 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/5650808.shtml)
+- 2026-06-29 23:34 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/7745630378.shtml)
+- 2026-06-29 23:46 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/6656392.shtml)
+- 2026-06-29 23:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/408087.shtml)
+- 2026-06-29 23:53 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/9937183.shtml)
+- 2026-06-29 23:28 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/87798.shtml)
+- 2026-06-29 23:53 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/6396005.shtml)
+- 2026-06-29 23:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/7653933918.shtml)
+- 2026-06-29 23:24 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/628718771.shtml)

@@ -1,60 +1,58 @@
-# 光大期货0506黄金点评：金价短线反弹，中期底部渐行渐近
+# 中国赢得2030年国际测量师联合会大会主办权
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-今早，外盘COMEX黄金短线显著走强，截至撰稿涨幅约1.3%。节后首个交易日，市场情绪有所修复，但金价能否就此走出趋势，仍需观察多重因素的演变。 从整体来看，黄金或处于中期底部的逐步确认阶段，4000至4500美元/盎司区间是目前较为稳健的筑底区域，在这一区间内我们也看到了央行购金力度加大的迹象，为金价提供了信用层面的底部支撑。然而，最终驱动方向仍依赖于地缘局势的演进与油价的边
+中新网开普敦5月29日电 当地时间5月29日，在南非开普敦召开的国际测量师联合会(FIG)2026年大会全体会议上，经全球会员投票，中国青岛以78票高得票率赢得2030年FIG大会主办权。 这将是FIG大会自1878年成立以来首次落户中国，青岛将成为首座承办这一全球测绘地理信息领域顶级盛会的中国城市。 中国测绘学会组团参加了此次年会，山东省青岛市代表在大会上做陈述。 本届202
 
 ## 正文
 
-今早，外盘COMEX黄金短线显著走强，截至撰稿涨幅约1.3%。
+中新网开普敦5月29日电 当地时间5月29日，在南非开普敦召开的国际测量师联合会(FIG)2026年大会全体会议上，经全球会员投票，中国青岛以78票高得票率赢得2030年FIG大会主办权。
 
-节后首个交易日，市场情绪有所修复，但金价能否就此走出趋势，仍需观察多重因素的演变。
+这将是FIG大会自1878年成立以来首次落户中国，青岛将成为首座承办这一全球测绘地理信息领域顶级盛会的中国城市。
 
-从整体来看，黄金或处于中期底部的逐步确认阶段，4000至4500美元/盎司区间是目前较为稳健的筑底区域，在这一区间内我们也看到了央行购金力度加大的迹象，为金价提供了信用层面的底部支撑。
+中国测绘学会组团参加了此次年会，山东省青岛市代表在大会上做陈述。
 
-然而，最终驱动方向仍依赖于地缘局势的演进与油价的边际变化。
+本届2026年大会主题为“我们希望的未来——可持续发展目标及其未来”，重点聚焦土地治理、空间信息技术、可持续发展及气候韧性等议题。
 
-需要指出的是，当前油价上涨压低了市场对降息的预期，短期推高了实际利率预期，从而压缩了黄金的吸引力，但这并非黄金避险属性的根本性失效，而是市场从美国经济数据中更加关注通胀的变化，尚未看到明显衰退迹象，导致滞胀交易逻辑并不顺畅，资金暂时选择了规避当前阶段的博弈。
+国际测量师联合会大会每四年举办一次，被视为全球测绘与空间信息行业最具影响力的国际会议之一。
 
-不过，随着高油价持续运行，其对经济的负面影响可能逐渐显现。
+国际测量师联合会是全球测绘、地籍、地理信息领域最权威的国际组织之一，1878年7月18日成立于法国巴黎，会员覆盖120多个国家和地区，含国家学会协会、企业、学术机构。
 
-若通胀持续高企而经济前景转弱，美联储当前的政策僵持状态本身是否隐含了“犯错”的风险，最终是否会被迫再度转向降息预期，这一路径值得投资者深入思考，也是未来黄金有望重回上行通道的关键因子。
-
-策略上，依然维系逢低配置的思路，不宜过度追高。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 23:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 23:28 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:47 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 23:36 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 23:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 23:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 23:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 23:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 23:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 23:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 23:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 23:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 23:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 23:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 23:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 23:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 23:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 23:37 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 23:39 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 23:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 23:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 23:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 23:36 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/925552182298.shtml)
-- 2026-06-29 23:44 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/241337.shtml)
-- 2026-06-29 23:34 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/65386255755.shtml)
-- 2026-06-29 23:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8092334442.shtml)
-- 2026-06-29 23:19 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/280110218423.shtml)
-- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/04933743467.shtml)
-- 2026-06-29 23:42 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/136614382.shtml)
-- 2026-06-29 23:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/2572699.shtml)
-- 2026-06-29 23:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/991787.shtml)
-- 2026-06-29 23:44 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/23620235.shtml)
-- 2026-06-29 23:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/87123.shtml)
-- 2026-06-29 23:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/2639745706.shtml)
-- 2026-06-29 23:42 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/39880257794.shtml)
-- 2026-06-29 23:22 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/5225957.shtml)
-- 2026-06-29 23:42 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/002786944509.shtml)
+- 2026-06-29 23:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/0598161139.shtml)
+- 2026-06-29 23:50 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/19182332.shtml)
+- 2026-06-29 23:35 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/716323870280.shtml)
+- 2026-06-29 23:50 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/664116772.shtml)
+- 2026-06-29 23:53 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/709203.shtml)
+- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/43785693.shtml)
+- 2026-06-29 23:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/267706.shtml)
+- 2026-06-29 23:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/432870.shtml)
+- 2026-06-29 23:53 - [我和我的家乡](http://www.share.minike.top/Article/details/888381228524.shtml)
+- 2026-06-29 23:25 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/338553576987.shtml)
+- 2026-06-29 23:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/740099924.shtml)
+- 2026-06-29 23:28 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/274467110.shtml)
+- 2026-06-29 23:53 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/9346588.shtml)
+- 2026-06-29 23:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/2843395664.shtml)
+- 2026-06-29 23:45 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/0121067.shtml)

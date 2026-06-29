@@ -1,44 +1,56 @@
-# 记者深夜直击湖南浏阳烟花厂爆炸事故现场：民房玻璃震碎 消防彻夜救援
+# 【十大券商一周策略】短期波动或加大，但并非行情反转！AI超级周期仍在半途
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 12:12 来源：中国新闻网 记者深夜直击湖南浏阳烟花厂爆炸事故现场：民房玻璃震碎 消防彻夜救援 责任编辑：【张楠】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！广发证券：A股的成交集中度仍有上行空间 针对市场整体，广发证券认为，当指数没有负面β的情况下，市场也不会出现资金全面流出，季度维度上，还是可以聚焦业绩和产业，即6月底A股半年报预告、7月中旬美股半年报。 针对A股成交集中度来到相对高位的话题，广发证券认为，A股的成交集中度仍有上行空间。首先，即便是与历史高点
 
 ## 正文
 
-发布时间：2026年05月05日 12:12 来源：中国新闻网 记者深夜直击湖南浏阳烟花厂爆炸事故现场：民房玻璃震碎 消防彻夜救援 责任编辑：【张楠】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+广发证券：A股的成交集中度仍有上行空间 针对市场整体，广发证券认为，当指数没有负面β的情况下，市场也不会出现资金全面流出，季度维度上，还是可以聚焦业绩和产业，即6月底A股半年报预告、7月中旬美股半年报。
+
+针对A股成交集中度来到相对高位的话题，广发证券认为，A股的成交集中度仍有上行空间。
+
+首先，即便是与历史高点比较，当前成交集中度也尚未到达极值。
+
+其次，在大的产业趋势面前，成交集中度本身就有望创新高。
+
+此外，本轮集中度提升的背后，传统资产的抛压也驱使资金加速涌入科技，也进一步导致了成交集中度的高斜率上行。
+
+因此，在景气度和业绩加速面前，以交易集中度、成交额占比、市值占比为代表的拥挤度指标很容易失效。
+
+这类指标更适用于业绩尚未兑现的题材板块，典型如人形机器人、商业航天、AI应用等。
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 23:42 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 23:31 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 23:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 23:38 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:26 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 23:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 23:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 23:45 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 23:23 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 23:35 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 23:28 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 23:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 23:39 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 23:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 23:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 23:24 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 23:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 23:50 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 23:50 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/51987045641.shtml)
-- 2026-06-29 23:22 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/45071355813.shtml)
-- 2026-06-29 23:35 - [起风了](http://www.blog.kurohicncr.top/Article/details/144531.shtml)
-- 2026-06-29 23:25 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/871394582109.shtml)
-- 2026-06-29 23:27 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/7950118474.shtml)
-- 2026-06-29 23:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/05241.shtml)
-- 2026-06-29 23:44 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/209235597011.shtml)
-- 2026-06-29 23:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/029795.shtml)
-- 2026-06-29 23:36 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/253450677.shtml)
-- 2026-06-29 23:33 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/630458617.shtml)
-- 2026-06-29 23:20 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/870954939666.shtml)
-- 2026-06-29 23:32 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/24786283.shtml)
-- 2026-06-29 23:38 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/9000417.shtml)
-- 2026-06-29 23:39 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/242119657.shtml)
-- 2026-06-29 23:24 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/977388.shtml)
+- 2026-06-29 23:40 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/35956.shtml)
+- 2026-06-29 23:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/96836.shtml)
+- 2026-06-29 23:36 - [世界杯](https://www.blog.kurohicncr.top/Article/details/811933686.shtml)
+- 2026-06-29 23:40 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/511141967.shtml)
+- 2026-06-29 23:44 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/88539.shtml)
+- 2026-06-29 23:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/19720143214.shtml)
+- 2026-06-29 23:41 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/225115184597.shtml)
+- 2026-06-29 23:26 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/64689420.shtml)
+- 2026-06-29 23:27 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/91777445366.shtml)
+- 2026-06-29 23:49 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/62641773039.shtml)
+- 2026-06-29 23:34 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/1864557.shtml)
+- 2026-06-29 23:45 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/1845338601.shtml)
+- 2026-06-29 23:35 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/82167777.shtml)
+- 2026-06-29 23:31 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/903174019.shtml)
+- 2026-06-29 23:40 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/024620.shtml)

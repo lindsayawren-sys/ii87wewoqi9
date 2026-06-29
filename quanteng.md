@@ -1,57 +1,59 @@
-# 伯克希尔股东大会凸显阿贝尔面临艰难的平衡考验
+# 西藏26位僧人角逐藏传佛教“博士衔”招生考试
 
-> 更新时间：2026-06-29 23:48:02 UTC+8
+> 更新时间：2026-06-29 23:54:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 摘要 格雷格・阿贝尔于周六向伯克希尔・哈撒韦公司股东发表讲话。这是首届没有沃伦・巴菲特主持的年度股东大会。阿贝尔回顾了一年前巴菲特在股东大会上正式指定他为公司下一任首席执行官的时刻。 阿贝尔不再独自独占舞台焦点，而是与核心高管团队同台，让各业务负责人直接向投资者介绍旗下业务；大会开场还设置了轻松温情的环节，向两位传奇前任掌门人致敬。 阿贝
+中新社拉萨5月30日电 (记者 江飞波)2026年中国藏语系高级佛学院高级学衔班招生考试，西藏自治区考点于5月28日至31日在西藏佛学院开考，来自西藏各寺院的26名格鲁派、噶举派考僧报名参考。 中国藏语系高级佛学院是中国佛教协会主办的藏传佛教现代教育最高学府，是具有“拓然巴”高级学衔(博士衔)培养授予资格的全日制高等院校。2004年藏传佛教新的学衔制度建立实施以来，学院共授予“
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 摘要 格雷格・阿贝尔于周六向伯克希尔・哈撒韦公司股东发表讲话。
+中新社拉萨5月30日电 (记者 江飞波)2026年中国藏语系高级佛学院高级学衔班招生考试，西藏自治区考点于5月28日至31日在西藏佛学院开考，来自西藏各寺院的26名格鲁派、噶举派考僧报名参考。
 
-这是首届没有沃伦・巴菲特主持的年度股东大会。
+中国藏语系高级佛学院是中国佛教协会主办的藏传佛教现代教育最高学府，是具有“拓然巴”高级学衔(博士衔)培养授予资格的全日制高等院校。
 
-阿贝尔回顾了一年前巴菲特在股东大会上正式指定他为公司下一任首席执行官的时刻。
+2004年藏传佛教新的学衔制度建立实施以来，学院共授予“拓然巴”高级学衔433人，“智然巴”中级学衔150人。
 
-阿贝尔不再独自独占舞台焦点，而是与核心高管团队同台，让各业务负责人直接向投资者介绍旗下业务；大会开场还设置了轻松温情的环节，向两位传奇前任掌门人致敬。
+本届高级学衔班计划面向西藏、四川、云南、甘肃、青海招录学员39名，覆盖格鲁派、噶举派、觉囊派等教派。
 
-阿贝尔直白、详尽地通报了伯克希尔旗下各子公司及股票持仓的最新情况，并与副董事长阿吉特・贾恩一同回答股东提问，让市场得以窥见他的投资思路。
+拉萨市曲水县热堆寺格鲁派僧人益西旦增已学修佛法21年，严格遵循显密次第完成《五部大论》与密宗仪轨修习。
 
-作者：亚历山大・拉杰班达里 格雷格・阿贝尔开门见山，直面大家心照不宣的核心话题。
+2024年，他在藏传佛教格西拉让巴立宗答辩中获得第六名。
 
-周六，伯克希尔・哈撒韦年度股东大会正式召开，这是首次由非巴菲特主持的年会。
+谈及本次报考初衷，益西旦增说：“学无止境，这次报考，是想继续学习、深造。
 
-阿贝尔在开场发言的最初几分钟，便带领投资者回顾一年前的场景：当时巴菲特在现场重磅宣布任命他为继任 CEO，震惊全场。
+” 首日上午是通识知识考试，内容涵盖时事政治与《中华人民共和国宪法》等内容。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 23:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 23:21 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 23:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 23:42 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 23:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 23:41 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 23:33 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 23:28 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 23:30 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 23:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 23:26 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 23:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 23:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 23:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 23:39 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 23:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:42 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 23:30 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 23:30 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 23:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 23:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/05740461056.shtml)
-- 2026-06-29 23:18 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/968925.shtml)
-- 2026-06-29 23:42 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/2416321.shtml)
-- 2026-06-29 23:21 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/526996028257.shtml)
-- 2026-06-29 23:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/25803192051.shtml)
-- 2026-06-29 23:32 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/8461705.shtml)
-- 2026-06-29 23:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/972858847155.shtml)
-- 2026-06-29 23:19 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/14063951.shtml)
-- 2026-06-29 23:19 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/0378314172.shtml)
-- 2026-06-29 23:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/28336901.shtml)
-- 2026-06-29 23:29 - [毒液2](https://www.share.minike.top/Article/details/291120129.shtml)
-- 2026-06-29 23:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/99368596.shtml)
-- 2026-06-29 23:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/3855771950.shtml)
-- 2026-06-29 23:20 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/69015.shtml)
-- 2026-06-29 23:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/61644.shtml)
+- 2026-06-29 23:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/57393.shtml)
+- 2026-06-29 23:36 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/966286948899.shtml)
+- 2026-06-29 23:50 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/515652224612.shtml)
+- 2026-06-29 23:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/737627390733.shtml)
+- 2026-06-29 23:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/3384718.shtml)
+- 2026-06-29 23:30 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/16190202204.shtml)
+- 2026-06-29 23:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/81864.shtml)
+- 2026-06-29 23:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/4436670.shtml)
+- 2026-06-29 23:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/2402412.shtml)
+- 2026-06-29 23:27 - [天道](http://www.share.minike.top/Article/details/9350291190.shtml)
+- 2026-06-29 23:40 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/45494.shtml)
+- 2026-06-29 23:24 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/155442093113.shtml)
+- 2026-06-29 23:40 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/992409.shtml)
+- 2026-06-29 23:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/970267075.shtml)
+- 2026-06-29 23:34 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/011244281.shtml)
