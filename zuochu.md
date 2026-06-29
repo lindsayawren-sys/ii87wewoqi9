@@ -1,60 +1,50 @@
-# ISS建议ConocoPhillips股东支持独立董事主席提案
+# 快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-2026年4月22日，全球领先的代理顾问机构机构股东服务公司（ISS）今日发布报告，建议ConocoPhillips的股东在即将举行的年度股东大会上，投票支持一项要求公司设立独立董事会主席的股东提案。 ISS认为，将董事会主席与首席执行官（CEO）的职位分离，并由一名独立董事担任主席，将有助于加强公司的治理结构和董事会的独立性。此举旨在确保董事会能够更有效地监督管理层，特别是在
+美股上周五个别发展，美国3月份通胀上升至近两年新高，拖累大市走势回落，科技股表现较好，纳指逆市上升，三大指数收市升跌不一。美元走势向下，美国十年期债息先跌后回升，金价表现向上，油价则继续回落。 今日港股三大指数集体低开，恒指开盘跌0.71%，报25708.64点，恒科指跌0.69%，国企指数跌0.56%。盘面上，科网股跌多涨少，哔哩哔哩涨超1%，百度跌超3%，网易跌超2%，腾讯
 
 ## 正文
 
-2026年4月22日，全球领先的代理顾问机构机构股东服务公司（ISS）今日发布报告，建议ConocoPhillips的股东在即将举行的年度股东大会上，投票支持一项要求公司设立独立董事会主席的股东提案。
+美股上周五个别发展，美国3月份通胀上升至近两年新高，拖累大市走势回落，科技股表现较好，纳指逆市上升，三大指数收市升跌不一。
 
-ISS认为，将董事会主席与首席执行官（CEO）的职位分离，并由一名独立董事担任主席，将有助于加强公司的治理结构和董事会的独立性。
+美元走势向下，美国十年期债息先跌后回升，金价表现向上，油价则继续回落。
 
-此举旨在确保董事会能够更有效地监督管理层，特别是在公司面临业绩挑战和战略调整的关键时期。
+今日港股三大指数集体低开，恒指开盘跌0.71%，报25708.64点，恒科指跌0.69%，国企指数跌0.56%。
 
-这一建议正值ConocoPhillips面临多重挑战之际。
+盘面上，科网股跌多涨少，哔哩哔哩涨超1%，百度跌超3%，网易跌超2%，腾讯、美团、联想跌超1%；油气股高开，百勤油服涨超10%；黄金股低开，赤峰黄金跌超1%；航空股普跌，东方航空跌超2%。
 
-近期，公司因2025年第四季度收益不及预期、下调2026年产量展望以及相对较高的盈亏平衡油价而受到分析师的持续担忧。
-
-此外，公司董事长兼首席执行官近期出售了部分公司股票，以及主要机构投资者的减持，也引发了市场对公司未来表现的疑虑。
-
-机构股东服务公司在报告中指出，独立的董事会主席能够更好地协调董事会工作，确保管理层对股东负责，并提升公司在环境、社会和治理（ESG）方面的表现。
-
-ConocoPhillips的董事会目前由CEO兼任主席，该股东提案若获通过，将促使公司改变这一结构。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:47 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:53 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:54 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:55 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:52 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:47 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:01 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:52 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:44 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:59 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:09 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:03 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:42 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:07 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:06 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:58 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:03 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:06 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:10 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:52 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:17 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:17 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:08 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.share.kurohicncr.top/Article/details/10712.shtml)
-- 2026-06-29 11:59 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.kurohicncr.top/Article/details/49489851.shtml)
-- 2026-06-29 12:09 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.blog.minike.top/Article/details/145194.shtml)
-- 2026-06-29 11:45 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.blog.kurohicncr.top/Article/details/542792.shtml)
-- 2026-06-29 12:08 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.share.minike.top/Article/details/263300363805.shtml)
-- 2026-06-29 11:48 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.kurohicncr.top/Article/details/472268.shtml)
-- 2026-06-29 12:05 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.share.kurohicncr.top/Article/details/466774417217.shtml)
-- 2026-06-29 11:54 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.kurohicncr.top/Article/details/143595856.shtml)
-- 2026-06-29 12:03 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.share.kurohicncr.top/Article/details/051934781.shtml)
-- 2026-06-29 12:02 - [一习话丨“要提倡多读书 建设书香社会”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.kurohicncr.top/Article/details/312368536570.shtml)
+- 2026-06-29 11:49 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.blog.kurohicncr.top/Article/details/3436905.shtml)
+- 2026-06-29 12:11 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.minike.top/Article/details/61678974.shtml)
+- 2026-06-29 12:17 - [尼泊尔民众拉战车迎接尼历新年](http://www.blog.minike.top/Article/details/3815807221.shtml)
+- 2026-06-29 11:56 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.kurohicncr.top/Article/details/2486473.shtml)
+- 2026-06-29 12:04 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.kurohicncr.top/Article/details/824031.shtml)
+- 2026-06-29 11:53 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/42547.shtml)
+- 2026-06-29 12:11 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.minike.top/Article/details/2286410.shtml)
+- 2026-06-29 11:56 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.blog.kurohicncr.top/Article/details/935181.shtml)
+- 2026-06-29 12:02 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/94294.shtml)
+- 2026-06-29 12:03 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/3000271.shtml)
+- 2026-06-29 12:01 - [光大期货：4月13日软商品日报](http://www.share.kurohicncr.top/Article/details/369589428.shtml)
+- 2026-06-29 12:08 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.share.minike.top/Article/details/331365831424.shtml)
+- 2026-06-29 11:59 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.blog.kurohicncr.top/Article/details/351054363828.shtml)

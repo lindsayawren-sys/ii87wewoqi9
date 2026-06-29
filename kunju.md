@@ -1,57 +1,58 @@
-# 国际刑事法院声称要对杜特尔特进行审判
+# 李强同阿联酋阿布扎比王储哈立德会谈
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-新华社海牙4月23日电(记者邵海军)位于荷兰海牙的国际刑事法院23日声称，将以3项所谓“反人类罪”罪名对菲律宾前总统杜特尔特进行审判。 该法院在一份声明中称，预审一庭研究了控辩双方在今年2月23日至27日听证会上提交的材料等，认定杜特尔特3项所谓“反人类罪”罪名成立，并将案件移交审判庭。后续审判时间和程序将由审判庭决定。 此前，杜特尔特之女、菲律宾副总统莎拉·杜特尔特曾就国际刑
+新华社北京4月13日电(记者孙楠)4月13日下午，国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。 李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。中方愿同阿方继续在共同发展的道路上结伴
 
 ## 正文
 
-新华社海牙4月23日电(记者邵海军)位于荷兰海牙的国际刑事法院23日声称，将以3项所谓“反人类罪”罪名对菲律宾前总统杜特尔特进行审判。
+新华社北京4月13日电(记者孙楠)4月13日下午，国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。
 
-该法院在一份声明中称，预审一庭研究了控辩双方在今年2月23日至27日听证会上提交的材料等，认定杜特尔特3项所谓“反人类罪”罪名成立，并将案件移交审判庭。
+李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。
 
-后续审判时间和程序将由审判庭决定。
+近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。
 
-此前，杜特尔特之女、菲律宾副总统莎拉·杜特尔特曾就国际刑事法院审理杜特尔特案表示，“必须对法律武器化和试图绕过菲律宾法院的外国势力违宪干预保持警惕”。
+中方愿同阿方继续在共同发展的道路上结伴前行，加强沟通协调，筑牢政治互信，推动中阿关系与合作不断迈上新台阶，取得更多实际成果，更好实现互利共赢。
 
-国际刑事法院22日判决，该院对杜特尔特案具有管辖权，拒绝辩方律师关于立即释放杜特尔特的申请。
+李强指出，中方愿同阿方夯实能源合作基础，拓展储能、氢能、新能源汽车、动力电池等领域合作，促进两国绿色转型。
 
-菲参议员、现任总统费迪南德·马科斯的姐姐伊梅·马科斯随后表示，这一裁决无视菲律宾已退出《国际刑事法院罗马规约》的事实，违背了菲律宾本国司法机构应享有优先处置权的基本原则。
+双方要打造更多贸易增长点，既扩大规模，也优化结构。
 
-杜特尔特在担任菲律宾达沃市市长和菲总统期间发起反毒行动。
+中方愿进口阿方更多优质产品，欢迎阿方积极参与“共享大市场·出口中国”系列活动，用好中国进博会、服贸会等平台加大产品推介。
 
-2018年2月，国际刑事法院通知菲律宾政府，将对杜特尔特领导的打击毒品犯罪行动是否有违反人权的情况展开“初步调查”。
+中阿在创新发展领域的合作前景广阔，中方欢迎阿方加大在人工智能、数字经济、先进制造、生命科学等领域的对华投资，支持两国高校、科研机构和企业加强联合研究和人才培养，共同培育壮大新兴和未来产业。
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:57 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:06 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:44 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:03 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:00 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:59 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:47 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:43 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:54 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:57 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:16 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:15 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:14 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:18 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:55 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:55 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:12 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:50 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:09 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:49 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:11 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:57 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.blog.kurohicncr.top/Article/details/56921083585.shtml)
-- 2026-06-29 11:45 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/83589506.shtml)
-- 2026-06-29 11:51 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.kurohicncr.top/Article/details/738399895986.shtml)
-- 2026-06-29 11:57 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.minike.top/Article/details/58606817.shtml)
-- 2026-06-29 12:08 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.share.kurohicncr.top/Article/details/73089893.shtml)
-- 2026-06-29 11:56 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.minike.top/Article/details/960490.shtml)
-- 2026-06-29 11:55 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.share.kurohicncr.top/Article/details/2433574.shtml)
-- 2026-06-29 11:46 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.blog.kurohicncr.top/Article/details/394932879.shtml)
-- 2026-06-29 12:06 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.minike.top/Article/details/032992923.shtml)
-- 2026-06-29 12:11 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.kurohicncr.top/Article/details/803581255.shtml)
-- 2026-06-29 12:11 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.kurohicncr.top/Article/details/746710795.shtml)
-- 2026-06-29 11:52 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.share.minike.top/Article/details/787910622.shtml)
+- 2026-06-29 12:05 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.blog.kurohicncr.top/Article/details/845021452772.shtml)
+- 2026-06-29 11:56 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.share.kurohicncr.top/Article/details/35567.shtml)
+- 2026-06-29 11:53 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.share.kurohicncr.top/Article/details/548251206171.shtml)
+- 2026-06-29 12:02 - [伊美第三轮会谈在伊斯兰堡举行](http://www.blog.kurohicncr.top/Article/details/586105646.shtml)
+- 2026-06-29 11:52 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.minike.top/Article/details/51986139321.shtml)
+- 2026-06-29 12:13 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.minike.top/Article/details/228960074.shtml)
+- 2026-06-29 11:58 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.minike.top/Article/details/281910238.shtml)
+- 2026-06-29 12:01 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.share.kurohicncr.top/Article/details/5778321571.shtml)
+- 2026-06-29 12:13 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [伊朗武装部队称随时准备开火](http://www.share.kurohicncr.top/Article/details/30394.shtml)
+- 2026-06-29 12:03 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/522291798.shtml)
+- 2026-06-29 11:50 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.minike.top/Article/details/8144695639.shtml)
+- 2026-06-29 12:12 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/7274698.shtml)
+- 2026-06-29 11:59 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/354902126797.shtml)
+- 2026-06-29 12:05 - [光大期货：4月13日软商品日报](http://www.share.kurohicncr.top/Article/details/75041853586.shtml)

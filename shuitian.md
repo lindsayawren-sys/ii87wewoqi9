@@ -1,46 +1,57 @@
-# 宏润建设：2025年归母净利润2.8亿元，同比下降1.14%
+# 巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-宏润建设4月23日公告，2025年实现营业收入57.46亿元，同比下降2.99%；归属于上市公司股东的净利润2.8亿元，上年同期2.83亿元，同比下降1.14%；基本每股收益0.23元。
+中新网北京4月12日电 (袁阳)位于北京市丰台区的宛平城西城楼上，一曲熟悉的《茉莉花》旋律在春风中响起。演唱者是来自巴西里约州的非物质文化遗产“科帕卡巴纳要塞管弦乐团”的乐手们。 这是在中巴建交50周年之后，2026年“中巴文化年”开启之际举行的一场特别文化交流。远道而来的科帕卡巴纳要塞管弦乐团，从丰台区文化馆剧场到卢沟桥宛平城，以一场跨越剧场与古城的文化行走，奏响中巴民间友谊
 
 ## 正文
 
-宏润建设4月23日公告，2025年实现营业收入57.46亿元，同比下降2.99%；归属于上市公司股东的净利润2.8亿元，上年同期2.83亿元，同比下降1.14%；基本每股收益0.23元。
+中新网北京4月12日电 (袁阳)位于北京市丰台区的宛平城西城楼上，一曲熟悉的《茉莉花》旋律在春风中响起。
+
+演唱者是来自巴西里约州的非物质文化遗产“科帕卡巴纳要塞管弦乐团”的乐手们。
+
+这是在中巴建交50周年之后，2026年“中巴文化年”开启之际举行的一场特别文化交流。
+
+远道而来的科帕卡巴纳要塞管弦乐团，从丰台区文化馆剧场到卢沟桥宛平城，以一场跨越剧场与古城的文化行走，奏响中巴民间友谊的动人乐章。
+
+在丰台区文化馆内，来自巴西的乐团以中文经典作品《如愿》开场，拉近了与观众的距离。
+
+随后，一曲充满巴西民俗旋律的《伊帕内玛女孩》点燃全场。
+
+令观众惊喜的是，他们还特意演奏了《茉莉花》《鸿雁》《星辰大海》等中国歌曲。
+
+当中国传统旋律通过巴西乐器演绎出来，既保留了东方神韵，又增添了异域风情，现场掌声阵阵，不少观众随着旋律轻声哼唱。
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:06 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:42 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:05 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:03 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:05 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:02 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:45 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:08 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:58 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:03 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:57 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:48 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:54 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:16 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:03 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:09 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:49 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:11 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:49 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:01 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:49 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:14 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:06 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:51 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.share.kurohicncr.top/Article/details/029790766.shtml)
-- 2026-06-29 12:10 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.blog.kurohicncr.top/Article/details/98187821.shtml)
-- 2026-06-29 12:04 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.share.minike.top/Article/details/40372396621.shtml)
-- 2026-06-29 12:09 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.kurohicncr.top/Article/details/5898847.shtml)
-- 2026-06-29 11:47 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.share.kurohicncr.top/Article/details/3216829.shtml)
-- 2026-06-29 12:05 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.share.kurohicncr.top/Article/details/2725061.shtml)
-- 2026-06-29 11:53 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.minike.top/Article/details/680458.shtml)
-- 2026-06-29 11:51 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.blog.kurohicncr.top/Article/details/41632692572.shtml)
-- 2026-06-29 12:11 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.blog.kurohicncr.top/Article/details/69219923.shtml)
-- 2026-06-29 12:08 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/47435936231.shtml)
-- 2026-06-29 12:09 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/31005.shtml)
+- 2026-06-29 12:15 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.minike.top/Article/details/94834.shtml)
+- 2026-06-29 12:00 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.share.kurohicncr.top/Article/details/5462244.shtml)
+- 2026-06-29 12:01 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.share.kurohicncr.top/Article/details/554204.shtml)
+- 2026-06-29 12:15 - [广西三江：花映楼桥入画来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.minike.top/Article/details/20393177.shtml)
+- 2026-06-29 11:53 - [A股周一缩量上涨 创业板指创四年多新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.blog.minike.top/Article/details/63221270.shtml)
+- 2026-06-29 12:05 - [*ST万方，停牌！拟终止上市！](http://www.share.kurohicncr.top/Article/details/102773.shtml)
+- 2026-06-29 12:04 - [摩根大通就停火风险提示油价走势](http://www.blog.kurohicncr.top/Article/details/31786970.shtml)
+- 2026-06-29 12:11 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.share.kurohicncr.top/Article/details/48553.shtml)
+- 2026-06-29 11:48 - [个贷不良依然压力山大](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.share.kurohicncr.top/Article/details/704655903.shtml)
+- 2026-06-29 12:12 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.share.minike.top/Article/details/110034935840.shtml)
+- 2026-06-29 11:48 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.blog.kurohicncr.top/Article/details/0291338181.shtml)

@@ -1,59 +1,59 @@
-# 世界地球日山西自然博物馆开启系列展览探寻地球血脉
+# 汇添富基金的2025年：规模涨了，利润降了，人才跑了
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网太原4月22日电 (任丽娜)听风的低语，水的轻吟，并感受大自然寂静之下蕴藏的磅礴生机。这不仅是一场视觉的盛宴，更是一次对地球血脉的探寻。4月22日，山西自然博物馆举办了系列展览活动庆祝第57个世界地球日的到来。展览以镜头为媒，全面展现新时代中国生态文明建设成果，生动呈现中国自然风貌的雄奇壮美与自然资源工作者的奋斗风采。 本次系列活动，山西自然博物馆推出了“珍爱自然资源 守
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：东西财经 “3月28日，东方证券披露2025年年报，其持股35.41%的汇添富基金的‘成绩单’亦浮出水面。不过，汇添富基金2025年的业绩表现令市场颇感意外，尽管其资产管理规模升至万亿元，却陷入了‘增收不增利’的泥潭。” 与此同时，自2025年下半年起，汇添富基金出现密集人事调整，尤以资深基金经理及投
 
 ## 正文
 
-中新网太原4月22日电 (任丽娜)听风的低语，水的轻吟，并感受大自然寂静之下蕴藏的磅礴生机。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这不仅是一场视觉的盛宴，更是一次对地球血脉的探寻。
+来源：东西财经 “3月28日，东方证券披露2025年年报，其持股35.41%的汇添富基金的‘成绩单’亦浮出水面。
 
-4月22日，山西自然博物馆举办了系列展览活动庆祝第57个世界地球日的到来。
+不过，汇添富基金2025年的业绩表现令市场颇感意外，尽管其资产管理规模升至万亿元，却陷入了‘增收不增利’的泥潭。
 
-展览以镜头为媒，全面展现新时代中国生态文明建设成果，生动呈现中国自然风貌的雄奇壮美与自然资源工作者的奋斗风采。
+” 与此同时，自2025年下半年起，汇添富基金出现密集人事调整，尤以资深基金经理及投研人员的批量离职为甚。
 
-本次系列活动，山西自然博物馆推出了“珍爱自然资源 守护美丽中国”——山河入梦·人文铸魂摄影展，“自然天成·创意新生”——自然资源文化创意优秀作品展，《我们的家园——地球》、《探地球脉络守生态家园》、“神秘地球”科普流动展走进汾阳一中等系列科普活动。
+仅2026年开年以来，公司员工总数减少了20余人，涉及投研、市场等核心岗位。
 
-“珍爱自然资源 守护美丽中国”——山河入梦·人文铸魂摄影展分为山河入梦、万物共生、人文铸魂、冰原筑梦四个单元，以镜头为笔、山河为卷，通过150余幅精美影像，生动记录了雪峰江河、林田湖草、沙海冰原的壮丽景象，深情定格了自然资源工作者和极地科考队员扎根荒野、勇担使命的奋斗身影。
+让这家素有“选股专家”之称的老牌公募公司站上了舆论的风口浪尖。
 
-“自然天成·创意新生”——自然资源文化创意优秀作品展，汇聚全国自然资源系统的匠心之作，将深埋的矿藏、连绵的山川化为灵动的设计与诗意的表达，展现了创意赋能自然文化的无限可能。
+01 — 增收不增利 据东方证券2025年年报数据，汇添富基金在2025年全年实现营业收入56.58亿元，相较于2024年同期的48.28亿元，同比增长17.20%。
 
-“神秘地球”科普流动展是山西自然博物馆自主策划举办的巡回展览，在汾阳一中同步正式开展。
+这一增速在头部公募机构中处于相对较高水平，在一定程度上体现出公司在规模扩张和市场份额扩展方面的成效。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:54 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:07 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:01 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:03 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:00 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:50 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:05 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:50 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:49 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:01 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:59 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:52 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:08 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:00 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:11 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:17 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:15 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:14 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:14 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:02 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:49 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:49 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:52 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:08 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:56 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.blog.minike.top/Article/details/694610270.shtml)
-- 2026-06-29 11:44 - [述评：数字时代 浙江书香何处寻？](http://www.share.minike.top/Article/details/300304.shtml)
-- 2026-06-29 11:51 - [牛弹琴：伊朗反击了](http://www.share.minike.top/Article/details/15606.shtml)
-- 2026-06-29 12:02 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.blog.kurohicncr.top/Article/details/628746.shtml)
-- 2026-06-29 12:09 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/05287972300.shtml)
-- 2026-06-29 12:10 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.share.kurohicncr.top/Article/details/3604205.shtml)
-- 2026-06-29 12:05 - [证监会出手！4只A股被立案！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.share.kurohicncr.top/Article/details/50713506728.shtml)
-- 2026-06-29 11:47 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.kurohicncr.top/Article/details/8071480082.shtml)
-- 2026-06-29 12:03 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.blog.kurohicncr.top/Article/details/25670498702.shtml)
-- 2026-06-29 11:59 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.blog.minike.top/Article/details/825077624.shtml)
-- 2026-06-29 11:45 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.blog.kurohicncr.top/Article/details/471752819.shtml)
-- 2026-06-29 12:01 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.blog.kurohicncr.top/Article/details/838956.shtml)
+- 2026-06-29 11:50 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.share.kurohicncr.top/Article/details/62313737715.shtml)
+- 2026-06-29 12:15 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [人民之心｜“为官一任，造福一方”](http://www.share.kurohicncr.top/Article/details/289726907.shtml)
+- 2026-06-29 12:03 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.kurohicncr.top/Article/details/0745661.shtml)
+- 2026-06-29 12:10 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.share.minike.top/Article/details/5452900.shtml)
+- 2026-06-29 12:00 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.share.minike.top/Article/details/71111671013.shtml)
+- 2026-06-29 11:54 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](http://www.share.minike.top/Article/details/350195.shtml)
+- 2026-06-29 12:03 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.blog.kurohicncr.top/Article/details/00753.shtml)
+- 2026-06-29 12:17 - [香港学子安徽行收获满满](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/500790.shtml)
+- 2026-06-29 12:01 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.kurohicncr.top/Article/details/38473231451.shtml)
+- 2026-06-29 11:56 - [日韩股市集体低开 韩股跌超2%](http://www.share.minike.top/Article/details/45984867052.shtml)
+- 2026-06-29 12:15 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.minike.top/Article/details/135557058.shtml)

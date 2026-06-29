@@ -1,57 +1,53 @@
-# 述评：数字时代 浙江书香何处寻？
+# 新加坡股市接近回到历史高位 战争增强其避险吸引力
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网杭州4月22日电 题：述评：数字时代 浙江书香何处寻？ 作者 林波 四月深春，浙江钱塘江畔的闲林埠老街化身为一座沉浸式阅读嘉年华：AI拍照互动装置生成专属“阅读人格”并推荐盲盒书籍，MR数字美育体验区排起长龙，“春日阅读护照”闯关游戏吸引着不同年龄段的读者打卡互动。 这并非某个互联网企业的新品发布，而是2026年余杭区世界读书日暨全民阅读活动周上的真实场景。 数字时代，书
+新加坡股市接近回到历史高位，在全球市场动荡之际，该国资产被视为避风港。自伊朗战争2月爆发导致全球能源价格飙升以来，新加坡股市在亚太地区受到的冲击最小。在新加坡元相跑赢其他东南亚货币的帮助下，新加坡股市有望成为自战争爆发以来首个再创新高的亚洲主要市场。不过美国和伊朗周末未能达成协议，美国总统唐纳德·特朗普表示，美国将开始全面封锁霍尔木兹海峡，为新一轮全球市场动荡埋下伏笔。海峡时报
 
 ## 正文
 
-中新网杭州4月22日电 题：述评：数字时代 浙江书香何处寻？
+新加坡股市接近回到历史高位，在全球市场动荡之际，该国资产被视为避风港。
 
-作者 林波 四月深春，浙江钱塘江畔的闲林埠老街化身为一座沉浸式阅读嘉年华：AI拍照互动装置生成专属“阅读人格”并推荐盲盒书籍，MR数字美育体验区排起长龙，“春日阅读护照”闯关游戏吸引着不同年龄段的读者打卡互动。
+自伊朗战争2月爆发导致全球能源价格飙升以来，新加坡股市在亚太地区受到的冲击最小。
 
-这并非某个互联网企业的新品发布，而是2026年余杭区世界读书日暨全民阅读活动周上的真实场景。
+在新加坡元相跑赢其他东南亚货币的帮助下，新加坡股市有望成为自战争爆发以来首个再创新高的亚洲主要市场。
 
-数字时代，书香何处寻？
+不过美国和伊朗周末未能达成协议，美国总统唐纳德·特朗普表示，美国将开始全面封锁霍尔木兹海峡，为新一轮全球市场动荡埋下伏笔。
 
-这个问题在今天比以往任何时候都更需要回答。
+海峡时报指数与战争开始时基本持平，而MSCI亚洲指数下跌4.9%。
 
-中国新闻出版研究院于近日发布的第二十三次全国国民阅读调查结果显示：2025年，中国成年国民综合阅读率达82.3%，数字化阅读接触率达80.8%，人均纸质图书与电子书合计阅读量8.39本。
-
-然而，阅读量的增长并不能全然消解人们的焦虑——算法编织的信息茧房日益坚固，碎片化阅读蚕食着深度思考的能力，短视频将思想切割成散乱的残片。
-
-我们读得多了，却可能读得浅了。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:05 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:42 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:05 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:45 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:47 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:42 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:57 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:45 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:06 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:44 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:48 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:03 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:14 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:57 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:51 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:07 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:50 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:07 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:08 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:07 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:06 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.blog.kurohicncr.top/Article/details/32473087911.shtml)
-- 2026-06-29 12:08 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/829391958.shtml)
-- 2026-06-29 12:01 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](http://www.blog.kurohicncr.top/Article/details/44842439019.shtml)
-- 2026-06-29 12:11 - [美国航空因燃油价格上涨下调展望](http://www.share.minike.top/Article/details/6327902.shtml)
-- 2026-06-29 11:51 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [欧元区消费者信心下滑 凸显消费风险](http://www.share.kurohicncr.top/Article/details/85297006.shtml)
-- 2026-06-29 11:44 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.share.kurohicncr.top/Article/details/020658589.shtml)
-- 2026-06-29 12:07 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.share.minike.top/Article/details/92410283.shtml)
-- 2026-06-29 11:57 - [传习录丨读书，总书记倡导的生活方式](http://www.blog.minike.top/Article/details/572530326.shtml)
-- 2026-06-29 11:59 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.blog.kurohicncr.top/Article/details/2873174249.shtml)
-- 2026-06-29 12:09 - [“6.0%”的浙江看点](http://www.share.kurohicncr.top/Article/details/59595.shtml)
-- 2026-06-29 11:47 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.blog.kurohicncr.top/Article/details/22433509450.shtml)
-- 2026-06-29 12:10 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.blog.minike.top/Article/details/5798810401.shtml)
+- 2026-06-29 11:54 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.kurohicncr.top/Article/details/006263.shtml)
+- 2026-06-29 11:58 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.share.kurohicncr.top/Article/details/169437892163.shtml)
+- 2026-06-29 12:00 - [北摩高科：拟每10股分红1.3元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.minike.top/Article/details/151638989607.shtml)
+- 2026-06-29 12:11 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.share.kurohicncr.top/Article/details/42828.shtml)
+- 2026-06-29 12:13 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.share.minike.top/Article/details/1210765625.shtml)
+- 2026-06-29 11:57 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.blog.minike.top/Article/details/385448403593.shtml)
+- 2026-06-29 12:07 - [比亚迪：公司储能业务在全球市场持续发力](http://www.share.kurohicncr.top/Article/details/36528.shtml)
+- 2026-06-29 11:49 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [以军空袭黎南部造成至少24人死亡](http://www.blog.kurohicncr.top/Article/details/66189998.shtml)
+- 2026-06-29 12:02 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](http://www.blog.kurohicncr.top/Article/details/053090491570.shtml)

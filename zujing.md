@@ -1,44 +1,49 @@
-# 中播数据公布于4月23日上午起复牌
+# 郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中播数据（00471）公布，公司股份自2026年4月23日上午9点起复牌。责任编辑：卢昱君
+发布时间：2026年04月12日 14:34 来源：中国新闻网 近日，河南省郑州市金水区金沙小学的体育老师马超群带领小学生通过一支松弛感拉满的舞蹈微电影《先放一放》走红网络，松弛鲜活的状态、轻松治愈的内核戳中无数网友，被称作“郑州版‘放牛班的春天’”。 8年时间里，马超群和学生们先后拍摄《大禹》《我要把水打回来》《先放一放》等10余部微电影，不仅斩获70余项国家级荣誉，更让孩子
 
 ## 正文
 
-中播数据（00471）公布，公司股份自2026年4月23日上午9点起复牌。
+发布时间：2026年04月12日 14:34 来源：中国新闻网 近日，河南省郑州市金水区金沙小学的体育老师马超群带领小学生通过一支松弛感拉满的舞蹈微电影《先放一放》走红网络，松弛鲜活的状态、轻松治愈的内核戳中无数网友，被称作“郑州版‘放牛班的春天’”。
 
-责任编辑：卢昱君
+8年时间里，马超群和学生们先后拍摄《大禹》《我要把水打回来》《先放一放》等10余部微电影，不仅斩获70余项国家级荣誉，更让孩子们在实景体验中褪去娇气、收获成长。
+
+赵梦阳 王佳宁 河南郑州报道 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:00 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:50 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:51 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:08 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:06 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:50 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:59 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:43 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:01 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:10 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:03 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:54 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:17 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:12 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:01 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:12 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:12 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:54 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:01 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:03 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:58 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:11 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.blog.minike.top/Article/details/664557.shtml)
-- 2026-06-29 12:09 - [浙江行刑联动破题商业秘密保护“三难”](http://www.blog.minike.top/Article/details/377042.shtml)
-- 2026-06-29 12:06 - [社保基金重仓+机构高关注股来了（附名单）](http://www.share.minike.top/Article/details/3636663.shtml)
-- 2026-06-29 11:46 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.minike.top/Article/details/1613785.shtml)
-- 2026-06-29 12:01 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.minike.top/Article/details/240083361.shtml)
-- 2026-06-29 11:49 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.blog.minike.top/Article/details/237245966117.shtml)
-- 2026-06-29 12:04 - [述评：数字时代 浙江书香何处寻？](http://www.share.minike.top/Article/details/6475644.shtml)
-- 2026-06-29 12:00 - [牛弹琴：伊朗反击了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.share.minike.top/Article/details/547254200.shtml)
-- 2026-06-29 12:01 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.kurohicncr.top/Article/details/81869377507.shtml)
-- 2026-06-29 11:42 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.blog.minike.top/Article/details/0749783295.shtml)
-- 2026-06-29 11:44 - [证监会出手！4只A股被立案！](http://www.share.kurohicncr.top/Article/details/5784041293.shtml)
-- 2026-06-29 11:58 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.blog.minike.top/Article/details/60216.shtml)
+- 2026-06-29 12:16 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.minike.top/Article/details/72609304300.shtml)
+- 2026-06-29 11:59 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.share.kurohicncr.top/Article/details/8891910.shtml)
+- 2026-06-29 12:00 - [第一观察｜习近平主席寄望中美青年](http://www.share.kurohicncr.top/Article/details/0484378.shtml)
+- 2026-06-29 12:15 - [超百位港籍长者入住深圳光明区养老](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.share.kurohicncr.top/Article/details/92964490.shtml)
+- 2026-06-29 11:59 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.blog.kurohicncr.top/Article/details/85384111.shtml)
+- 2026-06-29 12:07 - [周亚琳（女，1977年生），年薪1013.5万元](http://www.blog.minike.top/Article/details/14375831.shtml)
+- 2026-06-29 12:16 - [人民之心｜“为官一任，造福一方”](http://www.blog.kurohicncr.top/Article/details/671200849741.shtml)
+- 2026-06-29 11:58 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.kurohicncr.top/Article/details/321788212.shtml)
+- 2026-06-29 11:59 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.kurohicncr.top/Article/details/827740295.shtml)
+- 2026-06-29 12:09 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.blog.minike.top/Article/details/1859484.shtml)
+- 2026-06-29 12:11 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lisacumin64-arch)

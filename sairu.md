@@ -1,43 +1,46 @@
-# 山东省泰安市委常委、副市长刘峰梅接受审查调查
+# 河南省郑州市人大常委会原副主任宋书杰接受审查调查
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网4月23日电 据山东省纪委监委消息：山东省泰安市委常委、副市长刘峰梅涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
+中新网4月13日电 据河南省纪委监委消息：河南省郑州市人大常委会原副主任宋书杰涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网4月23日电 据山东省纪委监委消息：山东省泰安市委常委、副市长刘峰梅涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
+中新网4月13日电 据河南省纪委监委消息：河南省郑州市人大常委会原副主任宋书杰涉嫌严重违纪违法，目前正接受河南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:00 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:06 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:57 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:11 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:52 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:49 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:11 - [小城游火了！这些“小而美”的城市性价比高、体验感强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:51 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:52 - [一习话丨“要提倡多读书 建设书香社会”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:51 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:04 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:05 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:09 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:02 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:52 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:03 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:12 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:12 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:14 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:50 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:16 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:06 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:56 - [天津边检推多项便利举措 助力高水平对外开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:10 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.blog.minike.top/Article/details/58316594.shtml)
-- 2026-06-29 12:07 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](http://www.share.kurohicncr.top/Article/details/25504900.shtml)
-- 2026-06-29 11:50 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](http://www.share.minike.top/Article/details/47366853921.shtml)
-- 2026-06-29 12:02 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](http://www.blog.kurohicncr.top/Article/details/22304734.shtml)
-- 2026-06-29 12:07 - [英伟达参投AI公司Vast Data，估值达300亿美元](http://www.share.minike.top/Article/details/235697438910.shtml)
-- 2026-06-29 12:00 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.share.minike.top/Article/details/24602127236.shtml)
-- 2026-06-29 12:05 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](http://www.blog.minike.top/Article/details/19960452406.shtml)
-- 2026-06-29 11:42 - [买理财险说好随用随取，到期才发现要105岁才能取本金](http://www.blog.kurohicncr.top/Article/details/2248255.shtml)
-- 2026-06-29 12:11 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](http://www.blog.kurohicncr.top/Article/details/2589462.shtml)
-- 2026-06-29 11:57 - [美国称“布什号”航母已经在中央司令部责任区航行](http://www.share.minike.top/Article/details/20230.shtml)
-- 2026-06-29 12:03 - [好客山东：每次相遇，都是久别重逢](http://www.share.kurohicncr.top/Article/details/416628.shtml)
-- 2026-06-29 12:06 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](http://www.share.minike.top/Article/details/767683.shtml)
-- 2026-06-29 12:00 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [亚马逊进军GLP-1医疗领域](http://www.blog.kurohicncr.top/Article/details/6782311.shtml)
+- 2026-06-29 11:53 - [非瘟以来两轮猪周期回顾](http://www.blog.minike.top/Article/details/479933182.shtml)
+- 2026-06-29 12:04 - [2026年湖北省城市足球联赛开赛](http://www.share.kurohicncr.top/Article/details/0572849.shtml)
+- 2026-06-29 11:55 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.share.kurohicncr.top/Article/details/776031.shtml)
+- 2026-06-29 12:17 - [新疆银行被罚30万元：信贷业务不审慎](http://www.blog.minike.top/Article/details/6069900.shtml)
+- 2026-06-29 12:10 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.blog.kurohicncr.top/Article/details/43430869460.shtml)
+- 2026-06-29 12:08 - [辽宁持续发力打造营商环境好口碑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](http://www.share.minike.top/Article/details/942569927983.shtml)
+- 2026-06-29 12:08 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.share.kurohicncr.top/Article/details/5416508.shtml)
+- 2026-06-29 12:04 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.blog.kurohicncr.top/Article/details/2975926.shtml)
+- 2026-06-29 11:53 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](http://www.share.minike.top/Article/details/59086666927.shtml)
+- 2026-06-29 11:48 - [徐寅生：愿“乒乓外交”精神代代相传](http://www.share.minike.top/Article/details/434220.shtml)
+- 2026-06-29 12:15 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.blog.kurohicncr.top/Article/details/2021138635.shtml)

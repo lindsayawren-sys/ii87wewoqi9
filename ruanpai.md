@@ -1,46 +1,57 @@
-# 美媒：特朗普称未来36至72小时内“可能”与伊朗谈判
+# 人民之心｜“为官一任，造福一方”
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。（完）责任编辑：宋雅芳
+“为官一任，造福一方，遂了平生意。绿我涓滴，会它千顷澄碧。” 该句子出自《念奴娇·追思焦裕禄》，是时任中共福州市委书记的习近平所作的一首词。2014年3月，习近平总书记访问河南兰考县，有感于焦裕禄为人民服务之精神，重诵此词。 “为官一任，造福一方”，这八个字体现了群众对干部的朴素期待，更蕴含着造福于民的正确政绩观。习近平总书记将这句话根植于心，曾在不同地方多次提到。从小村庄到党
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“为官一任，造福一方，遂了平生意。
 
-新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。
+绿我涓滴，会它千顷澄碧。
 
-（完）责任编辑：宋雅芳
+” 该句子出自《念奴娇·追思焦裕禄》，是时任中共福州市委书记的习近平所作的一首词。
+
+2014年3月，习近平总书记访问河南兰考县，有感于焦裕禄为人民服务之精神，重诵此词。
+
+“为官一任，造福一方”，这八个字体现了群众对干部的朴素期待，更蕴含着造福于民的正确政绩观。
+
+习近平总书记将这句话根植于心，曾在不同地方多次提到。
+
+从小村庄到党中央，从农村大队党支部书记到党的总书记，他始终心怀家国、躬身为民，把人民放在心中最高的位置，为广大党员、干部树立了典范和标杆。
+
+党的十八大以来，围绕政绩为谁而树、树什么样的政绩、靠什么树政绩等问题，习近平总书记发表一系列重要论述，并强调“把为民办事、为民造福作为最重要的政绩，把为老百姓办了多少好事实事作为检验政绩的重要标准。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:05 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:43 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:10 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:01 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:04 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:00 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:01 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:44 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:50 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:50 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:07 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:14 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:12 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:54 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:59 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:55 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:13 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:10 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:12 - [广西三江：花映楼桥入画来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:14 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.minike.top/Article/details/28086.shtml)
-- 2026-06-29 11:44 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [美国航空因燃油价格上涨下调展望](http://www.blog.kurohicncr.top/Article/details/547753081.shtml)
-- 2026-06-29 11:55 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [欧元区消费者信心下滑 凸显消费风险](http://www.share.minike.top/Article/details/357625.shtml)
-- 2026-06-29 11:56 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.blog.minike.top/Article/details/010782095.shtml)
-- 2026-06-29 11:51 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.minike.top/Article/details/16468181124.shtml)
-- 2026-06-29 12:08 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.minike.top/Article/details/6144920313.shtml)
-- 2026-06-29 11:43 - [“6.0%”的浙江看点](http://www.blog.kurohicncr.top/Article/details/0624606.shtml)
-- 2026-06-29 11:54 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.share.kurohicncr.top/Article/details/02479718.shtml)
-- 2026-06-29 12:09 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.kurohicncr.top/Article/details/67793736.shtml)
-- 2026-06-29 11:42 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.minike.top/Article/details/308201.shtml)
+- 2026-06-29 12:16 - [北摩高科：拟每10股分红1.3元](http://www.share.kurohicncr.top/Article/details/7831837.shtml)
+- 2026-06-29 12:17 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.blog.minike.top/Article/details/51771413.shtml)
+- 2026-06-29 12:01 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.share.minike.top/Article/details/00679181882.shtml)
+- 2026-06-29 12:13 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.share.kurohicncr.top/Article/details/3841516.shtml)
+- 2026-06-29 11:56 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.blog.minike.top/Article/details/393363.shtml)
+- 2026-06-29 12:08 - [比亚迪：公司储能业务在全球市场持续发力](http://www.blog.minike.top/Article/details/4319717997.shtml)
+- 2026-06-29 11:58 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.blog.minike.top/Article/details/02810.shtml)
+- 2026-06-29 12:05 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](http://www.blog.kurohicncr.top/Article/details/96862.shtml)
+- 2026-06-29 12:03 - [以军空袭黎南部造成至少24人死亡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](http://www.share.minike.top/Article/details/1421024049.shtml)
+- 2026-06-29 12:13 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [RYOEX:黄金价值重估与结构演变趋势分析](http://www.share.kurohicncr.top/Article/details/67821272557.shtml)

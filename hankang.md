@@ -1,58 +1,60 @@
-# 《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词
+# 房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 20:04 来源：中国新闻网 世界读书日前夕，在江西南昌举行的第五届全民阅读大会期间，江西农业大学教授、翻译领域专业学者吴伟萍以“译界泰斗光耀中外——许渊冲的翻译风格与文化贡献”为题，与现场读者展开深度对话。吴伟萍以《静夜思》为例分享了许渊冲的翻译风格。在她看来，这不是译词，是译境。 许渊冲是江西南昌走出的翻译大家，被誉为“诗译英法唯一人”。他
+OpenAI CEO奥尔特曼（Sam Altman）家被扔燃烧瓶后不到2天时间，他位于美国旧金山的房子又遭遇了枪击。 美国旧金山警方发布的相关声明称，当地时间4月12日凌晨2点多，警方前往俄罗斯山调查可疑的枪击事件，随后警察逮捕了两名嫌疑人，两人因过失射击被登记，调查仍在进行中，警方还在调查过程中缴获了3把枪支。当地媒体则称，这处房产是奥尔特曼的房子。 而在当地时间4月10日凌
 
 ## 正文
 
-发布时间：2026年04月23日 20:04 来源：中国新闻网 世界读书日前夕，在江西南昌举行的第五届全民阅读大会期间，江西农业大学教授、翻译领域专业学者吴伟萍以“译界泰斗光耀中外——许渊冲的翻译风格与文化贡献”为题，与现场读者展开深度对话。
+OpenAI CEO奥尔特曼（Sam Altman）家被扔燃烧瓶后不到2天时间，他位于美国旧金山的房子又遭遇了枪击。
 
-吴伟萍以《静夜思》为例分享了许渊冲的翻译风格。
+美国旧金山警方发布的相关声明称，当地时间4月12日凌晨2点多，警方前往俄罗斯山调查可疑的枪击事件，随后警察逮捕了两名嫌疑人，两人因过失射击被登记，调查仍在进行中，警方还在调查过程中缴获了3把枪支。
 
-在她看来，这不是译词，是译境。
+当地媒体则称，这处房产是奥尔特曼的房子。
 
-许渊冲是江西南昌走出的翻译大家，被誉为“诗译英法唯一人”。
+而在当地时间4月10日凌晨，奥尔特曼的房子还被扔了一个燃烧瓶。
 
-他一生出版中、英、法文译著120余部，包括《诗经》《李白诗选》《红与黑》《包法利夫人》等中外名著。
+奥尔特曼在社交媒体上透露了此事，称幸好燃烧瓶反弹出去，没有人受伤。
 
-其提出的“意美、音美、形美”翻译原则，打破了“忠实即逐字对应”的刻板范式，为文学翻译注入了美学的灵魂。
+美国旧金山警方在一份声明中表示，投掷燃烧性破坏装置导致住宅一处外门起火，警方已对一名20岁男子实施逮捕，但警方尚未透露调查结果。
 
-(记者 姜涛) 责任编辑：【于晓】
+奥尔特曼的房子遭遇了两次攻击事件，具体原因仍待调查。
+
+奥尔特曼在第一次攻击事件后发布的博客中，则提到人们对人工智能的焦虑情绪。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:03 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:48 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:46 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:57 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:52 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:49 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:44 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:43 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:54 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:42 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:09 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:04 - [接到这类电话，请立即挂断！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:50 - [宁德时代与河南省五家重点国企达成战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:55 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:06 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:00 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:05 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:14 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:16 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:57 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:09 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:02 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:55 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:58 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:07 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:48 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:00 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.share.minike.top/Article/details/7999426730.shtml)
-- 2026-06-29 11:49 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.share.minike.top/Article/details/335288.shtml)
-- 2026-06-29 11:46 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.share.kurohicncr.top/Article/details/543401131.shtml)
-- 2026-06-29 11:55 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.share.minike.top/Article/details/843893832.shtml)
-- 2026-06-29 11:44 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.minike.top/Article/details/453972.shtml)
-- 2026-06-29 12:02 - [宁夏：“垂钓节”绘就乡村振兴新画卷](http://www.share.minike.top/Article/details/86598260.shtml)
-- 2026-06-29 12:01 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.minike.top/Article/details/563514.shtml)
-- 2026-06-29 12:00 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.blog.minike.top/Article/details/65679844827.shtml)
-- 2026-06-29 12:09 - [日本以国家安全风险为由 反对韩国MBK Partners收购牧野铣床](http://www.share.kurohicncr.top/Article/details/54499383843.shtml)
-- 2026-06-29 11:44 - [分析师：股市正艰难维持平衡态势](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [芯片制造商股价延续史上最长涨势 受德州仪器强劲业绩提振](http://www.blog.kurohicncr.top/Article/details/97584467493.shtml)
-- 2026-06-29 11:56 - [夏凤俭任山东省人民政府副省长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [普华永道涉恒大审计失当 被香港会财局罚款3.1亿港元](http://www.blog.kurohicncr.top/Article/details/524134523.shtml)
+- 2026-06-29 12:05 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.blog.kurohicncr.top/Article/details/72466050421.shtml)
+- 2026-06-29 12:04 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/8096947916.shtml)
+- 2026-06-29 11:57 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.blog.minike.top/Article/details/46000.shtml)
+- 2026-06-29 12:11 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.kurohicncr.top/Article/details/801123.shtml)
+- 2026-06-29 11:56 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.share.minike.top/Article/details/82147607.shtml)
+- 2026-06-29 12:00 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.share.kurohicncr.top/Article/details/126942383954.shtml)
+- 2026-06-29 11:52 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/4397142.shtml)
+- 2026-06-29 11:54 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.blog.minike.top/Article/details/3947368540.shtml)
+- 2026-06-29 12:05 - [【西街观察】创业板不再“唯利润论”](http://www.share.minike.top/Article/details/11051570.shtml)
+- 2026-06-29 12:12 - [不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定](http://www.share.kurohicncr.top/Article/details/8082961276.shtml)
+- 2026-06-29 11:58 - [特朗普：不在乎伊朗是否重返谈判桌](http://www.share.minike.top/Article/details/5609169.shtml)
+- 2026-06-29 11:48 - [深蓝汽车喻成：新能源汽车进入大众阶段，产品要从早期“制造爽点”转向“打造差异化”](https://github.com/lisacumin64-arch)

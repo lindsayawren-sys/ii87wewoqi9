@@ -1,60 +1,55 @@
-# 中际旭创市值破万亿 老实业家如何逆袭硅谷
+# 伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-这家从山东龙口起步的传统电机绕组装备制造企业，通过一场战略重组，一跃成为全球AI算力底座中的“卖铲人”——自己不直接参与淘金，却通过为淘金者提供工具来赚钱。 4月23日开盘，A股资本市场诞生了一个极具传奇色彩的里程碑：光模块龙头中际旭创（300308.SZ）股价涨至900元/股以上，市值突破万亿大关，在整个A股位列第13名。 排在中际旭创前的，分别是工商银行、农业银行、建设银行
+伊朗最高领袖军事顾问穆赫辛·雷扎伊12日表示，伊朗“不是一个能够被(社交媒体)帖文和幻想方案封锁的地方”。 雷扎伊在社交媒体上发文说，美国在霍尔木兹海峡遭受“历史性失败”，其海上封锁同样“注定失败”。他说，伊朗武装力量不会允许美国实施封锁，并拥有“尚未动用的强大筹码”应对此类威胁。 另据伊朗伊斯兰共和国广播电视台12日报道，伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼也警告说，美国和
 
 ## 正文
 
-这家从山东龙口起步的传统电机绕组装备制造企业，通过一场战略重组，一跃成为全球AI算力底座中的“卖铲人”——自己不直接参与淘金，却通过为淘金者提供工具来赚钱。
+伊朗最高领袖军事顾问穆赫辛·雷扎伊12日表示，伊朗“不是一个能够被(社交媒体)帖文和幻想方案封锁的地方”。
 
-4月23日开盘，A股资本市场诞生了一个极具传奇色彩的里程碑：光模块龙头中际旭创（300308.SZ）股价涨至900元/股以上，市值突破万亿大关，在整个A股位列第13名。
+雷扎伊在社交媒体上发文说，美国在霍尔木兹海峡遭受“历史性失败”，其海上封锁同样“注定失败”。
 
-排在中际旭创前的，分别是工商银行、农业银行、建设银行、贵州茅台、中国移动等央国企，以及民企宁德时代、台资企业工业富联。
+他说，伊朗武装力量不会允许美国实施封锁，并拥有“尚未动用的强大筹码”应对此类威胁。
 
-中际旭创股价从2025年3月10日的66.86元/股开始一路狂飙，一年间翻超12倍，增速一骑绝尘，是A股历史上市值从千亿到万亿用时最短的企业。
+另据伊朗伊斯兰共和国广播电视台12日报道，伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼也警告说，美国和以色列应当记得他们是如何两手空空地从也门、曼德海峡和红海仓皇逃窜的，这一次他们同样将毫无所获地离开这一地区。
 
-其于2023年6月首破千亿，到破万亿只花了2年10个月。
+美国总统特朗普12日早些时候在社交媒体发文称，美国海军将开始阻止任何船只进出霍尔木兹海峡。
 
-上一个破万亿用时最短纪录保持者是宁德时代，历时约3年。
+美军中央司令部同日说，其部队将于美国东部时间13日10时起对所有进出伊朗港口的船只实施封锁。
 
-这家从山东龙口起步的传统电机绕组装备制造企业，通过一场战略重组，一跃成为全球AI算力底座中的“卖铲人”——自己不直接参与淘金，却通过为淘金者提供工具来赚钱。
-
-帮巨头节省算力的生意 中际旭创的核心业务是光模块（光电转换设备），已经迭代出800G和1.6T光模块、3.2T CPO（共封装光学）、800G液冷可插拔模块、LPO（线性驱动可插拔光学）等核心产品。
+来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:08 - [达能销售额增长，美国市场重拾增长动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:11 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:05 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:05 - [西安检察探索知识产权保护“立体解题”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:01 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:46 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:53 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:58 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:50 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:50 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:52 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:59 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:00 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:04 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:12 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:48 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:15 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:48 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:07 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:16 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:51 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:11 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:49 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:10 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [券商并购提速，板块或迎中长期关注契机](http://www.blog.minike.top/Article/details/07672.shtml)
-- 2026-06-29 11:47 - [特朗普政府即将达成救助精神航空的协议](http://www.share.minike.top/Article/details/69997337.shtml)
-- 2026-06-29 11:47 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](http://www.blog.minike.top/Article/details/1180420.shtml)
-- 2026-06-29 11:47 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.blog.minike.top/Article/details/585231.shtml)
-- 2026-06-29 12:09 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](http://www.blog.kurohicncr.top/Article/details/04204.shtml)
-- 2026-06-29 11:42 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](http://www.blog.minike.top/Article/details/0486049.shtml)
-- 2026-06-29 12:10 - [直线拉升！涨停！伊朗，传来大消息！](http://www.share.minike.top/Article/details/899037.shtml)
-- 2026-06-29 12:10 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](http://www.blog.minike.top/Article/details/031353029872.shtml)
-- 2026-06-29 11:53 - [Rivian：已开始生产全新纯电动车型R2](http://www.share.minike.top/Article/details/080129.shtml)
-- 2026-06-29 11:46 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.share.kurohicncr.top/Article/details/42178948.shtml)
-- 2026-06-29 12:10 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.blog.kurohicncr.top/Article/details/374605741.shtml)
-- 2026-06-29 12:08 - [原油市场遭遇“双重压力测试”！交易者如何应对？](http://www.share.kurohicncr.top/Article/details/478058978828.shtml)
-- 2026-06-29 12:01 - [接到这类电话，请立即挂断！](http://www.blog.minike.top/Article/details/47462.shtml)
-- 2026-06-29 12:02 - [宁德时代与河南省五家重点国企达成战略合作](http://www.blog.kurohicncr.top/Article/details/352375135881.shtml)
+- 2026-06-29 11:52 - [5亿元科创基金100%投向中大成果转化](http://www.share.minike.top/Article/details/696606155.shtml)
+- 2026-06-29 12:03 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.share.minike.top/Article/details/48869959800.shtml)
+- 2026-06-29 12:01 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](http://www.share.kurohicncr.top/Article/details/3398075789.shtml)
+- 2026-06-29 11:58 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.share.kurohicncr.top/Article/details/67044374.shtml)
+- 2026-06-29 12:12 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.share.kurohicncr.top/Article/details/177864.shtml)
+- 2026-06-29 12:00 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.share.kurohicncr.top/Article/details/913643.shtml)
+- 2026-06-29 11:56 - [第十四届北京国际风筝节启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [张果彤:黄金中线二次探底概率较大](http://www.share.minike.top/Article/details/9723466005.shtml)
+- 2026-06-29 12:17 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.minike.top/Article/details/93397.shtml)
+- 2026-06-29 12:11 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](http://www.share.minike.top/Article/details/808406391081.shtml)
+- 2026-06-29 12:11 - [肉类食品巨头JBS罢工以加薪告终](http://www.blog.minike.top/Article/details/3368018.shtml)
+- 2026-06-29 12:03 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.share.minike.top/Article/details/6674552.shtml)
+- 2026-06-29 12:06 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.blog.minike.top/Article/details/84486277961.shtml)
+- 2026-06-29 12:04 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/0751591666.shtml)

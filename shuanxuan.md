@@ -1,53 +1,59 @@
-# 什么样的遗嘱才具备法律效力？丨法律顾问在身边
+# 百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 19:19 来源：中国新闻网 据媒体报道，福建省漳平市一份“爷爷赠孙女百万遗产”的录音被法院认定为无效遗嘱，法院审理认定，该录音无法证明爷爷具有明确的赠与意思，也没有两个以上的见证人在场见证，不符合《民法典》关于录音录像遗嘱的法定形式。 那么，普通人在立遗嘱时应该注意哪些问题？什么样的遗嘱才具有法律效力？对此，北京岳成律师事务所岳运生主任表示，
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 百度地图事业部副总经理刘增刚谈到，近期，很多主机厂推出了中国版的“智驾+座舱”融合方案，未来的AI汽车将发展成为全能的出行伙伴，成为一个超级AI智能体。 他指出，这个超级AI智能体具备三个核
 
 ## 正文
 
-发布时间：2026年04月22日 19:19 来源：中国新闻网 据媒体报道，福建省漳平市一份“爷爷赠孙女百万遗产”的录音被法院认定为无效遗嘱，法院审理认定，该录音无法证明爷爷具有明确的赠与意思，也没有两个以上的见证人在场见证，不符合《民法典》关于录音录像遗嘱的法定形式。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-那么，普通人在立遗嘱时应该注意哪些问题？
+百度地图事业部副总经理刘增刚谈到，近期，很多主机厂推出了中国版的“智驾+座舱”融合方案，未来的AI汽车将发展成为全能的出行伙伴，成为一个超级AI智能体。
 
-什么样的遗嘱才具有法律效力？
+他指出，这个超级AI智能体具备三个核心角色：第一，是经验丰富、能应对各种复杂路况的“老司机”；第二，是能打通车控与服务、处理各类复杂任务的贴心AI助理；第三，是能想用户所想、共情互动，提供情绪价值的AI搭子。
 
-对此，北京岳成律师事务所岳运生主任表示，想要订立合法有效的遗嘱，需同时满足实质要件和形式要件。
+他谈到，端到端AI语音量产之后，我们统计发现，语音伴聊的交互次数增长了13倍；同时，手机端春节期间上线的AI搭子功能，日活用户增长达到了54倍。
 
-此外，立遗嘱应避开相应误区。
+此外，AI语音的交互场景也发生了显著变化，不再局限于导航和车控，闲聊已经成为最高频的应用领域。
 
-(完) 责任编辑：【赵一凡】
+“这表明，当前用户迫切需要情绪价值，与AI交互的欲望非常强烈，我们判断，AI陪伴式出行将成为越来越多用户的出行习惯。
+
+”他说。
+
+谈到自动驾驶领域，他表示，自动驾驶呈现出三个明显的发展趋势：第一，加速普及，大家提到的L2+渗透率去年已经超过三成，部分车型已经开始量产城市NOA；第二，体验升级，用户不再满足于局部场景的使用，而是期待“车位到车位”的全程智能体验；第三，座舱与智驾一体的竞争加剧。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:51 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:07 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:58 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:08 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:47 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:07 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:00 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:46 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:05 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:47 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:12 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:14 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:07 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:14 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:00 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:55 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:10 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:07 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:48 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:02 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:55 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:16 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:13 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [学习新语｜共同构建地球生命共同体](http://www.blog.kurohicncr.top/Article/details/2759563011.shtml)
-- 2026-06-29 11:58 - [欧元区私营部门商业活动意外萎缩 服务业大幅下滑](http://www.blog.minike.top/Article/details/09312306151.shtml)
-- 2026-06-29 11:52 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.minike.top/Article/details/5116668.shtml)
-- 2026-06-29 11:42 - [民企“常敲门” 精准服务“一老一小”](http://www.blog.minike.top/Article/details/40419732.shtml)
-- 2026-06-29 11:42 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.kurohicncr.top/Article/details/656145122.shtml)
-- 2026-06-29 11:45 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.share.minike.top/Article/details/119314693.shtml)
-- 2026-06-29 11:56 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.blog.minike.top/Article/details/78517357.shtml)
-- 2026-06-29 11:55 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.share.minike.top/Article/details/13643494895.shtml)
-- 2026-06-29 11:55 - [菲莫国际营收上涨，受益于国际市场增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [小食堂托起晚年大幸福](http://www.blog.minike.top/Article/details/74463223.shtml)
-- 2026-06-29 11:42 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.share.minike.top/Article/details/3561441.shtml)
-- 2026-06-29 11:58 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.share.kurohicncr.top/Article/details/4336132050.shtml)
-- 2026-06-29 12:09 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.blog.kurohicncr.top/Article/details/80511915.shtml)
-- 2026-06-29 11:58 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.minike.top/Article/details/570485889288.shtml)
+- 2026-06-29 12:17 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.minike.top/Article/details/08208887.shtml)
+- 2026-06-29 12:15 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.blog.minike.top/Article/details/76024232120.shtml)
+- 2026-06-29 12:17 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.share.kurohicncr.top/Article/details/66645771.shtml)
+- 2026-06-29 12:07 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/476154881.shtml)
+- 2026-06-29 12:16 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.share.minike.top/Article/details/2958085.shtml)
+- 2026-06-29 12:05 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.kurohicncr.top/Article/details/216258492.shtml)
+- 2026-06-29 12:05 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.minike.top/Article/details/1940872.shtml)
+- 2026-06-29 12:04 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.minike.top/Article/details/95393637.shtml)
+- 2026-06-29 11:50 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.minike.top/Article/details/812062645557.shtml)
+- 2026-06-29 12:05 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/69742.shtml)
+- 2026-06-29 11:59 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.minike.top/Article/details/2212783846.shtml)
+- 2026-06-29 12:00 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)

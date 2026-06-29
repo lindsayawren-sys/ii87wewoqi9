@@ -1,60 +1,61 @@
-# 确定！方一天出任华安基金党委副书记，获提名总经理
+# 中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-每经记者|李蕾 每经编辑|叶峰 《每日经济新闻》记者从业内了解到，4月22日，原万家基金党委书记、董事长方一天出任华安基金党委副书记。同时，华安基金提名方一天为总经理（董事）。 就在几天前的4月17日，万家基金发布高级管理人员变更公告，显示原董事长方一天因个人原因离职。根据此前流传的市场消息，方一天离任后将赴华安基金。随着他出任华安基金党委副书记并获提名总经理，这一消息正式尘埃
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“来到这边，我真的没想到还有电梯。”站在福建省宁德福鼎市太姥山的观光电梯前，中阿卫视主持人、记者阿思玛(Asmaa)忍不住发出感叹。面对镜头，她竖起大拇指：“为中国的发展速度点赞！” 由中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》摄制组11日走进福鼎市，用镜头记录闽东山海的独特魅力。 地处福
 
 ## 正文
 
-每经记者|李蕾 每经编辑|叶峰 《每日经济新闻》记者从业内了解到，4月22日，原万家基金党委书记、董事长方一天出任华安基金党委副书记。
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“来到这边，我真的没想到还有电梯。
 
-同时，华安基金提名方一天为总经理（董事）。
+”站在福建省宁德福鼎市太姥山的观光电梯前，中阿卫视主持人、记者阿思玛(Asmaa)忍不住发出感叹。
 
-就在几天前的4月17日，万家基金发布高级管理人员变更公告，显示原董事长方一天因个人原因离职。
+面对镜头，她竖起大拇指：“为中国的发展速度点赞！
 
-根据此前流传的市场消息，方一天离任后将赴华安基金。
+” 由中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》摄制组11日走进福鼎市，用镜头记录闽东山海的独特魅力。
 
-随着他出任华安基金党委副书记并获提名总经理，这一消息正式尘埃落定。
+地处福建东北部的福鼎市，拥有“海上仙都”太姥山、“中国十大最美岛屿”嵛山岛、“东海明珠”台山列岛等丰富的旅游资源。
 
-Wind数据显示，截至2025年末，华安基金公募基金管理规模达8141.24亿元。
+这座海滨小城，凭借完善的旅游配套、旖旎的山海风光、地道的特色美食，吸引无数自驾游爱好者纷至沓来。
 
-2025年该公司非货币公募规模同比增长超28%，全年累计分红71亿元。
+太姥山以“峰险、石奇、洞幽、雾幻”四绝闻名遐迩，山中360处岩石，肖人肖物，鬼斧神工；峰岩之下有百多处岩洞，呈“井”字形分布，洞洞相通，纵横交错，曲折幽深，宛如地下迷宫，是天下名山所少有的花岗岩洞群景观，令人惊叹。
 
-尘埃落定：方一天出任华安基金党委副书记，获提名总经理 原万家基金董事长、公募行业资深老将方一天的去向终于明确。
+“刚才从非常小的山洞出来。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:05 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:55 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:57 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:11 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:02 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:56 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:05 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:53 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:45 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:48 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:06 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:50 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:05 - [接到这类电话，请立即挂断！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:11 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:01 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:01 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:07 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:52 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:16 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:52 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:09 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:57 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:16 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:02 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:00 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:59 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:59 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:05 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.blog.minike.top/Article/details/67069.shtml)
-- 2026-06-29 11:50 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.blog.minike.top/Article/details/912752879891.shtml)
-- 2026-06-29 11:53 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.share.kurohicncr.top/Article/details/69843.shtml)
-- 2026-06-29 12:11 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.minike.top/Article/details/101993631.shtml)
-- 2026-06-29 11:57 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.blog.minike.top/Article/details/93700458.shtml)
-- 2026-06-29 11:55 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.share.minike.top/Article/details/8908560.shtml)
-- 2026-06-29 11:54 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.share.kurohicncr.top/Article/details/82299295.shtml)
-- 2026-06-29 11:47 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.minike.top/Article/details/19904254506.shtml)
-- 2026-06-29 12:02 - [宁夏：“垂钓节”绘就乡村振兴新画卷](http://www.blog.kurohicncr.top/Article/details/2175776191.shtml)
-- 2026-06-29 11:57 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.kurohicncr.top/Article/details/88217723.shtml)
-- 2026-06-29 11:43 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.share.kurohicncr.top/Article/details/741130705.shtml)
-- 2026-06-29 11:55 - [日本以国家安全风险为由 反对韩国MBK Partners收购牧野铣床](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [分析师：股市正艰难维持平衡态势](http://www.blog.minike.top/Article/details/669794.shtml)
-- 2026-06-29 11:47 - [芯片制造商股价延续史上最长涨势 受德州仪器强劲业绩提振](http://www.blog.minike.top/Article/details/853146270.shtml)
-- 2026-06-29 11:50 - [夏凤俭任山东省人民政府副省长](http://www.blog.minike.top/Article/details/94077210.shtml)
+- 2026-06-29 11:54 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.share.minike.top/Article/details/356385408.shtml)
+- 2026-06-29 11:49 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/144659016396.shtml)
+- 2026-06-29 11:59 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.share.minike.top/Article/details/5977546710.shtml)
+- 2026-06-29 11:50 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.minike.top/Article/details/559384673.shtml)
+- 2026-06-29 12:04 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.blog.kurohicncr.top/Article/details/309280252382.shtml)
+- 2026-06-29 12:08 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.kurohicncr.top/Article/details/1768816284.shtml)
+- 2026-06-29 12:05 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.blog.kurohicncr.top/Article/details/429066.shtml)
+- 2026-06-29 12:04 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.blog.kurohicncr.top/Article/details/649898.shtml)
+- 2026-06-29 12:17 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.share.kurohicncr.top/Article/details/7248566.shtml)
+- 2026-06-29 11:51 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/36152.shtml)
+- 2026-06-29 12:15 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.share.minike.top/Article/details/3689785.shtml)
+- 2026-06-29 12:16 - [【西街观察】创业板不再“唯利润论”](http://www.blog.kurohicncr.top/Article/details/78193108.shtml)
+- 2026-06-29 12:17 - [不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定](http://www.blog.minike.top/Article/details/6579394.shtml)
+- 2026-06-29 11:55 - [特朗普：不在乎伊朗是否重返谈判桌](https://github.com/lisacumin64-arch)

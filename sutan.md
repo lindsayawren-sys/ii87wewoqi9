@@ -1,59 +1,60 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻
+# 聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》。其中指出，“十五五”时期，国家发展改革委应当会同有关部门围绕如期实现2030年前碳达峰目标，制定“十五五”碳达峰行动方案，确保实现2030年碳排放强度比2005年降低65%以上、2030年非化石能源消费占比
+中新网4月13日电 据最高检网站消息，近日，最高人民检察院发布第六十一批指导性案例，为全国检察机关依法认定新型、隐性受贿犯罪及准确认定犯罪数额等提供办案指导。 新型腐败和隐性腐败是当前查办腐败犯罪的重点、难点。此批指导性案例的发布，是检察机关进一步贯彻落实习近平总书记重要讲话精神和党中央关于“丰富防治新型腐败和隐性腐败的有效办法”相关要求的具体举措。此批指导性案例包含王某某受贿
 
 ## 正文
 
-专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》。
+中新网4月13日电 据最高检网站消息，近日，最高人民检察院发布第六十一批指导性案例，为全国检察机关依法认定新型、隐性受贿犯罪及准确认定犯罪数额等提供办案指导。
 
-其中指出，“十五五”时期，国家发展改革委应当会同有关部门围绕如期实现2030年前碳达峰目标，制定“十五五”碳达峰行动方案，确保实现2030年碳排放强度比2005年降低65%以上、2030年非化石能源消费占比达到25%等目标，实现煤炭消费总量和石油消费总量达峰，合理控制煤电装机规模和发电量，力争年度新增清洁能源电量逐步覆盖全社会新增用电量。
+新型腐败和隐性腐败是当前查办腐败犯罪的重点、难点。
 
-2、商务部4月23日下午举行例行新闻发布会，针对美国海关与边境保护局在20日开始相关关税的退款工作，商务部表示，中方一贯反对任何形式的单边加征关税措施，美方对等关税、芬太尼关税等单边措施，既违反国际经贸规则，也违反美国国内法，危害全球经贸秩序，不符合各方利益。
+此批指导性案例的发布，是检察机关进一步贯彻落实习近平总书记重要讲话精神和党中央关于“丰富防治新型腐败和隐性腐败的有效办法”相关要求的具体举措。
 
-何咏前表示，美方退税举措是在纠正错误道路上的有利一步。
+此批指导性案例包含王某某受贿案等5件案例，包括虚增交易环节型受贿、放贷收息型受贿、房产交易型受贿、投资收益型受贿、原始股预期收益型受贿等5种，均是近年来多发、社会关注度较高且实践中争议较多的受贿犯罪类型。
 
-3、香港证监会与普华永道香港达成协议，据此，普华永道香港同意预留10亿港元，以向中国恒大集团的合资格独立少数股东作出赔偿。
+此类犯罪呈现出收受行为民事化、利益输送市场化、财物内容预期化等显著特征，与传统职务犯罪区别明显，对依法惩治新型、隐性受贿犯罪具有重要示范指引作用。
 
-4、美国总统特朗普23日在社交媒体上称，他已向美国海军下令，一旦发现任何船只在霍尔木兹海峡水域布设水雷，可开火将其击沉。
+例如，王某某受贿案明确：国家工作人员利用职权为请托人谋取利益，非法收受请托人以虚增交易环节方式给予的交易差价作为谋利回报，且所获差价与其职务行为具有对应性的，依法构成受贿罪，受贿数额以实际获利数额认定。
 
-5、伊朗议会副议长当地时间23日称，首笔霍尔木兹海峡通行费收入已汇入中央银行账户。
+黄某某受贿、违法发放贷款案明确：国家工作人员利用职务上的便利为请托人谋取利益，明知请托人为感谢其谋利行为而以借款付息方式输送好处，且请托人向其借款利率明显高于向其他人正常借款利率，仍向请托人出借钱款并收取高息，高息部分与其职务行为具有对应性的，依法构成受贿罪，受贿数额以超出请托人同期正常借款利率中最高者的利率差所对应的利息数额认定。
 
-6、美国总统唐纳德·特朗普在其社交媒体“真实社交”发文表示，以色列与黎巴嫩之间的停火协议将延长三周。
+日前，最高人民法院、最高人民检察院联合出台《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，对收受股票、股权预期收益受贿行为的受贿数额认定规则问题予以明确。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:54 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:52 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:46 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:48 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:07 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:11 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:53 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:00 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:09 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:09 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:11 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:02 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:17 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:58 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:52 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:14 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:13 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:09 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:05 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:54 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:50 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:53 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:01 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:11 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:05 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:03 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.kurohicncr.top/Article/details/147026194.shtml)
-- 2026-06-29 12:01 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.minike.top/Article/details/02154855740.shtml)
-- 2026-06-29 11:56 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.minike.top/Article/details/8513979364.shtml)
-- 2026-06-29 11:48 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.blog.minike.top/Article/details/76947.shtml)
-- 2026-06-29 12:05 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.minike.top/Article/details/26627625.shtml)
-- 2026-06-29 12:06 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.minike.top/Article/details/32475550.shtml)
-- 2026-06-29 11:55 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.minike.top/Article/details/90124598.shtml)
-- 2026-06-29 11:42 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.blog.kurohicncr.top/Article/details/58164888.shtml)
-- 2026-06-29 11:42 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.blog.kurohicncr.top/Article/details/376493463.shtml)
-- 2026-06-29 12:11 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.kurohicncr.top/Article/details/9502659629.shtml)
-- 2026-06-29 11:46 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.minike.top/Article/details/436610.shtml)
-- 2026-06-29 11:54 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [光大期货：4月23日矿钢煤焦日报](http://www.blog.minike.top/Article/details/49286783.shtml)
-- 2026-06-29 12:07 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/388206562.shtml)
-- 2026-06-29 12:07 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/2042380669.shtml)
+- 2026-06-29 12:00 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.share.kurohicncr.top/Article/details/27977726703.shtml)
+- 2026-06-29 12:16 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.blog.kurohicncr.top/Article/details/79728634.shtml)
+- 2026-06-29 12:11 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.share.minike.top/Article/details/4450807.shtml)
+- 2026-06-29 12:02 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/1756137544.shtml)
+- 2026-06-29 11:58 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.kurohicncr.top/Article/details/9409955.shtml)
+- 2026-06-29 11:57 - [A股周一缩量上涨 创业板指创四年多新高](http://www.share.minike.top/Article/details/160263.shtml)
+- 2026-06-29 11:57 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.kurohicncr.top/Article/details/82207.shtml)
+- 2026-06-29 12:09 - [*ST万方，停牌！拟终止上市！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [摩根大通就停火风险提示油价走势](http://www.share.minike.top/Article/details/114058216.shtml)
+- 2026-06-29 12:06 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [个贷不良依然压力山大](http://www.share.minike.top/Article/details/61846446782.shtml)
+- 2026-06-29 12:08 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.share.minike.top/Article/details/868303641.shtml)
+- 2026-06-29 12:09 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.blog.minike.top/Article/details/680313.shtml)

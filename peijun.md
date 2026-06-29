@@ -1,57 +1,58 @@
-# 华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%
+# 从“1”到“23” 自贸试验区构筑开放“雁阵”格局
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 华贵人寿董事长有新职。 4月21日，贵州省人民政府发布通知称，省人民政府同意：推荐刘刚为贵州省黔晟国有资产经营有限责任公司（下称黔晟国资）董事、副董事长、总经理人选，建议不再担任中国贵州茅台酒厂（集团）有限责任公司（下称茅台集团）总会计师职务。 出生于1970年4月的刘刚，目前为茅台集团党委委员、总会计师、董事会秘书，同
+近日，《中国（内蒙古）自由贸易试验区总体方案》正式发布，我国自贸试验区版图再添重要一子，总数扩围至23个。 此前，自上海自贸试验区于2013年9月份挂牌以来，国务院又分别于2015年、2017年、2018年、2019年、2020年和2023年，批复设立3个、7个、1个、6个、3个和1个自贸试验区。 历经近13年的发展，我国自贸试验区已从单点突破迈向全域协同，形成统筹沿海地区、内
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 华贵人寿董事长有新职。
+近日，《中国（内蒙古）自由贸易试验区总体方案》正式发布，我国自贸试验区版图再添重要一子，总数扩围至23个。
 
-4月21日，贵州省人民政府发布通知称，省人民政府同意：推荐刘刚为贵州省黔晟国有资产经营有限责任公司（下称黔晟国资）董事、副董事长、总经理人选，建议不再担任中国贵州茅台酒厂（集团）有限责任公司（下称茅台集团）总会计师职务。
+此前，自上海自贸试验区于2013年9月份挂牌以来，国务院又分别于2015年、2017年、2018年、2019年、2020年和2023年，批复设立3个、7个、1个、6个、3个和1个自贸试验区。
 
-出生于1970年4月的刘刚，目前为茅台集团党委委员、总会计师、董事会秘书，同时兼任华贵人寿保险股份有限公司（下称华贵人寿）党委书记、董事长。
+历经近13年的发展，我国自贸试验区已从单点突破迈向全域协同，形成统筹沿海地区、内陆地区、沿边地区，覆盖东西南北中的开放“雁阵”格局，布局逻辑由早期的数量扩张转向质量提升与差异化发展。
 
-此前，他曾历任中国建设银行黔南州分行副行长，建行贵州省分行国际业务部副总经理，建行贵阳河滨支行党总支书记、行长，建行安顺市分行党委书记、行长，贵州银行计划财务部总经理、财务管理部总经理、资金计划部总经理、行长助理，贵州茅台酒股份有限公司（贵州茅台，600519.SH）副总经理、财务总监、董事会秘书等职务。
+同时，各个自贸试验区以制度型开放为核心，在稳外贸、聚外资、促创新、优产业等方面持续释放动能，成为构建新发展格局、推动经济高质量发展的关键支撑。
 
-刘刚此番即将任职的黔晟国资早在2016年便被贵州省国资委纳入国有资本运营试点企业并报国务院国资委备案，2019年被贵州省国资委核定主业为“国有资本运营管理”。
+全域协同成势： 雁阵布局完善开放新图景 从黄浦江畔到北疆草原，从东部沿海到西部内陆，23个自贸试验区梯次展开、错位发力，勾勒出陆海地区联动、东西双向互济的开放新图景。
 
-值得一提的是，黔晟国资还是华贵人寿的第二大股东，持股比例为14.66%。
+苏商银行特约研究员付一夫对《证券日报》记者表示，2013年上海自贸试验区率先探索，充当“头雁”，此后分七批次增设的22个自贸试验区构成“雁身”和“两翼”，形成梯度推进、功能互补的开放版图。
 
-2025年12月，贵州金融监管局批复同意华贵人寿增加注册资本，注册资本由20亿元增至26.15亿元。
+其中，沿海地区对标国际高标准经贸规则，内陆侧重承接产业转移与培育开放型经济，构成稳健“雁身”；沿边地区则作为“两翼”，分别联通中亚、南亚与东北亚，夯实开放支点。
 
-此次增资，仅华贵人寿第一大股东茅台集团参与。
+在付一夫看来，此次内蒙古自贸试验区的设立，填补了北部沿边开放空白，以呼和浩特、满洲里、二连浩特三大片区为支点，打造向北开放重要桥头堡，让雁阵首尾相连、协同联动更趋完整。
 
 ## 相关推荐
 
-- 2026-06-29 11:57 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:50 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:03 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:47 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:47 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:05 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:52 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:45 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:56 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:51 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:05 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:16 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:00 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:15 - [【早盘三分钟】4月13日华宝基金ETF早知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:14 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:59 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:03 - [伊美第三轮会谈在伊斯兰堡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:51 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:05 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:11 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:59 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:48 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:16 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.minike.top/Article/details/48244488.shtml)
-- 2026-06-29 12:04 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](http://www.share.minike.top/Article/details/441670.shtml)
-- 2026-06-29 12:11 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/9012843742.shtml)
-- 2026-06-29 11:58 - [达能销售额增长，美国市场重拾增长动力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.minike.top/Article/details/4296835729.shtml)
-- 2026-06-29 11:45 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.share.minike.top/Article/details/54686045647.shtml)
-- 2026-06-29 11:52 - [西安检察探索知识产权保护“立体解题”新路径](http://www.blog.kurohicncr.top/Article/details/5205051283.shtml)
-- 2026-06-29 11:44 - [事关节能降碳工作 中办、国办重磅文件对外发布](http://www.blog.minike.top/Article/details/56093688703.shtml)
-- 2026-06-29 12:04 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.share.minike.top/Article/details/099584634.shtml)
-- 2026-06-29 11:56 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.blog.kurohicncr.top/Article/details/19995562301.shtml)
-- 2026-06-29 11:47 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](http://www.share.kurohicncr.top/Article/details/67661712.shtml)
-- 2026-06-29 11:42 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.share.minike.top/Article/details/302539.shtml)
+- 2026-06-29 12:05 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](http://www.blog.minike.top/Article/details/0242489.shtml)
+- 2026-06-29 12:09 - [2026年全国教育科研工作会议在京举行](http://www.blog.minike.top/Article/details/1356493400.shtml)
+- 2026-06-29 11:51 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](http://www.blog.kurohicncr.top/Article/details/45821.shtml)
+- 2026-06-29 12:00 - [中国东方演艺集团将创排全新舞剧《山海经》](http://www.blog.kurohicncr.top/Article/details/8133048.shtml)
+- 2026-06-29 12:15 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](http://www.share.minike.top/Article/details/2302839974.shtml)
+- 2026-06-29 11:48 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [非瘟以来两轮猪周期回顾](http://www.share.minike.top/Article/details/51686977671.shtml)
+- 2026-06-29 11:53 - [2026年湖北省城市足球联赛开赛](http://www.blog.kurohicncr.top/Article/details/587775676761.shtml)
+- 2026-06-29 12:17 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.share.kurohicncr.top/Article/details/518393419.shtml)
+- 2026-06-29 12:01 - [新疆银行被罚30万元：信贷业务不审慎](http://www.blog.kurohicncr.top/Article/details/1175309.shtml)
+- 2026-06-29 12:00 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.share.minike.top/Article/details/26865.shtml)
+- 2026-06-29 12:09 - [辽宁持续发力打造营商环境好口碑](http://www.share.minike.top/Article/details/962093912.shtml)
+- 2026-06-29 12:06 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.blog.kurohicncr.top/Article/details/2905007180.shtml)

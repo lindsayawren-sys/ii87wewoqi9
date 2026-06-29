@@ -1,60 +1,56 @@
-# 80.3%受访者看好相关政策提升大众阅读兴趣
+# 粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-80.3%受访者看好相关政策提升大众阅读兴趣 营造阅读氛围 70.3%受访者期待完善公共阅读设施 今年2月，《全民阅读促进条例》正式实施。4月20日，第五届全民阅读大会于江西开幕，首个全国“全民阅读活动周”也同步启动。中国青年报社社会调查中心联合问卷网(wenjuan.com)于近日进行的一项1501人参与的调查显示，80.3%的受访者认为相关政策有助于提升大众阅读兴趣。提供阅
+中新网茂名4月12日电 (梁盛 梁天宇)11日晚，粤BA篮球联赛第三轮赛事在茂名奥林匹克体育中心体育馆开打，茂名队坐镇主场迎战佛山队。 本场比赛跌宕起伏，主场作战的茂名队在落后22分的绝境下，末节凭借顽强的防守和高效反击，疯狂打出一波得分高潮，最终78:75逆转战胜佛山队，以3分优势取得主场首胜，引爆全场球迷热情。 比赛开始，两队拼抢激烈，佛山队反客为主，15号吴远根三分连续命
 
 ## 正文
 
-80.3%受访者看好相关政策提升大众阅读兴趣 营造阅读氛围 70.3%受访者期待完善公共阅读设施 今年2月，《全民阅读促进条例》正式实施。
+中新网茂名4月12日电 (梁盛 梁天宇)11日晚，粤BA篮球联赛第三轮赛事在茂名奥林匹克体育中心体育馆开打，茂名队坐镇主场迎战佛山队。
 
-4月20日，第五届全民阅读大会于江西开幕，首个全国“全民阅读活动周”也同步启动。
+本场比赛跌宕起伏，主场作战的茂名队在落后22分的绝境下，末节凭借顽强的防守和高效反击，疯狂打出一波得分高潮，最终78:75逆转战胜佛山队，以3分优势取得主场首胜，引爆全场球迷热情。
 
-中国青年报社社会调查中心联合问卷网(wenjuan.com)于近日进行的一项1501人参与的调查显示，80.3%的受访者认为相关政策有助于提升大众阅读兴趣。
+比赛开始，两队拼抢激烈，佛山队反客为主，15号吴远根三分连续命中，6号孔祥健和7号钟俊杰接连快攻得手，打出了一波10:0的得分高潮。
 
-提供阅读支持，受访者最期待增设公共图书馆或阅读空间。
+随后，茂名队展开反击，凭借2号罗家裕和17号吴威震的关键三分球紧咬比分。
 
-认为身边阅读氛围浓厚的受访者不足半数“我爷爷一直有阅读习惯，也促使我养成了这种习惯。
+首节战罢，茂名队以18:28落后佛山队。
 
-”来自河南的95后李丹从小家庭的阅读氛围就比较浓厚，家里很多长辈都喜欢读书，也会给她推荐书。
+次节，两队加快了攻防节奏。
 
-到北京工作后，她保持了看书的习惯，却发现周围看书的人并不多，尤其是在地铁上，大部分人都在玩手机。
+茂名队凭借积极的拼抢获得了更多的二次进攻机会，牢牢咬住比分。
 
-来自山东的95后马祺感觉自己周围的阅读氛围还是比较浓厚的，“我妈妈很喜欢看书，特别是爱看现当代的小说”。
+半场战罢，茂名队38:46落后佛山队，将分差缩小至个位数。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:05 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:05 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:59 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:54 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:09 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:59 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:03 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:07 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:09 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:55 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:12 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:49 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:08 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:08 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:00 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:53 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:59 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:01 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:59 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:01 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:17 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:15 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:57 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/640088063124.shtml)
-- 2026-06-29 11:59 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.minike.top/Article/details/069420933407.shtml)
-- 2026-06-29 11:55 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.share.minike.top/Article/details/986671065738.shtml)
-- 2026-06-29 11:48 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/55234.shtml)
-- 2026-06-29 12:01 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.share.minike.top/Article/details/98724374078.shtml)
-- 2026-06-29 11:53 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.blog.minike.top/Article/details/0269027493.shtml)
-- 2026-06-29 11:59 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.share.kurohicncr.top/Article/details/6622434.shtml)
-- 2026-06-29 11:53 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.blog.kurohicncr.top/Article/details/90914803864.shtml)
-- 2026-06-29 11:48 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.blog.kurohicncr.top/Article/details/609205695425.shtml)
-- 2026-06-29 12:04 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.share.minike.top/Article/details/2334795697.shtml)
-- 2026-06-29 11:54 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.minike.top/Article/details/7309320810.shtml)
-- 2026-06-29 11:52 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.blog.minike.top/Article/details/6011861.shtml)
+- 2026-06-29 12:15 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.share.minike.top/Article/details/497082751757.shtml)
+- 2026-06-29 11:48 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.blog.kurohicncr.top/Article/details/2052609846.shtml)
+- 2026-06-29 11:48 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.blog.minike.top/Article/details/18564039.shtml)
+- 2026-06-29 11:57 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.blog.kurohicncr.top/Article/details/4913386482.shtml)
+- 2026-06-29 12:00 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.minike.top/Article/details/81780.shtml)
+- 2026-06-29 12:12 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/6542773184.shtml)
+- 2026-06-29 12:01 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.minike.top/Article/details/320327299.shtml)
+- 2026-06-29 12:14 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.share.kurohicncr.top/Article/details/815429411.shtml)
+- 2026-06-29 12:12 - [伊朗武装部队称随时准备开火](http://www.share.kurohicncr.top/Article/details/74782.shtml)
+- 2026-06-29 12:09 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.blog.minike.top/Article/details/6955280390.shtml)
+- 2026-06-29 12:16 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.minike.top/Article/details/387027232467.shtml)
+- 2026-06-29 11:56 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.blog.kurohicncr.top/Article/details/2437276.shtml)

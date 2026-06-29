@@ -1,57 +1,46 @@
-# 从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网
+# 文远知行-W于4月10日斥资134.79万美元回购54万股
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网太原4月23日电 (记者 杨杰英)国产游戏《黑神话：悟空》的火爆不仅带火了山西古建游，其背后的知识产权保护经验也获得了国家级认可。在23日举行的山西省知识产权工作新闻发布会上，该案例被多次提及，成为山西加强新兴领域知识产权保护、护航新质生产力发展的生动注脚。 山西省市场监管局(知识产权局)副局长武小勤在发布中透露，《黑神话：悟空》知识产权保护已入选国家知识产权局快速协同保
+文远知行-W（00800）发布公告，于2026年4月10日该公司斥资134.79万美元回购54万股，回购价格为每股2.49-2.50美元。责任编辑：卢昱君
 
 ## 正文
 
-中新网太原4月23日电 (记者 杨杰英)国产游戏《黑神话：悟空》的火爆不仅带火了山西古建游，其背后的知识产权保护经验也获得了国家级认可。
+文远知行-W（00800）发布公告，于2026年4月10日该公司斥资134.79万美元回购54万股，回购价格为每股2.49-2.50美元。
 
-在23日举行的山西省知识产权工作新闻发布会上，该案例被多次提及，成为山西加强新兴领域知识产权保护、护航新质生产力发展的生动注脚。
-
-山西省市场监管局(知识产权局)副局长武小勤在发布中透露，《黑神话：悟空》知识产权保护已入选国家知识产权局快速协同保护十大典型经验做法。
-
-这一案例的成功，折射出山西对于爆款IP、文创产品等新兴领域知识产权保护的高度重视。
-
-除了助力《黑神话：悟空》，山西检察机关也将目光投向了其他热门文创产品。
-
-山西省人民检察院副检察长史海东在回答记者提问时介绍，针对近年来出现的“佛小伴”等新兴消费领域文创产品被侵权现象，检察机关已挂牌督办一批案件，有力震慑了侵权行为，规范了市场秩序。
-
-“我们要守护文化创意与品牌权益”，史海东表示，山西已成立40个知识产权检察保护中心、73个重点企业检察联系点、40个检察服务站、57个检察官办公室，围绕山西十大省级重点“专业镇”布局，全方位、全链条强化对非遗、文博文创等领域的司法保护。
-
-史海东介绍，山西已建立技术调查官制度，在省教育厅、省科技厅等部门支持下，聘任了首批12名各领域专家担任技术调查官，深度参与案件办理。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:58 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:04 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:09 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:52 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:56 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:07 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:54 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:07 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:03 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:50 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:49 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:48 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:01 - [人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:53 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:16 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:57 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:16 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:53 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:01 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:12 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:49 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:11 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.minike.top/Article/details/0911578.shtml)
-- 2026-06-29 11:58 - [日韩股市集体高开 日股升至纪录新高](http://www.blog.kurohicncr.top/Article/details/6704969851.shtml)
-- 2026-06-29 11:56 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.blog.minike.top/Article/details/4899341662.shtml)
-- 2026-06-29 11:53 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.blog.minike.top/Article/details/2234807.shtml)
-- 2026-06-29 12:07 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.share.kurohicncr.top/Article/details/302728413553.shtml)
-- 2026-06-29 11:51 - [液冷牛股英维克，火热后急冻，现场探访](http://www.blog.minike.top/Article/details/42037326443.shtml)
-- 2026-06-29 11:42 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.minike.top/Article/details/514118263.shtml)
-- 2026-06-29 11:43 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.blog.minike.top/Article/details/76553324595.shtml)
-- 2026-06-29 12:07 - [国际刑事法院声称要对杜特尔特进行审判](http://www.blog.minike.top/Article/details/6697796652.shtml)
-- 2026-06-29 11:52 - [上交所举办东南亚专题国际路演活动](http://www.blog.kurohicncr.top/Article/details/184052.shtml)
-- 2026-06-29 11:49 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.minike.top/Article/details/3465800225.shtml)
-- 2026-06-29 11:56 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.share.minike.top/Article/details/1024156875.shtml)
+- 2026-06-29 12:09 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.share.minike.top/Article/details/261241.shtml)
+- 2026-06-29 12:11 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.kurohicncr.top/Article/details/6370451736.shtml)
+- 2026-06-29 12:04 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.blog.kurohicncr.top/Article/details/98971514697.shtml)
+- 2026-06-29 12:09 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.share.kurohicncr.top/Article/details/21683411.shtml)
+- 2026-06-29 12:11 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.share.minike.top/Article/details/062493.shtml)
+- 2026-06-29 11:48 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.share.kurohicncr.top/Article/details/583040805991.shtml)
+- 2026-06-29 12:08 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.blog.minike.top/Article/details/724604.shtml)
+- 2026-06-29 11:48 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](http://www.blog.kurohicncr.top/Article/details/941252.shtml)
+- 2026-06-29 11:56 - [南部战区新闻发言人发表谈话](http://www.blog.kurohicncr.top/Article/details/832705151031.shtml)
+- 2026-06-29 11:50 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.share.kurohicncr.top/Article/details/29143073732.shtml)
+- 2026-06-29 12:16 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.blog.kurohicncr.top/Article/details/368140.shtml)
+- 2026-06-29 11:59 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/5897204664.shtml)
+- 2026-06-29 12:04 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.blog.minike.top/Article/details/9842199.shtml)

@@ -1,59 +1,57 @@
-# 能定位会判断 AI乒乓机器人击败人类高手
+# 加拿大开普勒卫星集群开启在轨计算商业化探索
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。 这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。 像Ace这样的机器人被称为A
+尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。 目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。 该公司目前已拥有18家客户，并于周一宣布了最新
 
 ## 正文
 
-索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。
+尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。
 
-这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。
+随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。
 
-该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。
+目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。
 
-像Ace这样的机器人被称为AI代理，即能够在有限人类干预下，通过推理并采取行动来解决多步骤问题的系统。
+该公司目前已拥有18家客户，并于周一宣布了最新合作伙伴：初创企业索菲亚航天（Sophia Space）。
 
-索尼集团旗下子公司索尼AI的研究人员将Ace与多位高水平乒乓球选手进行了一系列对战测试。
+后者将在开普勒的卫星星座上测试其专用轨道计算机软件。
 
-在事先并不了解对手打法风格的情况下，这款机器人在与五名不同精英运动员（定义为接受过超过10年高强度训练的人）进行的13场比赛中赢下了7场。
+专家预计，类似SpaceX或蓝色起源构想的大型太空数据中心，要到2030年代才可能出现。
 
-而在与两名参加官方职业联赛的选手对阵时，Ace在7场比赛中赢下了1场。
+现阶段的第一步，是对在轨采集的数据进行实时处理，以提升企业与政府部门所使用的天基传感器效能。
 
-乒乓球运动需要精确的动作、瞬间决策和快速反应，因此成为研究AI系统如何在复杂物理环境中进行交互的理想案例。
+开普勒通信首席执行官Mina Mitry表示，公司并不把自己定位为数据中心企业，而是太空应用基础设施提供商。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:08 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:00 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:07 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:01 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:07 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:06 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:55 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:58 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:49 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:03 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:56 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:58 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:10 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:50 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:10 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:58 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:49 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:15 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:56 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:56 - [广西三江：花映楼桥入画来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:17 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:01 - [A股周一缩量上涨 创业板指创四年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](http://www.share.minike.top/Article/details/63996.shtml)
-- 2026-06-29 11:50 - [美国航空因燃油价格上涨下调展望](http://www.share.kurohicncr.top/Article/details/67489.shtml)
-- 2026-06-29 12:10 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/42023.shtml)
-- 2026-06-29 11:50 - [欧元区消费者信心下滑 凸显消费风险](http://www.blog.minike.top/Article/details/77860.shtml)
-- 2026-06-29 12:02 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.share.minike.top/Article/details/533693.shtml)
-- 2026-06-29 11:56 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.kurohicncr.top/Article/details/01302860295.shtml)
-- 2026-06-29 11:57 - [传习录丨读书，总书记倡导的生活方式](http://www.blog.kurohicncr.top/Article/details/1203526.shtml)
-- 2026-06-29 11:52 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.minike.top/Article/details/6288790271.shtml)
-- 2026-06-29 11:55 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.kurohicncr.top/Article/details/82848228054.shtml)
-- 2026-06-29 11:42 - [“6.0%”的浙江看点](http://www.share.kurohicncr.top/Article/details/4279393998.shtml)
-- 2026-06-29 11:56 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.share.minike.top/Article/details/5064919.shtml)
-- 2026-06-29 11:55 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.minike.top/Article/details/259040321.shtml)
-- 2026-06-29 11:58 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.share.minike.top/Article/details/5003945.shtml)
-- 2026-06-29 12:00 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.minike.top/Article/details/68478.shtml)
-- 2026-06-29 11:55 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.blog.minike.top/Article/details/6880597251.shtml)
+- 2026-06-29 12:00 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.minike.top/Article/details/83731847857.shtml)
+- 2026-06-29 11:52 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.blog.kurohicncr.top/Article/details/558303.shtml)
+- 2026-06-29 11:55 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.blog.minike.top/Article/details/5870604566.shtml)
+- 2026-06-29 11:49 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.share.kurohicncr.top/Article/details/10320805.shtml)
+- 2026-06-29 12:12 - [比亚迪：公司储能业务在全球市场持续发力](http://www.share.kurohicncr.top/Article/details/281572.shtml)
+- 2026-06-29 12:14 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](http://www.share.minike.top/Article/details/63568494658.shtml)
+- 2026-06-29 12:17 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.share.kurohicncr.top/Article/details/56839778.shtml)
+- 2026-06-29 12:14 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](http://www.blog.kurohicncr.top/Article/details/35736494750.shtml)
+- 2026-06-29 11:58 - [以军空袭黎南部造成至少24人死亡](http://www.blog.kurohicncr.top/Article/details/62211073322.shtml)
+- 2026-06-29 12:02 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](http://www.share.minike.top/Article/details/247593341.shtml)
+- 2026-06-29 12:06 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](http://www.blog.minike.top/Article/details/36071837.shtml)
+- 2026-06-29 12:16 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [RYOEX:黄金价值重估与结构演变趋势分析](http://www.share.kurohicncr.top/Article/details/530043.shtml)
+- 2026-06-29 11:48 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](http://www.share.minike.top/Article/details/52321.shtml)

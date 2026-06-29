@@ -1,57 +1,51 @@
-# 美国司法部将医用大麻重新归类为低危险性毒品
+# 伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-美国司法部代理部长托德·布兰奇于4月23日签署命令，将获得州许可的医用大麻从《管制物质法案》中最严格的附表一重新归类为危险性较低的附表三。这是美国联邦大麻政策五十年来最重大的转变之一。 政策核心变化 自1970年以来，大麻一直被列为附表一物质，与海洛因、LSD等同属“无医疗用途且具有高度滥用潜力”的类别。此次重新分类后，医用大麻将与含有可待因的泰诺、氯胺酮等药物处于同一监管级别
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伊斯兰堡4月12日电（记者邹学冕杨恺）据巴基斯坦政府消息，伊朗伊斯兰议会议长卡利巴夫12日傍晚率领伊朗谈判代表团乘飞机离开巴基斯坦。（完）责任编辑：宋雅芳
 
 ## 正文
 
-美国司法部代理部长托德·布兰奇于4月23日签署命令，将获得州许可的医用大麻从《管制物质法案》中最严格的附表一重新归类为危险性较低的附表三。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是美国联邦大麻政策五十年来最重大的转变之一。
+新华社伊斯兰堡4月12日电（记者邹学冕杨恺）据巴基斯坦政府消息，伊朗伊斯兰议会议长卡利巴夫12日傍晚率领伊朗谈判代表团乘飞机离开巴基斯坦。
 
-政策核心变化 自1970年以来，大麻一直被列为附表一物质，与海洛因、LSD等同属“无医疗用途且具有高度滥用潜力”的类别。
-
-此次重新分类后，医用大麻将与含有可待因的泰诺、氯胺酮等药物处于同一监管级别。
-
-布兰奇在声明中表示：“这一重新分类行动允许对该物质的安全性和有效性进行研究，最终为患者提供更好的护理，为医生提供更可靠的信息。
-
-” 行业迎来实质性利好 新规为州许可的医用大麻经营者提供了重大税收减免——首次允许他们在联邦税表中扣除商业运营费用，据估计可为大型运营商每年节省数千万美元。
-
-同时，政策还设立了加速注册通道，使合法企业能够依据联邦法律从事医用大麻的制造、分销和配发。
-
-此外，该命令还为科学研究扫清了障碍，明确科学家可以使用州许可的大麻产品进行临床试验，而不再局限于联邦政府种植的大麻。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:48 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:49 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:08 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:47 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:51 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:52 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:08 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:06 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:45 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:52 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:08 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:58 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:12 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:57 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:52 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:54 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:14 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:11 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:54 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:55 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:12 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:18 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:55 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:56 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:53 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.blog.kurohicncr.top/Article/details/186507842.shtml)
-- 2026-06-29 11:44 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.share.kurohicncr.top/Article/details/80023971.shtml)
-- 2026-06-29 12:05 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.blog.minike.top/Article/details/562145019372.shtml)
-- 2026-06-29 11:44 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.share.minike.top/Article/details/93617307704.shtml)
-- 2026-06-29 12:09 - [液冷牛股英维克，火热后急冻，现场探访](http://www.share.minike.top/Article/details/00425.shtml)
-- 2026-06-29 12:06 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.kurohicncr.top/Article/details/60136201.shtml)
-- 2026-06-29 12:07 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.share.kurohicncr.top/Article/details/87094386644.shtml)
-- 2026-06-29 11:45 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.minike.top/Article/details/024663031.shtml)
-- 2026-06-29 12:02 - [上交所举办东南亚专题国际路演活动](http://www.share.kurohicncr.top/Article/details/169497993147.shtml)
-- 2026-06-29 12:05 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.blog.minike.top/Article/details/9270436.shtml)
-- 2026-06-29 11:48 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.share.kurohicncr.top/Article/details/324540940962.shtml)
-- 2026-06-29 12:04 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.share.kurohicncr.top/Article/details/436921.shtml)
-- 2026-06-29 12:09 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.blog.minike.top/Article/details/6692959909.shtml)
+- 2026-06-29 12:16 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.share.kurohicncr.top/Article/details/528682.shtml)
+- 2026-06-29 12:10 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.share.kurohicncr.top/Article/details/20931864393.shtml)
+- 2026-06-29 11:56 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.blog.kurohicncr.top/Article/details/39711798640.shtml)
+- 2026-06-29 11:49 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.share.kurohicncr.top/Article/details/7592696.shtml)
+- 2026-06-29 11:56 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.share.kurohicncr.top/Article/details/58226.shtml)
+- 2026-06-29 12:17 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.minike.top/Article/details/9433073.shtml)
+- 2026-06-29 11:50 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.minike.top/Article/details/94772369.shtml)
+- 2026-06-29 11:59 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/9061196488.shtml)
+- 2026-06-29 11:52 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.blog.kurohicncr.top/Article/details/39741817.shtml)
+- 2026-06-29 11:55 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/337550048.shtml)

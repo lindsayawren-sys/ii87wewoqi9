@@ -1,53 +1,54 @@
-# 美中嘉和与妙佑医疗国际正式签署新合作协议
+# 浙江绍兴一馆藏战国青铜剑被指多处拼接痕 文物部门介入核查
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。 双方基于既往在质子治疗人才培养
+近日，浙江绍兴柯桥区博物馆一件馆藏二级文物战国青铜剑引发社会关注。有群众反映，该文物登记号为2958，系以92万元面向社会征集入库，档案完残状况标注为“完整”，但被发现剑身存在多处拼接痕迹。据了解，该文物征集后长期存放于库房，馆方相关工作人员表示，文物入库时未发现相关问题。 4月10日，绍兴市柯桥区文物局发布情况通报，已第一时间成立专项工作组，对相关问题开展全面调查核实，邀请省
 
 ## 正文
 
-美中嘉和（02453）发布公告，近期，公司与妙佑医学教育和研究基金会（Mayo Foundation for Medical Education and Research）（妙佑医疗国际）正式签署新合作协议，据此，公司于妙佑医疗国际的合作范围将从肿瘤诊疗的国际化、标准化，进一步拓展至涵盖疾病预防、筛查、康复及长期健康管理的全生命周期健康服务领域。
+近日，浙江绍兴柯桥区博物馆一件馆藏二级文物战国青铜剑引发社会关注。
 
-双方基于既往在质子治疗人才培养、跨境会诊、转诊、医院管理及国际化质控等合作基础，将合作由肿瘤诊疗，拓展至疾病预防、筛查、康复及全生命周期健康管理领域。
+有群众反映，该文物登记号为2958，系以92万元面向社会征集入库，档案完残状况标注为“完整”，但被发现剑身存在多处拼接痕迹。
 
-妙佑医疗国际将以远程规划、辅导、现场评估及持续优化等方式，向公司导入其健康管理服务体系、运营标准及临床经验。
+据了解，该文物征集后长期存放于库房，馆方相关工作人员表示，文物入库时未发现相关问题。
 
-本次合作有助于公司完善前端预防筛查、中端精准诊疗、后端康复管理的全周期服务闭环，提升医疗服务能力、运营效率及患者体验，强化集团核心竞争力，符合公司及全体股东整体利益。
+4月10日，绍兴市柯桥区文物局发布情况通报，已第一时间成立专项工作组，对相关问题开展全面调查核实，邀请省市相关专家参与核查。
 
-责任编辑：卢昱君
+后续调查结果将及时向社会公开。
+
+(总台记者 何丽丽 杨尚沅)
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:08 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:43 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:09 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:54 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:54 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:57 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:07 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:46 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:46 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:02 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:53 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:11 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:03 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:48 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:59 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:01 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:06 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:56 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:12 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:57 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:05 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:17 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:48 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:15 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](http://www.blog.minike.top/Article/details/866217862.shtml)
-- 2026-06-29 11:47 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.minike.top/Article/details/50421572122.shtml)
-- 2026-06-29 11:54 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.blog.minike.top/Article/details/734135220752.shtml)
-- 2026-06-29 12:11 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.share.minike.top/Article/details/61936520.shtml)
-- 2026-06-29 11:55 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.blog.minike.top/Article/details/94603970.shtml)
-- 2026-06-29 12:06 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.share.kurohicncr.top/Article/details/12966061779.shtml)
-- 2026-06-29 12:05 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](http://www.blog.minike.top/Article/details/377254.shtml)
-- 2026-06-29 12:06 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.minike.top/Article/details/933189800.shtml)
-- 2026-06-29 11:59 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.minike.top/Article/details/92898.shtml)
-- 2026-06-29 11:48 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.kurohicncr.top/Article/details/78959922989.shtml)
-- 2026-06-29 11:51 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.minike.top/Article/details/102110464527.shtml)
-- 2026-06-29 11:43 - [日韩股市集体高开 日股升至纪录新高](http://www.share.kurohicncr.top/Article/details/18740966120.shtml)
-- 2026-06-29 12:00 - [世界地球日｜用我们的力量守护高原生态](http://www.share.kurohicncr.top/Article/details/87737575.shtml)
-- 2026-06-29 11:45 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.share.kurohicncr.top/Article/details/4408485.shtml)
-- 2026-06-29 11:52 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.share.minike.top/Article/details/460805266.shtml)
+- 2026-06-29 11:57 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.kurohicncr.top/Article/details/923559970295.shtml)
+- 2026-06-29 11:50 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.share.minike.top/Article/details/645929504.shtml)
+- 2026-06-29 12:15 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.share.minike.top/Article/details/370501268.shtml)
+- 2026-06-29 11:53 - [严格落实直播打赏新规谋求治理实效](http://www.share.minike.top/Article/details/25463232603.shtml)
+- 2026-06-29 12:04 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.minike.top/Article/details/219200037.shtml)
+- 2026-06-29 11:50 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.minike.top/Article/details/93539685005.shtml)
+- 2026-06-29 11:58 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.share.kurohicncr.top/Article/details/79459973.shtml)
+- 2026-06-29 12:07 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.share.minike.top/Article/details/984493.shtml)
+- 2026-06-29 11:55 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/2942419.shtml)
+- 2026-06-29 12:06 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/019773613489.shtml)
+- 2026-06-29 12:06 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/756794.shtml)
+- 2026-06-29 12:02 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.minike.top/Article/details/620132537.shtml)
+- 2026-06-29 11:55 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.blog.kurohicncr.top/Article/details/0970217.shtml)
+- 2026-06-29 11:57 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.share.minike.top/Article/details/3153642.shtml)
+- 2026-06-29 11:51 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.share.minike.top/Article/details/0907376061.shtml)

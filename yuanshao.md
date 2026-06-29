@@ -1,60 +1,59 @@
-# 突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东
+# 摩根大通策略师：借地缘政治引发的市场疲软买入股票
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：盛华观察 2026年4月23日，香港证券及期货事务监察委员会（以下简称 “香港证监会”）对外发布重磅公告，宣布已与罗兵咸永道会计师事务所（香港）达成正式协议，后者将预留 10 亿港元资金，专项用于向中国恒大集团的合资格独立少数股东进行赔偿。这一事件不仅
+摩根大通策略师表示，长期投资者应利用地缘政治导致的股市下跌逢低买入。他们指出，即便短期市场波动仍将持续，局势升级大概率难以持续。 由米斯拉夫·马泰卡领衔的团队称，历史数据显示股市对石油冲击具备韧性，在以往原油价格飙升后，标普500指数在6个月和12个月周期内均实现正收益。 该行认为当前宏观环境与2022年截然不同，并重申建议增持长久期资产，无论后续冲突如何演变。 团队指出，尽管
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+摩根大通策略师表示，长期投资者应利用地缘政治导致的股市下跌逢低买入。
 
-来源：盛华观察 2026年4月23日，香港证券及期货事务监察委员会（以下简称 “香港证监会”）对外发布重磅公告，宣布已与罗兵咸永道会计师事务所（香港）达成正式协议，后者将预留 10 亿港元资金，专项用于向中国恒大集团的合资格独立少数股东进行赔偿。
+他们指出，即便短期市场波动仍将持续，局势升级大概率难以持续。
 
-这一事件不仅是香港资本市场针对上市公司财务造假、审计机构失职的重大执法案例，更创下全球资本市场首例 —— 已清盘公司的审计机构向因虚假财报受损的独立少数股东作出赔偿，对强化审计责任、保护中小投资者权益具有标志性意义。
+由米斯拉夫·马泰卡领衔的团队称，历史数据显示股市对石油冲击具备韧性，在以往原油价格飙升后，标普500指数在6个月和12个月周期内均实现正收益。
 
-作为曾经的中国房地产行业龙头企业，中国恒大集团在规模扩张过程中埋下诸多财务隐患，最终陷入债务危机并进入清盘程序。
+该行认为当前宏观环境与2022年截然不同，并重申建议增持长久期资产，无论后续冲突如何演变。
 
-而在其经营状况急剧恶化前的 2019 及 2020 两个财政年度，正是罗兵咸永道香港担任恒大财务报表的核数师，普华永道中天会计师事务所（特殊普通合伙）协助开展审计工作。
+团队指出，尽管投资者在冲突初期态度偏积极，但市场情绪已转向看空，仓位持续去风险化；随着价格计入最坏情景，市场已出现超卖信号。
 
-香港证监会经过长期深入调查，揭开了恒大财务造假的惊人内幕，也揪出了审计环节存在的严重失职问题。
+摩根大通表示，市场大概率将回归冲突前的交易格局。
 
-调查结果显示，中国恒大在 2019、2020 财年的业绩公告与年报中，存在大量关键信息虚假、误导性陈述，核心违规手段集中在收入确认环节。
+随着美元避险需求消退，国际股市与新兴市场将优于美国市场。
 
-按照会计准则与房地产行业收入确认规范，企业需在物业竣工并交付给购房者后，才能确认相关销售收入。
+该行还强调，盈利预期持续上调，且在宏观环境整体向好的背景下，这一趋势料将延续。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:45 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:03 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:48 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:46 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:56 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:59 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:45 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:02 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:47 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:47 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:00 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:01 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:43 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:09 - [*ST万方，停牌！拟终止上市！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:57 - [摩根大通就停火风险提示油价走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:59 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:09 - [个贷不良依然压力山大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:15 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:57 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:49 - [【早盘三分钟】4月13日华宝基金ETF早知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:02 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:00 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:05 - [伊美第三轮会谈在伊斯兰堡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:56 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:49 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:55 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.blog.minike.top/Article/details/675397.shtml)
-- 2026-06-29 11:49 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.share.minike.top/Article/details/217040840188.shtml)
-- 2026-06-29 11:46 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.kurohicncr.top/Article/details/000324070.shtml)
-- 2026-06-29 12:10 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.share.kurohicncr.top/Article/details/1331212.shtml)
-- 2026-06-29 12:03 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.minike.top/Article/details/00551.shtml)
-- 2026-06-29 11:48 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](http://www.share.minike.top/Article/details/59319757.shtml)
-- 2026-06-29 12:02 - [百思买任命资深人士为CEO](http://www.blog.minike.top/Article/details/542094.shtml)
-- 2026-06-29 11:59 - [达能销售额增长，美国市场重拾增长动力](http://www.share.minike.top/Article/details/5583157.shtml)
-- 2026-06-29 12:09 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.kurohicncr.top/Article/details/47025055495.shtml)
-- 2026-06-29 11:57 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.share.kurohicncr.top/Article/details/963875762.shtml)
-- 2026-06-29 11:49 - [西安检察探索知识产权保护“立体解题”新路径](http://www.blog.minike.top/Article/details/72836682373.shtml)
-- 2026-06-29 12:01 - [事关节能降碳工作 中办、国办重磅文件对外发布](http://www.share.kurohicncr.top/Article/details/6161653259.shtml)
-- 2026-06-29 11:50 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.blog.kurohicncr.top/Article/details/9287040960.shtml)
-- 2026-06-29 12:11 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.share.kurohicncr.top/Article/details/8642328051.shtml)
-- 2026-06-29 12:08 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](http://www.share.minike.top/Article/details/561559867.shtml)
+- 2026-06-29 11:55 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](http://www.share.kurohicncr.top/Article/details/913216357.shtml)
+- 2026-06-29 12:03 - [RYOEX:黄金价值重估与结构演变趋势分析](http://www.share.minike.top/Article/details/8992286440.shtml)
+- 2026-06-29 12:07 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](http://www.share.minike.top/Article/details/533024.shtml)
+- 2026-06-29 12:09 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](http://www.share.kurohicncr.top/Article/details/3549615.shtml)
+- 2026-06-29 12:09 - [2026年全国教育科研工作会议在京举行](http://www.blog.minike.top/Article/details/4381801.shtml)
+- 2026-06-29 11:57 - [郑丽文一行拜谒孙中山先生衣冠冢](http://www.share.kurohicncr.top/Article/details/534067.shtml)
+- 2026-06-29 12:08 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [中国东方演艺集团将创排全新舞剧《山海经》](http://www.blog.kurohicncr.top/Article/details/005159583.shtml)
+- 2026-06-29 11:59 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](http://www.share.minike.top/Article/details/2187191997.shtml)
+- 2026-06-29 11:54 - [非瘟以来两轮猪周期回顾](http://www.share.kurohicncr.top/Article/details/620107.shtml)
+- 2026-06-29 11:54 - [2026年湖北省城市足球联赛开赛](http://www.share.kurohicncr.top/Article/details/90765.shtml)
+- 2026-06-29 12:17 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.blog.minike.top/Article/details/744932080707.shtml)

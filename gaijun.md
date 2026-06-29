@@ -1,56 +1,58 @@
-# 上交所举办东南亚专题国际路演活动
+# 近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网上海4月23日电 (高志苗)记者23日从上海证券交易所获悉，为深化与东南亚资本市场交流，分享中国经济与市场发展最新成果，推动更多东南亚投资者参与中国资本市场，上交所近日举办了“聚焦上交所：东南亚专场”线上国际路演活动。此次活动以“全球变局中的中国资产安全性与成长性”为主题，着重展现了当前复杂多变的国际形势下，中国经济增长的韧性与资产表现的稳定性，以及中国资本市场提供的科技
+中新网北京4月12日电 (记者 吕少威)作为2026北京国际长跑节—北京半程马拉松系列活动之一的欢聚跑11日在北京奥林匹克森林公园南园举办。 北京奥运城市发展促进中心作为协办方，以“我为奥运城市而跑”为主题，召集近200名参加过北京2008年奥运会或者北京2022年冬奥会的奥运人参加欢聚跑活动，营造全民参与、乐享奔跑、共筑“双奥”城市的浓厚氛围。 此外，继4月9日、10日在20
 
 ## 正文
 
-中新网上海4月23日电 (高志苗)记者23日从上海证券交易所获悉，为深化与东南亚资本市场交流，分享中国经济与市场发展最新成果，推动更多东南亚投资者参与中国资本市场，上交所近日举办了“聚焦上交所：东南亚专场”线上国际路演活动。
+中新网北京4月12日电 (记者 吕少威)作为2026北京国际长跑节—北京半程马拉松系列活动之一的欢聚跑11日在北京奥林匹克森林公园南园举办。
 
-此次活动以“全球变局中的中国资产安全性与成长性”为主题，着重展现了当前复杂多变的国际形势下，中国经济增长的韧性与资产表现的稳定性，以及中国资本市场提供的科技驱动增长机遇。
+北京奥运城市发展促进中心作为协办方，以“我为奥运城市而跑”为主题，召集近200名参加过北京2008年奥运会或者北京2022年冬奥会的奥运人参加欢聚跑活动，营造全民参与、乐享奔跑、共筑“双奥”城市的浓厚氛围。
 
-活动吸引了来自新加坡、泰国、印度尼西亚、越南、菲律宾等地的投资机构、金融中介、交易所等约20家机构参与。
+此外，继4月9日、10日在2026北京国际半程马拉松博览会首秀后，“双奥文化大篷车”在当天的活动现场亮相，跑者和游客纷纷在车前驻足打卡留念。
 
-上交所介绍，近期中国市场表现出的韧性和抗风险能力得益于新质生产力的加速培育、公司质量的稳步提升，以及透明、稳定、可预期的政策和市场环境。
+“双奥文化大篷车”是由北京奥运城市发展促进会联合首旅集团对1辆50座旅游大巴进行整体设计与专业化改装而成，旨在推动“双奥”文化从“观看”走向“体验”和“参与”，努力实现“双奥”文化全民共享、奥运精神全民传承。
 
-沪市ETF市场的跨越式发展，尤其是科创板ETF矩阵的加速完善，也为投资者配置中国资产、把握中国增长机遇提供了重要工具。
+“‘双奥文化大篷车’助力北京半程马拉松，不仅展示奥运文化藏品，还售卖奥运主题文创，弘扬奥林匹克精神，进一步丰富参赛选手的体验。
 
-“十五五”时期，中国资产的稳定性、成长性、安全性将进一步强化，在全球资产配置格局重构的过程中，持续展现独特的优势，为全球资产配置注入稳定性与增长动力。
+”北京奥运城市发展促进中心副主任夏日红说。
 
-东盟已连续6年成为中国第一大贸易伙伴，中国也连续17年稳居东盟第一大贸易伙伴，双方经贸合作韧性强劲。
+4月12日，“双奥文化大篷车”开往2026北京半程马拉松终点，继续开展移动式、沉浸式“双奥”文化宣传推广，为赛事增添“双奥”文化内涵。
 
-近年来，上交所持续推进资本市场高水平双向开放，已有多项与东南亚市场的合作举措落地，进一步便利了东南亚投资者配置中国资产。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:53 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:48 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:11 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:10 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:57 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:08 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:03 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:54 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:44 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:15 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:04 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:50 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:04 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:13 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:18 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:16 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:12 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:07 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:01 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:53 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:06 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:53 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.kurohicncr.top/Article/details/259740053.shtml)
-- 2026-06-29 12:00 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.share.kurohicncr.top/Article/details/62544985528.shtml)
-- 2026-06-29 11:57 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.blog.minike.top/Article/details/777755428.shtml)
-- 2026-06-29 12:06 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/027695877.shtml)
-- 2026-06-29 11:48 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.kurohicncr.top/Article/details/8427567950.shtml)
-- 2026-06-29 12:07 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.share.kurohicncr.top/Article/details/467254.shtml)
-- 2026-06-29 12:04 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.kurohicncr.top/Article/details/527134355815.shtml)
-- 2026-06-29 11:44 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.kurohicncr.top/Article/details/246486.shtml)
-- 2026-06-29 11:52 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.blog.kurohicncr.top/Article/details/03076610051.shtml)
-- 2026-06-29 11:43 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.blog.kurohicncr.top/Article/details/43520.shtml)
-- 2026-06-29 11:59 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.blog.minike.top/Article/details/4231674.shtml)
-- 2026-06-29 12:00 - [一习话丨“要提倡多读书 建设书香社会”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.minike.top/Article/details/601254357.shtml)
+- 2026-06-29 12:01 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/075002748684.shtml)
+- 2026-06-29 11:49 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.share.minike.top/Article/details/69172.shtml)
+- 2026-06-29 12:06 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.blog.minike.top/Article/details/461238.shtml)
+- 2026-06-29 12:04 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/846690422.shtml)
+- 2026-06-29 11:54 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/702296673.shtml)
+- 2026-06-29 12:06 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.minike.top/Article/details/0012287890.shtml)
+- 2026-06-29 11:55 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.kurohicncr.top/Article/details/92725894.shtml)
+- 2026-06-29 11:56 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.share.minike.top/Article/details/560136124.shtml)
+- 2026-06-29 11:52 - [光大期货：4月13日软商品日报](http://www.blog.kurohicncr.top/Article/details/281478948170.shtml)
+- 2026-06-29 12:07 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.blog.minike.top/Article/details/1680984.shtml)

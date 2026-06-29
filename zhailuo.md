@@ -1,58 +1,45 @@
-# 猪价下跌的背后：本轮猪周期的变与不变
+# 北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-猪周期，这个众多投资者既熟悉又陌生的概念，最近又重回市场热议的C位。 首先是消费端“餐桌上的狂欢”：Wind数据显示，年初以来，全国生猪出栏价震荡下行，一度跌破9元/公斤；拉长时间来看，当前猪价更是已创下近8年新低： 数据来源：Wind，数据截取2016.4.20-2026.4.20。 其次是生产端“难捱的产业寒冬”：当前，衡量养殖企业盈亏状况的核心指标——猪粮比，已跌至3.7
+北海康成-B（01228）发布公告，于2026年4月10日，本公司建议根据首次公开发售后购股权计划向一名购股权承授人（公司执行董事、董事会主席及首席执行官薛群博士）授出合共637.26万份购股权及根据首次公开发售后受限制股份单位计划向一名受限制股份单位承授人授出合共637.26万份受限制股份单位，均须待独立股东批准后方可作实。责任编辑：卢昱君
 
 ## 正文
 
-猪周期，这个众多投资者既熟悉又陌生的概念，最近又重回市场热议的C位。
+北海康成-B（01228）发布公告，于2026年4月10日，本公司建议根据首次公开发售后购股权计划向一名购股权承授人（公司执行董事、董事会主席及首席执行官薛群博士）授出合共637.26万份购股权及根据首次公开发售后受限制股份单位计划向一名受限制股份单位承授人授出合共637.26万份受限制股份单位，均须待独立股东批准后方可作实。
 
-首先是消费端“餐桌上的狂欢”：Wind数据显示，年初以来，全国生猪出栏价震荡下行，一度跌破9元/公斤；拉长时间来看，当前猪价更是已创下近8年新低： 数据来源：Wind，数据截取2016.4.20-2026.4.20。
-
-其次是生产端“难捱的产业寒冬”：当前，衡量养殖企业盈亏状况的核心指标——猪粮比，已跌至3.72：1，远低于5：1的行业深度亏损线；同时，据测算，养殖户每出栏一头生猪平均亏损超过400元，养殖行业自2025年10月以来，已连续亏损超过7个月，亏损时长和幅度均处于历史高位。
-
-数据来源：Wind，数据截取2016.4.20-2026.4.20。
-
-“行业深度亏损线”指猪粮比达到5：1的临界值，我国建立三级预警响应机制调控猪粮比价，当猪粮比低于5：1即启动最高级别预警，相应采取猪肉收储等托市措施。
-
-历史上猪周期已上演过多轮，而这一次的磨底期似乎格外漫长。
-
-本轮猪周期相比以往，到底有何不同？
-
-“猪价下跌—企业亏损—产能去化—再次涨价”的逻辑链条有无变化？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:02 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:09 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:52 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:56 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:53 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:42 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:50 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:51 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:42 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:42 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:02 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:07 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:52 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:58 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:12 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:01 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:11 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:12 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:02 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:10 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:15 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:03 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.share.minike.top/Article/details/083001267905.shtml)
-- 2026-06-29 12:02 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.share.kurohicncr.top/Article/details/35332.shtml)
-- 2026-06-29 11:43 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.share.minike.top/Article/details/853820932.shtml)
-- 2026-06-29 11:51 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.blog.kurohicncr.top/Article/details/554470.shtml)
-- 2026-06-29 11:45 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.kurohicncr.top/Article/details/18496.shtml)
-- 2026-06-29 12:08 - [小食堂托起晚年大幸福](http://www.blog.minike.top/Article/details/4103727080.shtml)
-- 2026-06-29 11:59 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.share.minike.top/Article/details/84251852225.shtml)
-- 2026-06-29 12:01 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.share.kurohicncr.top/Article/details/396328506429.shtml)
-- 2026-06-29 11:49 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.share.minike.top/Article/details/7893285.shtml)
-- 2026-06-29 11:54 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.minike.top/Article/details/990141561258.shtml)
-- 2026-06-29 12:02 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.blog.kurohicncr.top/Article/details/38866633.shtml)
-- 2026-06-29 12:05 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.blog.minike.top/Article/details/7901163.shtml)
-- 2026-06-29 12:00 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.share.minike.top/Article/details/08461094.shtml)
-- 2026-06-29 11:47 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [宁夏：“垂钓节”绘就乡村振兴新画卷](http://www.share.minike.top/Article/details/075346562.shtml)
+- 2026-06-29 11:48 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.share.minike.top/Article/details/83127314570.shtml)
+- 2026-06-29 12:04 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.minike.top/Article/details/0861051491.shtml)
+- 2026-06-29 12:09 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.minike.top/Article/details/482051548573.shtml)
+- 2026-06-29 11:50 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.kurohicncr.top/Article/details/58086593109.shtml)
+- 2026-06-29 12:13 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.share.minike.top/Article/details/94669673581.shtml)
+- 2026-06-29 12:06 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/980548832118.shtml)
+- 2026-06-29 12:09 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.blog.minike.top/Article/details/374770.shtml)
+- 2026-06-29 12:01 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.minike.top/Article/details/74013237744.shtml)
+- 2026-06-29 12:09 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.minike.top/Article/details/722736454.shtml)
+- 2026-06-29 11:49 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.minike.top/Article/details/38607063.shtml)
+- 2026-06-29 11:57 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.share.minike.top/Article/details/4378258.shtml)

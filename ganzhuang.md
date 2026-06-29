@@ -1,57 +1,60 @@
-# 台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆
+# 第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新社北京4月22日电 (李百加)台湾作家郑如晴新作《往日食光》新书发布暨读者分享会22日于北京举行。 该书分为“丰盛食光”“密码食光”“隽永食光”“味蕾暗号”“美食符码”五个部分，收录的30篇散文与30道台湾风味料理一一对应，串联起美食风物与人情往事，也勾勒出作者的不同人生阶段。 分享现场，郑如晴以一道名为“五柳枝鱼” 的菜肴为例作介绍，佳肴源自大陆东南沿海，随先民迁徙传入台
+中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。 本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水
 
 ## 正文
 
-中新社北京4月22日电 (李百加)台湾作家郑如晴新作《往日食光》新书发布暨读者分享会22日于北京举行。
+中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。
 
-该书分为“丰盛食光”“密码食光”“隽永食光”“味蕾暗号”“美食符码”五个部分，收录的30篇散文与30道台湾风味料理一一对应，串联起美食风物与人情往事，也勾勒出作者的不同人生阶段。
+由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。
 
-分享现场，郑如晴以一道名为“五柳枝鱼” 的菜肴为例作介绍，佳肴源自大陆东南沿海，随先民迁徙传入台湾，历经世代传承、扎根民间。
+本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水平队伍应战。
 
-此类饮食交融的案例在两岸比比皆是。
+其中，中国一队由世界冠军丁立人、世界棋后居文君、奥赛冠军余泱漪组成。
 
-“寻常菜式之中，蕴藏着历史流转与文化共感。
+本次比赛采用快棋形式，时限为每方15分钟，每步棋加10秒。
 
-” 她说，饮食文化的传承不靠宏大叙事，而是沉淀在千家万户的厨房烟火里。
+此前的半决赛中，中国一队和俄罗斯队分别战胜白俄罗斯队与蒙古国队，会师冠亚军决赛。
 
-道道家常风味，是两岸文脉同源、文化相融的见证。
+当天的决赛中，中国一队与上届冠军俄罗斯队杀得难解难分，最终中国一队凭借突然死亡加赛惊险胜出，获得冠军，俄罗斯队获得亚军。
 
-台湾作家刘克襄为此书作序，他写道，“我们读的是饮食，尝到的尽是人生滋味。
+三四名决赛中，蒙古国队战胜白俄罗斯队，获得季军，白俄罗斯队位列第四。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:59 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:04 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:02 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:46 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:53 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:56 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:49 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:04 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:53 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:57 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:56 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:08 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:56 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:58 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:16 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:54 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:01 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:53 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:01 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:58 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:05 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:48 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:56 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:53 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.share.minike.top/Article/details/70725526.shtml)
-- 2026-06-29 11:44 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.share.kurohicncr.top/Article/details/40826320.shtml)
-- 2026-06-29 11:56 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.kurohicncr.top/Article/details/0495283101.shtml)
-- 2026-06-29 11:57 - [上交所举办东南亚专题国际路演活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.blog.minike.top/Article/details/7327288640.shtml)
-- 2026-06-29 11:46 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.blog.minike.top/Article/details/846339.shtml)
-- 2026-06-29 11:52 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.kurohicncr.top/Article/details/611857445.shtml)
-- 2026-06-29 12:06 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.blog.minike.top/Article/details/0937037.shtml)
-- 2026-06-29 11:49 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.kurohicncr.top/Article/details/1280939.shtml)
-- 2026-06-29 11:52 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.blog.minike.top/Article/details/082635172.shtml)
-- 2026-06-29 11:58 - [军号再次吹响，这次是接他们回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.share.kurohicncr.top/Article/details/834184778.shtml)
+- 2026-06-29 11:59 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](http://www.share.kurohicncr.top/Article/details/887003758076.shtml)
+- 2026-06-29 11:55 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.share.kurohicncr.top/Article/details/353370333.shtml)
+- 2026-06-29 11:54 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.blog.kurohicncr.top/Article/details/66116965417.shtml)
+- 2026-06-29 12:01 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.minike.top/Article/details/5311594.shtml)
+- 2026-06-29 12:06 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.share.kurohicncr.top/Article/details/99188616528.shtml)
+- 2026-06-29 12:16 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.share.kurohicncr.top/Article/details/72237.shtml)
+- 2026-06-29 11:54 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.blog.minike.top/Article/details/547658.shtml)
+- 2026-06-29 12:16 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/516005.shtml)
+- 2026-06-29 12:04 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.share.minike.top/Article/details/484017676502.shtml)
+- 2026-06-29 12:14 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.share.kurohicncr.top/Article/details/93441609653.shtml)
+- 2026-06-29 11:57 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.blog.kurohicncr.top/Article/details/2789467.shtml)
+- 2026-06-29 11:58 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.blog.minike.top/Article/details/447244375703.shtml)

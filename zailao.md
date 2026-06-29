@@ -1,50 +1,46 @@
-# 摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软
+# 伊朗、美国和巴基斯坦三方会谈开始举行
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-摩根大通周三将日本股市日经225指数 的年底目标位从此前设定的61000点上调至70000点，理由是人工智能领域的繁荣以及日元走弱。 摩根大通还将东证股价指数年底目标从4100点上调至4300点。 摩根大通分析师在一份报告中写道：“尽管有一些人认为，在原油价格仍处高位的情况下，日经指数不断创纪录新高已显过热，但我们认为，日本股市的长期增长潜力进一步增强。” 日经指数周三升至纪录
+当地时间11日，巴基斯坦消息人士透露，伊朗、美国和巴基斯坦三方会谈已在伊斯兰堡开始。(总台记者 石玥)
 
 ## 正文
 
-摩根大通周三将日本股市日经225指数 的年底目标位从此前设定的61000点上调至70000点，理由是人工智能领域的繁荣以及日元走弱。
+当地时间11日，巴基斯坦消息人士透露，伊朗、美国和巴基斯坦三方会谈已在伊斯兰堡开始。
 
-摩根大通还将东证股价指数年底目标从4100点上调至4300点。
-
-摩根大通分析师在一份报告中写道：“尽管有一些人认为，在原油价格仍处高位的情况下，日经指数不断创纪录新高已显过热，但我们认为，日本股市的长期增长潜力进一步增强。
-
-” 日经指数周三升至纪录高位，逼近60000点这一关键心理关口，已从中东冲突引发的全球股市大幅下挫中逐渐回升。
-
-责任编辑：刘明亮
+(总台记者 石玥)
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:04 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:07 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:11 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:59 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:52 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:56 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:43 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:51 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:51 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:03 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:48 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:06 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:48 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:09 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:48 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:00 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:16 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:04 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:03 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:15 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:05 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.kurohicncr.top/Article/details/94454700456.shtml)
-- 2026-06-29 12:09 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.kurohicncr.top/Article/details/8726245104.shtml)
-- 2026-06-29 11:44 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.blog.minike.top/Article/details/90150.shtml)
-- 2026-06-29 12:03 - [军号再次吹响，这次是接他们回家](http://www.blog.minike.top/Article/details/4689451571.shtml)
-- 2026-06-29 12:04 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.minike.top/Article/details/7648460105.shtml)
-- 2026-06-29 12:02 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.share.kurohicncr.top/Article/details/6535346582.shtml)
-- 2026-06-29 11:53 - [浙江行刑联动破题商业秘密保护“三难”](http://www.share.minike.top/Article/details/2572058524.shtml)
-- 2026-06-29 11:56 - [社保基金重仓+机构高关注股来了（附名单）](http://www.blog.kurohicncr.top/Article/details/52730277930.shtml)
-- 2026-06-29 12:08 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.share.minike.top/Article/details/136386.shtml)
-- 2026-06-29 11:59 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.kurohicncr.top/Article/details/6329700117.shtml)
-- 2026-06-29 11:47 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.kurohicncr.top/Article/details/8149007.shtml)
-- 2026-06-29 11:46 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [述评：数字时代 浙江书香何处寻？](http://www.blog.minike.top/Article/details/77013685119.shtml)
+- 2026-06-29 11:56 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.share.minike.top/Article/details/029552980.shtml)
+- 2026-06-29 12:10 - [海口海关动植物检疫中心测序服务采购项目流标公告](http://www.blog.kurohicncr.top/Article/details/612897577002.shtml)
+- 2026-06-29 12:05 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/3637359.shtml)
+- 2026-06-29 12:00 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.blog.minike.top/Article/details/181000989.shtml)
+- 2026-06-29 11:58 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.share.minike.top/Article/details/37736.shtml)
+- 2026-06-29 12:07 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.blog.kurohicncr.top/Article/details/4176152.shtml)
+- 2026-06-29 11:54 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.share.kurohicncr.top/Article/details/764291719703.shtml)
+- 2026-06-29 12:00 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.kurohicncr.top/Article/details/6155806820.shtml)
+- 2026-06-29 12:15 - [第一观察｜习近平主席寄望中美青年](http://www.share.minike.top/Article/details/11163647238.shtml)
+- 2026-06-29 12:01 - [超百位港籍长者入住深圳光明区养老](http://www.share.minike.top/Article/details/628805636328.shtml)
+- 2026-06-29 12:01 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.share.minike.top/Article/details/4346736.shtml)
+- 2026-06-29 12:05 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.share.minike.top/Article/details/037730.shtml)

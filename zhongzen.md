@@ -1,61 +1,61 @@
-# “中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行
+# 徐寅生：愿“乒乓外交”精神代代相传
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新社布鲁塞尔4月22日电 (记者 德永健)中国驻欧盟使团21日在布鲁塞尔举办“中国大讲堂”系列讲座，特邀第十四届全国政协常委、经济委员会副主任马建堂围绕“中国高质量发展和中欧经贸合作”举行专题讲座。 中国政府欧洲事务前特别代表吴红波等专家组成员一同出席，中国驻欧盟使团团长蔡润主持讲座。欧盟理事会、欧盟委员会、欧盟对外行动署、欧洲议会等欧盟机构官员、智库学者、有关国家驻欧盟使节
+中新网上海4月13日电 (记者 许婧 国璇 康玉湛)中美“乒乓外交”55周年纪念活动上海欢迎仪式及友谊赛13日在上海举办。参加活动的“乒乓外交”亲历者、国际乒联终身名誉主席徐寅生在接受中新网记者专访时表示，当前国际形势下，更需传承“乒乓外交”的初心，以球会友、促进友谊，用体育的力量拉近人心。 55年前，小小乒乓球打破国家间的隔阂，推动中美民间交流走向深入，成为跨越分歧、连接民心
 
 ## 正文
 
-中新社布鲁塞尔4月22日电 (记者 德永健)中国驻欧盟使团21日在布鲁塞尔举办“中国大讲堂”系列讲座，特邀第十四届全国政协常委、经济委员会副主任马建堂围绕“中国高质量发展和中欧经贸合作”举行专题讲座。
+中新网上海4月13日电 (记者 许婧 国璇 康玉湛)中美“乒乓外交”55周年纪念活动上海欢迎仪式及友谊赛13日在上海举办。
 
-中国政府欧洲事务前特别代表吴红波等专家组成员一同出席，中国驻欧盟使团团长蔡润主持讲座。
+参加活动的“乒乓外交”亲历者、国际乒联终身名誉主席徐寅生在接受中新网记者专访时表示，当前国际形势下，更需传承“乒乓外交”的初心，以球会友、促进友谊，用体育的力量拉近人心。
 
-欧盟理事会、欧盟委员会、欧盟对外行动署、欧洲议会等欧盟机构官员、智库学者、有关国家驻欧盟使节等150余人出席。
+55年前，小小乒乓球打破国家间的隔阂，推动中美民间交流走向深入，成为跨越分歧、连接民心的重要纽带。
 
-马建堂深入宣介中国“两会”精神，全面介绍制定和实施五年规划对中国治国理政的重要意义，深入解读“十五五”时期推进中国式现代化进程的蓝图部署，详细阐述中国推进高质量发展、扩大高水平对外开放给中欧经贸合作带来的广阔机遇。
+2021年4月，纪念中美“乒乓外交”50周年系列活动在国际乒联博物馆和中国乒乓球博物馆举行，徐寅生与中美“乒乓外交”亲历者张燮林、郑敏之等齐聚一堂，中美选手组成混合战队展开友谊赛，重现了1971年中美“乒乓外交”的温情时刻。
 
-马建堂、吴红波、南方科技大学副校长金李等回答了欧方与会人员的提问。
+“和2021年相比，今年相关纪念活动的范围更大，这说明大家对这项运动越来越重视，一代一代都在传承和纪念。
 
-蔡润表示，“中国大讲堂”系列讲座是中国驻欧盟使团为欧方更多了解中国、了解中欧关系而搭建的平台。
+”徐寅生坦言，“友谊第一、比赛第二”的理念，历经半个多世纪依然具有深刻意义，这也是“乒乓外交”留给大家的宝贵精神财富。
 
-中方愿同欧方增进彼此了解，促进互学互鉴。
+徐寅生说，“乒乓外交”的核心是友谊与交流，55年来，这种精神始终指引着乒乓球运动的发展方向。
 
-来宾表示此次讲座增进了对中国“十五五”规划的了解，对中国经济发展前景更具信心。
+“乒乓球不仅是一项体育运动，更承载着各国人民对和平、友好的向往，当年它能打破隔阂，如今依然能成为拉近人心的桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [猪价下跌的背后：本轮猪周期的变与不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:48 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:04 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:10 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:09 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:58 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:00 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:02 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:01 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:58 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:02 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:50 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:43 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:58 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:43 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:57 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:00 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:01 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:52 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:53 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:16 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:58 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:49 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:07 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:02 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:04 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:01 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:50 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:09 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:08 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [“创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励](http://www.share.kurohicncr.top/Article/details/1472958.shtml)
-- 2026-06-29 11:55 - [一季度中国经济领域改革热度继续维持高位](http://www.share.minike.top/Article/details/00406245031.shtml)
-- 2026-06-29 11:54 - [学习新语｜共同构建地球生命共同体](http://www.blog.kurohicncr.top/Article/details/881146702.shtml)
-- 2026-06-29 12:09 - [欧元区私营部门商业活动意外萎缩 服务业大幅下滑](http://www.share.minike.top/Article/details/74996.shtml)
-- 2026-06-29 12:01 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.kurohicncr.top/Article/details/34927226.shtml)
-- 2026-06-29 12:05 - [民企“常敲门” 精准服务“一老一小”](http://www.share.minike.top/Article/details/29078498002.shtml)
-- 2026-06-29 11:45 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.blog.minike.top/Article/details/88956341268.shtml)
-- 2026-06-29 11:58 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.blog.kurohicncr.top/Article/details/6002975259.shtml)
-- 2026-06-29 12:08 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.share.minike.top/Article/details/74607712.shtml)
-- 2026-06-29 11:54 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.blog.kurohicncr.top/Article/details/1509877710.shtml)
-- 2026-06-29 12:06 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.share.kurohicncr.top/Article/details/7951983187.shtml)
-- 2026-06-29 11:52 - [菲莫国际营收上涨，受益于国际市场增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [小食堂托起晚年大幸福](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.share.minike.top/Article/details/7070122173.shtml)
-- 2026-06-29 11:45 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.blog.kurohicncr.top/Article/details/38777.shtml)
+- 2026-06-29 12:11 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.blog.kurohicncr.top/Article/details/857351767963.shtml)
+- 2026-06-29 12:00 - [国家疾控局发布通知推进重点虫媒传染病防控](http://www.share.kurohicncr.top/Article/details/84528.shtml)
+- 2026-06-29 11:54 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.share.minike.top/Article/details/5133200.shtml)
+- 2026-06-29 11:58 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.share.minike.top/Article/details/91778.shtml)
+- 2026-06-29 11:51 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/904430.shtml)
+- 2026-06-29 12:04 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.blog.kurohicncr.top/Article/details/969555104680.shtml)
+- 2026-06-29 12:06 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.minike.top/Article/details/151840813.shtml)
+- 2026-06-29 12:04 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.minike.top/Article/details/32666.shtml)
+- 2026-06-29 12:09 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/91182713816.shtml)
+- 2026-06-29 12:13 - [商业银行金融债券发行启动，债券供给边际放缓](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.blog.kurohicncr.top/Article/details/667049550.shtml)
+- 2026-06-29 11:53 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/2746971.shtml)

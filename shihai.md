@@ -1,59 +1,58 @@
-# 特斯拉第三代人形机器人预计年中发布，三季度启动正式投产
+# 305家医疗机构实现医保影像云跨省秒调阅
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月23日下午，特斯拉官方微博发布消息称，特斯拉第三代人形机器人预计年中亮相，2026年7-8月启动正式投产，产品测试稳步推进，预计明年投入外部场景应用。特斯拉表示，人形机器人将成为其有史以来生产规模最大的产品。 此次宣布的第三代人形机器人亮相时间比之前有所延后。1月29日，特斯拉在发布2025年第四季度及
+本报北京4月11日电 (记者孙秀艳)国家医保局近日发布第一批医保影像云跨省秒调阅网络成员单位名单。经医疗机构自主申报、省市评估、综合研究等，中日友好医院、北京大学第三医院等305家医疗机构榜上有名。这些医疗机构分布在21个省(自治区、直辖市)近百个统筹区，其中广东47家、浙江38家、安徽34家、河北23家。 为破解群众就医过程中的痛点堵点问题，国家医保局部署组建医保影像云跨省秒
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+本报北京4月11日电 (记者孙秀艳)国家医保局近日发布第一批医保影像云跨省秒调阅网络成员单位名单。
 
-4月23日下午，特斯拉官方微博发布消息称，特斯拉第三代人形机器人预计年中亮相，2026年7-8月启动正式投产，产品测试稳步推进，预计明年投入外部场景应用。
+经医疗机构自主申报、省市评估、综合研究等，中日友好医院、北京大学第三医院等305家医疗机构榜上有名。
 
-特斯拉表示，人形机器人将成为其有史以来生产规模最大的产品。
+这些医疗机构分布在21个省(自治区、直辖市)近百个统筹区，其中广东47家、浙江38家、安徽34家、河北23家。
 
-此次宣布的第三代人形机器人亮相时间比之前有所延后。
+为破解群众就医过程中的痛点堵点问题，国家医保局部署组建医保影像云跨省秒调阅医院网络，推动医保影像数据跨省互通共享。
 
-1月29日，特斯拉在发布2025年第四季度及全年财报时称，2026年第一季度，特斯拉人形机器人第三代版本即将发布。
+各级医保部门快速响应，定点医疗机构积极参与，共同推动构建“数据多跑路、群众少跑腿”的就医服务新格局。
 
-2月初，特斯拉官方微博曾发布消息称，第三代特斯拉人形机器人即将亮相，通过观察人类行为即可学习新技能。
+国家医保局有关负责人表示，欢迎符合准入标准的医疗机构持续主动报名，共同壮大网络规模、提升服务效能，切实惠及更多群众。
 
-去年7月，有报道称援引特斯拉相关人士消息称，特斯拉第三代机器人已在美国工厂进行实测，预计2025年面向中国C端市场推出，将进入家庭等消费场景，预计2026年实现量产。
-
-据特斯拉此前介绍，特斯拉人形机器人第三代版本将在2.5代的基础上进行升级，包括最新的手部设计。
+(人民日报)
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:11 - [原万家基金董事长方一天，今日被提名华安基金总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:45 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:07 - [美国航空因燃油价格上涨下调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:48 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:44 - [欧元区消费者信心下滑 凸显消费风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:06 - [科尔沁沙地核心区：人工铺设草方格固沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:00 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:51 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:59 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:59 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:59 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:55 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:54 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:00 - [北摩高科：拟每10股分红1.3元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:18 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:56 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:13 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:53 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:59 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:02 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:07 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:12 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:50 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:17 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:57 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:09 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](http://www.share.kurohicncr.top/Article/details/6348168495.shtml)
-- 2026-06-29 11:48 - [亚马逊进军GLP-1医疗领域](http://www.share.kurohicncr.top/Article/details/79883259.shtml)
-- 2026-06-29 12:04 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](http://www.share.minike.top/Article/details/39525.shtml)
-- 2026-06-29 11:52 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](http://www.blog.kurohicncr.top/Article/details/3347341723.shtml)
-- 2026-06-29 11:44 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](http://www.share.minike.top/Article/details/62893.shtml)
-- 2026-06-29 11:42 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](http://www.blog.minike.top/Article/details/803521.shtml)
-- 2026-06-29 11:46 - [猪价下跌的背后：本轮猪周期的变与不变](http://www.share.minike.top/Article/details/81630739.shtml)
-- 2026-06-29 11:42 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](http://www.blog.kurohicncr.top/Article/details/2593029359.shtml)
-- 2026-06-29 12:04 - [德政府据悉正与波兰就石油替代供应展开磋商](http://www.share.minike.top/Article/details/81534106.shtml)
-- 2026-06-29 11:54 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](http://www.blog.minike.top/Article/details/4317605682.shtml)
-- 2026-06-29 11:46 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](http://www.share.kurohicncr.top/Article/details/25764.shtml)
-- 2026-06-29 12:11 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.share.kurohicncr.top/Article/details/98684050437.shtml)
-- 2026-06-29 12:09 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](http://www.share.minike.top/Article/details/38443531.shtml)
+- 2026-06-29 12:08 - [徐寅生：愿“乒乓外交”精神代代相传](http://www.share.kurohicncr.top/Article/details/83180089.shtml)
+- 2026-06-29 12:16 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.blog.minike.top/Article/details/38694782218.shtml)
+- 2026-06-29 12:14 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](http://www.blog.minike.top/Article/details/10672.shtml)
+- 2026-06-29 12:17 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](http://www.blog.kurohicncr.top/Article/details/249756.shtml)
+- 2026-06-29 12:13 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](http://www.share.minike.top/Article/details/455149069449.shtml)
+- 2026-06-29 11:53 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](http://www.share.minike.top/Article/details/8628692182.shtml)
+- 2026-06-29 11:49 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.share.minike.top/Article/details/047577255544.shtml)
+- 2026-06-29 12:12 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](http://www.share.minike.top/Article/details/3375597.shtml)
+- 2026-06-29 12:08 - [贝壳-W于4月9日斥资700万美元回购133.6万股](http://www.share.kurohicncr.top/Article/details/25065.shtml)
+- 2026-06-29 11:59 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](http://www.share.kurohicncr.top/Article/details/863160502.shtml)
+- 2026-06-29 12:08 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.blog.kurohicncr.top/Article/details/8366608.shtml)
+- 2026-06-29 11:58 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](http://www.share.kurohicncr.top/Article/details/0160410.shtml)
+- 2026-06-29 12:03 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](http://www.blog.minike.top/Article/details/8570098887.shtml)
+- 2026-06-29 12:02 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](http://www.blog.kurohicncr.top/Article/details/8326401629.shtml)

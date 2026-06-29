@@ -1,60 +1,56 @@
-# 群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”
+# （经济观察）封关赋能开放 外资加速入琼
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网重庆4月22日电 (罗永皓)“订单一年比一年多。”22日，重庆市秀山县振雄塑胶制品有限公司副总经理杨天宇接受中新网记者采访时，正带领团队筹备一批三天后发往美国的订单。他称，得益于中欧班列的便捷运输，企业自2021年8月落户秀山以来，海外订单呈持续增长态势。 武陵山(秀山)国际电商产业园展厅里，全国优质物产与东盟十国特色好物齐聚一堂；全球潮玩爱好者追捧的泡泡玛特盲盒，与黄精
+中新社海口4月12日电 (记者 王子谦)“海南太古可口可乐绿色智能生产基地项目已经完成前期桩基工程，正在紧锣密鼓施工。”海南太古可口可乐饮料有限公司总经理宋丽华11日告诉中新社记者，这个在海南自贸港封关前夕开工的项目，将在2027年底商业化投产。西门子能源在海南建立燃机总装基地，闵和儋州粮油综合加工产业园项目启动，“韩国国家馆”项目签约落地……在封关效应下，外资加速入琼。自20
 
 ## 正文
 
-中新网重庆4月22日电 (罗永皓)“订单一年比一年多。
+中新社海口4月12日电 (记者 王子谦)“海南太古可口可乐绿色智能生产基地项目已经完成前期桩基工程，正在紧锣密鼓施工。
 
-”22日，重庆市秀山县振雄塑胶制品有限公司副总经理杨天宇接受中新网记者采访时，正带领团队筹备一批三天后发往美国的订单。
+”海南太古可口可乐饮料有限公司总经理宋丽华11日告诉中新社记者，这个在海南自贸港封关前夕开工的项目，将在2027年底商业化投产。
 
-他称，得益于中欧班列的便捷运输，企业自2021年8月落户秀山以来，海外订单呈持续增长态势。
+西门子能源在海南建立燃机总装基地，闵和儋州粮油综合加工产业园项目启动，“韩国国家馆”项目签约落地……在封关效应下，外资加速入琼。
 
-武陵山(秀山)国际电商产业园展厅里，全国优质物产与东盟十国特色好物齐聚一堂；全球潮玩爱好者追捧的泡泡玛特盲盒，与黄精、茶叶等“土特产”经同一趟班列“出海”……记者走访秀山时看到，这座地处武陵山腹地的小城，已悄然蜕变成一个“世界超市”，实现“国货出海、洋货入渝”双向流通。
+自2025年12月18日启动全岛封关至今年3月底，海南自贸港新增外资企业785家，同比增长33.28%。
 
-素来有“边城”之称的秀山，为何能在物流、电商领域“异军突起”？
+海南太古可口可乐是海南建省时注册落户的首批外资企业，面对全岛封关的历史机遇，企业继续坚定看好海南发展前景。
 
-“秀山无山，边城无边。
+宋丽华说，站在中国对外开放的新高地，政策优势将催生旺盛需求，推动企业智能变革与产业链升级。
 
-”秀山土家族苗族自治县县长谭雪峰一语打破人们固有印象。
+德勤中国香港市场及业务增长主管合伙人吕志宏受访时认为，封关后，海南对全球企业布局亚太有重要价值，依托一系列核心政策，外资能更便捷、低成本地进入中国市场。
 
-据了解，该县位于渝鄂湘黔四省(市)结合部，有“一脚踏三省、三省共一城”的区位优势，且县境中部是武陵山区最大平坝，具备中等规模以上城市空间承载能力。
+在丰富的政策运用场景加持下，各类资源加速向海南自贸港重点园区聚合。
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:58 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:51 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:00 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:09 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:59 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:55 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:57 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:46 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:09 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:50 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:54 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:01 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:10 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:53 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:59 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:06 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:07 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:03 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:51 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:12 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:08 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:17 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:08 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.kurohicncr.top/Article/details/67794.shtml)
-- 2026-06-29 11:56 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.kurohicncr.top/Article/details/935942705250.shtml)
-- 2026-06-29 12:05 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.kurohicncr.top/Article/details/004558164686.shtml)
-- 2026-06-29 11:57 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.minike.top/Article/details/50617.shtml)
-- 2026-06-29 12:08 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.share.kurohicncr.top/Article/details/585127.shtml)
-- 2026-06-29 12:02 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.share.minike.top/Article/details/030353.shtml)
-- 2026-06-29 11:59 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.blog.minike.top/Article/details/34737447.shtml)
-- 2026-06-29 12:08 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.minike.top/Article/details/8955488371.shtml)
-- 2026-06-29 11:49 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.blog.kurohicncr.top/Article/details/827250940.shtml)
-- 2026-06-29 12:07 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.share.kurohicncr.top/Article/details/83347269.shtml)
-- 2026-06-29 11:45 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.kurohicncr.top/Article/details/545165012.shtml)
-- 2026-06-29 12:05 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.minike.top/Article/details/23220146469.shtml)
-- 2026-06-29 12:09 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.minike.top/Article/details/05321.shtml)
+- 2026-06-29 12:01 - [日韩股市集体低开 韩股跌超2%](http://www.blog.minike.top/Article/details/01877.shtml)
+- 2026-06-29 12:05 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.share.minike.top/Article/details/368489708262.shtml)
+- 2026-06-29 11:52 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.kurohicncr.top/Article/details/428022862.shtml)
+- 2026-06-29 12:08 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.minike.top/Article/details/037613.shtml)
+- 2026-06-29 12:17 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.blog.kurohicncr.top/Article/details/023261.shtml)
+- 2026-06-29 11:52 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.minike.top/Article/details/250505.shtml)
+- 2026-06-29 11:59 - [广西三江：花映楼桥入画来](http://www.share.kurohicncr.top/Article/details/976899.shtml)
+- 2026-06-29 12:10 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.share.kurohicncr.top/Article/details/692857746.shtml)
+- 2026-06-29 12:08 - [A股周一缩量上涨 创业板指创四年多新高](http://www.share.kurohicncr.top/Article/details/615589148.shtml)
+- 2026-06-29 12:03 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.blog.minike.top/Article/details/3477081058.shtml)
+- 2026-06-29 12:10 - [*ST万方，停牌！拟终止上市！](http://www.blog.kurohicncr.top/Article/details/03394.shtml)
+- 2026-06-29 11:52 - [摩根大通就停火风险提示油价走势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.share.kurohicncr.top/Article/details/99021803.shtml)
+- 2026-06-29 12:09 - [个贷不良依然压力山大](https://github.com/lisacumin64-arch)

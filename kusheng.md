@@ -1,57 +1,57 @@
-# 俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”
+# 美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新社莫斯科4月22日电 俄罗斯总统新闻秘书佩斯科夫22日表示，俄总统普京愿随时同乌克兰总统泽连斯基举行会面，但会面必须要富有成效，在敲定俄乌和平协议的阶段举行。 佩斯科夫当天接受媒体采访时说，关键在于(双方)会面的目的。普京总统曾说过，他愿随时在莫斯科与泽连斯基举行会面。“最重要的是，会面要有明确目的、要富有成效，而这只可能在最终敲定和平协议阶段举行。” 佩斯科夫同时指出，在
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。 美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。 加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。随着所谓的‘封锁
 
 ## 正文
 
-中新社莫斯科4月22日电 俄罗斯总统新闻秘书佩斯科夫22日表示，俄总统普京愿随时同乌克兰总统泽连斯基举行会面，但会面必须要富有成效，在敲定俄乌和平协议的阶段举行。
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。
 
-佩斯科夫当天接受媒体采访时说，关键在于(双方)会面的目的。
+美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。
 
-普京总统曾说过，他愿随时在莫斯科与泽连斯基举行会面。
+加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。
 
-“最重要的是，会面要有明确目的、要富有成效，而这只可能在最终敲定和平协议阶段举行。
+随着所谓的‘封锁’，很快你们就会怀念 4-5 美元（每加仑）的汽油了。
 
-” 佩斯科夫同时指出，在会面之前，必须要先进行严肃的工作。
+” 他还使用了“ΔO_BSOH>0 ⇒ f（f（O））>f（O）”这种符号，这是一种网络迷因式的数学简写，暗示封锁海峡造成的石油冲击会像滚雪球一样越滚越大，而不是像以往那样出现一次性的暴涨。
 
-重要的是，乌克兰方面必须展现出政治意愿。
+在特朗普表示美国将采取行动封锁与伊朗相关的船只通行，加利巴夫发表了上述言论。
 
-但俄方目前未看到乌方有这种意愿。
+此前，美国副总统万斯警告称谈判已经失败，而美伊谈判代表离开伊斯兰堡时，并未就伊朗核计划和霍尔木兹海峡问题达成协议。
 
-针对乌军袭击俄罗斯塞兹兰市导致平民伤亡一事，佩斯科夫表示，对俄罗斯而言，首要任务是实现特别军事行动最初设定的目标，维护自身利益。
+美国汽车协会（AAA）公布的数据显示，截至4月12日，美国普通汽油的平均价格为每加仑4.125美元，其中加州为每加仑5.894美元，华盛顿州为每加仑5.390美元，而俄勒冈州和内华达州的价格则略低于每加仑5美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [达能销售额增长，美国市场重拾增长动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:10 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:53 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:52 - [西安检察探索知识产权保护“立体解题”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:01 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:47 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:00 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:44 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:04 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:57 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:46 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:11 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:07 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:58 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:03 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:15 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:15 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:02 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:11 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:12 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:15 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:15 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [特朗普政府即将达成救助精神航空的协议](http://www.share.kurohicncr.top/Article/details/356146982.shtml)
-- 2026-06-29 12:04 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](http://www.blog.minike.top/Article/details/06109816.shtml)
-- 2026-06-29 12:04 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.blog.kurohicncr.top/Article/details/60798.shtml)
-- 2026-06-29 12:09 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](http://www.share.minike.top/Article/details/16785.shtml)
-- 2026-06-29 11:52 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](http://www.share.minike.top/Article/details/32456.shtml)
-- 2026-06-29 11:58 - [直线拉升！涨停！伊朗，传来大消息！](http://www.share.kurohicncr.top/Article/details/563552291.shtml)
-- 2026-06-29 12:00 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](http://www.blog.minike.top/Article/details/73775064.shtml)
-- 2026-06-29 12:09 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.blog.kurohicncr.top/Article/details/756844.shtml)
-- 2026-06-29 11:46 - [“手工经济”兴起：换一种方式“感受生活”](http://www.blog.minike.top/Article/details/862559490442.shtml)
-- 2026-06-29 11:56 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.share.kurohicncr.top/Article/details/35697400516.shtml)
-- 2026-06-29 11:55 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [接到这类电话，请立即挂断！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [宁德时代与河南省五家重点国企达成战略合作](http://www.share.kurohicncr.top/Article/details/1025631986.shtml)
-- 2026-06-29 11:51 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](http://www.blog.kurohicncr.top/Article/details/2492025257.shtml)
+- 2026-06-29 12:06 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.blog.kurohicncr.top/Article/details/8463207151.shtml)
+- 2026-06-29 11:55 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.blog.minike.top/Article/details/09919583.shtml)
+- 2026-06-29 12:02 - [巴基斯坦总理会见美国副总统万斯](http://www.blog.minike.top/Article/details/62738367.shtml)
+- 2026-06-29 12:00 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.blog.minike.top/Article/details/76646978.shtml)
+- 2026-06-29 12:18 - [第十四届北京国际风筝节启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [张果彤:黄金中线二次探底概率较大](http://www.blog.kurohicncr.top/Article/details/55228149641.shtml)
+- 2026-06-29 12:06 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](http://www.share.minike.top/Article/details/607588362.shtml)
+- 2026-06-29 11:52 - [肉类食品巨头JBS罢工以加薪告终](http://www.share.kurohicncr.top/Article/details/9735463.shtml)
+- 2026-06-29 12:17 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.share.minike.top/Article/details/359544644081.shtml)
+- 2026-06-29 11:48 - [陕西渭南：华山迎壮丽日落景观](https://github.com/lisacumin64-arch)

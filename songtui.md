@@ -1,56 +1,48 @@
-# 北京多措并举推进扬尘治理 提高城市清洁度
+# 西班牙首相桑切斯访华 天安门广场挂起中西两国国旗
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (记者 陈杭)记者23日从北京市生态环境局获悉，北京以“补短板、固长效、树标杆”为原则，聚焦春季施工体量大、外来沙尘天气易发等季节性特点，以城市精细治理为抓手推动管理减排，全面开展2026年扬尘专项治理春季攻坚行动(以下简称“2026年扬尘专项治理”)，进一步提高城市清洁度。据介绍，北京市多轮大气细颗粒物(PM2.5)来源解析结果表明，扬尘是本地排放贡献
+发布时间：2026年04月11日 23:08 来源：中国新闻网 西班牙首相桑切斯于4月11日至15日对中国进行正式访问。4月11日，天安门广场挂起中西两国国旗。(记者 董泽宇 制作 王宁) 责任编辑：【张令旗】
 
 ## 正文
 
-中新网北京4月23日电 (记者 陈杭)记者23日从北京市生态环境局获悉，北京以“补短板、固长效、树标杆”为原则，聚焦春季施工体量大、外来沙尘天气易发等季节性特点，以城市精细治理为抓手推动管理减排，全面开展2026年扬尘专项治理春季攻坚行动(以下简称“2026年扬尘专项治理”)，进一步提高城市清洁度。
+发布时间：2026年04月11日 23:08 来源：中国新闻网 西班牙首相桑切斯于4月11日至15日对中国进行正式访问。
 
-据介绍，北京市多轮大气细颗粒物(PM2.5)来源解析结果表明，扬尘是本地排放贡献的主要来源之一。
+4月11日，天安门广场挂起中西两国国旗。
 
-尤其是春季，扬尘问题较为突出，对PM2.5的排放贡献是其他季节的2-3倍，影响空气质量，更影响市民对“家门口”环境的幸福感和获得感。
-
-2026年扬尘专项治理从推动投诉高发点位闭环整治、工地场站出入口规范管理、小微工地精细化施工着手，切实解决市民身边的扬尘问题。
-
-3月以来，全市工地(场站)出入口道路扬尘负荷同比下降18%。
-
-同时，扬尘治理越来越数智化，通过加强扬尘视频监控平台建设，深化卫星遥感、走航监测技术应用，持续丰富AI识别场景，提升问题的识别率、发现率。
-
-例如，3月24日，通过工地视频AI智能识别，发现一处建设工程项目未采取湿法作业。
-
-市级部门将线索快速推送至执法部门，属地执法人员现场核查并要求项目进行整改。
+(记者 董泽宇 制作 王宁) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:58 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:08 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:59 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:48 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:01 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:44 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:43 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:55 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:53 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:09 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:06 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:49 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:03 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:49 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:51 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:57 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:16 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:08 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:02 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:16 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:58 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [牛弹琴：伊朗反击了](http://www.share.kurohicncr.top/Article/details/18407.shtml)
-- 2026-06-29 12:08 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.blog.minike.top/Article/details/9843320.shtml)
-- 2026-06-29 11:50 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.kurohicncr.top/Article/details/27253050850.shtml)
-- 2026-06-29 11:43 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.blog.minike.top/Article/details/81240947.shtml)
-- 2026-06-29 12:06 - [证监会出手！4只A股被立案！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.minike.top/Article/details/8843815.shtml)
-- 2026-06-29 12:02 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.minike.top/Article/details/292202021545.shtml)
-- 2026-06-29 12:09 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.minike.top/Article/details/06305.shtml)
-- 2026-06-29 12:03 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.minike.top/Article/details/6165453246.shtml)
-- 2026-06-29 11:55 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.share.minike.top/Article/details/5703229847.shtml)
-- 2026-06-29 12:01 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.kurohicncr.top/Article/details/2703157.shtml)
-- 2026-06-29 11:47 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.kurohicncr.top/Article/details/91716230615.shtml)
+- 2026-06-29 12:03 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [人民之心｜“为官一任，造福一方”](http://www.share.minike.top/Article/details/44731669023.shtml)
+- 2026-06-29 12:13 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.kurohicncr.top/Article/details/692545.shtml)
+- 2026-06-29 12:09 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.share.minike.top/Article/details/03304372.shtml)
+- 2026-06-29 12:03 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.share.minike.top/Article/details/902365.shtml)
+- 2026-06-29 11:53 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.blog.kurohicncr.top/Article/details/36897744.shtml)
+- 2026-06-29 12:16 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](http://www.blog.kurohicncr.top/Article/details/294617853.shtml)
+- 2026-06-29 11:58 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.blog.minike.top/Article/details/0186415143.shtml)
+- 2026-06-29 12:01 - [香港学子安徽行收获满满](http://www.share.minike.top/Article/details/1770590805.shtml)
+- 2026-06-29 12:10 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.share.minike.top/Article/details/9849595.shtml)
+- 2026-06-29 12:17 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.blog.minike.top/Article/details/921216.shtml)
+- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](http://www.share.kurohicncr.top/Article/details/237500496504.shtml)
+- 2026-06-29 11:52 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.minike.top/Article/details/8199284010.shtml)
+- 2026-06-29 11:50 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lisacumin64-arch)

@@ -1,56 +1,60 @@
-# 路威酩轩CEO警告：中东冲突若不解决，将引发“全球性灾难”
+# 海思科2025年业绩增长 创新药领跑细分市场
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-核心要点 全球最大奢侈品集团路威酩轩（LVMH）首席执行官伯纳德・阿尔诺于周四发出警告，若中东冲突无法得到解决，将引发 **“全球性灾难”**。 此前，伊朗相关局势已在今年前三季度冲击了市场需求，导致这家奢侈品巨头的销售增速直接减半。 “当前世界正陷入极为严峻的中东危机，” 这位长期掌舵 LVMH 的 CEO 在巴黎举行的年度股东大会上向股东表示。 据 LVMH 官方翻译，他称
+4月12日晚间，海思科医药集团股份有限公司（以下简称“海思科”）发布2025年年度报告和2026年第一季度业绩预告，业绩大幅增长。具体来看，2025年，海思科实现营业收入约43.88亿元，同比增长17.91%；归属于上市公司股东的扣除非经常性损益的净利润（以下简称“扣非净利润”）1.67亿元，同比增长26.33%。2026年一季度，公司预计实现扣非净利润4.49亿元至5.29亿
 
 ## 正文
 
-核心要点 全球最大奢侈品集团路威酩轩（LVMH）首席执行官伯纳德・阿尔诺于周四发出警告，若中东冲突无法得到解决，将引发 **“全球性灾难”**。
+4月12日晚间，海思科医药集团股份有限公司（以下简称“海思科”）发布2025年年度报告和2026年第一季度业绩预告，业绩大幅增长。
 
-此前，伊朗相关局势已在今年前三季度冲击了市场需求，导致这家奢侈品巨头的销售增速直接减半。
+具体来看，2025年，海思科实现营业收入约43.88亿元，同比增长17.91%；归属于上市公司股东的扣除非经常性损益的净利润（以下简称“扣非净利润”）1.67亿元，同比增长26.33%。
 
-“当前世界正陷入极为严峻的中东危机，” 这位长期掌舵 LVMH 的 CEO 在巴黎举行的年度股东大会上向股东表示。
+2026年一季度，公司预计实现扣非净利润4.49亿元至5.29亿元，同比预增791.94%至950.86%。
 
-据 LVMH 官方翻译，他称：“要么这场危机演变为一场全球性灾难，带来极为严重的负面经济冲击 —— 届时，2026 年的走向将无人能够预测；要么冲突能以某种我们所期望的方式更快得到解决，尽管这看起来并不容易。
+从公告内容来看，公司业绩增长主要源于创新药销售持续放量。
 
-若能如此，商业活动将复苏并重回正轨。
+多款产品表现亮眼、研发投入稳步增长、海外授权接连落地成为公司业绩高增重要引擎，展现出强劲的创新转化与国际化能力。
 
-” 这家全球规模最大的奢侈品企业一季度有机销售额增长 1%。
+海思科董事会办公室相关人士在接受《证券日报》记者采访时表示：“2025年，得益于公司创新药产品销售表现良好，带动全年营业收入稳步提升。
 
-LVMH 上周披露，中东冲突对其有机增长造成了 1% 的负面影响，相当于直接将季度增速腰斩。
+进入2026年一季度，除创新药销售持续放量外，因当期确认了HSK39004海外授权的部分首付款收入，公司扣非净利润实现高速增长。
 
-不过阿尔诺表示，若伊朗、美国和以色列之间能够达成解决方案，他预计集团今年下半年将恢复增长。
+”四款创新药销售收入同比增长超50%年报显示，2025年，海思科持续深化营销团队整合，加速市场拓展和全渠道布局，稳步提升品牌市场渗透率，公司已上市的四款创新药销售收入同比增长超50%。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:01 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:44 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:51 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:45 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:50 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:45 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:59 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:05 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:03 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:15 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:49 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:14 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:15 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:51 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:01 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:59 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:05 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:59 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:09 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:59 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:13 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:04 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:03 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [第六届亚洲沙滩运动会在海南省三亚市开幕](http://www.blog.minike.top/Article/details/81868.shtml)
-- 2026-06-29 11:43 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.blog.minike.top/Article/details/797122409215.shtml)
-- 2026-06-29 11:43 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](http://www.blog.kurohicncr.top/Article/details/9483329.shtml)
-- 2026-06-29 11:57 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.kurohicncr.top/Article/details/5363943.shtml)
-- 2026-06-29 11:54 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.share.minike.top/Article/details/8824269.shtml)
-- 2026-06-29 11:56 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.blog.minike.top/Article/details/62139058.shtml)
-- 2026-06-29 11:46 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.minike.top/Article/details/91198.shtml)
-- 2026-06-29 12:06 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.kurohicncr.top/Article/details/135568.shtml)
-- 2026-06-29 11:59 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.minike.top/Article/details/2677919.shtml)
-- 2026-06-29 11:51 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.minike.top/Article/details/485615.shtml)
-- 2026-06-29 12:10 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.kurohicncr.top/Article/details/272845275.shtml)
-- 2026-06-29 11:49 - [日韩股市集体高开 日股升至纪录新高](http://www.share.minike.top/Article/details/922646.shtml)
+- 2026-06-29 12:01 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.blog.minike.top/Article/details/90089550.shtml)
+- 2026-06-29 11:49 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.share.minike.top/Article/details/718447170.shtml)
+- 2026-06-29 12:15 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.minike.top/Article/details/0460257.shtml)
+- 2026-06-29 12:13 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.kurohicncr.top/Article/details/00850553683.shtml)
+- 2026-06-29 12:10 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [严格落实直播打赏新规谋求治理实效](http://www.share.kurohicncr.top/Article/details/498722246.shtml)
+- 2026-06-29 11:53 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.kurohicncr.top/Article/details/0898513319.shtml)
+- 2026-06-29 12:01 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.minike.top/Article/details/562483840.shtml)
+- 2026-06-29 12:00 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.kurohicncr.top/Article/details/31952150.shtml)
+- 2026-06-29 12:16 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/83714679.shtml)
+- 2026-06-29 11:49 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.share.kurohicncr.top/Article/details/89283086.shtml)
+- 2026-06-29 12:16 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.kurohicncr.top/Article/details/60904888379.shtml)

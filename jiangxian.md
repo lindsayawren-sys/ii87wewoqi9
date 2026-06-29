@@ -1,54 +1,56 @@
-# 青海省现有鸟类22目75科541种
+# 外籍记者探访福建柘荣：山水藏长寿 非遗映振兴
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新社西宁4月23日电 (潘雨洁)青海省林业和草原局(下称林草局)23日消息，最新数据显示，青海省现有鸟类22目75科541种，较2024年增加方尾鹟、棕头鸦雀、噪鹃等9种，候鸟增加至389种，国家一级重点保护鸟类27种、二级89种。 青海作为中国重要的生态安全屏障，是全球候鸟迁徙的关键通道与停歇驿站，东亚—澳大利西亚和中亚两条鸟类迁徙通道在此交汇，孕育了丰富的鸟类资源。 《青
+中新网宁德4月10日电 (记者 吕巧琴 叶茂)“都说读懂一座城，要从它最动人的细节开始。”置身福建省宁德市柘荣县的青山秀水间，中阿卫视主持人阿思玛(Asmaa)笑着对镜头说，她第一次到柘荣，最先被“中国长寿之乡”的美誉所吸引。 中新社海外中心和中阿卫视联合打造2026年《文化中国》系列开篇之作《文化中国·宁德》在柘荣县启动。9日至10日，阿思玛随摄制组来到柘荣进行拍摄，探寻这座
 
 ## 正文
 
-中新社西宁4月23日电 (潘雨洁)青海省林业和草原局(下称林草局)23日消息，最新数据显示，青海省现有鸟类22目75科541种，较2024年增加方尾鹟、棕头鸦雀、噪鹃等9种，候鸟增加至389种，国家一级重点保护鸟类27种、二级89种。
+中新网宁德4月10日电 (记者 吕巧琴 叶茂)“都说读懂一座城，要从它最动人的细节开始。
 
-青海作为中国重要的生态安全屏障，是全球候鸟迁徙的关键通道与停歇驿站，东亚—澳大利西亚和中亚两条鸟类迁徙通道在此交汇，孕育了丰富的鸟类资源。
+”置身福建省宁德市柘荣县的青山秀水间，中阿卫视主持人阿思玛(Asmaa)笑着对镜头说，她第一次到柘荣，最先被“中国长寿之乡”的美誉所吸引。
 
-《青海省野生动物保护条例》规定，每年4月第四周为青海省“爱鸟周”，今年是该省第45届“爱鸟周”。
+中新社海外中心和中阿卫视联合打造2026年《文化中国》系列开篇之作《文化中国·宁德》在柘荣县启动。
 
-在当日举行的“爱鸟周”启动仪式上，青海省林草局副局长侯天民表示，近年来，青海省持续开展全省越冬水鸟同步监测和春秋季迁徙水鸟调查试点，全面摸清白尾海雕、黑颈鹤、大天鹅、红喉歌鸲等多种候鸟迁徙路线及越冬和繁殖区域，向社会公布22处候鸟重要迁徙通道保护范围。
+9日至10日，阿思玛随摄制组来到柘荣进行拍摄，探寻这座小城的长寿密码，感受跨越国界的文化共鸣。
 
-本届“爱鸟周”期间，青海省林草局联合青海国家公园观鸟协会发起“笔尖寻羽·镜藏生机”线上作品征集；启动“栖羽少年·校园观鸟团”项目，陆续开展为鸟筑家、线上科普宣传等活动。
+青山育灵草 山水蕴长寿 步入英山乡凤洋村太子参种植示范片基地，一垄垄郁郁葱葱的太子参绵延山头，不少村民正在田间地头进行日常管护。
 
-(完)
+柘荣县太子参种植历史悠久，产销量占全国60%。
+
+近年来，该县先后建成太子参GAP基地、国家级农业标准化示范区，筛选出“柘参1号”“柘参2号”“柘参4号”等优势品种，将太子参从山间野草培育成致富的“金苗苗”。
+
+“这株‘黄金小草’不仅是道地药材，也是柘荣人的致富草，更是一种顺应自然的生活智慧。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:06 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:46 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:52 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:46 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:57 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:04 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:09 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:01 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:10 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:06 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:09 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:07 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:05 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:51 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:11 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:12 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:09 - [人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:56 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:53 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:55 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:09 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.minike.top/Article/details/60073013496.shtml)
-- 2026-06-29 11:56 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.minike.top/Article/details/1983327.shtml)
-- 2026-06-29 11:59 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.blog.minike.top/Article/details/21391571058.shtml)
-- 2026-06-29 12:07 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.minike.top/Article/details/810995601.shtml)
-- 2026-06-29 11:48 - [日韩股市集体高开 日股升至纪录新高](http://www.share.minike.top/Article/details/318561681255.shtml)
-- 2026-06-29 12:08 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.kurohicncr.top/Article/details/5293888.shtml)
-- 2026-06-29 11:46 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.share.kurohicncr.top/Article/details/295218138495.shtml)
-- 2026-06-29 12:07 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.blog.kurohicncr.top/Article/details/386919407139.shtml)
-- 2026-06-29 11:53 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.blog.minike.top/Article/details/1473405028.shtml)
-- 2026-06-29 11:49 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.share.kurohicncr.top/Article/details/79876.shtml)
-- 2026-06-29 11:50 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.blog.kurohicncr.top/Article/details/559642710122.shtml)
-- 2026-06-29 12:05 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.minike.top/Article/details/517805853218.shtml)
+- 2026-06-29 12:05 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.blog.minike.top/Article/details/656469707.shtml)
+- 2026-06-29 12:02 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.share.kurohicncr.top/Article/details/201397.shtml)
+- 2026-06-29 12:14 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.share.minike.top/Article/details/656836830.shtml)
+- 2026-06-29 11:52 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.minike.top/Article/details/985759754047.shtml)
+- 2026-06-29 11:51 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.minike.top/Article/details/71096.shtml)
+- 2026-06-29 12:13 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.share.kurohicncr.top/Article/details/35241607.shtml)
+- 2026-06-29 12:10 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.share.minike.top/Article/details/066627944.shtml)
+- 2026-06-29 11:55 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.blog.kurohicncr.top/Article/details/1777104716.shtml)
+- 2026-06-29 12:08 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.blog.minike.top/Article/details/66776.shtml)
+- 2026-06-29 11:52 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [南部战区新闻发言人发表谈话](http://www.blog.kurohicncr.top/Article/details/86447.shtml)
+- 2026-06-29 12:01 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.blog.minike.top/Article/details/899420858.shtml)
+- 2026-06-29 12:12 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.blog.minike.top/Article/details/07868173.shtml)
+- 2026-06-29 12:10 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.minike.top/Article/details/2551504024.shtml)

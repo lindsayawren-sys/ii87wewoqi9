@@ -1,60 +1,61 @@
-# 燃油成本飙升，美国航空腰斩2026年盈利预期
+# 未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。 该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃
+中国天气网讯 未来三天(4月13日至15日)，南方主雨带仍将维持在江南地区，雨势较前几日有所减弱，16日开始将有所南压，上述地区多雨模式已持续近一个月，需警惕叠加降雨的致灾性。同时，华南天气持续炎热，尤其是海南部分地区高温持续，天气酷热，公众需持续做好防暑降温措施，谨防中暑。 江南未来三天仍多雨 青藏高原多地有降雪 昨天，南方仍有大范围降雨，同时青藏高原多地出现降雪天气。监测显
 
 ## 正文
 
-据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。
+中国天气网讯 未来三天(4月13日至15日)，南方主雨带仍将维持在江南地区，雨势较前几日有所减弱，16日开始将有所南压，上述地区多雨模式已持续近一个月，需警惕叠加降雨的致灾性。
 
-该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。
+同时，华南天气持续炎热，尤其是海南部分地区高温持续，天气酷热，公众需持续做好防暑降温措施，谨防中暑。
 
-首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃油成本已增加约40亿美元，成为业绩下修的核心原因。
+江南未来三天仍多雨 青藏高原多地有降雪 昨天，南方仍有大范围降雨，同时青藏高原多地出现降雪天气。
 
-为应对成本压力，美国航空正通过提高票价、燃油附加费和行李费来转嫁部分成本，并可能收紧运力增长计划。
+监测显示，昨天8时至今天6时，湖南南部、江西南部、福建西北部等地部分地区出现中到大雨，湖南衡阳、江西赣州等局地大暴雨；青海北部和东部、西藏东部、川西高原等地部分地区出现中到大雪或雨夹雪，四川甘孜局地暴雪。
 
-尽管面临挑战，公司预计第二季度营收仍将实现双位数增长。
+预计未来三天，南方降雨较过去几天有所减弱，但范围仍广泛，同时青藏高原多地仍有明显降雪。
 
-目前，美国航空业正普遍受到高油价冲击。
+中央气象台预计，今天，新疆阿勒泰北部和南疆盆地、西藏北部、青海东部和南部、甘肃河西和南部、川西高原北部以及内蒙古中部、黑龙江北部等地部分地区有小雪或雨夹雪，其中，新疆阿勒泰北部、西藏北部、青海西南部等地部分地区有中到大雪；西藏东南部、四川盆地西部、西南地区东北部、江南大部、湖北南部、广西北部等地部分地区有中到大雨，其中，湖南东南部、江西东北部等地局地有暴雨。
 
-联合航空已下调全年盈利指引并计划削减运力，而精神航空等廉价航司更是面临破产风险。
+明天，新疆北部和南疆盆地、西藏中东部、青海中南部、川西高原北部以及内蒙古东北部、黑龙江东南部等地部分地区有小雪或雨夹雪，其中，新疆阿勒泰等地部分地区有中到大雪；西藏东南部、重庆中西部、贵州东南部、湖南中南部、江西大部、浙江中南部、福建西部和北部、广西北部等地部分地区有中到大雨，其中，江西中南部、福建西部等地局地有暴雨。
 
-分析指出，若地缘政治紧张局势持续，全球航空业的脆弱资产负债表将面临更大压力。
+后天，内蒙古东北部、黑龙江西北部、新疆北疆北部、西藏东南部、青海北部、甘肃河西、川西高原等地部分地区有小雪或雨夹雪，其中，内蒙古东北部、黑龙江西北部、新疆北疆北部等地部分地区有中到大雪；陕西北部、山西西部、江南中南部、西南地区东部、华南北部等地部分地区有中到大雨，其中，湖南中部、江西中部、福建西北部、贵州东南部、广西东北部等地部分地区有暴雨或大暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:59 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:05 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:56 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:48 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:49 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:44 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:49 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:10 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:56 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:11 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:49 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:08 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:43 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:52 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:51 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:58 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:51 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:52 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:15 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:14 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:17 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:08 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:59 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:10 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:52 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:15 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:17 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:13 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.minike.top/Article/details/264113230.shtml)
-- 2026-06-29 11:42 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.minike.top/Article/details/92823273444.shtml)
-- 2026-06-29 11:54 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.share.minike.top/Article/details/063848880.shtml)
-- 2026-06-29 12:03 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.share.minike.top/Article/details/12540.shtml)
-- 2026-06-29 11:54 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.kurohicncr.top/Article/details/842015779.shtml)
-- 2026-06-29 12:10 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.blog.kurohicncr.top/Article/details/71655.shtml)
-- 2026-06-29 12:09 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.share.kurohicncr.top/Article/details/189766870.shtml)
-- 2026-06-29 11:45 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.share.kurohicncr.top/Article/details/901305.shtml)
-- 2026-06-29 12:08 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.blog.minike.top/Article/details/87076285354.shtml)
-- 2026-06-29 12:09 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.share.kurohicncr.top/Article/details/0757017.shtml)
-- 2026-06-29 11:54 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.minike.top/Article/details/958063447.shtml)
-- 2026-06-29 12:05 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.blog.kurohicncr.top/Article/details/817779.shtml)
-- 2026-06-29 12:11 - [光大期货：4月23日矿钢煤焦日报](http://www.share.minike.top/Article/details/87925.shtml)
-- 2026-06-29 12:07 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/402463673681.shtml)
+- 2026-06-29 12:15 - [日韩股市集体低开 韩股跌超2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.share.minike.top/Article/details/2542815062.shtml)
+- 2026-06-29 12:17 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.minike.top/Article/details/29857686.shtml)
+- 2026-06-29 11:58 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.share.minike.top/Article/details/3440995412.shtml)
+- 2026-06-29 12:12 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.minike.top/Article/details/265662.shtml)
+- 2026-06-29 12:03 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/21514.shtml)
+- 2026-06-29 11:59 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.kurohicncr.top/Article/details/621877562.shtml)
+- 2026-06-29 12:17 - [A股周一缩量上涨 创业板指创四年多新高](http://www.share.minike.top/Article/details/50206.shtml)
+- 2026-06-29 12:13 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.minike.top/Article/details/28066105013.shtml)
+- 2026-06-29 12:04 - [*ST万方，停牌！拟终止上市！](http://www.share.kurohicncr.top/Article/details/294182205058.shtml)
+- 2026-06-29 12:05 - [摩根大通就停火风险提示油价走势](http://www.blog.minike.top/Article/details/48293.shtml)
+- 2026-06-29 11:56 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [个贷不良依然压力山大](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.blog.kurohicncr.top/Article/details/808736836741.shtml)

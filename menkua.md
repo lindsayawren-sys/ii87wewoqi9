@@ -1,49 +1,43 @@
-# 京雄快线预计2026年下半年开通运营
+# “津”非昔比丨这个春天必须冲天津海棠
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 19:58 来源：中国新闻网 近日，京雄快线项目建设取得新进展，目前已进入联调联试阶段，预计2026年下半年开通运营。 京雄快线串联起河北雄安新区、廊坊市及北京市，是雄安新区承接北京非首都功能疏解的重要交通基础设施，也是雄安新区“四纵两横”区域高速铁路交通网络的重要组成部分。该线路开通后将实现雄安新区半小时直达北京大兴国际机场，一小时到达北京丽
+发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
 
 ## 正文
 
-发布时间：2026年04月23日 19:58 来源：中国新闻网 近日，京雄快线项目建设取得新进展，目前已进入联调联试阶段，预计2026年下半年开通运营。
-
-京雄快线串联起河北雄安新区、廊坊市及北京市，是雄安新区承接北京非首都功能疏解的重要交通基础设施，也是雄安新区“四纵两横”区域高速铁路交通网络的重要组成部分。
-
-该线路开通后将实现雄安新区半小时直达北京大兴国际机场，一小时到达北京丽泽商务区。
-
-(谌诗雨 韩冰 视频来源 雄安新区宣传网信局) 责任编辑：【于晓】
+发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:10 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:58 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:57 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:49 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:08 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:00 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:48 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:01 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:52 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:52 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:54 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:48 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:57 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:16 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:05 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:11 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:55 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:56 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:00 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:16 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:52 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [述评：数字时代 浙江书香何处寻？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [牛弹琴：伊朗反击了](http://www.blog.kurohicncr.top/Article/details/375577882.shtml)
-- 2026-06-29 11:42 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.share.kurohicncr.top/Article/details/641882147612.shtml)
-- 2026-06-29 11:56 - [证监会出手！4只A股被立案！](http://www.blog.kurohicncr.top/Article/details/6580810125.shtml)
-- 2026-06-29 11:42 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.blog.kurohicncr.top/Article/details/573348.shtml)
-- 2026-06-29 11:44 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.blog.minike.top/Article/details/39548067.shtml)
-- 2026-06-29 11:55 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.blog.kurohicncr.top/Article/details/36659206.shtml)
-- 2026-06-29 12:11 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.minike.top/Article/details/175676.shtml)
-- 2026-06-29 11:48 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.blog.kurohicncr.top/Article/details/99429.shtml)
-- 2026-06-29 11:54 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.blog.kurohicncr.top/Article/details/65470.shtml)
-- 2026-06-29 11:58 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/6004607.shtml)
-- 2026-06-29 11:57 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.share.kurohicncr.top/Article/details/86799.shtml)
-- 2026-06-29 11:59 - [ABB上调业绩指引、股价一度涨超5%](http://www.share.minike.top/Article/details/3229768701.shtml)
+- 2026-06-29 12:13 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.blog.kurohicncr.top/Article/details/14121.shtml)
+- 2026-06-29 12:03 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [人民之心｜“为官一任，造福一方”](http://www.blog.minike.top/Article/details/226065.shtml)
+- 2026-06-29 12:10 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.share.minike.top/Article/details/62624631.shtml)
+- 2026-06-29 11:56 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.minike.top/Article/details/970807.shtml)
+- 2026-06-29 11:58 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.blog.kurohicncr.top/Article/details/471675.shtml)
+- 2026-06-29 12:12 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.share.kurohicncr.top/Article/details/5176699.shtml)
+- 2026-06-29 12:15 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](http://www.blog.kurohicncr.top/Article/details/153517933.shtml)
+- 2026-06-29 12:09 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.share.kurohicncr.top/Article/details/551898.shtml)
+- 2026-06-29 12:14 - [香港学子安徽行收获满满](http://www.blog.minike.top/Article/details/885079883.shtml)
+- 2026-06-29 11:59 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.kurohicncr.top/Article/details/10459618.shtml)
+- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](http://www.share.minike.top/Article/details/920453913292.shtml)
+- 2026-06-29 12:05 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/36149393.shtml)
+- 2026-06-29 12:08 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.blog.minike.top/Article/details/01272.shtml)

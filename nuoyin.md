@@ -1,60 +1,55 @@
-# 军号再次吹响，这次是接他们回家
+# 白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网沈阳4月22日电 (李京统 杨茜茜) 22日的辽宁沈阳，气温骤降，春风带寒。但对于这座浸染着红色记忆的城市而言，今天是一个注定被铭记的日子——第十三批在韩中国人民志愿军烈士遗骸，历经七十余载漫长等待，终于荣归故土。 当日上午，呼号为“荣归50”的中国空军运-20B专机进入中国领空后，4架歼-20战机升空护航，五机编队以“箭”形列阵长空，以空军最高礼仪告慰先烈。专机降落沈阳
+白宫国家经济委员会主任凯文·哈塞特认为，霍尔木兹海峡有望在未来两个月内恢复通航，石油运输也有望将回归正常。 哈塞特在回应福克斯商业频道主持人关于两个月时间的提问时作出上述表述。 哈塞特称，目前有船只通行，但流量仅为正常水平的约10%。 他表示，一旦海峡恢复开放，能源价格将“迅速下降”。责任编辑：丁文武
 
 ## 正文
 
-中新网沈阳4月22日电 (李京统 杨茜茜) 22日的辽宁沈阳，气温骤降，春风带寒。
+白宫国家经济委员会主任凯文·哈塞特认为，霍尔木兹海峡有望在未来两个月内恢复通航，石油运输也有望将回归正常。
 
-但对于这座浸染着红色记忆的城市而言，今天是一个注定被铭记的日子——第十三批在韩中国人民志愿军烈士遗骸，历经七十余载漫长等待，终于荣归故土。
+哈塞特在回应福克斯商业频道主持人关于两个月时间的提问时作出上述表述。
 
-当日上午，呼号为“荣归50”的中国空军运-20B专机进入中国领空后，4架歼-20战机升空护航，五机编队以“箭”形列阵长空，以空军最高礼仪告慰先烈。
+哈塞特称，目前有船只通行，但流量仅为正常水平的约10%。
 
-专机降落沈阳桃仙国际机场时，机场以民航最高礼仪“过水门”迎接英烈。
+他表示，一旦海峡恢复开放，能源价格将“迅速下降”。
 
-与此同时，大连旅顺军港内，海军鄂尔多斯舰高悬满旗，全舰官兵分区列队，以海军最高礼节向飞越军港上空的“荣归50”致敬。
-
-舰上呼号穿越长空：“志愿军先烈，欢迎回家！
-
-山河无恙，国泰民安，这盛世如您所愿。
-
-” 从桃仙国际机场到沈阳抗美援朝烈士陵园的街路沿线，数千面五星红旗悬挂在灯杆两侧。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:09 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:01 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:07 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:47 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:01 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:56 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:52 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:42 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:56 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:50 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:00 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:44 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:46 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:02 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:17 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:16 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:56 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:59 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:53 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:13 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:13 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:11 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:07 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:07 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:06 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:17 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:10 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:05 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.share.minike.top/Article/details/35958302735.shtml)
-- 2026-06-29 12:04 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.kurohicncr.top/Article/details/877247874.shtml)
-- 2026-06-29 12:03 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.share.minike.top/Article/details/450608342374.shtml)
-- 2026-06-29 12:07 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.kurohicncr.top/Article/details/31221203238.shtml)
-- 2026-06-29 11:48 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.minike.top/Article/details/788632650.shtml)
-- 2026-06-29 12:07 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.share.minike.top/Article/details/1372843499.shtml)
-- 2026-06-29 11:47 - [一习话丨“要提倡多读书 建设书香社会”](http://www.blog.minike.top/Article/details/19123826.shtml)
-- 2026-06-29 11:47 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.minike.top/Article/details/8176188.shtml)
-- 2026-06-29 12:09 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.kurohicncr.top/Article/details/2218018331.shtml)
-- 2026-06-29 11:59 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.share.minike.top/Article/details/031327007.shtml)
-- 2026-06-29 11:53 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/069973754.shtml)
-- 2026-06-29 11:55 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [美国航空因燃油价格上涨下调展望](http://www.blog.minike.top/Article/details/03147350.shtml)
-- 2026-06-29 12:08 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/7699207.shtml)
+- 2026-06-29 12:07 - [伊朗武装部队称随时准备开火](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.blog.kurohicncr.top/Article/details/609809744.shtml)
+- 2026-06-29 12:08 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.blog.minike.top/Article/details/676577263.shtml)
+- 2026-06-29 12:04 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.kurohicncr.top/Article/details/2452713123.shtml)
+- 2026-06-29 12:04 - [光大期货：4月13日软商品日报](http://www.share.minike.top/Article/details/057059547.shtml)
+- 2026-06-29 12:02 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.blog.minike.top/Article/details/09316.shtml)
+- 2026-06-29 11:48 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [天津边检推多项便利举措 助力高水平对外开放](http://www.blog.minike.top/Article/details/387964988505.shtml)
+- 2026-06-29 12:15 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.blog.kurohicncr.top/Article/details/86839044.shtml)
+- 2026-06-29 12:16 - [北摩高科：拟每10股分红1.3元](http://www.blog.minike.top/Article/details/66663411121.shtml)
+- 2026-06-29 12:12 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.blog.kurohicncr.top/Article/details/3655192.shtml)
+- 2026-06-29 11:51 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.share.minike.top/Article/details/4886188.shtml)

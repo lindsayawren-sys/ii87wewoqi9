@@ -1,43 +1,56 @@
-# 一习话丨“要提倡多读书 建设书香社会”
+# 游客喊话“欢迎回来” 郑丽文北京行显温情
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 13:17 来源：央广网 责任编辑：【王祎】
+发布时间：2026年04月13日 11:41 来源：中国新闻网 4月9日到12日，中国国民党主席郑丽文率团参访北京，这是此次大陆行日程最充实的一站，在我看来也是最具温情的一站。 郑丽文希望深入了解大陆中小学人工智能教育与科创发展，于是走进清华附中与师生交流，细心带走桌上教材；希望与科创企业座谈，于是来到中关村科技园，现场邀请企业家赴台发展。访问团还在国家大剧院了解两岸文艺交流的
 
 ## 正文
 
-发布时间：2026年04月23日 13:17 来源：央广网 责任编辑：【王祎】
+发布时间：2026年04月13日 11:41 来源：中国新闻网 4月9日到12日，中国国民党主席郑丽文率团参访北京，这是此次大陆行日程最充实的一站，在我看来也是最具温情的一站。
+
+郑丽文希望深入了解大陆中小学人工智能教育与科创发展，于是走进清华附中与师生交流，细心带走桌上教材；希望与科创企业座谈，于是来到中关村科技园，现场邀请企业家赴台发展。
+
+访问团还在国家大剧院了解两岸文艺交流的闪耀时刻；近距离感受了大陆新能源汽车与智能制造进展，郑丽文说“我家都是小米的东西！
+
+”。
+
+真诚分享大陆的发展成果，是我们对待家人的态度。
+
+郑丽文也多次感叹“不虚此行”，为行程安排点赞。
+
+在故宫参访，人群中响起“欢迎回来”，厦门乡亲用闽南话热情问候，郑丽文一一亲切回应，朴素民意传递浓浓两岸亲情。
+
+随行台湾媒体也为故宫芳姿吸引，感叹这里很美，必须再来。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [美国航空因燃油价格上涨下调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:55 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:47 - [欧元区消费者信心下滑 凸显消费风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:53 - [科尔沁沙地核心区：人工铺设草方格固沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:03 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:10 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:49 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:59 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:01 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:02 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:57 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:02 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:59 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:17 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:55 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:08 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:02 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:53 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:51 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:54 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:10 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](http://www.share.kurohicncr.top/Article/details/2818975729.shtml)
-- 2026-06-29 11:49 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](http://www.blog.kurohicncr.top/Article/details/84123672.shtml)
-- 2026-06-29 11:50 - [猪价下跌的背后：本轮猪周期的变与不变](http://www.blog.kurohicncr.top/Article/details/376035.shtml)
-- 2026-06-29 11:59 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](http://www.blog.kurohicncr.top/Article/details/2150808.shtml)
-- 2026-06-29 11:57 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.blog.kurohicncr.top/Article/details/7786619644.shtml)
-- 2026-06-29 12:00 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](http://www.blog.kurohicncr.top/Article/details/775073.shtml)
-- 2026-06-29 11:48 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](http://www.blog.kurohicncr.top/Article/details/892819.shtml)
-- 2026-06-29 11:54 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](http://www.share.minike.top/Article/details/29703.shtml)
-- 2026-06-29 11:52 - [美方称拦截一艘从伊朗运输石油的油轮](http://www.blog.kurohicncr.top/Article/details/8835279429.shtml)
+- 2026-06-29 11:52 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](http://www.share.minike.top/Article/details/428941991.shtml)
+- 2026-06-29 12:13 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](http://www.blog.minike.top/Article/details/23143.shtml)
+- 2026-06-29 12:09 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](http://www.blog.minike.top/Article/details/54190.shtml)
+- 2026-06-29 12:03 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.share.minike.top/Article/details/3592635768.shtml)
+- 2026-06-29 12:13 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](http://www.blog.minike.top/Article/details/92998883700.shtml)
+- 2026-06-29 12:01 - [贝壳-W于4月9日斥资700万美元回购133.6万股](http://www.share.kurohicncr.top/Article/details/662779830105.shtml)
+- 2026-06-29 12:05 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](http://www.blog.kurohicncr.top/Article/details/3908724.shtml)
+- 2026-06-29 12:17 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.share.kurohicncr.top/Article/details/70069303.shtml)
+- 2026-06-29 12:12 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](http://www.blog.kurohicncr.top/Article/details/4538362.shtml)
+- 2026-06-29 11:52 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](http://www.blog.minike.top/Article/details/906042279.shtml)
+- 2026-06-29 12:03 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](http://www.blog.minike.top/Article/details/7788619.shtml)
+- 2026-06-29 12:00 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](http://www.blog.kurohicncr.top/Article/details/47348172.shtml)
+- 2026-06-29 12:03 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.blog.kurohicncr.top/Article/details/868641.shtml)

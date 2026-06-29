@@ -1,59 +1,51 @@
-# 长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨
+# 江西铜业股份：江铜集团完成发行50亿元可交换公司债券
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-期货市场：美股全线走强AI 半导体狂欢引爆 “算力金属”，隔夜伦锡收涨2%；最新收盘报50595美元/吨，上涨990美元，涨幅为2%，成交量为282手，持仓量21187万手；国内方面，夜盘沪期锡高位震荡运行，尾盘小幅收涨。主力合约沪锡2605收报394040元/吨，上涨2410元，涨幅报0.62%。 伦敦金属交易所（LME）4月22日伦锡库存量8840吨，较前一交易日库存量增加
+江西铜业股份（00358）发布公告，公司于2026年4月9日收到公司控股股东江铜集团通知，“江西铜业集团有限公司2026年面向专业投资者公开发行可交换公司债券”（“本期可交换债券”）已于2026年4月9日完成发行。 本期可交换债券的债券简称为“26江铜EB”，债券代码为“132024”，实际发行规模为人民币50.00亿元，债券期限为5年，票面利率为0.01%，本期可交换债券初始
 
 ## 正文
 
-期货市场：美股全线走强AI 半导体狂欢引爆 “算力金属”，隔夜伦锡收涨2%；最新收盘报50595美元/吨，上涨990美元，涨幅为2%，成交量为282手，持仓量21187万手；国内方面，夜盘沪期锡高位震荡运行，尾盘小幅收涨。
+江西铜业股份（00358）发布公告，公司于2026年4月9日收到公司控股股东江铜集团通知，“江西铜业集团有限公司2026年面向专业投资者公开发行可交换公司债券”（“本期可交换债券”）已于2026年4月9日完成发行。
 
-主力合约沪锡2605收报394040元/吨，上涨2410元，涨幅报0.62%。
+本期可交换债券的债券简称为“26江铜EB”，债券代码为“132024”，实际发行规模为人民币50.00亿元，债券期限为5年，票面利率为0.01%，本期可交换债券初始换股价格为人民币53.00元╱股。
 
-伦敦金属交易所（LME）4月22日伦锡库存量8840吨，较前一交易日库存量增加580吨。
+本期可交换债券换股期限自发行结束之日满12个月后的第一个交易日起至可交换债券到期日止。
 
-长江锡业网讯：今日沪锡期货全线高开，主力月2605合约开盘报392060元/吨涨430元/吨，9：15分沪锡主力2605合约报393530元/吨，上涨1900元，涨幅为0.49%，沪期锡高开后呈现高位震荡运行；宏观面：隔夜伦锡收涨 2% 领涨工业金属，核心驱动来自四重利好叠加。
-
-一是特朗普宣布将美伊停火延长至 4 月 25 日，地缘冲突升级担忧大幅缓解，全球风险偏好显著回升，LME 金属全线普涨。
-
-二是今日美欧英德法多国 4 月制造业 PMI 密集发布，市场提前交易制造业边际复苏预期。
-
-三是布伦特原油重回 100 美元 / 桶上方，能源价格飙升直接推高锡冶炼及运输成本，形成刚性支撑。
-
-四是费城半导体指数连涨 16 个交易日创历史纪录，AI 光模块、服务器焊料需求爆发，引爆 “算力金属” 锡的估值修复，叠加 COMEX 铜库存创历史新高，资金加速轮动至估值偏低的锡市。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:00 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:49 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:42 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:00 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:59 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:02 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:07 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:58 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:45 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:08 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:57 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:42 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:14 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:57 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:14 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:49 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:49 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:14 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:02 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:51 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:59 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:53 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:52 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:07 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:10 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.share.minike.top/Article/details/9233015.shtml)
-- 2026-06-29 12:04 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.share.minike.top/Article/details/173884584846.shtml)
-- 2026-06-29 12:07 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.kurohicncr.top/Article/details/092370053941.shtml)
-- 2026-06-29 12:02 - [小食堂托起晚年大幸福](http://www.share.kurohicncr.top/Article/details/9665835163.shtml)
-- 2026-06-29 11:58 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.blog.kurohicncr.top/Article/details/0687740362.shtml)
-- 2026-06-29 11:46 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.share.kurohicncr.top/Article/details/28060668.shtml)
-- 2026-06-29 11:56 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.share.minike.top/Article/details/5074528.shtml)
-- 2026-06-29 12:03 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.blog.minike.top/Article/details/8133249544.shtml)
-- 2026-06-29 12:04 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.share.kurohicncr.top/Article/details/169718709.shtml)
-- 2026-06-29 11:57 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.blog.kurohicncr.top/Article/details/185868232647.shtml)
-- 2026-06-29 11:52 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [宁夏：“垂钓节”绘就乡村振兴新画卷](http://www.share.minike.top/Article/details/549765594687.shtml)
-- 2026-06-29 12:01 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.minike.top/Article/details/271190.shtml)
+- 2026-06-29 12:11 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.kurohicncr.top/Article/details/46270354.shtml)
+- 2026-06-29 11:50 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.minike.top/Article/details/39122.shtml)
+- 2026-06-29 11:54 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.kurohicncr.top/Article/details/02696.shtml)
+- 2026-06-29 12:09 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.share.minike.top/Article/details/57351515.shtml)
+- 2026-06-29 11:49 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.minike.top/Article/details/4177278316.shtml)
+- 2026-06-29 12:03 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.blog.minike.top/Article/details/54630119.shtml)
+- 2026-06-29 12:07 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.blog.kurohicncr.top/Article/details/51586481.shtml)
+- 2026-06-29 12:15 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.blog.minike.top/Article/details/64219.shtml)
+- 2026-06-29 12:12 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.blog.minike.top/Article/details/5599693.shtml)
+- 2026-06-29 12:02 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.kurohicncr.top/Article/details/23958.shtml)
+- 2026-06-29 11:55 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.share.minike.top/Article/details/023751275424.shtml)
+- 2026-06-29 11:58 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.blog.kurohicncr.top/Article/details/4139731.shtml)

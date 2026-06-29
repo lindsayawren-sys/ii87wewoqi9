@@ -1,46 +1,58 @@
-# 一季度市场监管部门查处商标侵权、假冒专利案件0.7万件
+# 苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网4月23日电 据国家市场监督管理总局网站消息，2026年第一季度，市场监管部门组织开展知识产权执法等专项行动，进一步加强重点领域、重点商品、重点市场治理，积极发挥行政执法震慑力，切实保护权利人和消费者合法权益，维护市场秩序，营造良好营商环境。各类专项行动共查处相关案件近11.3万件，其中商标侵权、假冒专利案件0.7万件，针对侵权假冒高发多发的重点实体市场开展执法行动约1.
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财事汇 4月2日晚，国内小家电龙头苏泊尔（002032.SZ）披露2025年年度报告，此次财报引发市场强烈关注。作为深耕行业30余年、手握SEB集团资源加持的龙头企业，其业绩表现不仅关乎自身发展，更成为中国小家电行业“弱复苏”的真实写照。 更令市场哗然的是，公司拟每10股派现26.30元，合计派现20
 
 ## 正文
 
-中新网4月23日电 据国家市场监督管理总局网站消息，2026年第一季度，市场监管部门组织开展知识产权执法等专项行动，进一步加强重点领域、重点商品、重点市场治理，积极发挥行政执法震慑力，切实保护权利人和消费者合法权益，维护市场秩序，营造良好营商环境。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-各类专项行动共查处相关案件近11.3万件，其中商标侵权、假冒专利案件0.7万件，针对侵权假冒高发多发的重点实体市场开展执法行动约1.4万次。
+来源：财事汇 4月2日晚，国内小家电龙头苏泊尔（002032.SZ）披露2025年年度报告，此次财报引发市场强烈关注。
+
+作为深耕行业30余年、手握SEB集团资源加持的龙头企业，其业绩表现不仅关乎自身发展，更成为中国小家电行业“弱复苏”的真实写照。
+
+更令市场哗然的是，公司拟每10股派现26.30元，合计派现20.96亿元，占当年净利润的99.95%。
+
+在“增收不增利”的尴尬现实与“清仓式分红”的豪横操作之间，这家深耕炊具三十余年的小家电龙头，正面临着怎样的经营困局？
+
+营收微增难掩净利下滑 核心业务增长乏力 一份看似“稳健”的财报却暗藏玄机。
+
+财务数据显示，苏泊尔2025年营收227.72亿元，同比增长1.54%，增速较2024年的5.27%进一步放缓。
+
+归母净利润20.97亿元，同比下降6.58%，打破了2021年至2024年连续四年增长的态势。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:43 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:43 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:11 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:57 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:54 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:09 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:45 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:05 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:47 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:44 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:50 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:03 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:08 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:11 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:58 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:15 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:01 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:11 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:57 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:02 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:14 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:59 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:59 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.share.kurohicncr.top/Article/details/831080588.shtml)
-- 2026-06-29 11:48 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.kurohicncr.top/Article/details/82939.shtml)
-- 2026-06-29 11:46 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.blog.minike.top/Article/details/9951311.shtml)
-- 2026-06-29 11:53 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.kurohicncr.top/Article/details/48733.shtml)
-- 2026-06-29 11:47 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.blog.minike.top/Article/details/29590.shtml)
-- 2026-06-29 12:00 - [一习话丨“要提倡多读书 建设书香社会”](http://www.share.kurohicncr.top/Article/details/515253103.shtml)
-- 2026-06-29 11:54 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.blog.minike.top/Article/details/72897.shtml)
-- 2026-06-29 11:59 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.share.minike.top/Article/details/84649866882.shtml)
-- 2026-06-29 11:52 - [一季度江西外贸进出口增长16% 汽车出口大增](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.share.minike.top/Article/details/41409101.shtml)
-- 2026-06-29 11:51 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.kurohicncr.top/Article/details/92127275.shtml)
-- 2026-06-29 11:55 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.blog.minike.top/Article/details/3311998554.shtml)
+- 2026-06-29 12:07 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/3925475.shtml)
+- 2026-06-29 11:48 - [伊朗武装部队称随时准备开火](http://www.share.kurohicncr.top/Article/details/98807415.shtml)
+- 2026-06-29 12:12 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/231122611398.shtml)
+- 2026-06-29 12:13 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.blog.minike.top/Article/details/59801948468.shtml)
+- 2026-06-29 12:14 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.blog.minike.top/Article/details/49922.shtml)
+- 2026-06-29 11:50 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.share.kurohicncr.top/Article/details/45437.shtml)
+- 2026-06-29 12:04 - [光大期货：4月13日软商品日报](http://www.blog.kurohicncr.top/Article/details/77036345691.shtml)
+- 2026-06-29 12:02 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.blog.minike.top/Article/details/925998.shtml)
+- 2026-06-29 12:02 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/583432911299.shtml)
+- 2026-06-29 11:55 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.share.minike.top/Article/details/108047756419.shtml)
+- 2026-06-29 12:00 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.minike.top/Article/details/466936.shtml)
+- 2026-06-29 12:00 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.share.kurohicncr.top/Article/details/63670911894.shtml)
+- 2026-06-29 12:13 - [北摩高科：拟每10股分红1.3元](http://www.blog.minike.top/Article/details/040730.shtml)
+- 2026-06-29 12:17 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.blog.kurohicncr.top/Article/details/5122592728.shtml)

@@ -1,61 +1,60 @@
-# （乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？
+# 股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网台州4月23日电(张益聪)乡村振兴命题很大，小小的一个村力量有限，那么几个村抱团呢？这份思考已经被书写在浙江省台州市的大地上。 近日，浙江省新时代乡村研究院联合省老骥乡村振兴志愿服务团，走进台州的天台、临海、黄岩三地。在这里，不是千篇一律的“样板间”，而是三种各具特色的突围路径。 自2018年天台首创提出“片区组团发展”理念，到如今台州规模推进100个片区连片发展，这片土
+油价高企带动化工板块反复活跃，这家民营化工企业股价涨超七成。 4月13日，卫星化学（002648）股价收涨5.06%至30.29元/股，创下历史新高，年内累计涨幅超过71%，总市值为1020亿元。 卫星化学是国内领先的轻烃产业链一体化生产企业，已建成国内规模最大的丙烯酸产业链，以及国内领先的乙烷裂解制乙烯产业链，依托上游原料自给与下游产品延伸的深度协同，形成了碳二、碳三双产业链
 
 ## 正文
 
-中新网台州4月23日电(张益聪)乡村振兴命题很大，小小的一个村力量有限，那么几个村抱团呢？
+油价高企带动化工板块反复活跃，这家民营化工企业股价涨超七成。
 
-这份思考已经被书写在浙江省台州市的大地上。
+4月13日，卫星化学（002648）股价收涨5.06%至30.29元/股，创下历史新高，年内累计涨幅超过71%，总市值为1020亿元。
 
-近日，浙江省新时代乡村研究院联合省老骥乡村振兴志愿服务团，走进台州的天台、临海、黄岩三地。
+卫星化学是国内领先的轻烃产业链一体化生产企业，已建成国内规模最大的丙烯酸产业链，以及国内领先的乙烷裂解制乙烯产业链，依托上游原料自给与下游产品延伸的深度协同，形成了碳二、碳三双产业链布局。
 
-在这里，不是千篇一律的“样板间”，而是三种各具特色的突围路径。
+近期，国际原油价格在多重地缘因素推动下持续高位震荡，传统以石脑油为原料的烯烃企业成本骤增。
 
-自2018年天台首创提出“片区组团发展”理念，到如今台州规模推进100个片区连片发展，这片土地试图破解乡村振兴中的难题：资源散、各自战、难久富。
+卫星化学采用乙烷裂解路线，其原料乙烷采购成本与美国亨利港天然气价格高度挂钩，油-气价差持续走阔为公司带来了显著的利润弹性。
 
-天台：强村“火车头”带动片区发展 “很多地方的片区组团流于形式，发展也未能有效整合资源。
+据2025年年报，卫星化学乙烷裂解制乙烯的收率高达80%，显著高于石脑油裂解的30%，单程转化率高。
 
-”浙江省新时代乡村研究院副理事长严力蛟表示，天台县大塔后片区的发展模式值得借鉴——该片区核心村塔后村，凭借“近景近城”的优势，成为拉动片区的“火车头”。
+乙烷裂解制乙烯的能耗仅为传统石脑油裂解工艺的三分之一，煤化工工艺的十分之一，能耗领跑同类工艺。
 
-塔后村以康养产业为核心，打造“主品牌+子IP”体系，民宿集群、音乐节等业态错位布局，形成“四季轮转”的消费场景，带动成员村年增收超8万元(人民币，下同)。
+东吴证券表示，卫星化学构建起了“难以复制、高度稀缺、极具成本竞争力”的全球轻烃供应链体系。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:04 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:44 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:09 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:48 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:45 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:48 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:44 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:46 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:42 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:49 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:57 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:53 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:59 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:02 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:05 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:13 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:53 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:07 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:49 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:14 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:15 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:49 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:17 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:55 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:00 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:10 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:57 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:03 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.minike.top/Article/details/362577943.shtml)
-- 2026-06-29 12:10 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.share.kurohicncr.top/Article/details/58707652.shtml)
-- 2026-06-29 12:06 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.blog.kurohicncr.top/Article/details/04281.shtml)
-- 2026-06-29 12:08 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.blog.kurohicncr.top/Article/details/363264.shtml)
-- 2026-06-29 11:58 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.blog.minike.top/Article/details/463924905861.shtml)
-- 2026-06-29 11:45 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.minike.top/Article/details/6562885.shtml)
-- 2026-06-29 11:50 - [小食堂托起晚年大幸福](http://www.blog.minike.top/Article/details/494501268334.shtml)
-- 2026-06-29 11:55 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.blog.kurohicncr.top/Article/details/317970988293.shtml)
-- 2026-06-29 11:58 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.share.minike.top/Article/details/876423319.shtml)
-- 2026-06-29 11:53 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.blog.minike.top/Article/details/203215506.shtml)
-- 2026-06-29 12:11 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.kurohicncr.top/Article/details/956209489.shtml)
-- 2026-06-29 11:59 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.share.kurohicncr.top/Article/details/75017.shtml)
-- 2026-06-29 12:03 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.kurohicncr.top/Article/details/61057567.shtml)
+- 2026-06-29 11:52 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/049974722069.shtml)
+- 2026-06-29 12:06 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.share.minike.top/Article/details/305853257650.shtml)
+- 2026-06-29 12:01 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.kurohicncr.top/Article/details/444278289.shtml)
+- 2026-06-29 12:10 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.kurohicncr.top/Article/details/65652313806.shtml)
+- 2026-06-29 12:07 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.share.minike.top/Article/details/063535.shtml)
+- 2026-06-29 11:58 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.share.kurohicncr.top/Article/details/165529735.shtml)
+- 2026-06-29 12:12 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [股价跌近3%，保变电气回应年报多项指标变动原因](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/2801721406.shtml)
+- 2026-06-29 12:01 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.blog.kurohicncr.top/Article/details/24485820.shtml)
+- 2026-06-29 12:15 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.minike.top/Article/details/512971.shtml)
+- 2026-06-29 11:49 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.kurohicncr.top/Article/details/26073126422.shtml)
+- 2026-06-29 12:12 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.share.kurohicncr.top/Article/details/893034.shtml)
+- 2026-06-29 12:07 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](https://github.com/lisacumin64-arch)

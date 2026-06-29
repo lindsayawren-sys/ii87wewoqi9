@@ -1,57 +1,61 @@
-# 海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发
+# 电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-一家曾被视为电动汽车基础设施发展先驱的以色列初创公司已破产，其专利持有人指控车企蔚来侵犯知识产权，并索赔2.5亿美元。 由加拿大商人Larry Krauss控制、在英属维尔京群岛注册的企业Charge Peak于周二发出停止侵权函，涉及三项欧洲电池换电技术专利。这些专利是该公司在2013年电动汽车企业Better Place破产后收购所得。 在诉状中，Charge Peak的律
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！具身智能正从“概念验证”迈入“真刀真枪”的实战阶段。 电子布龙头创历史新高 今日（4月13日）早盘，中国巨石（600176）低开高走，截至上午收盘，股价涨停，涨停板封单27.22万手，最新股价创历史新高，A股市值达到1285亿元。 中国巨石主要从事玻璃纤维及制品的生产、销售。2025年公司实现净利润32.8
 
 ## 正文
 
-一家曾被视为电动汽车基础设施发展先驱的以色列初创公司已破产，其专利持有人指控车企蔚来侵犯知识产权，并索赔2.5亿美元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-由加拿大商人Larry Krauss控制、在英属维尔京群岛注册的企业Charge Peak于周二发出停止侵权函，涉及三项欧洲电池换电技术专利。
+具身智能正从“概念验证”迈入“真刀真枪”的实战阶段。
 
-这些专利是该公司在2013年电动汽车企业Better Place破产后收购所得。
+电子布龙头创历史新高 今日（4月13日）早盘，中国巨石（600176）低开高走，截至上午收盘，股价涨停，涨停板封单27.22万手，最新股价创历史新高，A股市值达到1285亿元。
 
-在诉状中，Charge Peak的律师指控2014年创立的蔚来“未经许可或授权，使用以色列Better Place的模式、技术、经验与知识产权”。
+中国巨石主要从事玻璃纤维及制品的生产、销售。
 
-Charge Peak未提出具体索赔金额，但表示愿意将所持全部Better Place知识产权（包括二十多项专利）出售给蔚来以解决纠纷，并提议以蔚来2025年125亿美元营收的2%作为“参考基准”。
+2025年公司实现净利润32.85亿元，同比增长34.38%。
 
-他补充道：“我们愿意本着诚意协商，出售全部知识产权组合。
+报告期内，公司分别实现粗纱及制品销量320.26万吨，电子布销量10.62亿米，实现量价齐升、营业收入和利润同比增长。
 
-” 蔚来否认侵犯Charge Peak的知识产权，称其换电站所用技术“与索赔中提及的三项专利存在实质性差异”，且已提交逾2200项与充电、换电相关的专利。
+2025年，因信息化产业迭代发展，特种电子玻纤成为投资热点，其建设热潮一定程度上挤占了常规电子玻纤的供应，推动普通电子布供应趋紧。
 
-蔚来表示：“此类指控在事实与法律上均无依据，与行业技术发展现实及蔚来实际研发情况不符”，并将采取“适当法律措施”维护“合法权益”。
+长江证券近期发布的研报认为，供需紧缺之下电子布厂库存与下游覆铜板厂电子布备货库存均降至历史低位，下游覆铜板订单饱满，提价具备强基础，继续看好电子布需求爆发与产能挤压的超级周期。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:00 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:55 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:11 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:02 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:53 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:10 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:05 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:08 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:51 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:51 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:56 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:57 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:54 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:00 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:57 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:13 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:03 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:48 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:51 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:01 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:10 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:52 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:54 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:49 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:05 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.blog.kurohicncr.top/Article/details/55184.shtml)
-- 2026-06-29 12:04 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.minike.top/Article/details/68400258160.shtml)
-- 2026-06-29 11:46 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.kurohicncr.top/Article/details/50184798.shtml)
-- 2026-06-29 11:57 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [军号再次吹响，这次是接他们回家](http://www.blog.kurohicncr.top/Article/details/032695757507.shtml)
-- 2026-06-29 12:10 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.minike.top/Article/details/101221755041.shtml)
-- 2026-06-29 12:02 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.share.minike.top/Article/details/82061993.shtml)
-- 2026-06-29 11:55 - [浙江行刑联动破题商业秘密保护“三难”](http://www.share.minike.top/Article/details/37876526.shtml)
-- 2026-06-29 12:01 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.blog.minike.top/Article/details/133014401.shtml)
-- 2026-06-29 12:12 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.share.minike.top/Article/details/394318323912.shtml)
-- 2026-06-29 11:42 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.share.kurohicncr.top/Article/details/9403089.shtml)
+- 2026-06-29 11:59 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [海口海关动植物检疫中心测序服务采购项目流标公告](http://www.blog.kurohicncr.top/Article/details/4850462.shtml)
+- 2026-06-29 11:50 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/18095134138.shtml)
+- 2026-06-29 12:05 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.blog.minike.top/Article/details/909637746.shtml)
+- 2026-06-29 12:13 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.share.kurohicncr.top/Article/details/20977920618.shtml)
+- 2026-06-29 12:08 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.share.minike.top/Article/details/52469980.shtml)
+- 2026-06-29 11:57 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.minike.top/Article/details/381378.shtml)
+- 2026-06-29 12:14 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.blog.kurohicncr.top/Article/details/591419323.shtml)
+- 2026-06-29 12:13 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.minike.top/Article/details/89539140.shtml)
+- 2026-06-29 12:05 - [第一观察｜习近平主席寄望中美青年](http://www.share.kurohicncr.top/Article/details/01376386.shtml)
+- 2026-06-29 12:06 - [超百位港籍长者入住深圳光明区养老](http://www.share.kurohicncr.top/Article/details/9586219005.shtml)
+- 2026-06-29 12:13 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.blog.kurohicncr.top/Article/details/03584.shtml)

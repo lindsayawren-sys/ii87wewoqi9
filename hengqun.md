@@ -1,59 +1,56 @@
-# 必维国际检验集团设立新亚洲中心，扩大海上服务能力
+# 调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-必维国际检验集团海事与 offshore 部门已在亚太地区设立了一个海上卓越中心，以支持海上能源项目。 该中心将整合新加坡、上海和吉隆坡的区域团队与公司的全球技术网络，共同支持油气及海上可再生能源项目的开发。此举正值海上项目规模和复杂性不断提升，需要跨学科和供应链的协同专业知识之际。 必维表示，该中心将作为一个单一枢纽，为浮式生产储卸装置、浮式风机、钻井装置等海上资产提供入级、
+澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。 约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。 尽管澳大利亚规模达4.5万亿澳元
 
 ## 正文
 
-必维国际检验集团海事与 offshore 部门已在亚太地区设立了一个海上卓越中心，以支持海上能源项目。
+澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。
 
-该中心将整合新加坡、上海和吉隆坡的区域团队与公司的全球技术网络，共同支持油气及海上可再生能源项目的开发。
+约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。
 
-此举正值海上项目规模和复杂性不断提升，需要跨学科和供应链的协同专业知识之际。
+只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。
 
-必维表示，该中心将作为一个单一枢纽，为浮式生产储卸装置、浮式风机、钻井装置等海上资产提供入级、认证、验证和咨询支持服务。
+尽管澳大利亚规模达4.5万亿澳元（3.2万亿美元）的养老金行业位居全球领先的退休保障体系之列，但多项调查一再显示，澳大利亚人对自己停止工作后的财务状况普遍深感焦虑。
 
-该中心将支持项目从早期可行性研究到建设和运营的全过程开发，包括合规性、工程分析和可持续发展咨询。
+监管机构也一直向该行业施压，要求其为开始支取养老金储蓄的民众提供更多方案选择。
 
-必维国际检验集团工业与大宗商品执行副总裁表示：“海上能源的发展日益受到复杂工业生态系统的塑造，油气与可再生能源项目在此紧密交织。
+年金提供商兼投资管理公司Challenger周一发布的另一项独立研究显示，生活成本上升连续第三年成为60岁以上澳大利亚人最担忧的问题。
 
-通过设立亚太海上卓越中心，我们整合了跨业务的专业知识，支持客户贯穿整个价值链，帮助他们管理风险、确保合规，并安全高效地交付项目。
+随着白领岗位的弹性工作选择增多，使人们能够更长时间留在劳动力市场，越来越多的澳大利亚人一直工作到70多岁。
 
-” 必维国际检验集团海事与 offshore 总裁补充道：“亚太地区是众多海上领域关键参与者、创新者和项目的大本营。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:06 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:46 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:04 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:06 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:54 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:45 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:52 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:05 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:45 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:51 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:54 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:51 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:09 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:08 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:13 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:01 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:18 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:03 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:52 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:00 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:52 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:58 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.share.minike.top/Article/details/878733532603.shtml)
-- 2026-06-29 12:10 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.share.kurohicncr.top/Article/details/79570119.shtml)
-- 2026-06-29 12:04 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.kurohicncr.top/Article/details/642860498.shtml)
-- 2026-06-29 11:49 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.minike.top/Article/details/181538.shtml)
-- 2026-06-29 12:10 - [光大期货：4月23日矿钢煤焦日报](http://www.share.minike.top/Article/details/306821874.shtml)
-- 2026-06-29 11:57 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.kurohicncr.top/Article/details/9901240670.shtml)
-- 2026-06-29 12:05 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/220630334.shtml)
-- 2026-06-29 11:42 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.share.kurohicncr.top/Article/details/78709981.shtml)
-- 2026-06-29 12:05 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.minike.top/Article/details/04527993340.shtml)
-- 2026-06-29 12:06 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.minike.top/Article/details/78031588142.shtml)
-- 2026-06-29 11:58 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [A股周一缩量上涨 创业板指创四年多新高](http://www.blog.minike.top/Article/details/40049283.shtml)
+- 2026-06-29 12:11 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.blog.kurohicncr.top/Article/details/0298627.shtml)
+- 2026-06-29 12:00 - [*ST万方，停牌！拟终止上市！](http://www.blog.minike.top/Article/details/60488076063.shtml)
+- 2026-06-29 11:54 - [摩根大通就停火风险提示油价走势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [个贷不良依然压力山大](http://www.share.kurohicncr.top/Article/details/6164338.shtml)
+- 2026-06-29 11:59 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.share.minike.top/Article/details/6891974.shtml)
+- 2026-06-29 11:52 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.blog.minike.top/Article/details/6662704147.shtml)
+- 2026-06-29 11:54 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [伊美第三轮会谈在伊斯兰堡举行](http://www.blog.minike.top/Article/details/6713230858.shtml)
+- 2026-06-29 12:06 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/11343494430.shtml)
+- 2026-06-29 12:10 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.minike.top/Article/details/8139757.shtml)
+- 2026-06-29 12:01 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.kurohicncr.top/Article/details/8072994.shtml)

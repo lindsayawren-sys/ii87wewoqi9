@@ -1,61 +1,58 @@
-# 小城游火了！这些“小而美”的城市性价比高、体验感强
+# 民盟中央第四届乡村振兴发展论坛在河南济源举办
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-随着“五一”假期临近，一些旅游性价比高、体验感强的“小而美”城市迅速走红。避开热门城市、走进特色小城，成为这个“五一”假期不少游客的新选择。 与传统热门城市相比，小城景区能有效避开人流高峰，提供更从容、深入的旅游体验。价格方面，小城优势也十分明显。“五一”期间，小城高星级酒店均价较一线城市低四成以上，部分地区300元即可入住五星级酒店。 目前， 福建平潭、广西阳朔、四川九寨沟等
+4月9日至10日，民盟中央第四届乡村振兴发展论坛在河南济源举办。全国政协副主席、民盟中央常务副主席王光谦出席会议并讲话。 王光谦指出，“十五五”规划明确提出“把农业建成现代化大产业”，2026年中央一号文件围绕这一战略目标作出具体部署，本次论坛以“发展现代化大农业扎实推进乡村全面振兴”为主题是对新时代“三农”工作重心的精准呼应。他强调，要深刻把握现代化大农业的时代内涵，认清其全
 
 ## 正文
 
-随着“五一”假期临近，一些旅游性价比高、体验感强的“小而美”城市迅速走红。
+4月9日至10日，民盟中央第四届乡村振兴发展论坛在河南济源举办。
 
-避开热门城市、走进特色小城，成为这个“五一”假期不少游客的新选择。
+全国政协副主席、民盟中央常务副主席王光谦出席会议并讲话。
 
-与传统热门城市相比，小城景区能有效避开人流高峰，提供更从容、深入的旅游体验。
+王光谦指出，“十五五”规划明确提出“把农业建成现代化大产业”，2026年中央一号文件围绕这一战略目标作出具体部署，本次论坛以“发展现代化大农业扎实推进乡村全面振兴”为主题是对新时代“三农”工作重心的精准呼应。
 
-价格方面，小城优势也十分明显。
+他强调，要深刻把握现代化大农业的时代内涵，认清其全链条、新质生产力、战略产业特征，找准民盟服务乡村振兴的履职方向；要立足民盟界别特色优势，在科技赋能、文化浸润、产业振兴上持续发力，贡献智慧力量；要传承愚公移山精神与民盟优良传统，深入调研、精准建言，务实开展社会服务，久久为功助力乡村全面振兴。
 
-“五一”期间，小城高星级酒店均价较一线城市低四成以上，部分地区300元即可入住五星级酒店。
+会议期间，济源示范区管委会主任、市长秦保建，中国农业科学院农业质量标准与检测技术研究所教授、农产品质量安全全国重点实验室首席科学家王静，民盟中央教育委员会主任、新东方教育科技集团董事长俞敏洪分别作主旨报告。
 
-目前， 福建平潭、广西阳朔、四川九寨沟等地热度持续攀升。
+10位优秀论文作者代表开展交流发言。
 
-某旅游平台大数据研究院研究员石珂表示，“五一”期间，一批小城景区热度攀升最快。
+与会代表分别赴五龙口乡愁馆、泰山村村史馆、花石村等实地参观学习河南乡村振兴实践经验。
 
-比如景德镇中国陶瓷博物馆搜索热度增加了10倍，崇左峒那屿湾搜索热度增长了7倍，恩施鹿院坪景区搜索热度增长了5倍。
+在豫期间，王光谦先后到济源职业技术学院、五龙口“留住乡愁”示范基地、五龙口民盟烛光小学等地调研。
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [原万家基金董事长方一天，今日被提名华安基金总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:04 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:07 - [美国航空因燃油价格上涨下调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:01 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:53 - [欧元区消费者信心下滑 凸显消费风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:05 - [科尔沁沙地核心区：人工铺设草方格固沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:49 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:56 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:50 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:46 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:57 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:51 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:55 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:43 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:04 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:01 - [北摩高科：拟每10股分红1.3元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:48 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:14 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:48 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:10 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:55 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:58 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:00 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:54 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:58 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:14 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:07 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [亚马逊进军GLP-1医疗领域](http://www.blog.kurohicncr.top/Article/details/9088110846.shtml)
-- 2026-06-29 11:53 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](http://www.share.kurohicncr.top/Article/details/8170174936.shtml)
-- 2026-06-29 11:50 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](http://www.share.minike.top/Article/details/00732489930.shtml)
-- 2026-06-29 11:58 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](http://www.share.kurohicncr.top/Article/details/985242.shtml)
-- 2026-06-29 12:03 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](http://www.blog.kurohicncr.top/Article/details/46559.shtml)
-- 2026-06-29 12:04 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](http://www.blog.minike.top/Article/details/07650.shtml)
-- 2026-06-29 11:53 - [猪价下跌的背后：本轮猪周期的变与不变](http://www.blog.kurohicncr.top/Article/details/2077821174.shtml)
-- 2026-06-29 11:42 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](http://www.blog.kurohicncr.top/Article/details/039646362529.shtml)
-- 2026-06-29 11:43 - [德政府据悉正与波兰就石油替代供应展开磋商](http://www.blog.kurohicncr.top/Article/details/53698191.shtml)
-- 2026-06-29 11:47 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](http://www.share.minike.top/Article/details/73039.shtml)
-- 2026-06-29 11:49 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](http://www.share.kurohicncr.top/Article/details/7869457.shtml)
-- 2026-06-29 12:06 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](http://www.share.minike.top/Article/details/4089606.shtml)
-- 2026-06-29 12:01 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.blog.minike.top/Article/details/121439116754.shtml)
-- 2026-06-29 11:46 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](http://www.share.minike.top/Article/details/31522.shtml)
-- 2026-06-29 11:57 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](http://www.share.kurohicncr.top/Article/details/31648335730.shtml)
+- 2026-06-29 12:14 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.blog.kurohicncr.top/Article/details/192785.shtml)
+- 2026-06-29 12:12 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](http://www.blog.minike.top/Article/details/9414827.shtml)
+- 2026-06-29 12:14 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](http://www.share.minike.top/Article/details/919220397205.shtml)
+- 2026-06-29 12:04 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](http://www.blog.kurohicncr.top/Article/details/49379152.shtml)
+- 2026-06-29 12:00 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](http://www.blog.minike.top/Article/details/7486407.shtml)
+- 2026-06-29 11:57 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](http://www.share.kurohicncr.top/Article/details/202962921178.shtml)
+- 2026-06-29 11:56 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.share.kurohicncr.top/Article/details/113513995908.shtml)
+- 2026-06-29 11:58 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](http://www.share.minike.top/Article/details/56965952797.shtml)
+- 2026-06-29 11:52 - [贝壳-W于4月9日斥资700万美元回购133.6万股](http://www.share.minike.top/Article/details/54540082.shtml)
+- 2026-06-29 12:12 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](http://www.share.kurohicncr.top/Article/details/613168471.shtml)
+- 2026-06-29 12:12 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.share.minike.top/Article/details/148677807.shtml)
+- 2026-06-29 12:06 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](http://www.share.kurohicncr.top/Article/details/4089425948.shtml)
+- 2026-06-29 12:05 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](http://www.blog.kurohicncr.top/Article/details/7582991.shtml)
+- 2026-06-29 11:49 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](http://www.blog.minike.top/Article/details/339438.shtml)

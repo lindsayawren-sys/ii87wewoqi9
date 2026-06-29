@@ -1,59 +1,59 @@
-# 液冷牛股英维克，火热后急冻，现场探访
+# （八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！因一季度净利润的大幅下挫和股价的大幅震荡，液冷人气股英维克被推上风口浪尖。 英维克的一季报中，消失的不仅有“预期中的丰厚利润”，还有牛散的身影——“超级牛散”章建平之妻方文艳在一季度退出英
+中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。 他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。
 
-因一季度净利润的大幅下挫和股价的大幅震荡，液冷人气股英维克被推上风口浪尖。
+”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。
 
-英维克的一季报中，消失的不仅有“预期中的丰厚利润”，还有牛散的身影——“超级牛散”章建平之妻方文艳在一季度退出英维克前十大流通股股东榜。
+坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。
 
-而就在去年四季度，方文艳新进公司前十大流通股股东榜，持股达614.79万股。
+他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就会不足。
 
-与此同时，有关“英维克并非英伟达生态合作伙伴”等质疑之声也不绝于耳。
+据《柘荣县志》记载，雍正年间，柘荣就有能工巧匠用生铁加钢刃锻打剪刀，特别是在下钢、淬火、水磨三道传统技艺方面形成了独特的柘荣剪刀制造技艺，至今已约三百年。
 
-火热的液冷概念炒作之下，英维克的虚实究竟如何？
+溪坪街是柘荣剪刀的发源与传承之地，这里流传着一句民谣：“上街打剪刀，中街生意仔，下街读书郎”。
 
-近日，上海证券报记者在深圳实地探访英维克，并采访了多位业内人士，试图拨开层层迷雾。
+今年57岁的林龙醒自小跟随爷爷和父亲学习打剪刀。
 
-市值背后实力几何？
+他介绍，柘荣刀剪延续传统手工艺，始终讲究精工细雕，镶嵌钢刃要均匀，磨工精细，雕刻精巧。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:42 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:06 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:55 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:51 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:11 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:50 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:47 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:53 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:58 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:59 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:46 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:03 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:10 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:02 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:57 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:15 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:11 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:17 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:57 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:09 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:53 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:55 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:53 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:57 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:51 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.kurohicncr.top/Article/details/81480679229.shtml)
-- 2026-06-29 11:54 - [光大期货：4月23日矿钢煤焦日报](http://www.share.kurohicncr.top/Article/details/5846106.shtml)
-- 2026-06-29 12:02 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.share.minike.top/Article/details/44598651.shtml)
-- 2026-06-29 11:49 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.kurohicncr.top/Article/details/13807571422.shtml)
-- 2026-06-29 12:06 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.blog.minike.top/Article/details/759469690.shtml)
-- 2026-06-29 11:49 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.minike.top/Article/details/895369350510.shtml)
-- 2026-06-29 12:06 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.kurohicncr.top/Article/details/404746.shtml)
-- 2026-06-29 11:47 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/38873.shtml)
-- 2026-06-29 11:48 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.blog.minike.top/Article/details/943406.shtml)
-- 2026-06-29 11:52 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.share.minike.top/Article/details/5636936.shtml)
-- 2026-06-29 11:59 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.share.minike.top/Article/details/310146241.shtml)
-- 2026-06-29 11:46 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.share.minike.top/Article/details/434724174.shtml)
-- 2026-06-29 12:08 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.minike.top/Article/details/0925576221.shtml)
+- 2026-06-29 12:12 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.share.minike.top/Article/details/0985280.shtml)
+- 2026-06-29 11:48 - [个贷不良依然压力山大](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.share.minike.top/Article/details/214701032.shtml)
+- 2026-06-29 11:58 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.share.kurohicncr.top/Article/details/18816124095.shtml)
+- 2026-06-29 12:05 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.share.minike.top/Article/details/443554276.shtml)
+- 2026-06-29 11:53 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.kurohicncr.top/Article/details/179577.shtml)
+- 2026-06-29 12:15 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/23249178665.shtml)
+- 2026-06-29 11:51 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.kurohicncr.top/Article/details/872548294.shtml)
+- 2026-06-29 12:17 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.minike.top/Article/details/813638314.shtml)
+- 2026-06-29 11:53 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.blog.minike.top/Article/details/267947.shtml)
+- 2026-06-29 12:00 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.kurohicncr.top/Article/details/97858140.shtml)
+- 2026-06-29 12:05 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/3332436134.shtml)
+- 2026-06-29 11:56 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lisacumin64-arch)

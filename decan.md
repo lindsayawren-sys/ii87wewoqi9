@@ -1,61 +1,49 @@
-# 中国选手范俊杰夺得三亚亚沙会首金
+# 原油现货与期货之间价差巨大 实物原油发出"短缺"信号
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网三亚4月23日电 (记者 王子谦)4月23日上午，在第六届亚洲沙滩运动会(简称“三亚亚沙会”)游跑两项男子个人赛比赛中，中国队选手范俊杰以28分20秒夺得冠军。这是本届亚沙会产生的首枚金牌。 游跑两项作为铁人三项的衍生项目首次在亚沙会亮相，范俊杰也成为亚沙会历史上首位游跑两项比赛冠军。 另一位中国运动员滕云峰以28分30秒获得亚军，中国台北选手潘子易排名第三。 相较于传统
+美国石油基金所代理的市场中，即期布伦特原油价格突破140美元，近期船货溢价飙升，突显出随着炼油厂争抢原油，现货与期货之间出现巨大价差。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网三亚4月23日电 (记者 王子谦)4月23日上午，在第六届亚洲沙滩运动会(简称“三亚亚沙会”)游跑两项男子个人赛比赛中，中国队选手范俊杰以28分20秒夺得冠军。
+美国石油基金所代理的市场中，即期布伦特原油价格突破140美元，近期船货溢价飙升，突显出随着炼油厂争抢原油，现货与期货之间出现巨大价差。
 
-这是本届亚沙会产生的首枚金牌。
-
-游跑两项作为铁人三项的衍生项目首次在亚沙会亮相，范俊杰也成为亚沙会历史上首位游跑两项比赛冠军。
-
-另一位中国运动员滕云峰以28分30秒获得亚军，中国台北选手潘子易排名第三。
-
-相较于传统铁人三项，游跑两项比赛距离更短、节奏更快。
-
-个人赛按照跑步2.5公里、游泳1公里、跑步2.5公里的顺序进行。
-
-今天的比赛，范俊杰在首个项目2.5公里跑步中紧跟哈萨克斯坦选手霍尼斯巴耶夫·达仁。
-
-1公里游泳中，范俊杰率先下水，发挥游泳优势，迅速拉开差距。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:03 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:00 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:48 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:10 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:08 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:58 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:10 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:07 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:00 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:58 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:53 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:49 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:54 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:48 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:57 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:11 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:53 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:51 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:14 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:05 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:53 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:56 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:07 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:06 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:53 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:08 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:02 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:06 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:00 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.blog.minike.top/Article/details/24669678042.shtml)
-- 2026-06-29 11:47 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.share.minike.top/Article/details/94821413047.shtml)
-- 2026-06-29 11:42 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.blog.minike.top/Article/details/3176817736.shtml)
-- 2026-06-29 11:53 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.share.minike.top/Article/details/984690466999.shtml)
-- 2026-06-29 11:49 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.kurohicncr.top/Article/details/0763866599.shtml)
-- 2026-06-29 11:49 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [光大期货：4月23日矿钢煤焦日报](http://www.share.minike.top/Article/details/9736674406.shtml)
-- 2026-06-29 11:55 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.share.minike.top/Article/details/8374324.shtml)
-- 2026-06-29 11:53 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.share.kurohicncr.top/Article/details/9712713509.shtml)
-- 2026-06-29 11:57 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.share.kurohicncr.top/Article/details/23984449108.shtml)
-- 2026-06-29 12:10 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.blog.minike.top/Article/details/889012769580.shtml)
+- 2026-06-29 11:57 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [广西三江：花映楼桥入画来](http://www.blog.kurohicncr.top/Article/details/18435736798.shtml)
+- 2026-06-29 12:06 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.share.minike.top/Article/details/6014512.shtml)
+- 2026-06-29 12:09 - [A股周一缩量上涨 创业板指创四年多新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.minike.top/Article/details/344844290.shtml)
+- 2026-06-29 12:10 - [*ST万方，停牌！拟终止上市！](http://www.share.minike.top/Article/details/82949371325.shtml)
+- 2026-06-29 11:59 - [摩根大通就停火风险提示油价走势](http://www.share.kurohicncr.top/Article/details/9118172.shtml)
+- 2026-06-29 11:56 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.blog.minike.top/Article/details/1623018566.shtml)
+- 2026-06-29 12:14 - [个贷不良依然压力山大](http://www.blog.kurohicncr.top/Article/details/8132525326.shtml)
+- 2026-06-29 12:17 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.blog.minike.top/Article/details/1820602.shtml)
+- 2026-06-29 11:59 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.share.kurohicncr.top/Article/details/594672.shtml)
+- 2026-06-29 11:58 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.blog.minike.top/Article/details/505333.shtml)

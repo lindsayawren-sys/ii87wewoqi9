@@ -1,59 +1,56 @@
-# 国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录
+# 黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电(陈溯 刘梦青)22日，在全球共享发展行动论坛第三届高级别会议气象分论坛上，国家国际发展合作署、中国气象局与世界气象组织共同签署关于推动落实全球发展倡议的谅解备忘录。 三方愿在全球发展倡议框架下，促进团结、平等、均衡、普惠的全球发展伙伴关系，加速落实联合国2030年可持续发展议程，支持推动构建人类命运共同体。 气候变化和绿色发展是全球发展倡议八大重点合作领
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。黑芝麻智能创始人兼CEO单记章表示，前几年AI快速发展，特别是语言模型发展迅猛，但最近一两年物理AI正在向我们走来，甚至世界模型已经应用在智能驾驶领域。 他表示，未来的智能驾驶，VLA加上世界
 
 ## 正文
 
-中新网北京4月22日电(陈溯 刘梦青)22日，在全球共享发展行动论坛第三届高级别会议气象分论坛上，国家国际发展合作署、中国气象局与世界气象组织共同签署关于推动落实全球发展倡议的谅解备忘录。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-三方愿在全球发展倡议框架下，促进团结、平等、均衡、普惠的全球发展伙伴关系，加速落实联合国2030年可持续发展议程，支持推动构建人类命运共同体。
+黑芝麻智能创始人兼CEO单记章表示，前几年AI快速发展，特别是语言模型发展迅猛，但最近一两年物理AI正在向我们走来，甚至世界模型已经应用在智能驾驶领域。
 
-气候变化和绿色发展是全球发展倡议八大重点合作领域之一。
+他表示，未来的智能驾驶，VLA加上世界模型可能是一个非常好的解决方案，尤其是对于高阶智能驾驶。
 
-三方将加强战略协作，开展政策对话，分享最佳实践，通过联合开展能力建设、专业知识技术和经验分享、人员交流培训等形式，共同探索在加强早期预警系统、水文气象灾害风险减缓、气候变化适应和绿色发展等方面务实合作，进一步落实联合国全民早期预警倡议，助力提升发展中国家水文气象能力，为推动全球可持续发展贡献力量。
+他谈到，当时阿尔法go、阿尔法Zero这类AI在围棋领域打败了人类，而VLA加世界模型，或许会超越人类的驾驶能力。
 
-全球发展倡议提出5年来，中方始终践行构建人类命运共同体理念，凝聚发展共识，开展务实合作，目前倡议的落实机制已有130多个国家和国际组织参加，成为广受欢迎的国际公共产品。
+VLA和世界模型相结合，我们不仅能看到过去几秒钟的驾驶历史，从而选择下一步操作，世界模型还能推演未来五到十秒钟各个目标、各个智能体的交互情况，这样可以大幅提升智能驾驶的能力和水平，所以我们认为在这种技术框架下，有机会超越人类的驾驶能力。
 
-中方已开展应对气候变化和绿色发展研修班等300余期；向有关国家分享防灾减灾技术、经验和成果，支持搭建救灾应急指挥和研判支持系统，帮助加强相关能力建设。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-中国气象局持续推动落实全球发展倡议，发布全民早期预警中国方案“妈祖(MAZU)”，依托28个世界气象组织国际或区域中心向全球提供气象公共产品，分享早期预警和防灾减灾经验，共建气象早期预警业务平台，累计为超过1.7万名国际学员提供培训。
-
-(完)
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:10 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:58 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:01 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:54 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:58 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:03 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:56 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:02 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:02 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:00 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:02 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:57 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:58 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:10 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:50 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:10 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:08 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:15 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:17 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:00 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:10 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:58 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:03 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:00 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/17688918524.shtml)
-- 2026-06-29 11:48 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.blog.minike.top/Article/details/767161.shtml)
-- 2026-06-29 12:06 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.blog.minike.top/Article/details/92178041.shtml)
-- 2026-06-29 11:52 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.minike.top/Article/details/00277722858.shtml)
-- 2026-06-29 11:59 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.kurohicncr.top/Article/details/3834424.shtml)
-- 2026-06-29 12:04 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.blog.kurohicncr.top/Article/details/526987973.shtml)
-- 2026-06-29 11:47 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.minike.top/Article/details/38316.shtml)
-- 2026-06-29 11:44 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.blog.minike.top/Article/details/04191683271.shtml)
-- 2026-06-29 12:03 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.blog.minike.top/Article/details/00966.shtml)
-- 2026-06-29 12:04 - [一习话丨“要提倡多读书 建设书香社会”](http://www.share.kurohicncr.top/Article/details/17383.shtml)
-- 2026-06-29 11:58 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.minike.top/Article/details/8563974.shtml)
-- 2026-06-29 11:49 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.blog.kurohicncr.top/Article/details/46261.shtml)
-- 2026-06-29 12:11 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.minike.top/Article/details/266489941659.shtml)
+- 2026-06-29 12:08 - [尼泊尔民众拉战车迎接尼历新年](http://www.blog.kurohicncr.top/Article/details/8984524186.shtml)
+- 2026-06-29 11:53 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.share.kurohicncr.top/Article/details/62238752573.shtml)
+- 2026-06-29 11:57 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.blog.minike.top/Article/details/143900.shtml)
+- 2026-06-29 11:48 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.share.kurohicncr.top/Article/details/3077471011.shtml)
+- 2026-06-29 12:08 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/185375438472.shtml)
+- 2026-06-29 12:00 - [伊朗武装部队称随时准备开火](http://www.blog.kurohicncr.top/Article/details/624404.shtml)
+- 2026-06-29 11:58 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/227342.shtml)
+- 2026-06-29 12:09 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.kurohicncr.top/Article/details/70923674.shtml)
+- 2026-06-29 12:07 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/56431380.shtml)
+- 2026-06-29 12:13 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/804766.shtml)
+- 2026-06-29 12:01 - [光大期货：4月13日软商品日报](http://www.blog.minike.top/Article/details/35034312.shtml)
+- 2026-06-29 11:55 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/99230.shtml)
+- 2026-06-29 12:17 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.share.kurohicncr.top/Article/details/31408076905.shtml)
+- 2026-06-29 12:14 - [天津边检推多项便利举措 助力高水平对外开放](http://www.blog.minike.top/Article/details/24740624494.shtml)

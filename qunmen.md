@@ -1,57 +1,57 @@
-# 英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效
+# 超百位港籍长者入住深圳光明区养老
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-英特尔对当季给出了强劲的销售预测，这表明这家陷入困境的芯片制造商终于开始从人工智能基础设施的大规模建设中受益。 该公司周四在一份声明中表示，截至6月的季度营收预计在138亿美元至148亿美元之间。数据显示分析师平均预期为130亿美元。剔除特定项目后的每股收益约为20美分，而华尔街此前预测为9美分。 英特尔首席执行官陈立武表示，他正“全力以赴”提高工厂产量。 英特尔股价在盘后交易
+中新网深圳4月12日电 (记者 索有为)百位港籍长者入住仪式12日在位于深圳市光明区的高乐亦嘉(光明社会福利院)举行，至此，入住光明区养老的港籍长者超过一百位。 近年来，深圳市积极探索服务模式、努力创新服务内容，为辖区长者提供高品质养老服务，并有数家养老院成功纳入香港特别行政区政府社会福利署认可的“广东院舍照顾服务计划”认可服务机构。高乐亦嘉(光明社会福利院)作为其中一家，于2
 
 ## 正文
 
-英特尔对当季给出了强劲的销售预测，这表明这家陷入困境的芯片制造商终于开始从人工智能基础设施的大规模建设中受益。
+中新网深圳4月12日电 (记者 索有为)百位港籍长者入住仪式12日在位于深圳市光明区的高乐亦嘉(光明社会福利院)举行，至此，入住光明区养老的港籍长者超过一百位。
 
-该公司周四在一份声明中表示，截至6月的季度营收预计在138亿美元至148亿美元之间。
+近年来，深圳市积极探索服务模式、努力创新服务内容，为辖区长者提供高品质养老服务，并有数家养老院成功纳入香港特别行政区政府社会福利署认可的“广东院舍照顾服务计划”认可服务机构。
 
-数据显示分析师平均预期为130亿美元。
+高乐亦嘉(光明社会福利院)作为其中一家，于2025年4月迎来首批4名香港长者入住。
 
-剔除特定项目后的每股收益约为20美分，而华尔街此前预测为9美分。
+“广东院舍照顾服务计划”是香港社会福利署自2014年6月起面向香港长者推行的社会福利政策，符合资格的长者入住“广东院舍照顾服务计划”认可的养老机构后，基本无需再支付在院舍的食宿费用、护理服务及个人照顾费用以及基本医疗费用。
 
-英特尔首席执行官陈立武表示，他正“全力以赴”提高工厂产量。
+据了解，高乐亦嘉(光明社会福利院)建筑面积约20000平方米，共设置377张床位，于2023年4月正式启用，能满足长者在医疗照护、康复理疗文化娱乐、智慧养老等方面的多元化需求。
 
-英特尔股价在盘后交易中上涨近20%。
+“这里就是我的家。
 
-在财报公布之前，该股今年已上涨81%，收于66.78美元。
+”长者代表陈少玲表示，住进福利院的这半年多日子，看到的是院内环境的干净整洁，房间明亮舒适，食堂饭菜营养可口，每一天都安排得贴心又周到，“福利院的工作人员就像我们的亲人一样，细心照护每一位老人，让我们的晚年生活不再孤单。
 
-乐观的前景表明首席执行官陈立武充满挑战的复兴计划正在推进。
+” 光明区民政局副局长张凯文表示，光明区民政局将强化机构支撑，深化港人跨境养老服务，积极引入香港先进服务标准与管理经验，持续提升机构养老品质。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:55 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:57 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:44 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:58 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:44 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:43 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:43 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:03 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:45 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:10 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:07 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:06 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:55 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:05 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:01 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:58 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:52 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:08 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:02 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:08 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.blog.minike.top/Article/details/84074.shtml)
-- 2026-06-29 11:54 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.blog.kurohicncr.top/Article/details/435696.shtml)
-- 2026-06-29 12:01 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.kurohicncr.top/Article/details/846514862946.shtml)
-- 2026-06-29 11:45 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/3433936.shtml)
-- 2026-06-29 11:52 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](http://www.blog.kurohicncr.top/Article/details/5519915.shtml)
-- 2026-06-29 12:11 - [美国航空因燃油价格上涨下调展望](http://www.blog.kurohicncr.top/Article/details/8416202.shtml)
-- 2026-06-29 12:02 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.minike.top/Article/details/55031456.shtml)
-- 2026-06-29 12:02 - [欧元区消费者信心下滑 凸显消费风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.blog.kurohicncr.top/Article/details/8617877.shtml)
-- 2026-06-29 12:06 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.share.kurohicncr.top/Article/details/59443208.shtml)
-- 2026-06-29 11:44 - [传习录丨读书，总书记倡导的生活方式](http://www.blog.kurohicncr.top/Article/details/415327.shtml)
-- 2026-06-29 12:09 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.minike.top/Article/details/491634.shtml)
-- 2026-06-29 11:52 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.blog.kurohicncr.top/Article/details/45355032892.shtml)
-- 2026-06-29 12:09 - [“6.0%”的浙江看点](http://www.blog.kurohicncr.top/Article/details/3145686.shtml)
+- 2026-06-29 11:51 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.blog.kurohicncr.top/Article/details/635090.shtml)
+- 2026-06-29 12:05 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.blog.minike.top/Article/details/18442.shtml)
+- 2026-06-29 11:53 - [天津边检推多项便利举措 助力高水平对外开放](http://www.blog.kurohicncr.top/Article/details/41706.shtml)
+- 2026-06-29 11:54 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.share.minike.top/Article/details/451693.shtml)
+- 2026-06-29 11:57 - [北摩高科：拟每10股分红1.3元](http://www.share.minike.top/Article/details/59257784.shtml)
+- 2026-06-29 12:14 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.blog.minike.top/Article/details/4262449.shtml)
+- 2026-06-29 11:51 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.share.minike.top/Article/details/4259152094.shtml)
+- 2026-06-29 12:07 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.blog.kurohicncr.top/Article/details/782978324829.shtml)
+- 2026-06-29 12:14 - [比亚迪：公司储能业务在全球市场持续发力](http://www.share.kurohicncr.top/Article/details/60231849064.shtml)
+- 2026-06-29 12:03 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.share.kurohicncr.top/Article/details/754619.shtml)
+- 2026-06-29 11:53 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [以军空袭黎南部造成至少24人死亡](http://www.share.minike.top/Article/details/542402837.shtml)

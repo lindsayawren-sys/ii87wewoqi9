@@ -1,60 +1,48 @@
-# 德政府据悉正与波兰就石油替代供应展开磋商
+# 贝壳-W于4月9日斥资700万美元回购133.6万股
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-据德国政府圈内消息，为确保德国东部炼油厂的原油供应安全，德国联邦政府正与波兰政府就通过格但斯克港进口替代性原油进行谈判。此举旨在为彻底停止进口俄罗斯原油做准备，并应对因中东局势动荡可能导致的供应中断。 报道称，德波两国技术团队已在华沙举行初步会谈，讨论利用波兰的港口及管道基础设施，将北海、西非或中东原油输送至德国施韦特、洛伊纳等主要炼油厂。这些炼油厂目前主要依赖“友谊”管道输送
+贝壳-W（02423）发布公告，于2026年4月9日，该公司斥资700万美元回购133.6万股。责任编辑：卢昱君
 
 ## 正文
 
-据德国政府圈内消息，为确保德国东部炼油厂的原油供应安全，德国联邦政府正与波兰政府就通过格但斯克港进口替代性原油进行谈判。
+贝壳-W（02423）发布公告，于2026年4月9日，该公司斥资700万美元回购133.6万股。
 
-此举旨在为彻底停止进口俄罗斯原油做准备，并应对因中东局势动荡可能导致的供应中断。
-
-报道称，德波两国技术团队已在华沙举行初步会谈，讨论利用波兰的港口及管道基础设施，将北海、西非或中东原油输送至德国施韦特、洛伊纳等主要炼油厂。
-
-这些炼油厂目前主要依赖“友谊”管道输送的俄罗斯原油。
-
-然而，德波能源合作的深化面临显著的政治障碍。
-
-波兰总理图斯克已多次明确表示，恢复与俄罗斯的能源合作“绝无可能”，并强调能源安全关乎“真正的主权问题”，波兰仅与“可以依赖的伙伴”开展合作。
-
-这一强硬立场意味着，任何涉及俄罗斯能源背景的替代方案都将遭到波方坚决抵制。
-
-此前，德国和波兰已承诺在今年年底前停止购买俄罗斯石油，相关计划正在具体化。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:04 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:04 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:43 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:45 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:50 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:03 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:51 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:45 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:56 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:09 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:52 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:56 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:45 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:59 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:17 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:51 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:59 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:00 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:11 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:56 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:16 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:04 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:51 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:48 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:13 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:52 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:15 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.share.minike.top/Article/details/53684383328.shtml)
-- 2026-06-29 11:52 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.share.minike.top/Article/details/8187976960.shtml)
-- 2026-06-29 12:06 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.kurohicncr.top/Article/details/34473.shtml)
-- 2026-06-29 11:47 - [小食堂托起晚年大幸福](http://www.blog.kurohicncr.top/Article/details/054830576.shtml)
-- 2026-06-29 11:42 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.blog.kurohicncr.top/Article/details/599811.shtml)
-- 2026-06-29 11:59 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.blog.kurohicncr.top/Article/details/643549040.shtml)
-- 2026-06-29 11:57 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.kurohicncr.top/Article/details/22526695.shtml)
-- 2026-06-29 12:04 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.blog.kurohicncr.top/Article/details/26214690259.shtml)
-- 2026-06-29 11:54 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.blog.minike.top/Article/details/2419756.shtml)
-- 2026-06-29 11:46 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [宁夏：“垂钓节”绘就乡村振兴新画卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.kurohicncr.top/Article/details/14729542739.shtml)
-- 2026-06-29 11:56 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.share.kurohicncr.top/Article/details/029090.shtml)
+- 2026-06-29 11:57 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.kurohicncr.top/Article/details/29775.shtml)
+- 2026-06-29 12:15 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.share.minike.top/Article/details/58922028.shtml)
+- 2026-06-29 12:03 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/4529602407.shtml)
+- 2026-06-29 11:50 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.kurohicncr.top/Article/details/1783730044.shtml)
+- 2026-06-29 11:52 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [股价跌近3%，保变电气回应年报多项指标变动原因](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.share.minike.top/Article/details/16276977.shtml)
+- 2026-06-29 12:10 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.share.minike.top/Article/details/0631321308.shtml)
+- 2026-06-29 12:09 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.minike.top/Article/details/42584.shtml)
+- 2026-06-29 11:56 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.blog.kurohicncr.top/Article/details/4712352.shtml)
+- 2026-06-29 11:48 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.blog.kurohicncr.top/Article/details/2394342.shtml)
+- 2026-06-29 11:57 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.share.kurohicncr.top/Article/details/73478516400.shtml)

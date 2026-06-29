@@ -1,57 +1,57 @@
-# 天津生物多样性保护水平提升 已记录野生鸟类增至475种
+# 柳化股份业绩预告“大变脸”，受损股民或可索赔
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网天津4月23日电 (记者 王君妍)23日，天津市生态环境局召开生态文明示范建设成果专题发布会。会上，天津市生态环境局副局长李志军介绍，天津生物多样性保护水平持续提升，目前全市已记录野生鸟类增至475种。 李志军说，天津持续深入打好污染防治攻坚战，生态环境质量持续稳定改善。2025年，全市PM2.5年均浓度36.2微克/立方米、较“十三五”下降25%，优良天数比率达到77%
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、业绩预告突然“变脸” 4月10日晚间，柳化股份（维权）2025年业绩预告突然“大变脸”，由原先预告的盈利逾600万元骤然转为巨亏3000万元。这一突如其来的转变，意味着公司将直面退市风险警示（*ST）。 具体来看，根据柳化股份发布的2025年年度业绩预告更正公告，公司预计2025年实现归属于上市公司股东的净利润为-3000万
 
 ## 正文
 
-中新网天津4月23日电 (记者 王君妍)23日，天津市生态环境局召开生态文明示范建设成果专题发布会。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、业绩预告突然“变脸” 4月10日晚间，柳化股份（维权）2025年业绩预告突然“大变脸”，由原先预告的盈利逾600万元骤然转为巨亏3000万元。
 
-会上，天津市生态环境局副局长李志军介绍，天津生物多样性保护水平持续提升，目前全市已记录野生鸟类增至475种。
+这一突如其来的转变，意味着公司将直面退市风险警示（*ST）。
 
-李志军说，天津持续深入打好污染防治攻坚战，生态环境质量持续稳定改善。
+具体来看，根据柳化股份发布的2025年年度业绩预告更正公告，公司预计2025年实现归属于上市公司股东的净利润为-3000万元，扣非净利润为-3020万元。
 
-2025年，全市PM2.5年均浓度36.2微克/立方米、较“十三五”下降25%，优良天数比率达到77%、提高10.1个百分点；地表水国控断面优良水质占比55.6%。
+然而，在不到三个月前的1月21日，公司发布的业绩预告称，预计2025年归属于上市公司股东的净利润为628万元。
 
-“十四五”期间无劣Ⅴ类水质断面，近岸海域优良水质占比73.3%。
+对于此次业绩的巨大落差，柳化股份在公告中给出的解释直指审计环节：“与前次业绩预告相比，审计机构采取了更为审慎的原则，对公司计提大额资产减值损失，致使本期利润减少。
 
-李志军介绍，天津重点实施七里海、大黄堡等湿地保护修复工程、高标准推进绿色生态屏障区建设，加快实施“蓝色海湾”整治修复，目前，全市已记录野生鸟类增至475种，生物多样性保护水平持续提升，宁河区成功获评联合国“生物多样性魅力城市”和“自然城市”。
+” 二、退市风险高悬 值得注意的是由于同时触及“净利润为负”与“营收低于3亿”两条硬指标，待4月25日正式年报披露后，柳化股份难逃被*ST的命运。
 
-他还表示，“十五五”期间，天津将依托山水林田湖海湿齐聚的独特生态本底，以“两山”基地建设为重要抓手，充分挖掘生态价值，持续探索、拓宽“两山”转化路径，全力推进生态文明示范建设，实现生态效益、经济效益与民生福祉多赢，让生态红利真正惠及千家万户。
+上海沪紫律师事务所刘鹏律师表示上市公司业绩预告不准或变脸的现象，至少是上市公司编制业绩预告工作的不准确和不透明问题，这意味着公司的财务管理不规范和内部控制不完善。
 
-(完)
+柳化股份这种业绩“大变脸”的行为，已经构成证券虚假陈述，上市公司因信息披露违法违规导致投资者遭受损失的，受损投资者有权依法提起民事赔偿诉讼。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:11 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:58 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:53 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:45 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:55 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:53 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:53 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:53 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:08 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:48 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:08 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:53 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:02 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:06 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:11 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:08 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:59 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:12 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:09 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:59 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:15 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.share.minike.top/Article/details/6889476748.shtml)
-- 2026-06-29 11:48 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.kurohicncr.top/Article/details/04572647.shtml)
-- 2026-06-29 11:45 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.blog.minike.top/Article/details/8825270910.shtml)
-- 2026-06-29 11:51 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.share.kurohicncr.top/Article/details/843663561666.shtml)
-- 2026-06-29 11:45 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.share.minike.top/Article/details/1166284540.shtml)
-- 2026-06-29 11:54 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.minike.top/Article/details/3350310744.shtml)
-- 2026-06-29 12:05 - [宁夏：“垂钓节”绘就乡村振兴新画卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.kurohicncr.top/Article/details/715588142.shtml)
-- 2026-06-29 11:56 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.blog.kurohicncr.top/Article/details/876999.shtml)
-- 2026-06-29 12:07 - [日本以国家安全风险为由 反对韩国MBK Partners收购牧野铣床](http://www.blog.kurohicncr.top/Article/details/766273.shtml)
-- 2026-06-29 11:51 - [分析师：股市正艰难维持平衡态势](http://www.share.kurohicncr.top/Article/details/7862375.shtml)
-- 2026-06-29 12:01 - [芯片制造商股价延续史上最长涨势 受德州仪器强劲业绩提振](http://www.share.kurohicncr.top/Article/details/703121739.shtml)
-- 2026-06-29 12:06 - [夏凤俭任山东省人民政府副省长](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [普华永道涉恒大审计失当 被香港会财局罚款3.1亿港元](http://www.blog.minike.top/Article/details/70407167744.shtml)
-- 2026-06-29 11:48 - [从车间到星河 四川加速构建商业航天全产业链](http://www.share.kurohicncr.top/Article/details/13649417.shtml)
+- 2026-06-29 12:13 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/103653392.shtml)
+- 2026-06-29 12:09 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.share.kurohicncr.top/Article/details/62357074587.shtml)
+- 2026-06-29 12:00 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.minike.top/Article/details/604025853282.shtml)
+- 2026-06-29 11:55 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.kurohicncr.top/Article/details/67084710.shtml)
+- 2026-06-29 12:01 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.share.kurohicncr.top/Article/details/146325.shtml)
+- 2026-06-29 12:17 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.share.minike.top/Article/details/072170096.shtml)
+- 2026-06-29 12:04 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.blog.kurohicncr.top/Article/details/807178768700.shtml)
+- 2026-06-29 12:06 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/240485388.shtml)
+- 2026-06-29 12:13 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.blog.minike.top/Article/details/0492283954.shtml)
+- 2026-06-29 11:58 - [【西街观察】创业板不再“唯利润论”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定](http://www.share.kurohicncr.top/Article/details/38056.shtml)
+- 2026-06-29 12:11 - [特朗普：不在乎伊朗是否重返谈判桌](http://www.blog.minike.top/Article/details/8512524.shtml)
+- 2026-06-29 11:55 - [深蓝汽车喻成：新能源汽车进入大众阶段，产品要从早期“制造爽点”转向“打造差异化”](http://www.share.minike.top/Article/details/488870053896.shtml)
+- 2026-06-29 12:13 - [正式会谈前 伊美代表团将分别与巴基斯坦总理会面](http://www.share.minike.top/Article/details/89856.shtml)

@@ -1,59 +1,61 @@
-# 特朗普称正考虑由美国政府收购Spirit Airlines
+# 今夜，跳水！特朗普：美军将封锁！霍尔木兹海峡，再生变数！两艘油轮紧急掉头
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，他正在考虑让美国政府收购Spirit Airlines，表示这对联邦政府来说可能是一项不错的投资。 特朗普发表上述言论之际，针对这家陷入困境的航空公司，政府已经在权衡一项潜在救助方案。 “我们在考虑这么做，帮助他们，也就是救助他们，或者买下它。我们会把它买下来，”特朗普周四对记者表示，“我们将把它拿下来，几乎没有债务负担。他们有一些不错的飞机和优质资
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！伊朗局势突变！ 据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。 特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，他正在考虑让美国政府收购Spirit Airlines，表示这对联邦政府来说可能是一项不错的投资。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-特朗普发表上述言论之际，针对这家陷入困境的航空公司，政府已经在权衡一项潜在救助方案。
+伊朗局势突变！
 
-“我们在考虑这么做，帮助他们，也就是救助他们，或者买下它。
+据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。
 
-我们会把它买下来，”特朗普周四对记者表示，“我们将把它拿下来，几乎没有债务负担。
+他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。
 
-他们有一些不错的飞机和优质资产。
+特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗的残余力量终结。
 
-” 特朗普提出，美国可以在“油价下跌时”出售这家航空公司，从而获利。
+” 上述消息传开后，加密货币市场出现跳水，比特币跌破7.1万美元。
 
-他还称，此举将有助于保护该航空公司员工的就业岗位。
+截至发稿，比特币跌2.32%报70998美元，以太坊、BNB、Solana跌超2%，艾达币、Hyperliquid跌超4%。
 
-责任编辑：丁文武
+1个小时内，加密货币全网爆仓超1900万美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [英国行业组织称银行业已做好准备应对Mythos风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:54 - [特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:10 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:06 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:05 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:45 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:43 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:10 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:05 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:04 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:55 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:01 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:11 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:52 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:06 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:16 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:15 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:15 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:56 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:59 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:59 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:13 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:59 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:59 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:58 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:02 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:17 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:16 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [2025年贵州法院受理知识产权案件8608件审结7699件](http://www.share.minike.top/Article/details/41454.shtml)
-- 2026-06-29 11:56 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](http://www.share.kurohicncr.top/Article/details/95719553.shtml)
-- 2026-06-29 12:10 - [第六届亚洲沙滩运动会在海南省三亚市开幕](http://www.share.kurohicncr.top/Article/details/38306011.shtml)
-- 2026-06-29 11:51 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](http://www.share.kurohicncr.top/Article/details/81880.shtml)
-- 2026-06-29 11:45 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.blog.kurohicncr.top/Article/details/37239.shtml)
-- 2026-06-29 12:09 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.share.minike.top/Article/details/163475518.shtml)
-- 2026-06-29 12:08 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.blog.kurohicncr.top/Article/details/549998.shtml)
-- 2026-06-29 12:05 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.minike.top/Article/details/031138.shtml)
-- 2026-06-29 11:46 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.minike.top/Article/details/8259597.shtml)
-- 2026-06-29 11:48 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.blog.kurohicncr.top/Article/details/281871.shtml)
-- 2026-06-29 12:04 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.kurohicncr.top/Article/details/70099394.shtml)
-- 2026-06-29 12:08 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.blog.kurohicncr.top/Article/details/80283023512.shtml)
+- 2026-06-29 12:10 - [山东荣成：核电科普研学兴起](http://www.blog.kurohicncr.top/Article/details/580355891.shtml)
+- 2026-06-29 12:02 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.share.minike.top/Article/details/547074824.shtml)
+- 2026-06-29 12:09 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.blog.kurohicncr.top/Article/details/4311890722.shtml)
+- 2026-06-29 12:17 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.minike.top/Article/details/931702.shtml)
+- 2026-06-29 12:02 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.minike.top/Article/details/725315261.shtml)
+- 2026-06-29 12:13 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.share.kurohicncr.top/Article/details/63637307.shtml)
+- 2026-06-29 12:02 - [严格落实直播打赏新规谋求治理实效](http://www.share.minike.top/Article/details/288026304794.shtml)
+- 2026-06-29 12:10 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.minike.top/Article/details/8161428.shtml)
+- 2026-06-29 11:56 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.minike.top/Article/details/546374.shtml)
+- 2026-06-29 12:01 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.share.minike.top/Article/details/79283437157.shtml)
+- 2026-06-29 12:16 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.share.kurohicncr.top/Article/details/57701694.shtml)
+- 2026-06-29 12:01 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/48145114.shtml)
+- 2026-06-29 11:50 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/3664140237.shtml)
+- 2026-06-29 11:53 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/56698833136.shtml)

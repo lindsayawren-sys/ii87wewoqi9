@@ -1,60 +1,60 @@
-# 孙宇晨起诉与特朗普有关联的加密货币公司 指控其敲诈勒索
+# 2025年未分配利润为负值、毛利率下滑……保变电气最新回应
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-加密货币亿万富豪孙宇晨及其公司起诉美国总统特朗普联合创立的加密货币项目World Liberty Financial，指控该公司敲诈勒索，并实施“非法计划”来没收他的代币。 孙宇晨周二在旧金山联邦法院提交的诉状中还表示，“World Liberty正处于崩溃边缘”，并质疑该公司是否拥有足够的储备来支持其USD1稳定币。 诉讼文件显示，孙宇晨在2024年和2025年共投资4500
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日早盘，保变电气股价明显下跌。截至午间收盘，公司股价报14.88元/股，跌3.31%。 消息面上，4月10日晚，保变电气披露2025年年报。外界对公司2025年未分配利润为负值、经营活动产生的现金流量净额同比下降、毛利率下滑等问题颇为关注。 保变电气在2025年年报中提到，经中兴华会计师事务所（特殊
 
 ## 正文
 
-加密货币亿万富豪孙宇晨及其公司起诉美国总统特朗普联合创立的加密货币项目World Liberty Financial，指控该公司敲诈勒索，并实施“非法计划”来没收他的代币。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-孙宇晨周二在旧金山联邦法院提交的诉状中还表示，“World Liberty正处于崩溃边缘”，并质疑该公司是否拥有足够的储备来支持其USD1稳定币。
+4月13日早盘，保变电气股价明显下跌。
 
-诉讼文件显示，孙宇晨在2024年和2025年共投资4500万美元，购买了30亿枚World Liberty的WLFI代币，并因向该项目提供顾问服务而获得了另外10亿枚WLFI代币。
+截至午间收盘，公司股价报14.88元/股，跌3.31%。
 
-但他表示，在拒绝提供更多投资和支持后，他与World Liberty团队的关系在去年年中恶化。
+消息面上，4月10日晚，保变电气披露2025年年报。
 
-最近几周，孙宇晨和World Liberty在社交网络X上就该项目展开了激烈的争论。
+外界对公司2025年未分配利润为负值、经营活动产生的现金流量净额同比下降、毛利率下滑等问题颇为关注。
 
-与此同时，该项目与早期投资者的冲突加剧。
+保变电气在2025年年报中提到，经中兴华会计师事务所（特殊普通合伙）审计，保变电气母公司2025年年初未分配利润约-54.5亿元，2025年度实现净利润1057.4万元，盈余公积弥补亏损转入3.26亿元，资本公积弥补亏损转入约39.75亿元，2025年未分配利润约为-11.39亿元。
 
-World Liberty拒绝置评。
+公司目前不具备分红条件。
 
-孙宇晨在X上发帖表示，“不幸的是，World Liberty项目团队中的某些成员以违背特朗普总统价值观的方式运作该项目。
+对此，保变电气相关人士独家回应中国证券报·中证金牛座记者称，未分配利润为负数，主要与公司早些年投资新能源业务亏损较大有关。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:00 - [美中嘉和与妙佑医疗国际正式签署新合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:44 - [飙涨11倍！紫金矿业悄然炼成“锂”想版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:52 - [连续15日回购、四年累计耗资超千亿港元，友邦保险为何如此坚定？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:06 - [英国行业组织称银行业已做好准备应对Mythos风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:42 - [特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:08 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:52 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:03 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:49 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:48 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:48 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:59 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:05 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:06 - [国际观察：中国机遇为何吸引西班牙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:50 - [浙江绍兴一馆藏战国青铜剑被指多处拼接痕 文物部门介入核查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:58 - [西班牙首相用中文说“大家好” 收获全场掌声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:05 - [韩国政府将向收入下游70%人群发放现金援助 以缓解油价上涨压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:05 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:07 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:56 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:15 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:57 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:14 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:16 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:08 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:02 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:01 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](http://www.blog.kurohicncr.top/Article/details/337088397.shtml)
-- 2026-06-29 11:51 - [京雄快线预计2026年下半年开通运营](http://www.blog.minike.top/Article/details/07998927994.shtml)
-- 2026-06-29 11:48 - [北京多措并举推进扬尘治理 提高城市清洁度](http://www.share.kurohicncr.top/Article/details/0336718082.shtml)
-- 2026-06-29 11:52 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](http://www.share.minike.top/Article/details/3286631962.shtml)
-- 2026-06-29 12:01 - [2025年贵州法院受理知识产权案件8608件审结7699件](http://www.blog.kurohicncr.top/Article/details/907826334.shtml)
-- 2026-06-29 11:55 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](http://www.blog.kurohicncr.top/Article/details/538565.shtml)
-- 2026-06-29 12:01 - [第六届亚洲沙滩运动会在海南省三亚市开幕](http://www.share.kurohicncr.top/Article/details/101498946.shtml)
-- 2026-06-29 11:42 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.share.minike.top/Article/details/8965980.shtml)
-- 2026-06-29 11:53 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.minike.top/Article/details/254145030.shtml)
-- 2026-06-29 11:53 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.share.kurohicncr.top/Article/details/737506662175.shtml)
-- 2026-06-29 11:45 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.blog.kurohicncr.top/Article/details/149926.shtml)
-- 2026-06-29 12:10 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.blog.kurohicncr.top/Article/details/88813935.shtml)
-- 2026-06-29 11:56 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.share.kurohicncr.top/Article/details/51088215683.shtml)
-- 2026-06-29 12:08 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](http://www.blog.kurohicncr.top/Article/details/96524568.shtml)
+- 2026-06-29 12:17 - [“津”非昔比丨这个春天必须冲天津海棠](http://www.blog.kurohicncr.top/Article/details/361610.shtml)
+- 2026-06-29 11:54 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](http://www.blog.minike.top/Article/details/6848591377.shtml)
+- 2026-06-29 12:17 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](http://www.blog.minike.top/Article/details/80447026045.shtml)
+- 2026-06-29 12:11 - [山东荣成：核电科普研学兴起](http://www.blog.kurohicncr.top/Article/details/98801650981.shtml)
+- 2026-06-29 11:49 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.blog.kurohicncr.top/Article/details/29439.shtml)
+- 2026-06-29 11:57 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.share.minike.top/Article/details/78834242.shtml)
+- 2026-06-29 12:10 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.blog.minike.top/Article/details/03187405923.shtml)
+- 2026-06-29 12:06 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.kurohicncr.top/Article/details/192430.shtml)
+- 2026-06-29 12:04 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.minike.top/Article/details/18864.shtml)
+- 2026-06-29 12:12 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [严格落实直播打赏新规谋求治理实效](http://www.share.kurohicncr.top/Article/details/464712721.shtml)
+- 2026-06-29 11:50 - [（经济观察）封关赋能开放 外资加速入琼](http://www.share.minike.top/Article/details/230234.shtml)
+- 2026-06-29 12:08 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.minike.top/Article/details/831306.shtml)
+- 2026-06-29 12:00 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.kurohicncr.top/Article/details/194896978.shtml)

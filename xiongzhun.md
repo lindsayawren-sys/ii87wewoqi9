@@ -1,58 +1,59 @@
-# 中办 国办发布关于更高水平更高质量做好节能降碳工作的意见
+# 33城公积金年报，20城超半数人只缴不用？
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-新华社北京4月22日电中共中央办公厅国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 （2026年4月11日） 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。 一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十
+每经记者|程晓玲 每经编辑|杨欢 近段时间，有关“沉睡”的10万亿元公积金讨论热烈。眼下，全国主要城市2025年住房公积金年报相继出炉。我们统计了包括29座GDP万亿城市、15座副省级城市在内的共33座城市年报核心数据。 先来看缴存情况，2025年，33城住房公积金缴存额总计超2.13万亿元。其中，北京、上海、广州、深圳、杭州缴存额均在1000亿元以上，排名前五。 从人均缴存额
 
 ## 正文
 
-新华社北京4月22日电中共中央办公厅国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 （2026年4月11日） 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。
+每经记者|程晓玲 每经编辑|杨欢 近段时间，有关“沉睡”的10万亿元公积金讨论热烈。
 
-为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。
+眼下，全国主要城市2025年住房公积金年报相继出炉。
 
-一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，认真落实四中全会部署，完整准确全面贯彻新发展理念，坚持稳中求进工作总基调，坚持有效市场和有为政府相结合，统筹发展和安全，一以贯之坚持节约优先方针，把节能降碳贯穿经济社会发展全过程各方面，更高水平、更高质量做好节能降碳工作，坚决遏制能源消费总量不合理增长，持续提升能源资源产出效率，从源头有效减少碳排放，为实现碳达峰碳中和、加快经济社会发展全面绿色转型提供有力保障。
+我们统计了包括29座GDP万亿城市、15座副省级城市在内的共33座城市年报核心数据。
 
-二、协同推进节能降碳与绿色转型 （一）统筹节能降碳与产业优化升级。
+先来看缴存情况，2025年，33城住房公积金缴存额总计超2.13万亿元。
 
-加强节能降碳与产业规划、产能调控等政策衔接协同，强化节能降碳激励约束和标准提升引领，持续降低产业对能源的依赖。
+其中，北京、上海、广州、深圳、杭州缴存额均在1000亿元以上，排名前五。
 
-大力推广节能低碳、清洁生产技术装备和产品，积极推行市场化节能降碳服务，支持运用数智技术、绿色技术改造提升传统产业。
+从人均缴存额看，北京（3.59万元）、上海（2.89万元）、杭州（2.8万元）、广州（2.6万元）、南京（2.58万元）位居前列；东莞、唐山、佛山、常州、深圳人均缴存额较低，在1万元~1.8万元之间。
 
-有力有效管控高耗能高排放项目，依法有序推进落后低效产能和工艺设备出清，协同化解重点产业结构性矛盾。
+公积金缴存覆盖面（实缴人数占常住人口比重）方面，北京最高（42.7%），其次为深圳（40.5%）、上海（37.2%）、苏州（36.3%）、杭州（31.9%）；泉州最低（7.3%）。
 
-加快发展先进制造业、高新技术产业和现代服务业，大力发展绿色低碳产业，积极培育有利于节能降碳的新产业、新业态。
+泉州如此特殊，与当地民营经济高度分散化特征有关——对政策导向的公积金制度落实和接受程度相对滞后，表现在缴存规模与覆盖面上也相对靠后。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:57 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:03 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:45 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:56 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:43 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:48 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:09 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:04 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:45 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:11 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:44 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:57 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:15 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:03 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:15 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:16 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:04 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:50 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:50 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:00 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:06 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:01 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:00 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:03 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [军号再次吹响，这次是接他们回家](http://www.blog.minike.top/Article/details/683604595.shtml)
-- 2026-06-29 12:08 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.kurohicncr.top/Article/details/358056.shtml)
-- 2026-06-29 12:11 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.share.minike.top/Article/details/10304.shtml)
-- 2026-06-29 12:11 - [浙江行刑联动破题商业秘密保护“三难”](http://www.blog.minike.top/Article/details/126332400948.shtml)
-- 2026-06-29 11:59 - [社保基金重仓+机构高关注股来了（附名单）](http://www.blog.kurohicncr.top/Article/details/0954204.shtml)
-- 2026-06-29 11:55 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.share.kurohicncr.top/Article/details/28734498.shtml)
-- 2026-06-29 11:51 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.kurohicncr.top/Article/details/322166813.shtml)
-- 2026-06-29 12:10 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.kurohicncr.top/Article/details/82337838.shtml)
-- 2026-06-29 12:07 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [述评：数字时代 浙江书香何处寻？](http://www.share.kurohicncr.top/Article/details/738091726563.shtml)
-- 2026-06-29 11:47 - [牛弹琴：伊朗反击了](http://www.share.minike.top/Article/details/1029675964.shtml)
-- 2026-06-29 12:06 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.blog.kurohicncr.top/Article/details/26742.shtml)
-- 2026-06-29 11:47 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/66666.shtml)
-- 2026-06-29 11:43 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.blog.kurohicncr.top/Article/details/544681176.shtml)
-- 2026-06-29 11:52 - [证监会出手！4只A股被立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.blog.kurohicncr.top/Article/details/00487556.shtml)
+- 2026-06-29 11:56 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.blog.kurohicncr.top/Article/details/0871116.shtml)
+- 2026-06-29 11:58 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.blog.kurohicncr.top/Article/details/9460158769.shtml)
+- 2026-06-29 12:17 - [普京宣布成立委员会制定俄人工智能发展战略](http://www.blog.kurohicncr.top/Article/details/7925848455.shtml)
+- 2026-06-29 12:09 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.share.kurohicncr.top/Article/details/21984207626.shtml)
+- 2026-06-29 12:02 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.kurohicncr.top/Article/details/133334474.shtml)
+- 2026-06-29 12:04 - [第一观察｜习近平主席寄望中美青年](http://www.blog.kurohicncr.top/Article/details/237184927936.shtml)
+- 2026-06-29 12:16 - [超百位港籍长者入住深圳光明区养老](http://www.share.kurohicncr.top/Article/details/601184796488.shtml)
+- 2026-06-29 12:07 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.blog.minike.top/Article/details/15055.shtml)
+- 2026-06-29 12:02 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.share.minike.top/Article/details/42731857132.shtml)
+- 2026-06-29 12:01 - [周亚琳（女，1977年生），年薪1013.5万元](http://www.share.minike.top/Article/details/13983419.shtml)
+- 2026-06-29 12:09 - [人民之心｜“为官一任，造福一方”](http://www.share.kurohicncr.top/Article/details/58007548415.shtml)
+- 2026-06-29 12:09 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.minike.top/Article/details/32508929.shtml)
+- 2026-06-29 11:58 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.minike.top/Article/details/5565751.shtml)
+- 2026-06-29 11:55 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.blog.minike.top/Article/details/0178647137.shtml)

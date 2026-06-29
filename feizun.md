@@ -1,59 +1,56 @@
-# 英伟达参投AI公司Vast Data，估值达300亿美元
+# 辽宁持续发力打造营商环境好口碑
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-核心要点 Vast Data 周三宣布完成 10 亿美元融资，估值达 300 亿美元，英伟达是此次投资方之一。 Vast Data 成立于 2016 年，主营用于管理海量数据的软件基础设施，聚焦人工智能应用领域。该公司表示，其技术可支撑搭载数百万颗 GPU 的项目运行，客户包括 CoreWeave、Mistral、美国空军以及 Cursor 等。 此轮融资后，Vast Data
+“一斤能卖多少钱？”“发往省外多久能到？” 近日，辽宁鞍山的一场农产品直播间里，来了一位特殊的“场外观众”——省委书记许昆林。他站在手机屏幕旁，仔细查看实时订单数据，问得比主播还细。 这场调研看似寻常，却是辽宁营商环境百日攻坚的一次临时“抽考”。而许昆林盯的那块屏幕，照见了这一百天最真实的变化。 一百天前，2026年开年，辽宁以“新年第一会”将营商环境定为“最重要、最现实、最紧
 
 ## 正文
 
-核心要点 Vast Data 周三宣布完成 10 亿美元融资，估值达 300 亿美元，英伟达是此次投资方之一。
+“一斤能卖多少钱？
 
-Vast Data 成立于 2016 年，主营用于管理海量数据的软件基础设施，聚焦人工智能应用领域。
+”“发往省外多久能到？
 
-该公司表示，其技术可支撑搭载数百万颗 GPU 的项目运行，客户包括 CoreWeave、Mistral、美国空军以及 Cursor 等。
+” 近日，辽宁鞍山的一场农产品直播间里，来了一位特殊的“场外观众”——省委书记许昆林。
 
-此轮融资后，Vast Data 的估值较 2023 年上一轮融资时的 91 亿美元飙升逾两倍。
+他站在手机屏幕旁，仔细查看实时订单数据，问得比主播还细。
 
-据 Dealroom 统计，今年全球 AI 企业已完成创纪录规模的融资，投资者出资总额达 2805 亿美元，其中 OpenAI、Anthropic 和 xAI 三家就募资超 1700 亿美元。
+这场调研看似寻常，却是辽宁营商环境百日攻坚的一次临时“抽考”。
 
-Vast Data 本轮 F 轮融资由 Drive Capital 和 Access Industries 领投，富达管理研究公司、NEA 以及英伟达参与跟投，融资包含新股发行与老股转让两部分。
+而许昆林盯的那块屏幕，照见了这一百天最真实的变化。
 
-Drive Capital 联合创始人兼合伙人克里斯・奥尔森在声明中表示：“人工智能应用的普及规模与速度，正在催生一类全新的基础设施企业。
+一百天前，2026年开年，辽宁以“新年第一会”将营商环境定为“最重要、最现实、最紧迫的战略任务”。
 
-” “VAST 正成为该领域毫无争议的领导者，其架构与发展势头足以支撑全球要求最严苛的人工智能环境。
+彼时外界半信半疑：东北的营商环境，真能改？
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:11 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:58 - [亚马逊进军GLP-1医疗领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:42 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:55 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:57 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:47 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:54 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:52 - [猪价下跌的背后：本轮猪周期的变与不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:59 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:44 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:48 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:52 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:04 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:49 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:50 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:14 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:11 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:58 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:08 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:05 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:12 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:05 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [红利主题“双引擎”：华夏基金这两只ETF，正在重新定义2026年的超额收益](http://www.share.minike.top/Article/details/35437.shtml)
-- 2026-06-29 11:59 - [徽商银行2025年报：资产突破2.3万亿，存贷双增、资产向优](http://www.share.minike.top/Article/details/18585.shtml)
-- 2026-06-29 11:44 - [辽宁持续优化营商环境 2025年审结知识产权案件超1.1万件](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [运-20B接英烈回家，为何呼号“荣归50”？](http://www.share.minike.top/Article/details/4829792014.shtml)
-- 2026-06-29 11:46 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.share.minike.top/Article/details/91545250.shtml)
-- 2026-06-29 11:51 - [量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能](http://www.share.minike.top/Article/details/8500443793.shtml)
-- 2026-06-29 11:53 - [起势有力 量稳质升 长沙市外贸一季度同比增长17.6%](http://www.blog.kurohicncr.top/Article/details/20025.shtml)
-- 2026-06-29 11:51 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.kurohicncr.top/Article/details/58138.shtml)
-- 2026-06-29 11:59 - [“创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励](http://www.blog.kurohicncr.top/Article/details/8261788.shtml)
-- 2026-06-29 11:46 - [一季度中国经济领域改革热度继续维持高位](http://www.share.minike.top/Article/details/40812100.shtml)
-- 2026-06-29 12:04 - [学习新语｜共同构建地球生命共同体](http://www.share.minike.top/Article/details/848627.shtml)
-- 2026-06-29 12:09 - [欧元区私营部门商业活动意外萎缩 服务业大幅下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.kurohicncr.top/Article/details/27881803.shtml)
-- 2026-06-29 12:02 - [民企“常敲门” 精准服务“一老一小”](http://www.share.kurohicncr.top/Article/details/32349079.shtml)
-- 2026-06-29 12:09 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.minike.top/Article/details/68968276737.shtml)
+- 2026-06-29 11:49 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.share.minike.top/Article/details/6192999.shtml)
+- 2026-06-29 12:05 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.minike.top/Article/details/706922885709.shtml)
+- 2026-06-29 12:03 - [黎巴嫩称已同意周二举行停火谈判会议](http://www.share.kurohicncr.top/Article/details/376586198511.shtml)
+- 2026-06-29 12:05 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](http://www.share.kurohicncr.top/Article/details/38614.shtml)
+- 2026-06-29 12:05 - [Palantir的代理型人工智能势头强劲](http://www.blog.kurohicncr.top/Article/details/8613354.shtml)
+- 2026-06-29 12:02 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.share.kurohicncr.top/Article/details/55390347.shtml)
+- 2026-06-29 12:10 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.blog.minike.top/Article/details/19002.shtml)
+- 2026-06-29 11:59 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.blog.kurohicncr.top/Article/details/67450862740.shtml)
+- 2026-06-29 12:07 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.share.kurohicncr.top/Article/details/67455433.shtml)
+- 2026-06-29 12:02 - [国家疾控局发布通知推进重点虫媒传染病防控](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.kurohicncr.top/Article/details/953867600.shtml)
+- 2026-06-29 12:01 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.share.kurohicncr.top/Article/details/2185230.shtml)
+- 2026-06-29 12:01 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.kurohicncr.top/Article/details/40258.shtml)
+- 2026-06-29 11:59 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/647563370.shtml)

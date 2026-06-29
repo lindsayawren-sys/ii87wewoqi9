@@ -1,46 +1,58 @@
-# 中海油服：一季度归母净利润8.56亿元，同比下滑3.60%
+# 羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中海油服4月22日公告，2026年第一季度实现营业收入112.96亿元，同比增长4.60%；归属于上市公司股东的净利润8.56亿元，同比下滑3.60%；基本每股收益0.18元。
+中新社宁波4月11日电 (张煜欢)11日，2026亚洲羽毛球锦标赛在浙江宁波展开半决赛争夺。中国女双组合刘圣书/谭宁与李怡婧/罗徐敏分别战胜各自对手，成功会师决赛，提前为中国羽毛球队包揽本届亚锦赛女双冠亚军。单打赛场，王祉怡逆转山口茜，石宇奇轻取周天成，双双晋级决赛。 女双赛场，面对此前爆冷淘汰韩国名将白荷娜/李绍希的印尼“黑马”阿玛莉亚/拉马丹蒂，刘圣书/谭宁直落两局击败对手
 
 ## 正文
 
-中海油服4月22日公告，2026年第一季度实现营业收入112.96亿元，同比增长4.60%；归属于上市公司股东的净利润8.56亿元，同比下滑3.60%；基本每股收益0.18元。
+中新社宁波4月11日电 (张煜欢)11日，2026亚洲羽毛球锦标赛在浙江宁波展开半决赛争夺。
+
+中国女双组合刘圣书/谭宁与李怡婧/罗徐敏分别战胜各自对手，成功会师决赛，提前为中国羽毛球队包揽本届亚锦赛女双冠亚军。
+
+单打赛场，王祉怡逆转山口茜，石宇奇轻取周天成，双双晋级决赛。
+
+女双赛场，面对此前爆冷淘汰韩国名将白荷娜/李绍希的印尼“黑马”阿玛莉亚/拉马丹蒂，刘圣书/谭宁直落两局击败对手，挺进决赛。
+
+谭宁表示，这是首次与这对印尼组合交手，赛前难以做针对性准备，更多是依靠临场感觉调整战术。
+
+女单方面，中国选手王祉怡在先丢一局的情况下连扳两局，逆转日本名将山口茜，锁定决赛席位。
+
+王祉怡将在决赛再度迎战现世界排名第一的韩国选手安洗莹。
+
+展望这场对决，王祉怡表示：“明天将会是一场艰苦的对决，希望把自己最好的状态展现出来。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:03 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:02 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:02 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:52 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:57 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:55 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:04 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:51 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:59 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:59 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:07 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:58 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:57 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:53 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:59 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:04 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:11 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:09 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:04 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:16 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:02 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:58 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:00 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:07 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:57 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.kurohicncr.top/Article/details/46266.shtml)
-- 2026-06-29 12:04 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.kurohicncr.top/Article/details/227956.shtml)
-- 2026-06-29 12:07 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.share.minike.top/Article/details/898411.shtml)
-- 2026-06-29 11:58 - [ABB上调业绩指引、股价一度涨超5%](http://www.share.minike.top/Article/details/89486968633.shtml)
-- 2026-06-29 12:05 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.kurohicncr.top/Article/details/8008116.shtml)
-- 2026-06-29 11:44 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.share.minike.top/Article/details/849826214.shtml)
-- 2026-06-29 12:05 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.minike.top/Article/details/60011810536.shtml)
-- 2026-06-29 12:03 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.kurohicncr.top/Article/details/44890191.shtml)
-- 2026-06-29 12:00 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.kurohicncr.top/Article/details/12792459.shtml)
-- 2026-06-29 11:59 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.share.minike.top/Article/details/3359282.shtml)
-- 2026-06-29 12:03 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.share.kurohicncr.top/Article/details/615472.shtml)
-- 2026-06-29 11:55 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [香港学子安徽行收获满满](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.blog.minike.top/Article/details/44868790014.shtml)
+- 2026-06-29 12:09 - [日韩股市集体低开 韩股跌超2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.kurohicncr.top/Article/details/8604176.shtml)
+- 2026-06-29 12:16 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.share.kurohicncr.top/Article/details/0041218263.shtml)
+- 2026-06-29 11:56 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.kurohicncr.top/Article/details/06373928.shtml)
+- 2026-06-29 12:03 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/2990162075.shtml)
+- 2026-06-29 12:10 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.minike.top/Article/details/48541227657.shtml)
+- 2026-06-29 11:57 - [A股周一缩量上涨 创业板指创四年多新高](http://www.blog.minike.top/Article/details/07568902642.shtml)
+- 2026-06-29 12:07 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.minike.top/Article/details/5594656172.shtml)
+- 2026-06-29 11:58 - [*ST万方，停牌！拟终止上市！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [摩根大通就停火风险提示油价走势](http://www.share.minike.top/Article/details/41523.shtml)

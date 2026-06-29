@@ -1,47 +1,57 @@
-# 多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国
+# 2026年湖北省城市足球联赛开赛
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 20:21 来源：中国新闻网 4月22日，第十三批在韩中国人民志愿军烈士遗骸归国当日，沈阳市人民广场举行升旗仪式。现场，沈阳市少先队员代表们整齐列队，与志愿军老战士代表、抗美援朝烈士家属、杨根思烈士家乡江苏泰兴和“杨根思连”驻地河南许昌这两地少先队员代表，以及港澳台学生代表、沈阳市优秀青年和大学生代表，共800余人共同向归国先烈致敬。(记者 王
+发布时间：2026年04月13日 16:19 来源：中国新闻网 4月12日晚，2026年湖北省城市足球联赛揭幕战在湖北省黄石市奥体中心开赛。在揭幕战中，主场作战的黄石队1：1战平荆州恒隆队。据规划，首届“楚超”由湖北省17个市州(直管市、林区)各组建一支代表队参赛，进行146场比赛，全部安排在周末进行。第一阶段常规赛实行主客场单循环，展开17轮136场对决。常规赛前8名晋级第二
 
 ## 正文
 
-发布时间：2026年04月22日 20:21 来源：中国新闻网 4月22日，第十三批在韩中国人民志愿军烈士遗骸归国当日，沈阳市人民广场举行升旗仪式。
+发布时间：2026年04月13日 16:19 来源：中国新闻网 4月12日晚，2026年湖北省城市足球联赛揭幕战在湖北省黄石市奥体中心开赛。
 
-现场，沈阳市少先队员代表们整齐列队，与志愿军老战士代表、抗美援朝烈士家属、杨根思烈士家乡江苏泰兴和“杨根思连”驻地河南许昌这两地少先队员代表，以及港澳台学生代表、沈阳市优秀青年和大学生代表，共800余人共同向归国先烈致敬。
+在揭幕战中，主场作战的黄石队1：1战平荆州恒隆队。
 
-(记者 王艺霖 王涵 制作 韩浩天 方敏) 责任编辑：【于晓】
+据规划，首届“楚超”由湖北省17个市州(直管市、林区)各组建一支代表队参赛，进行146场比赛，全部安排在周末进行。
+
+第一阶段常规赛实行主客场单循环，展开17轮136场对决。
+
+常规赛前8名晋级第二阶段淘汰赛，争夺年度冠军。
+
+(吴淘淘） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [买理财险说好随用随取，到期才发现要105岁才能取本金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:44 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:57 - [美国称“布什号”航母已经在中央司令部责任区航行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:04 - [好客山东：每次相遇，都是久别重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:08 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:10 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:56 - [亚马逊进军GLP-1医疗领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:42 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:09 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:06 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:01 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:17 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:59 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:14 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:52 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:02 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:02 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:03 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:09 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:07 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:51 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:15 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:03 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:52 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:54 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:48 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [宁德时代与河南省五家重点国企达成战略合作](http://www.share.kurohicncr.top/Article/details/343391418429.shtml)
-- 2026-06-29 11:54 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](http://www.blog.minike.top/Article/details/6269314.shtml)
-- 2026-06-29 11:54 - [英国石油年度股东大会气氛紧张，股东就气候信息透明度发起抗议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [书页间的文明对话：埃及籍教师在长春读懂中埃共鸣](http://www.share.minike.top/Article/details/0320307901.shtml)
-- 2026-06-29 11:53 - [红利主题“双引擎”：华夏基金这两只ETF，正在重新定义2026年的超额收益](http://www.share.minike.top/Article/details/469908850623.shtml)
-- 2026-06-29 12:10 - [徽商银行2025年报：资产突破2.3万亿，存贷双增、资产向优](http://www.share.minike.top/Article/details/99929.shtml)
-- 2026-06-29 11:58 - [辽宁持续优化营商环境 2025年审结知识产权案件超1.1万件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [运-20B接英烈回家，为何呼号“荣归50”？](http://www.share.kurohicncr.top/Article/details/01956541.shtml)
-- 2026-06-29 12:03 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [起势有力 量稳质升 长沙市外贸一季度同比增长17.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/175492.shtml)
-- 2026-06-29 12:07 - [“创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励](http://www.blog.kurohicncr.top/Article/details/847485061690.shtml)
-- 2026-06-29 11:48 - [一季度中国经济领域改革热度继续维持高位](http://www.blog.minike.top/Article/details/5575628.shtml)
-- 2026-06-29 12:01 - [学习新语｜共同构建地球生命共同体](http://www.blog.kurohicncr.top/Article/details/3207286.shtml)
+- 2026-06-29 12:14 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/07402265892.shtml)
+- 2026-06-29 12:09 - [陕西渭南：华山迎壮丽日落景观](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.kurohicncr.top/Article/details/820880002833.shtml)
+- 2026-06-29 12:12 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.share.minike.top/Article/details/800182.shtml)
+- 2026-06-29 11:51 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.blog.minike.top/Article/details/866769283.shtml)
+- 2026-06-29 12:04 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.minike.top/Article/details/22006.shtml)
+- 2026-06-29 12:06 - [黎巴嫩称已同意周二举行停火谈判会议](http://www.blog.minike.top/Article/details/53818.shtml)
+- 2026-06-29 12:07 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](http://www.blog.minike.top/Article/details/4192937.shtml)
+- 2026-06-29 11:54 - [Palantir的代理型人工智能势头强劲](http://www.share.kurohicncr.top/Article/details/62598798100.shtml)
+- 2026-06-29 12:15 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.share.minike.top/Article/details/0584158938.shtml)
+- 2026-06-29 11:48 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.blog.minike.top/Article/details/893514.shtml)
+- 2026-06-29 11:48 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.share.minike.top/Article/details/11057.shtml)
+- 2026-06-29 12:06 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.share.kurohicncr.top/Article/details/51919.shtml)
+- 2026-06-29 11:48 - [国家疾控局发布通知推进重点虫媒传染病防控](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.share.kurohicncr.top/Article/details/93188.shtml)

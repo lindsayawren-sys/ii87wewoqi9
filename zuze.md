@@ -1,52 +1,58 @@
-# 涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应
+# 人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-人民财讯4月23日电，4月23日，据香港证监会披露，已与罗兵咸永道（普华永道在中国香港运营实体）达成协议，就中国恒大集团2019年及2020年的虚假财务报表，该机构预留10亿港元，以向中国恒大集团（中国恒大）的合资格独立少数股东作出赔偿。同时，香港会计及财务汇报局（会财局）披露，就恒大审计对罗兵咸永道处以三亿港元罚款及六个月执业限制，并对其两名前注册负责人合共处以一千万港元罚款
+发布时间：2026年04月12日 21:11 来源：中国新闻网 2026北京亦庄半程马拉松暨人形机器人半程马拉松即将于4月19日鸣枪开跑。4月11日晚至12日凌晨，北京亦庄组织开展了2026北京亦庄人形机器人半程马拉松全流程全要素测试活动，全面模拟赛道通行、流程调度、设备协同、应急保障等核心场景。报名赛队中，70余支队伍参加了此次测试，其中自主导航赛队和遥控赛队同场参加夜测。相
 
 ## 正文
 
-人民财讯4月23日电，4月23日，据香港证监会披露，已与罗兵咸永道（普华永道在中国香港运营实体）达成协议，就中国恒大集团2019年及2020年的虚假财务报表，该机构预留10亿港元，以向中国恒大集团（中国恒大）的合资格独立少数股东作出赔偿。
+发布时间：2026年04月12日 21:11 来源：中国新闻网 2026北京亦庄半程马拉松暨人形机器人半程马拉松即将于4月19日鸣枪开跑。
 
-同时，香港会计及财务汇报局（会财局）披露，就恒大审计对罗兵咸永道处以三亿港元罚款及六个月执业限制，并对其两名前注册负责人合共处以一千万港元罚款。
+4月11日晚至12日凌晨，北京亦庄组织开展了2026北京亦庄人形机器人半程马拉松全流程全要素测试活动，全面模拟赛道通行、流程调度、设备协同、应急保障等核心场景。
 
-罗兵咸永道回应称，香港会财局所施加的业务限制将不会影响该事务所的现有客户，相关限制只针对其未能在六个月内承接新的香港公众利益实体审计客户。
+报名赛队中，70余支队伍参加了此次测试，其中自主导航赛队和遥控赛队同场参加夜测。
 
-责任编辑：刘万里 SF014
+相比去年，本届赛事参赛队伍数量增长近5倍，总数超百支，其中自主导航赛队占比近4成，参赛数量、技术类型、测试范围均创历史新高。
+
+今年参赛的机器人和第一届选手们有何不同？
+
+它们在速度、灵活性、颜值上有何进步？
+
+快来跟着小新的镜头，直击凌晨夜赛现场。
+
+(记者 谢龙飞 董泽宇 陈杭） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:07 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:57 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:11 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:47 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:44 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:58 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:59 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:11 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:48 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:50 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:47 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:07 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:09 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:59 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:52 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:17 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:02 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:55 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:49 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:55 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:51 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:16 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:49 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:07 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:08 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:04 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.kurohicncr.top/Article/details/15735574.shtml)
-- 2026-06-29 11:56 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.share.kurohicncr.top/Article/details/6036486366.shtml)
-- 2026-06-29 11:46 - [国际刑事法院声称要对杜特尔特进行审判](http://www.blog.minike.top/Article/details/7954827.shtml)
-- 2026-06-29 12:10 - [上交所举办东南亚专题国际路演活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.minike.top/Article/details/0594742.shtml)
-- 2026-06-29 11:55 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.share.kurohicncr.top/Article/details/55981927693.shtml)
-- 2026-06-29 11:55 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.blog.minike.top/Article/details/442358123.shtml)
-- 2026-06-29 11:55 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.minike.top/Article/details/209969.shtml)
-- 2026-06-29 11:43 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.share.kurohicncr.top/Article/details/338131805.shtml)
-- 2026-06-29 12:05 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.kurohicncr.top/Article/details/36023536672.shtml)
-- 2026-06-29 12:06 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [军号再次吹响，这次是接他们回家](http://www.blog.kurohicncr.top/Article/details/21664.shtml)
-- 2026-06-29 12:04 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.share.minike.top/Article/details/81582690.shtml)
-- 2026-06-29 12:00 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.blog.minike.top/Article/details/22727430.shtml)
-- 2026-06-29 12:09 - [浙江行刑联动破题商业秘密保护“三难”](http://www.blog.kurohicncr.top/Article/details/506939188603.shtml)
+- 2026-06-29 12:06 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.blog.kurohicncr.top/Article/details/83444493488.shtml)
+- 2026-06-29 12:04 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.minike.top/Article/details/3323035.shtml)
+- 2026-06-29 12:13 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.minike.top/Article/details/1649342.shtml)
+- 2026-06-29 12:07 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/663645135853.shtml)
+- 2026-06-29 11:48 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.share.minike.top/Article/details/204660314.shtml)
+- 2026-06-29 11:49 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.blog.kurohicncr.top/Article/details/617755457.shtml)
+- 2026-06-29 12:05 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/598885501458.shtml)
+- 2026-06-29 12:09 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.blog.minike.top/Article/details/01917433.shtml)
+- 2026-06-29 12:01 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.blog.kurohicncr.top/Article/details/11751.shtml)
+- 2026-06-29 12:12 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.share.kurohicncr.top/Article/details/902569513095.shtml)
+- 2026-06-29 12:02 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [普京宣布成立委员会制定俄人工智能发展战略](http://www.blog.minike.top/Article/details/782817.shtml)

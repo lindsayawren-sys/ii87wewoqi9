@@ -1,60 +1,54 @@
-# 2025年贵州法院受理知识产权案件8608件审结7699件
+# 山东荣成：核电科普研学兴起
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网贵阳4月23日电 (记者 张伟)记者23日从贵州省高级人民法院举行的新闻发布会上获悉，2025年，贵州全省法院共受理知识产权案件8608件、审结7699件，同比分别增长37.31%、39.45%。其中，民事案件受理8387件、审结7504件，同比分别增长38.77%、40.84%；刑事案件受理221件、审结195件，同比分别下降1.78%、增长1.04%。数据显示，在民事
+辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？
 
 ## 正文
 
-中新网贵阳4月23日电 (记者 张伟)记者23日从贵州省高级人民法院举行的新闻发布会上获悉，2025年，贵州全省法院共受理知识产权案件8608件、审结7699件，同比分别增长37.31%、39.45%。
+辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！
 
-其中，民事案件受理8387件、审结7504件，同比分别增长38.77%、40.84%；刑事案件受理221件、审结195件，同比分别下降1.78%、增长1.04%。
+油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！
 
-数据显示，在民事案件中，数量排在前五的案件分别是侵害作品信息网络传播权纠纷、侵害商标权纠纷、技术服务合同纠纷、侵害其他著作财产权纠纷和侵害作品放映权纠纷。
+“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？
 
-刑事案件中，假冒注册商标罪和销售假冒注册商标的商品罪案件最多，两类案件合计占全部刑事案件的80%以上。
+记南部战区海军第一医院文职军医田剑：以针为媒传播中国强军之音律师起诉小红书，600元认证费成“肉包子打狗”？
 
-新闻发布会上，贵州高院对外发布2025年度知识产权司法保护典型案例与数据知识产权保全工作指引，集中展示了2025年贵州省常见、多发的知识产权案件类型，引导与警示社会公众树立知识产权法制意识。
-
-此次发布的十件典型案例聚焦民生领域侵权场景，涵盖图片、KTV等著作权侵权纠纷，白酒、饮料、餐饮、零售服务等商标侵权及不正当竞争案件，还包含非物质文化遗产保护案例。
-
-案例既彰显人民法院严格保护知识产权、对恶意侵权依法适用惩罚性赔偿的坚定立场，也体现司法柔性关怀，通过调解促成黔渝两地企业互助共赢，助力濒临停产企业恢复正常经营。
-
-为落实“十五五”规划纲要“深入推进数字中国建设、提升数智化发展水平”的部署要求，贵州高院创新知识产权保护理念与方法，联合贵州省知识产权局制定《数据知识产权保全工作指引(试行)》，进一步完善数据知识产权运用与保护规则，激活数据要素市场，为贵州数字经济发展创新区、数智产业集群建设提供坚实司法保障。
+西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”封关赋能开放 外资加速入琼从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席中国简牍宝库破圈揭秘丝路故事“千年药乡”陇西：种子上天入地享智能家居、机器保姆壮族绣球“赶潮”“三月三”成流量新宠680枚钱币、42件化石 外籍旅客携出境被海关查获北京人艺话剧《张居正》香港上演新兵遇雨天询问能否暂停体能训练 班长坚定回应天津“大象滑梯乐园”建成开放 解锁几代人童年记忆探访南京超级充电绿色示范站 快充只需十分钟现场直击郑丽文上海参访 感受两岸交流带来蓬勃生机郑丽文对话在沪台青，在沪台青：这里发展机遇多 能够酝酿人生的厚度当“爱笛声”遇上“保安诗人” 他们把生活写满诗歌1分钟10人同步跳绳258次外国友人勇闯泼水节狂欢现场机器人深夜狂飙半马 下班后开启躺平模式动物园为小黑熊举办“百日庆典”重庆动物园“萌
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:53 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:06 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:57 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:58 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:05 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:45 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:53 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:59 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:08 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:01 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:02 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:06 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:45 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:52 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:03 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:08 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:01 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:57 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:51 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:57 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:16 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:48 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:11 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:59 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:10 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:04 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:58 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.kurohicncr.top/Article/details/3838775.shtml)
-- 2026-06-29 11:57 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.blog.kurohicncr.top/Article/details/805984134978.shtml)
-- 2026-06-29 11:58 - [证监会出手！4只A股被立案！](http://www.blog.minike.top/Article/details/725063.shtml)
-- 2026-06-29 11:58 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.blog.minike.top/Article/details/631030596.shtml)
-- 2026-06-29 12:08 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.minike.top/Article/details/88417034.shtml)
-- 2026-06-29 11:49 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.kurohicncr.top/Article/details/9748046.shtml)
-- 2026-06-29 11:47 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.minike.top/Article/details/45739.shtml)
-- 2026-06-29 12:02 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.blog.minike.top/Article/details/0376822236.shtml)
-- 2026-06-29 11:50 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.kurohicncr.top/Article/details/1571901.shtml)
-- 2026-06-29 11:55 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.kurohicncr.top/Article/details/05577.shtml)
-- 2026-06-29 11:42 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.kurohicncr.top/Article/details/940402436188.shtml)
-- 2026-06-29 12:07 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.kurohicncr.top/Article/details/739772.shtml)
-- 2026-06-29 12:04 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.share.kurohicncr.top/Article/details/55262.shtml)
-- 2026-06-29 12:06 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.share.kurohicncr.top/Article/details/60677.shtml)
+- 2026-06-29 12:15 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.kurohicncr.top/Article/details/817148.shtml)
+- 2026-06-29 11:58 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.share.minike.top/Article/details/8956062608.shtml)
+- 2026-06-29 12:07 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](http://www.share.minike.top/Article/details/33220969.shtml)
+- 2026-06-29 12:04 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.blog.kurohicncr.top/Article/details/8677143.shtml)
+- 2026-06-29 12:03 - [香港学子安徽行收获满满](http://www.blog.minike.top/Article/details/184861013.shtml)
+- 2026-06-29 11:50 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/9247202.shtml)
+- 2026-06-29 11:52 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [日韩股市集体低开 韩股跌超2%](http://www.blog.minike.top/Article/details/9098132.shtml)
+- 2026-06-29 12:10 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.share.minike.top/Article/details/3600203263.shtml)
+- 2026-06-29 12:02 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.blog.kurohicncr.top/Article/details/43859166474.shtml)
+- 2026-06-29 12:01 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.minike.top/Article/details/99621401.shtml)
+- 2026-06-29 12:09 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.share.minike.top/Article/details/717808.shtml)
+- 2026-06-29 12:01 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.kurohicncr.top/Article/details/98152.shtml)

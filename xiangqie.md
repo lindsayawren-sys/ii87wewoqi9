@@ -1,44 +1,51 @@
-# 特朗普称美国“已完全控制了霍尔木兹海峡”
+# 美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，美国“已完全控制了霍尔木兹海峡”。
+美国3月预算赤字高于经济学家的预期。 根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。 8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。责任编辑：陈钰嘉
 
 ## 正文
 
-新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，美国“已完全控制了霍尔木兹海峡”。
+美国3月预算赤字高于经济学家的预期。
+
+根据美国财政部的数据，3月预算赤字为1641亿美元（经济学家预期为赤字1533亿美元）。
+
+8位经济学家的预测区间为赤字2280亿美元至赤字1390亿美元。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:42 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:48 - [达能销售额增长，美国市场重拾增长动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:50 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:45 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:52 - [西安检察探索知识产权保护“立体解题”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:05 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:45 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:47 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:58 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:07 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:01 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:14 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:09 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:49 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:01 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:56 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:15 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:57 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:50 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:03 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:15 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:58 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:51 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:50 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](http://www.share.kurohicncr.top/Article/details/74884849.shtml)
-- 2026-06-29 11:49 - [券商并购提速，板块或迎中长期关注契机](http://www.share.kurohicncr.top/Article/details/75364.shtml)
-- 2026-06-29 11:53 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](http://www.share.kurohicncr.top/Article/details/1469206129.shtml)
-- 2026-06-29 11:56 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.blog.kurohicncr.top/Article/details/57709.shtml)
-- 2026-06-29 11:47 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](http://www.share.kurohicncr.top/Article/details/48844.shtml)
-- 2026-06-29 11:44 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](http://www.blog.kurohicncr.top/Article/details/1049622524.shtml)
-- 2026-06-29 12:04 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](http://www.blog.minike.top/Article/details/21325493536.shtml)
-- 2026-06-29 11:52 - [Rivian：已开始生产全新纯电动车型R2](http://www.blog.kurohicncr.top/Article/details/38428.shtml)
-- 2026-06-29 11:57 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.share.kurohicncr.top/Article/details/7751463984.shtml)
-- 2026-06-29 11:46 - [“手工经济”兴起：换一种方式“感受生活”](http://www.share.minike.top/Article/details/32604147.shtml)
-- 2026-06-29 11:58 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.share.minike.top/Article/details/36998166.shtml)
-- 2026-06-29 11:44 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [接到这类电话，请立即挂断！](http://www.blog.kurohicncr.top/Article/details/82918522.shtml)
+- 2026-06-29 11:57 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](http://www.share.kurohicncr.top/Article/details/3323078.shtml)
+- 2026-06-29 12:08 - [5亿元科创基金100%投向中大成果转化](http://www.share.minike.top/Article/details/489236577455.shtml)
+- 2026-06-29 11:49 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.blog.minike.top/Article/details/2095588.shtml)
+- 2026-06-29 12:16 - [巴基斯坦总理会见美国副总统万斯](http://www.blog.kurohicncr.top/Article/details/6715355.shtml)
+- 2026-06-29 12:05 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.share.minike.top/Article/details/1208121.shtml)
+- 2026-06-29 12:02 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.share.minike.top/Article/details/32135.shtml)
+- 2026-06-29 11:54 - [第十四届北京国际风筝节启幕](http://www.share.minike.top/Article/details/8391132347.shtml)
+- 2026-06-29 11:55 - [张果彤:黄金中线二次探底概率较大](http://www.blog.minike.top/Article/details/80311881315.shtml)
+- 2026-06-29 12:03 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.blog.kurohicncr.top/Article/details/185388.shtml)
+- 2026-06-29 12:03 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [肉类食品巨头JBS罢工以加薪告终](http://www.share.minike.top/Article/details/3127857.shtml)
+- 2026-06-29 11:52 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.blog.kurohicncr.top/Article/details/529092.shtml)
+- 2026-06-29 11:54 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](https://github.com/lisacumin64-arch)

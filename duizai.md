@@ -1,59 +1,56 @@
-# 2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓
+# 小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统
 
-> 更新时间：2026-06-29 12:12:04 UTC+8
+> 更新时间：2026-06-29 12:18:04 UTC+8
 
 ## 摘要
 
-中新网柏林4月22日电 2026年“文化中国·水立方杯”中文歌曲大赛柏林赛区赛事近日落下帷幕。本届比赛自2月启动以来吸引广泛关注，共有142名选手报名参赛，年龄跨度从4岁至65岁。经初赛选拔，10名选手进入线下决赛，部分选手通过视频形式参与最终角逐。决赛现场，各组别选手表现亮眼：少年组选手欧一可自弹自唱《蓝莲花》，青年组选手张菁瑜演绎《坐上火车去拉萨》，留学生组选手栗嘉琦献唱《
+摩根大通发布研报称，金管局已宣布向汇丰控股（00005）及渣打集团（02888）合资企业发出稳定币发行人牌照。该行视此为正面发展，有助缓解市场对香港特区政府可能暂缓数字资产发展的担忧。 小摩指，由于汇丰及渣打均为香港的发钞银行，预期两家稳定币发行人将与金管局紧密合作，尽量减少稳定币流通对现有金融系统可能造成的干扰。在公司层面，该行预计汇丰与渣打将把稳定币整合至各自的支付生态系统
 
 ## 正文
 
-中新网柏林4月22日电 2026年“文化中国·水立方杯”中文歌曲大赛柏林赛区赛事近日落下帷幕。
+摩根大通发布研报称，金管局已宣布向汇丰控股（00005）及渣打集团（02888）合资企业发出稳定币发行人牌照。
 
-本届比赛自2月启动以来吸引广泛关注，共有142名选手报名参赛，年龄跨度从4岁至65岁。
+该行视此为正面发展，有助缓解市场对香港特区政府可能暂缓数字资产发展的担忧。
 
-经初赛选拔，10名选手进入线下决赛，部分选手通过视频形式参与最终角逐。
+小摩指，由于汇丰及渣打均为香港的发钞银行，预期两家稳定币发行人将与金管局紧密合作，尽量减少稳定币流通对现有金融系统可能造成的干扰。
 
-决赛现场，各组别选手表现亮眼：少年组选手欧一可自弹自唱《蓝莲花》，青年组选手张菁瑜演绎《坐上火车去拉萨》，留学生组选手栗嘉琦献唱《玫瑰三愿》，中年组选手则合唱《金梭和银梭》，展现出多样化的音乐风格与扎实的演唱实力。
+在公司层面，该行预计汇丰与渣打将把稳定币整合至各自的支付生态系统。
 
-经评委评审，多个奖项最终揭晓。
+相比之下，渣打在数字资产业务的布局更全面，因此可能拥有比汇丰更多的应用场景。
 
-少年组金奖由欧一可、邱若涵获得；青年组金奖为张菁瑜、叶家源、仇宗昕；留学生组金奖为栗嘉琦、邓苑君；中年组金奖由周茜、陈雪芬获得。
+该行并不预期稳定币业务在短期至中期内为两家银行带来显著的收入贡献，然而应有助提振汇丰及渣打两只股票的交易情绪。
 
-此外，栗嘉琦荣获“最佳美声唱法奖”，郑思琪获得网络人气奖冠军。
-
-根据赛制安排，少年组两名金奖获得者将代表柏林赛区赴北京参加全球总决赛及音乐夏令营，青年组金奖选手晋级全球线上总决赛。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:54 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:47 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:07 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:03 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:49 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:02 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:07 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:44 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:07 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:11 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:05 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:52 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:55 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:17 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:52 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:58 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:06 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:13 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:57 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:50 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:01 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:58 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:54 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:48 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.blog.kurohicncr.top/Article/details/42693262185.shtml)
-- 2026-06-29 11:44 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.minike.top/Article/details/95272.shtml)
-- 2026-06-29 11:51 - [小食堂托起晚年大幸福](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.share.minike.top/Article/details/027223.shtml)
-- 2026-06-29 12:06 - [伊朗总统称封锁和威胁是谈判的主要障碍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.blog.minike.top/Article/details/33485.shtml)
-- 2026-06-29 11:42 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.kurohicncr.top/Article/details/83463464251.shtml)
-- 2026-06-29 11:42 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.share.kurohicncr.top/Article/details/781976594895.shtml)
-- 2026-06-29 11:58 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.minike.top/Article/details/4500088398.shtml)
-- 2026-06-29 12:11 - [宁夏：“垂钓节”绘就乡村振兴新画卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.minike.top/Article/details/823132736020.shtml)
-- 2026-06-29 12:01 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.share.kurohicncr.top/Article/details/49166481.shtml)
-- 2026-06-29 12:09 - [日本以国家安全风险为由 反对韩国MBK Partners收购牧野铣床](http://www.share.minike.top/Article/details/6987232633.shtml)
+- 2026-06-29 12:02 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.share.minike.top/Article/details/63079.shtml)
+- 2026-06-29 12:08 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/40387926330.shtml)
+- 2026-06-29 12:00 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.kurohicncr.top/Article/details/2287731861.shtml)
+- 2026-06-29 11:54 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.blog.minike.top/Article/details/7324040209.shtml)
+- 2026-06-29 11:53 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.kurohicncr.top/Article/details/3661260.shtml)
+- 2026-06-29 12:15 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/505557119.shtml)
+- 2026-06-29 12:06 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.kurohicncr.top/Article/details/49225824.shtml)
+- 2026-06-29 12:13 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.minike.top/Article/details/71333983.shtml)
+- 2026-06-29 12:01 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.share.minike.top/Article/details/35970359.shtml)
+- 2026-06-29 11:58 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/4943110076.shtml)
+- 2026-06-29 12:02 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.blog.minike.top/Article/details/08493558022.shtml)
