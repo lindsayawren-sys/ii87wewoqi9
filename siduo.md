@@ -1,60 +1,54 @@
-# 中马深化本币结算合作 马来西亚中行推介人民币业务
+# 市场关注沃什的缩表举措
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网吉隆坡6月26日电 (记者 刘育英)马来西亚中国银行25日在吉隆坡举办2026年人民币业务推介会，纪念两大重要里程碑：该行担任马来西亚唯一在岸人民币结算行15周年，以及在马来西亚复业25周年。马来西亚国家银行、中国驻马大使馆、当地金融机构及企业代表出席活动。 中国驻马来西亚大使馆经济商务处公参孙淑强在致辞中表示，中马经贸合作根基持续巩固。中国连续17年稳居马来西亚第一大贸
+如果新任美联储主席沃什在通胀和政策不确定性使利率决策复杂化之际加速资产缩减，SPDR标普500 ETF信托基金可能面临压力。沃什以鹰派立场著称，市场预期他将比前任更积极地缩减美联储资产负债表。缩表将直接减少市场流动性，对风险资产构成利空。与此同时，中东冲突推高能源价格，使通胀前景变得更为复杂。投资者正在评估沃什时代的政策组合拳将如何影响经济增长和企业估值，债券和股票市场均呈现谨
 
 ## 正文
 
-中新网吉隆坡6月26日电 (记者 刘育英)马来西亚中国银行25日在吉隆坡举办2026年人民币业务推介会，纪念两大重要里程碑：该行担任马来西亚唯一在岸人民币结算行15周年，以及在马来西亚复业25周年。
+如果新任美联储主席沃什在通胀和政策不确定性使利率决策复杂化之际加速资产缩减，SPDR标普500 ETF信托基金可能面临压力。
 
-马来西亚国家银行、中国驻马大使馆、当地金融机构及企业代表出席活动。
+沃什以鹰派立场著称，市场预期他将比前任更积极地缩减美联储资产负债表。
 
-中国驻马来西亚大使馆经济商务处公参孙淑强在致辞中表示，中马经贸合作根基持续巩固。
+缩表将直接减少市场流动性，对风险资产构成利空。
 
-中国连续17年稳居马来西亚第一大贸易伙伴，2025年双边贸易额同比增长12%；双边贸易中的本币结算占比从2009年的1%提升至2025年约占四分之一。
+与此同时，中东冲突推高能源价格，使通胀前景变得更为复杂。
 
-2025年马中行人民币清算总额突破2.49万亿元人民币，有效提升双边贸易、投资及资本市场业务便利度。
+投资者正在评估沃什时代的政策组合拳将如何影响经济增长和企业估值，债券和股票市场均呈现谨慎交投氛围。
 
-马来西亚中国银行行长吴军介绍，中国银行2001年2月在马来西亚恢复营业。
-
-2011年马来西亚国家银行委任马中行为当地唯一在岸人民币业务结算行。
-
-十五年来，该行搭建覆盖贸易结算、融资、投资、交易、资金管理等各领域的人民币服务体系，打通PayNet与银联、微信支付互联互通渠道。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 16:25 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 16:29 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 16:27 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 16:24 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 16:29 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 16:18 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 16:44 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 16:41 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 16:40 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:28 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 16:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 16:44 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 16:33 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 16:33 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 16:46 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 16:25 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 16:25 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 16:39 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 16:40 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 16:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 16:26 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 16:26 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 16:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [极限挑战第一季](https://www.share.minike.top/Article/details/944452614.shtml)
-- 2026-06-29 16:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/82868098700.shtml)
-- 2026-06-29 16:40 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/655036469.shtml)
-- 2026-06-29 16:37 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/34593.shtml)
-- 2026-06-29 16:31 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/433246.shtml)
-- 2026-06-29 16:36 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/88340761961.shtml)
-- 2026-06-29 16:44 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/7033545533.shtml)
-- 2026-06-29 16:22 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/23663.shtml)
-- 2026-06-29 16:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/9130443.shtml)
-- 2026-06-29 16:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/5975368329.shtml)
-- 2026-06-29 16:23 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/24333480198.shtml)
-- 2026-06-29 16:37 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/346530.shtml)
-- 2026-06-29 16:34 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/800795039.shtml)
-- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/309624.shtml)
-- 2026-06-29 16:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/958553125.shtml)
+- 2026-06-29 16:32 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/2428764988.shtml)
+- 2026-06-29 16:30 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/9261139.shtml)
+- 2026-06-29 16:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/376192.shtml)
+- 2026-06-29 16:36 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/9622969.shtml)
+- 2026-06-29 16:52 - [105年初心滚烫](http://www.blog.minike.top/Article/details/844499.shtml)
+- 2026-06-29 16:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/787516593.shtml)
+- 2026-06-29 16:29 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/76022590.shtml)
+- 2026-06-29 16:51 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/52212356.shtml)
+- 2026-06-29 16:42 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/03816024.shtml)
+- 2026-06-29 16:39 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/4388582.shtml)
+- 2026-06-29 16:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/252623094.shtml)
+- 2026-06-29 16:25 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/4191408.shtml)
+- 2026-06-29 16:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/44492009555.shtml)
+- 2026-06-29 16:48 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/99959.shtml)
+- 2026-06-29 16:49 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/8963484.shtml)

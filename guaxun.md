@@ -1,59 +1,57 @@
-# 太行山上“黄金叶” 山西晋城一枝连翘成富民“饮”擎
+# 第一国民银行再获南卡罗来纳州最佳职场及军属最佳雇主双项殊荣
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网晋城6月26日电 (李庭耀 耿莉莉)6月26日，“世界目光·晋城机遇”2026海外华文媒体晋城行采访团走进位于山西省晋城市陵川县古郊乡古郊村的母亲茶庄。夏至已过，太行山中漫山遍野的连翘褪去金黄花冠，青叶正盛。十多年前，这里还没人想到，这些叶子能泡成一杯茶，更没人料到，这片叶子会成为带动1300多户农民增收的“黄金叶”。 “2010年的一场倒春寒，果子全冻坏了。”晋之翘连翘
+新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。此外，公司还同时获评为军属最佳雇主。 公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带
 
 ## 正文
 
-中新网晋城6月26日电 (李庭耀 耿莉莉)6月26日，“世界目光·晋城机遇”2026海外华文媒体晋城行采访团走进位于山西省晋城市陵川县古郊乡古郊村的母亲茶庄。
+新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。
 
-夏至已过，太行山中漫山遍野的连翘褪去金黄花冠，青叶正盛。
+此外，公司还同时获评为军属最佳雇主。
 
-十多年前，这里还没人想到，这些叶子能泡成一杯茶，更没人料到，这片叶子会成为带动1300多户农民增收的“黄金叶”。
+公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带来有意义的积极影响。
 
-“2010年的一场倒春寒，果子全冻坏了。
+他强调，南卡罗来纳州等令人兴奋的高增长市场对公司持续增长至关重要，公司的成功直接反映了对人才和当地社区的投资。
 
-”晋之翘连翘茶销售总经理赵雨璐讲述着母亲茶庄创始人许雪梅的创业起点：种了三年连翘眼看丰收，一场霜冻让药材生意几近归零。
+评选依据与员工反馈 最佳职场奖项由独立研究公司Energage管理，完全基于匿名的员工反馈，从价值观、沟通和领导力等多个维度对工作场所进行评估，仅有排名最高的公司才能因其企业文化获得认可。
 
-果实能入药，叶子为何不能另辟蹊径？
+支持军属的承诺 FNB被认定为军属最佳雇主，反映了其为军人家庭创造包容和支持性工作场所的承诺。
 
-记起作为赤脚医生的父亲曾在她小时候讲过“连翘叶子炒炒能喝”，许雪梅南下学习做茶。
+公司优先考虑灵活的就业机会、有竞争力的福利以及针对军属经常面临的搬迁和部署过渡等挑战而制定的周全政策。
 
-但南北原料迥异，工艺照搬不通，“师父教完，全靠自己一遍遍反复试验、摸索调整，才做出成品”。
+通过积极的招聘工作、职业发展支持以及与军人家庭支持组织的合作，FNB使军属和退伍军人能够在平衡其特殊环境需求的同时，建立有意义且长期的职业生涯。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 16:37 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 16:30 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 16:18 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:37 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 16:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 16:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 16:25 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 16:18 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 16:25 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 16:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 16:31 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 16:43 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 16:28 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 16:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 16:31 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 16:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 16:24 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 16:30 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 16:47 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 16:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 16:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/2181830215.shtml)
-- 2026-06-29 16:27 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/8253372.shtml)
-- 2026-06-29 16:22 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/68053990390.shtml)
-- 2026-06-29 16:21 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/664805.shtml)
-- 2026-06-29 16:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/092841.shtml)
-- 2026-06-29 16:20 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/89577206.shtml)
-- 2026-06-29 16:20 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/4988393.shtml)
-- 2026-06-29 16:21 - [天道](http://www.share.kurohicncr.top/Article/details/195328380.shtml)
-- 2026-06-29 16:46 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/3001141936.shtml)
-- 2026-06-29 16:40 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/875095241.shtml)
-- 2026-06-29 16:39 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/705634441.shtml)
-- 2026-06-29 16:21 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/928709.shtml)
-- 2026-06-29 16:35 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/05034383.shtml)
-- 2026-06-29 16:27 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/697678156063.shtml)
-- 2026-06-29 16:22 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/02821796.shtml)
+- 2026-06-29 16:37 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/33545124018.shtml)
+- 2026-06-29 16:53 - [105年初心滚烫](https://www.blog.minike.top/Article/details/55966086803.shtml)
+- 2026-06-29 16:52 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/0564153238.shtml)
+- 2026-06-29 16:50 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/062680069831.shtml)
+- 2026-06-29 16:48 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/55133.shtml)
+- 2026-06-29 16:45 - [一生一世](https://www.blog.minike.top/Article/details/7037330202.shtml)
+- 2026-06-29 16:26 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/59998893.shtml)
+- 2026-06-29 16:30 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/16004730.shtml)
+- 2026-06-29 16:44 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/055673769887.shtml)
+- 2026-06-29 16:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/23761638871.shtml)
+- 2026-06-29 16:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/34548.shtml)
+- 2026-06-29 16:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/296801827.shtml)
+- 2026-06-29 16:26 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/507541140.shtml)
+- 2026-06-29 16:50 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/21481268.shtml)
+- 2026-06-29 16:29 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/9010125.shtml)

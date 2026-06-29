@@ -1,52 +1,57 @@
-# 韩国油价近两月来首次跌破2000韩元关口
+# 万豪度假全球将出席摩根士丹利旅游休闲会议
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-行业数据显示，韩国加油站汽油均价周日较前一日继续走低；前一日油价已跌破每升2000韩元（约合1.3美元），为近两个月来首次。 韩国石油公社（KNOC）数据显示，截至当日上午9时，汽油均价为每升1991.1韩元，较前一日均价下跌5韩元。这是油价跌破2000韩元关口后，连续第二日维持在该价位下方。责任编辑：陈钰嘉
+会议参与安排 万豪度假全球公司宣布，将参加于2026年6月2日在纽约市举行的摩根士丹利旅游休闲会议。公司总裁兼首席执行官Matt Avril届时将发表演讲并参与小组讨论，向投资者介绍公司的最新战略方向与业务进展。 近期业绩与战略转型 此次参会正值公司经历重大战略调整与领导层重组之际。公司此前公布的2026年第一季度财报显示，合同销售额为4.11亿美元，同比下降2%；调整后EBI
 
 ## 正文
 
-行业数据显示，韩国加油站汽油均价周日较前一日继续走低；前一日油价已跌破每升2000韩元（约合1.3美元），为近两个月来首次。
+会议参与安排 万豪度假全球公司宣布，将参加于2026年6月2日在纽约市举行的摩根士丹利旅游休闲会议。
 
-韩国石油公社（KNOC）数据显示，截至当日上午9时，汽油均价为每升1991.1韩元，较前一日均价下跌5韩元。
+公司总裁兼首席执行官Matt Avril届时将发表演讲并参与小组讨论，向投资者介绍公司的最新战略方向与业务进展。
 
-这是油价跌破2000韩元关口后，连续第二日维持在该价位下方。
+近期业绩与战略转型 此次参会正值公司经历重大战略调整与领导层重组之际。
 
-责任编辑：陈钰嘉
+公司此前公布的2026年第一季度财报显示，合同销售额为4.11亿美元，同比下降2%；调整后EBITDA为1.61亿美元，较去年同期的1.92亿美元下降16%。
+
+净利润为2200万美元，合每股收益0.64美元，低于上年同期的5600万美元和每股1.46美元。
+
+首席执行官Matt Avril在财报电话会上表示，一季度合同销售和EBITDA的下降符合公司对今年“上半年过渡、下半年改善”的预期。
+
+公司已采取多项措施夯实基础，包括优化组织架构、实施人员调整、出售非核心资产等。
+
+四月数据释放积极信号 值得关注的是，公司4月份合同销售同比增长8%，其中北美市场增长11%，有效抵消了亚洲市场的计划性收缩。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 16:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 16:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 16:34 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 16:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 16:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 16:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 16:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 16:42 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 16:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 16:23 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 16:32 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:42 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 16:52 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 16:43 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 16:50 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 16:47 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 16:37 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 16:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 16:26 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 16:50 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 16:30 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 16:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/8946613799.shtml)
-- 2026-06-29 16:42 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/628064.shtml)
-- 2026-06-29 16:45 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/5363721.shtml)
-- 2026-06-29 16:46 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/366798176830.shtml)
-- 2026-06-29 16:25 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/2425308012.shtml)
-- 2026-06-29 16:28 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/745001115669.shtml)
-- 2026-06-29 16:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/82144965735.shtml)
-- 2026-06-29 16:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/63386.shtml)
-- 2026-06-29 16:35 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/189227511.shtml)
-- 2026-06-29 16:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/454489.shtml)
-- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/8538025413.shtml)
-- 2026-06-29 16:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/907910.shtml)
-- 2026-06-29 16:45 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/531589833.shtml)
-- 2026-06-29 16:44 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/758780.shtml)
-- 2026-06-29 16:39 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/750172297140.shtml)
+- 2026-06-29 16:37 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/578408.shtml)
+- 2026-06-29 16:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/95272228.shtml)
+- 2026-06-29 16:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/33149365181.shtml)
+- 2026-06-29 16:40 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/23885642.shtml)
+- 2026-06-29 16:31 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/39230627.shtml)
+- 2026-06-29 16:50 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/034535942128.shtml)
+- 2026-06-29 16:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/384661607931.shtml)
+- 2026-06-29 16:41 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/69323.shtml)
+- 2026-06-29 16:40 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/73776.shtml)
+- 2026-06-29 16:31 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/590336874.shtml)
+- 2026-06-29 16:32 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/6478174764.shtml)
+- 2026-06-29 16:33 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/120585877.shtml)
+- 2026-06-29 16:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/5805605.shtml)
+- 2026-06-29 16:36 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/3054453843.shtml)
+- 2026-06-29 16:41 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/83156165138.shtml)

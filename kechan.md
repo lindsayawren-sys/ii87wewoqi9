@@ -1,50 +1,59 @@
-# “向中国人民致敬”几内亚总理参访中共一大纪念馆
+# 斯特兰蒂斯将在意大利投产全新小型电动汽车
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 18:18 来源：中国新闻网 几内亚总理乌里·巴6月26日在上海“打卡”红色地标。他首先瞻仰了中共一大会址，并来到中共一大纪念馆，观看“伟大的开端——中国共产党创建历史陈列”。一个多小时的行程中，他认真聆听讲解，参观展项。结束参访后，他留言赞颂中国共产党百年奋斗历程，肯定中国共产党完成初心使命、造福亿万人民的伟大成就。 (许婧 狄权 制作 王雪
+旗下拥有吉普品牌的汽车集团斯特兰蒂斯，即将投产全新系列电动车型，主攻欧洲平价小型代步车市场。 这家汽车制造商周二宣布，该代号为E-Car的项目，将于 2028 年在意大利那不勒斯的波米利亚诺达尔科工厂正式投产。 集团首席执行官安东尼奥・菲洛萨表示：“消费者期待重拾造型时尚、欧洲本土制造、价格亲民且环保节能的小型汽车。” 企业表示，平价小型乘用车市场拥有巨大量产空间。欧盟也认可，
 
 ## 正文
 
-发布时间：2026年06月26日 18:18 来源：中国新闻网 几内亚总理乌里·巴6月26日在上海“打卡”红色地标。
+旗下拥有吉普品牌的汽车集团斯特兰蒂斯，即将投产全新系列电动车型，主攻欧洲平价小型代步车市场。
 
-他首先瞻仰了中共一大会址，并来到中共一大纪念馆，观看“伟大的开端——中国共产党创建历史陈列”。
+这家汽车制造商周二宣布，该代号为E-Car的项目，将于 2028 年在意大利那不勒斯的波米利亚诺达尔科工厂正式投产。
 
-一个多小时的行程中，他认真聆听讲解，参观展项。
+集团首席执行官安东尼奥・菲洛萨表示：“消费者期待重拾造型时尚、欧洲本土制造、价格亲民且环保节能的小型汽车。
 
-结束参访后，他留言赞颂中国共产党百年奋斗历程，肯定中国共产党完成初心使命、造福亿万人民的伟大成就。
+” 企业表示，平价小型乘用车市场拥有巨大量产空间。
 
-(许婧 狄权 制作 王雪尔） 责任编辑：【罗攀】
+欧盟也认可，发展这类车型既能扶持欧洲本土设计与制造业岗位，也能助力纯电动车进一步普及。
+
+斯特兰蒂斯计划依托旗下多个品牌推出新款电动小车，并携手合作伙伴加快研发进度、严控造车成本。
+
+此前集团董事长约翰・埃尔坎就曾呼吁，重振欧洲昔日风靡的平价紧凑型小车。
+
+他坦言，欧盟多项法规抬高了车辆配重与制造成本，导致这类车型造车成本飙升；并建议欧洲参考日本经验，当地亲民小巧的轻自动车至今仍占据可观市场份额。
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 16:42 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 16:18 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 16:45 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 16:35 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 16:28 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 16:40 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 16:37 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 16:33 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 16:21 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 16:27 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 16:38 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 16:50 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 16:44 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 16:24 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 16:53 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 16:33 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 16:41 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 16:27 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 16:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 16:36 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/52758.shtml)
-- 2026-06-29 16:35 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/167591562.shtml)
-- 2026-06-29 16:43 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/64538.shtml)
-- 2026-06-29 16:35 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/821467.shtml)
-- 2026-06-29 16:28 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/094033.shtml)
-- 2026-06-29 16:46 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/171010.shtml)
-- 2026-06-29 16:36 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/122361412.shtml)
-- 2026-06-29 16:24 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/17119131.shtml)
-- 2026-06-29 16:30 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/5983431193.shtml)
-- 2026-06-29 16:39 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/28556068.shtml)
-- 2026-06-29 16:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/2518279.shtml)
-- 2026-06-29 16:20 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/5978127.shtml)
-- 2026-06-29 16:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/4986223.shtml)
-- 2026-06-29 16:23 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/10050957913.shtml)
-- 2026-06-29 16:27 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/984966.shtml)
+- 2026-06-29 16:27 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/2856692484.shtml)
+- 2026-06-29 16:32 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/76177505972.shtml)
+- 2026-06-29 16:43 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/104434678142.shtml)
+- 2026-06-29 16:32 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/097053.shtml)
+- 2026-06-29 16:26 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/46430306051.shtml)
+- 2026-06-29 16:33 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/68811240831.shtml)
+- 2026-06-29 16:37 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/388654.shtml)
+- 2026-06-29 16:36 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/25794.shtml)
+- 2026-06-29 16:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/19918845.shtml)
+- 2026-06-29 16:42 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/6795893.shtml)
+- 2026-06-29 16:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/45932205.shtml)
+- 2026-06-29 16:37 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/0285210.shtml)
+- 2026-06-29 16:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/98330.shtml)
+- 2026-06-29 16:37 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/082627.shtml)
+- 2026-06-29 16:24 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/0086621470.shtml)

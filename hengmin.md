@@ -1,58 +1,59 @@
-# 全球首个通信智能体协同开源项目OpenAN发布
+# 追觅造车主体公司股权被冻结，此前俞浩称星空计划正以640亿估值融资
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月26日电 在2026上海世界移动通信大会期间，中国移动携手GSMA及华为、中兴等多家国际通信与科技企业，在Linux网络子基金会(Linux Foundation Networking)社区正式发布全球首个通信智能体协同的开源项目——OpenAN，面向网络运营场景实现安全、高效、可控的多智能体协同模式。随着网络自动化水平不断提升，智能体技术被业界视为实现高阶自智网
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新浪Insights 《热点Views》栏目出品 追觅的造车之路，再起波澜。 近日，天眼查显示，星空计划（上海）汽车科技有限责任公司近日新增一则股权冻结信息。股权冻结信息显示，股权数额达232.25万元，冻结期限自2026年5月7日至2029年5月6日，股权所在企业为上海星空计划进出口贸易有限责任公司
 
 ## 正文
 
-中新网北京6月26日电 在2026上海世界移动通信大会期间，中国移动携手GSMA及华为、中兴等多家国际通信与科技企业，在Linux网络子基金会(Linux Foundation Networking)社区正式发布全球首个通信智能体协同的开源项目——OpenAN，面向网络运营场景实现安全、高效、可控的多智能体协同模式。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-随着网络自动化水平不断提升，智能体技术被业界视为实现高阶自智网络的关键要素。
+来源：新浪Insights 《热点Views》栏目出品 追觅的造车之路，再起波澜。
 
-在实际网络运营工作中，多个智能体需要协同完成复杂任务，现有开源多智能体框架在适配网络运营场景时存在不足，如互联网暴露风险高、交互效率低，以及无法完全私有化部署等问题，限制了其大规模工程化应用。
+近日，天眼查显示，星空计划（上海）汽车科技有限责任公司近日新增一则股权冻结信息。
 
-为此，OpenAN项目，面向网络运营场景进行多智能体协同系统性适配与增强。
+股权冻结信息显示，股权数额达232.25万元，冻结期限自2026年5月7日至2029年5月6日，股权所在企业为上海星空计划进出口贸易有限责任公司。
 
-在协议层面，OpenAN在原有智能体交互协议A2A基础上，推出了面向通信行业的增强版协议A2A-T(Agent-To-Agent for Telecoms)，主要包括三大扩展：一是增加高价值场景字段，在智能体交互初期明确运营场景；二是引入可靠性扩展，支持信息与结果协商，避免因单次交互失败导致整次会话重启，显著降低时延与Token浪费；三是扩展安全性字段，支持黑名单机制，对高风险操作进行授权控制，防止误操作。
+值得一提的是，星空计划（上海）汽车科技有限责任公司的实控人为俞浩，总持股比例高达96.652%。
 
-在框架层面，OpenAN完全重写了谷歌未开源的注册中心模块，实现完整的本地化部署，支持1000余个智能体之间的任意互联、查询与协同，无需将交互流量引流至外部云平台，有效减少互联网暴露面。
+俞浩为追觅科技创始人兼CEO，毕业于清华大学航空航天专业，是中国最早的四旋翼开发者、三旋翼飞行器发明者。
 
-同时，新增了中国移动主导研发的标准解决方案工具包，在场景明确后可直接调用，进一步提升问题响应效率。
+今年以来，俞浩在微博上也多次提及星空计划及星空计划汽车。
 
-OpenAN项目的发布，为全球通信行业提供了首个面向通信场景的智能体协同全开源解决方案，标志着智能体技术从概念研究走向工程落地。
+4月29日，俞浩表示，“追觅旗下星空计划智能汽车正在按照640亿（约100亿美元），推进新一轮融资。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 16:30 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 16:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 16:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 16:21 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 16:46 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 16:21 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 16:32 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 16:20 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:34 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 16:32 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 16:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 16:33 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 16:32 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 16:45 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 16:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 16:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 16:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 16:53 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 16:42 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 16:31 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 16:45 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 16:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 16:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 16:31 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/829145206.shtml)
-- 2026-06-29 16:26 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/6707395.shtml)
-- 2026-06-29 16:23 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/4084362.shtml)
-- 2026-06-29 16:35 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/96657337.shtml)
-- 2026-06-29 16:36 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/7969312667.shtml)
-- 2026-06-29 16:44 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/017927538.shtml)
-- 2026-06-29 16:22 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/41532341.shtml)
-- 2026-06-29 16:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/23574.shtml)
-- 2026-06-29 16:45 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/90813121.shtml)
-- 2026-06-29 16:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/415314.shtml)
-- 2026-06-29 16:29 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/87665964.shtml)
-- 2026-06-29 16:45 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/01130744.shtml)
-- 2026-06-29 16:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/73657480.shtml)
-- 2026-06-29 16:37 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/5037491796.shtml)
-- 2026-06-29 16:37 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/5483546.shtml)
+- 2026-06-29 16:42 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/17245229.shtml)
+- 2026-06-29 16:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/5067420.shtml)
+- 2026-06-29 16:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/28294.shtml)
+- 2026-06-29 16:31 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/511834745.shtml)
+- 2026-06-29 16:51 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/756650.shtml)
+- 2026-06-29 16:41 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/65586573.shtml)
+- 2026-06-29 16:28 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/7342619.shtml)
+- 2026-06-29 16:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/378931566.shtml)
+- 2026-06-29 16:28 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/56893318275.shtml)
+- 2026-06-29 16:48 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/9037011.shtml)
+- 2026-06-29 16:32 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/57396576.shtml)
+- 2026-06-29 16:46 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/05569.shtml)
+- 2026-06-29 16:26 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/6813320459.shtml)
+- 2026-06-29 16:37 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/13644.shtml)
+- 2026-06-29 16:50 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/8853421.shtml)

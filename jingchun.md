@@ -1,56 +1,61 @@
-# 畜牧养殖逆市猛拉！神农集团涨停，华宝基金食品饮料ETF（515710）盘中涨超2%！左侧布局窗口期已至？
+# 世卫大会连续第10年拒绝所谓涉台提案 国台办：一中格局不容撼动
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-农牧渔板块今日（6月26日）逆市走高！全市场首只农牧渔ETF（159275）突然拉升，盘中场内价格一度涨超2%，截至午间收盘，涨1.62%。 成份股方面，畜牧养殖板块大面积上攻，截至午间收盘。神农集团涨停，牧原股份、巨星农牧双双涨超6%，温氏股份、立华股份、新希望等亦涨幅居前。 消息面上，农业农村部监测数据显示，2026年5月仔猪、活猪和猪肉均价分别为23.35元/公斤、10.
+5月18日，国务院台办发言人陈斌华答记者问。 有记者问：第79届世界卫生大会再次作出不将涉台提案列入大会议程的决定。请问对此有何评论？ 陈斌华表示，这是世界卫生大会连续第10年拒绝个别国家提出的所谓涉台提案。有关决定再次表明，坚持一个中国原则是国际社会普遍共识，是人心所向、大势所趋、大义所在，国际社会坚持一个中国原则的基本格局不容挑战、不可撼动；也再次表明，民进党当局顽固坚持“
 
 ## 正文
 
-农牧渔板块今日（6月26日）逆市走高！
+5月18日，国务院台办发言人陈斌华答记者问。
 
-全市场首只农牧渔ETF（159275）突然拉升，盘中场内价格一度涨超2%，截至午间收盘，涨1.62%。
+有记者问：第79届世界卫生大会再次作出不将涉台提案列入大会议程的决定。
 
-成份股方面，畜牧养殖板块大面积上攻，截至午间收盘。
+请问对此有何评论？
 
-神农集团涨停，牧原股份、巨星农牧双双涨超6%，温氏股份、立华股份、新希望等亦涨幅居前。
+陈斌华表示，这是世界卫生大会连续第10年拒绝个别国家提出的所谓涉台提案。
 
-消息面上，农业农村部监测数据显示，2026年5月仔猪、活猪和猪肉均价分别为23.35元/公斤、10.15元/公斤和20.03元/公斤，环比变化分别为-0.63%、0.8%和-1.67%。
+有关决定再次表明，坚持一个中国原则是国际社会普遍共识，是人心所向、大势所趋、大义所在，国际社会坚持一个中国原则的基本格局不容挑战、不可撼动；也再次表明，民进党当局顽固坚持“台独”分裂立场，不承认体现一个中国原则的“九二共识”，企图在台湾地区参加世卫大会的问题上走旁门左道、搞所谓“突破”，此路不通、必遭挫败。
 
-猪价3-4月份加速下行触底后小幅反弹，5月维持底部震荡，均价小幅回升。
+陈斌华指出，台湾是中国的台湾，台湾同胞是我们的亲人、家人。
 
-东兴证券表示，6月仔猪价格已跌至年内低位，仔猪进入淡季，行业亏损补栏需求下滑。
+我们始终把台湾同胞的健康福祉放在心上。
 
-前期压栏猪源及消费淡季对6-7月份猪价形成压制，短期猪价预计维持低位震荡。
+在台湾地区未参加世卫大会的情况下，我们在一个中国原则基础上，对台湾地区参与全球卫生事业作出了妥善安排。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 16:39 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 16:20 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:38 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 16:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 16:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 16:32 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 16:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 16:20 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 16:19 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 16:30 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 16:50 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 16:52 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 16:44 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 16:32 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 16:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:34 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 16:44 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 16:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:52 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:31 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 16:37 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 16:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 16:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 16:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/053348.shtml)
-- 2026-06-29 16:37 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/959377880.shtml)
-- 2026-06-29 16:37 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/4076584.shtml)
-- 2026-06-29 16:36 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/27558.shtml)
-- 2026-06-29 16:28 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/65049.shtml)
-- 2026-06-29 16:29 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/023706.shtml)
-- 2026-06-29 16:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/988389783.shtml)
-- 2026-06-29 16:46 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/6411574.shtml)
-- 2026-06-29 16:44 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/99491698179.shtml)
-- 2026-06-29 16:35 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/34374.shtml)
-- 2026-06-29 16:21 - [叠纸](https://www.blog.kurohicncr.top/Article/details/3148987.shtml)
-- 2026-06-29 16:28 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/39472.shtml)
-- 2026-06-29 16:19 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/5808902782.shtml)
-- 2026-06-29 16:27 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/188677142.shtml)
-- 2026-06-29 16:37 - [扫黑风暴](https://www.share.minike.top/Article/details/079330981537.shtml)
+- 2026-06-29 16:25 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/3982514255.shtml)
+- 2026-06-29 16:26 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/463076.shtml)
+- 2026-06-29 16:44 - [一生一世](https://www.blog.kurohicncr.top/Article/details/9409817.shtml)
+- 2026-06-29 16:52 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/4463041.shtml)
+- 2026-06-29 16:53 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/831101467038.shtml)
+- 2026-06-29 16:53 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/3116153678.shtml)
+- 2026-06-29 16:36 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/20072805.shtml)
+- 2026-06-29 16:53 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/4410997539.shtml)
+- 2026-06-29 16:31 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/6540263767.shtml)
+- 2026-06-29 16:44 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/322242.shtml)
+- 2026-06-29 16:25 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/55418.shtml)
+- 2026-06-29 16:30 - [105年初心滚烫](http://www.share.minike.top/Article/details/52161.shtml)
+- 2026-06-29 16:42 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/6843180599.shtml)
+- 2026-06-29 16:48 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/04292921812.shtml)
+- 2026-06-29 16:51 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/7924590.shtml)

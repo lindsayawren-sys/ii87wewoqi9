@@ -1,49 +1,60 @@
-# 苏拉威西海及菲律宾萨兰加尼附近发生6级以上地震
+# 父辈读物日渐式微
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网6月26日电 据中国地震台网正式测定，6月26日19时34分在苏拉威西海(北纬5.40度，东经125.15度)发生6.5级地震，震源深度20千米。 早些时候，据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。 据美国地质调查局地震信息网26日消息，菲律宾萨兰加尼西南21公里处发生6.7级地震，震源深
+聚焦政治、人物传记等主打男性读者的纪实类图书销量持续走低 内容速览 严肃纪实类纸质书销量大幅下滑，整体销量跌幅近 8%，时政类书籍销量更是大跌 19%。 曾几何时，父亲节送礼的首选总有这类书：讲述二战冷门史实的著作、波澜壮阔的海难纪事，或是最新的总统人物传记。 而今，这类深受父辈喜爱的读物已然日渐没落。 过去四年里，纪实类图书销量持续下滑，如今已是纸质图书市场中处境最为艰难的品
 
 ## 正文
 
-中新网6月26日电 据中国地震台网正式测定，6月26日19时34分在苏拉威西海(北纬5.40度，东经125.15度)发生6.5级地震，震源深度20千米。
+聚焦政治、人物传记等主打男性读者的纪实类图书销量持续走低 内容速览 严肃纪实类纸质书销量大幅下滑，整体销量跌幅近 8%，时政类书籍销量更是大跌 19%。
 
-早些时候，据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。
+曾几何时，父亲节送礼的首选总有这类书：讲述二战冷门史实的著作、波澜壮阔的海难纪事，或是最新的总统人物传记。
 
-据美国地质调查局地震信息网26日消息，菲律宾萨兰加尼西南21公里处发生6.7级地震，震源深度65.7公里。
+而今，这类深受父辈喜爱的读物已然日渐没落。
+
+过去四年里，纪实类图书销量持续下滑，如今已是纸质图书市场中处境最为艰难的品类。
+
+出版商表示，部分纪实书籍依旧销路向好，例如名人回忆录、宗教类读物。
+
+但近年来，传记、时政、经管经济等被业内称作严肃纪实读物、受众以男性为主的纸质书销量大幅缩水。
+
+图书行业调研机构瑟卡纳图书扫描数据显示，截至今年 5 月 9 日，纪实类纸质图书整体销量下滑近 8%，政治与时政类书籍销量跌幅达 19%。
+
+出版行业向来存在周期性风向变化，图书品类与阅读潮流总是轮番更迭。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 16:46 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:40 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 16:36 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 16:41 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 16:44 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 16:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 16:23 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 16:21 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 16:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 16:42 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 16:35 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:44 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 16:45 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:25 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 16:40 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 16:37 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 16:52 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 16:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 16:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 16:32 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 16:33 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/83347298.shtml)
-- 2026-06-29 16:36 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/85239.shtml)
-- 2026-06-29 16:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/44460.shtml)
-- 2026-06-29 16:34 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/9905088540.shtml)
-- 2026-06-29 16:21 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/2265622587.shtml)
-- 2026-06-29 16:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/809092562940.shtml)
-- 2026-06-29 16:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/05567528993.shtml)
-- 2026-06-29 16:28 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/7934337.shtml)
-- 2026-06-29 16:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/228345994.shtml)
-- 2026-06-29 16:38 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/6358117.shtml)
-- 2026-06-29 16:22 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/848157.shtml)
-- 2026-06-29 16:43 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/31210.shtml)
-- 2026-06-29 16:45 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/827088314128.shtml)
-- 2026-06-29 16:29 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/050559327.shtml)
-- 2026-06-29 16:27 - [恋与深空失控领地](https://www.share.minike.top/Article/details/66886603.shtml)
+- 2026-06-29 16:45 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/41370584.shtml)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/385291.shtml)
+- 2026-06-29 16:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/7592854.shtml)
+- 2026-06-29 16:30 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/8343457967.shtml)
+- 2026-06-29 16:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/42987.shtml)
+- 2026-06-29 16:29 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/44095677497.shtml)
+- 2026-06-29 16:44 - [速度与激情9](http://www.blog.minike.top/Article/details/277949798620.shtml)
+- 2026-06-29 16:34 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/104842757.shtml)
+- 2026-06-29 16:41 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/98342706.shtml)
+- 2026-06-29 16:29 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/590594526.shtml)
+- 2026-06-29 16:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/03442045174.shtml)
+- 2026-06-29 16:29 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/3660252980.shtml)
+- 2026-06-29 16:48 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/549871236.shtml)
+- 2026-06-29 16:34 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/662289787.shtml)
+- 2026-06-29 16:49 - [天道](https://www.blog.minike.top/Article/details/641061646843.shtml)

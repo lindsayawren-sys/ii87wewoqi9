@@ -1,47 +1,59 @@
-# 大党丨我们的名字，叫中国共产党
+# 西班牙第二副首相兼劳动与社会经济大臣到访中华全国供销合作总社
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月29日 08:01 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。总社党组成员、理事会副主任徐光洪参加会谈。王宇燕对迪亚斯一行的到来表示热烈欢迎。她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡
 
 ## 正文
 
-发布时间：2026年06月29日 08:01 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。
+
+双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。
+
+总社党组成员、理事会副主任徐光洪参加会谈。
+
+王宇燕对迪亚斯一行的到来表示热烈欢迎。
+
+她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡的组织体系和经营服务网络。
+
+西班牙合作社是促进西班牙国民经济发展的重要力量，在农业领域拥有成熟的经验。
+
+作为中国供销合作社的联合组织，中华全国供销合作总社愿推动中国供销合作社与西班牙合作社进一步加强交流互鉴，深化务实合作，不断助力提升农业发展水平。
+
+迪亚斯高度认可中国供销合作社的发展经验与为农服务模式。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 16:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 16:27 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 16:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 16:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 16:26 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 16:20 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 16:42 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 16:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 16:27 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 16:31 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 16:29 - [王俊凯命名方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 16:41 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 16:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 16:35 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 16:46 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 16:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 16:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 16:52 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 16:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 16:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 16:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 16:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [流金岁月](https://www.blog.minike.top/Article/details/91918619.shtml)
-- 2026-06-29 16:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/90827440.shtml)
-- 2026-06-29 16:19 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/4979724292.shtml)
-- 2026-06-29 16:41 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/780083884.shtml)
-- 2026-06-29 16:47 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/19213979.shtml)
-- 2026-06-29 16:35 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/01308972347.shtml)
-- 2026-06-29 16:39 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/083595412446.shtml)
-- 2026-06-29 16:30 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/24808.shtml)
-- 2026-06-29 16:18 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/890845.shtml)
-- 2026-06-29 16:32 - [东方风云榜红毯](http://www.share.minike.top/Article/details/125669.shtml)
-- 2026-06-29 16:27 - [扫黑风暴](https://www.share.minike.top/Article/details/68942480115.shtml)
-- 2026-06-29 16:21 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/09125.shtml)
-- 2026-06-29 16:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/35011590517.shtml)
-- 2026-06-29 16:28 - [速度与激情9](https://www.blog.minike.top/Article/details/5203595779.shtml)
-- 2026-06-29 16:36 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/68212.shtml)
+- 2026-06-29 16:27 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/843831627.shtml)
+- 2026-06-29 16:39 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/786615.shtml)
+- 2026-06-29 16:49 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/42795208023.shtml)
+- 2026-06-29 16:33 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/91468052.shtml)
+- 2026-06-29 16:30 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/880104176.shtml)
+- 2026-06-29 16:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/420573438.shtml)
+- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/41821.shtml)
+- 2026-06-29 16:48 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/5835815.shtml)
+- 2026-06-29 16:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/827762135442.shtml)
+- 2026-06-29 16:37 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/0743237.shtml)
+- 2026-06-29 16:37 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/37842.shtml)
+- 2026-06-29 16:45 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/271276048.shtml)
+- 2026-06-29 16:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/00881499.shtml)
+- 2026-06-29 16:54 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/6043025.shtml)
+- 2026-06-29 16:39 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/253692193777.shtml)

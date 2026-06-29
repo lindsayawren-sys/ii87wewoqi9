@@ -1,61 +1,59 @@
-# 2026亚洲纪录片教育论坛在云南举行
+# 特朗普：应海湾三国请求推迟攻击伊朗 美伊谈判出现进展
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月28日 19:17 来源：中国新闻网 6月27日，2026亚洲纪录片教育论坛在云南艺术学院举行。论坛围绕纪录片创作、跨文化交流等议题展开讨论，通过不同国家和地区学者的交流互鉴，共同探讨影像如何促进不同文化间的理解与对话。 从历史上的海上丝绸之路，到今天以纪录片、艺术和学术交流为纽带，云南与东南亚国家的人文交流持续深化，也为亚洲不同国家和地区深化跨文化交
+中新网5月19日电 据美国有线电视新闻网(CNN)报道，当地时间18日，美国总统特朗普表示，沙特阿拉伯、卡塔尔、阿联酋及其他一些国家请求他将对伊朗的军事打击“推迟两到三天”，因为他们认为美伊协议“非常接近达成”。 特朗普在社交媒体平台上表示，美伊正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。重要的是，协议将规
 
 ## 正文
 
-发布时间：2026年06月28日 19:17 来源：中国新闻网 6月27日，2026亚洲纪录片教育论坛在云南艺术学院举行。
+中新网5月19日电 据美国有线电视新闻网(CNN)报道，当地时间18日，美国总统特朗普表示，沙特阿拉伯、卡塔尔、阿联酋及其他一些国家请求他将对伊朗的军事打击“推迟两到三天”，因为他们认为美伊协议“非常接近达成”。
 
-论坛围绕纪录片创作、跨文化交流等议题展开讨论，通过不同国家和地区学者的交流互鉴，共同探讨影像如何促进不同文化间的理解与对话。
+特朗普在社交媒体平台上表示，美伊正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。
 
-从历史上的海上丝绸之路，到今天以纪录片、艺术和学术交流为纽带，云南与东南亚国家的人文交流持续深化，也为亚洲不同国家和地区深化跨文化交流提供了新的视角。
+重要的是，协议将规定“伊朗不得拥有核武器”。
 
-(陈晨) 【同期】亚洲国际纪录片研究中心理事长 宋杰 你看它的名字就叫做亚洲国际纪录片研究中心。
+特朗普还称，他已下令推迟“原定于明天(19日)”对伊朗发动的军事打击。
 
-因此我们的视野就不仅仅局限在本土，要放眼到整个亚洲去。
+同时，他要求美军做好准备，一旦未能达成令人满意的协议，随时准备对伊朗发起“全面、大规模”的攻击。
 
-所以亚洲纪录片研究中心搭建的这个论坛的平台，就是想把各个地区、各个国家的这些学者们集中在一起，然后的话呢进行交流学习研究。
+当天晚些时候，特朗普在白宫对记者表示，这次的情况与先前几次美方认为即将与伊朗达成协议时“略有不同”。
 
-【同期】华侨大学教授 博士研究生导师 蔡宗德 云南跟东南亚其实它是不可分割的，就文化上面来讲，我们有共同的民族，我们有类似的共同的文化，特别是印尼。
+他说，谈判出现一些“非常积极的进展”，“但我们还要看看它能否真正取得成果”。
 
-郑和其实是让中国跟东南亚连结上面一个最好的一个方式，让他借由(共建)“一带一路”、借由海上丝绸之路，他把整个中国跟东南亚国家之间的关系，给串联起来。
+特朗普说，美国已准备好19日对伊朗发动一次“非常重大”的攻击。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 16:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 16:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 16:26 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 16:28 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 16:21 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 16:28 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 16:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 16:27 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 16:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 16:39 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 16:28 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 16:25 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 16:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 16:27 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 16:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 16:35 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 16:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 16:38 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 16:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 16:46 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 16:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 16:26 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 16:38 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 16:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 16:33 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 16:28 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/2537088132.shtml)
-- 2026-06-29 16:44 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/50610891.shtml)
-- 2026-06-29 16:27 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/33761.shtml)
-- 2026-06-29 16:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/37415.shtml)
-- 2026-06-29 16:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/3371721.shtml)
-- 2026-06-29 16:27 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/94764.shtml)
-- 2026-06-29 16:35 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/14408.shtml)
-- 2026-06-29 16:33 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/08892.shtml)
-- 2026-06-29 16:38 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/18835.shtml)
-- 2026-06-29 16:38 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/0003869.shtml)
-- 2026-06-29 16:43 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/486565469396.shtml)
-- 2026-06-29 16:18 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/58859333.shtml)
-- 2026-06-29 16:47 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/62261.shtml)
-- 2026-06-29 16:34 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/87141462449.shtml)
-- 2026-06-29 16:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/34461526.shtml)
+- 2026-06-29 16:38 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/45674447160.shtml)
+- 2026-06-29 16:38 - [极限挑战第一季](http://www.blog.minike.top/Article/details/06571999.shtml)
+- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/3417458.shtml)
+- 2026-06-29 16:44 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/76131.shtml)
+- 2026-06-29 16:27 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/77846243857.shtml)
+- 2026-06-29 16:26 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/46179146.shtml)
+- 2026-06-29 16:44 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/199454352.shtml)
+- 2026-06-29 16:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/874244437.shtml)
+- 2026-06-29 16:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/50918532.shtml)
+- 2026-06-29 16:44 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/778568.shtml)
+- 2026-06-29 16:36 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/65743.shtml)
+- 2026-06-29 16:49 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/88957134.shtml)
+- 2026-06-29 16:44 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/81423259359.shtml)
+- 2026-06-29 16:51 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/64218.shtml)
+- 2026-06-29 16:39 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/93823681437.shtml)

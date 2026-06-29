@@ -1,56 +1,58 @@
-# *ST益通索赔新进展 部分股民提交起诉
+# 日本大举发债稳民生，十年期日债收益率创三十年新高
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加
+来源：汇通财经 受伊朗局势推高国际能源价格影响，日本计划出台专项补充预算缓解国内民生压力，确定以增发国债的方式筹集资金。 这一财政举措直接引发市场抛售情绪，日本十年期国债收益率大幅走高，创下1996年以来最高水平。此举不仅进一步加重日本本就沉重的财政负担，还将干扰日本央行货币政策回归常态的进程，依托其全球最大美债持有国的身份，后续波动还将对全球债券市场与跨境资金流向形成连锁影响
 
 ## 正文
 
-近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。
+来源：汇通财经 受伊朗局势推高国际能源价格影响，日本计划出台专项补充预算缓解国内民生压力，确定以增发国债的方式筹集资金。
 
-曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。
+这一财政举措直接引发市场抛售情绪，日本十年期国债收益率大幅走高，创下1996年以来最高水平。
 
-（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。
+此举不仅进一步加重日本本就沉重的财政负担，还将干扰日本央行货币政策回归常态的进程，依托其全球最大美债持有国的身份，后续波动还将对全球债券市场与跨境资金流向形成连锁影响。
 
-2026年5月8日，诚益通发布《关于股票交易严重异常波动的公告》。
+财政加码托底民生 日本确定增发新债 随着地缘局势持续推升国际油价，日本国内居民能源消费支出显著增加，民生生活成本不断走高。
 
-公告显示：因信永中和会计师事务所（特殊普通合伙） 出具了无法表示意见的审计报告以及否定意见的内部控制审计报告，触及《深圳 证券交易所创业板股票上市规则》第10.3.1条、第9.4条的规定，公司股票自2026 年5月6日开市起被实行“退市风险警示”、“其他风险警示”，股票简称由“诚益通”变更为“*ST益通”，证券代码仍为“300430”，敬请广大投资者注意投资风险。
+日本政府相关人士透露，当局即将推出补充财政预算，专门用来对冲能源涨价带来的经济冲击，减轻普通家庭的生活压力，相关政策方案将由日本首相高市早苗正式对外发布。
 
-公司股票交易价格连续三个交易日（2026年5月6日、2026年5月7日、2026年5月8日）收盘价格跌幅偏离值累计超过50%以上，根据深圳证券交易所有关规定，属于股票交易严重异常波动。
+由于财政可用资金有限，日本将把新增国债发行作为补充预算的核心筹资渠道。
 
-根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
+在此之前，日本公共财政早已处于高压运行状态，持续加码举债，无疑会让整体财政状况愈发脆弱，市场对此担忧情绪持续升温。
 
-“我们正在分批代理股民起诉。
+债市剧烈波动 长端利率大幅冲高 周一（5月18日）东京早盘，日本债市迎来明显调整，十年期国债收益率一度触及2.797%，刷新近三十年市场纪录，创下1996年10月之后的最高点位。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:43 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 16:40 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 16:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 16:35 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 16:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:35 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 16:30 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 16:48 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 16:44 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 16:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:37 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 16:34 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 16:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 16:53 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 16:52 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 16:48 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 16:26 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 16:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/424243680745.shtml)
-- 2026-06-29 16:39 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/758145.shtml)
-- 2026-06-29 16:24 - [一生一世](https://www.blog.minike.top/Article/details/36483751729.shtml)
-- 2026-06-29 16:18 - [中国战机大片上新](https://www.share.minike.top/Article/details/97031.shtml)
-- 2026-06-29 16:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/52177046.shtml)
-- 2026-06-29 16:46 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/911942472854.shtml)
-- 2026-06-29 16:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/50511995.shtml)
-- 2026-06-29 16:40 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/6139018.shtml)
-- 2026-06-29 16:32 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/05544978.shtml)
-- 2026-06-29 16:37 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/03474113023.shtml)
-- 2026-06-29 16:21 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/40712.shtml)
-- 2026-06-29 16:40 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/3611260.shtml)
-- 2026-06-29 16:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/1227677479.shtml)
-- 2026-06-29 16:32 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/64825.shtml)
-- 2026-06-29 16:34 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/67625760346.shtml)
+- 2026-06-29 16:41 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/991394978.shtml)
+- 2026-06-29 16:34 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/256907884294.shtml)
+- 2026-06-29 16:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/53557.shtml)
+- 2026-06-29 16:39 - [一见倾心](http://www.share.kurohicncr.top/Article/details/43938.shtml)
+- 2026-06-29 16:52 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/606067245.shtml)
+- 2026-06-29 16:41 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/1746961.shtml)
+- 2026-06-29 16:35 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/4255847.shtml)
+- 2026-06-29 16:49 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/44330835563.shtml)
+- 2026-06-29 16:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/342592794.shtml)
+- 2026-06-29 16:47 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/547042.shtml)
+- 2026-06-29 16:45 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/5446140328.shtml)
+- 2026-06-29 16:26 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/3024530440.shtml)
+- 2026-06-29 16:40 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/1007902.shtml)
+- 2026-06-29 16:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/78134.shtml)
+- 2026-06-29 16:39 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/513870882789.shtml)

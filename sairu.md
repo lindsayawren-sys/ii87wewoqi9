@@ -1,57 +1,56 @@
-# 台湾影视青年在浙江横店“试水”微短剧赛道
+# 高盛称各国央行料将加大力度购买黄金 预估金价年底可达5400美元
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新社浙江横店6月28日电 题：台湾影视青年在浙江横店“试水”微短剧赛道 作者 李百加 钱晨菲 “竖屏微短剧聚焦人物主体，画面构图、镜头取舍与横屏不同。”台湾春晖映像公司执行董事孔繁芸接受中新社采访时说，分镜设计是核心差异之一，仅靠线上观摩难以吃透技巧，落地实拍、现场磨合才能掌握门道。 “剧本是另一道门槛。”曾创作《司藤》《有翡》等作品的大陆编剧汪洪说，长剧讲究人物逻辑与长线铺
+据高盛集团称，各国央行料将加大黄金的购买力度，帮助金价在今年底前回升。 分析师Lina Thomas和Daan Struyven在落款日为5月15日的报告中指出，2026年黄金购买量预计将回升至每月平均60吨。根据修正后的官方购金估算模型，截至今年3月的12个月移动平均购买量为50吨，高于先前的29吨。 分析师们援引一项内部调查称，对各国央行而言，对黄金有着“强劲的根本性需求”
 
 ## 正文
 
-中新社浙江横店6月28日电 题：台湾影视青年在浙江横店“试水”微短剧赛道 作者 李百加 钱晨菲 “竖屏微短剧聚焦人物主体，画面构图、镜头取舍与横屏不同。
+据高盛集团称，各国央行料将加大黄金的购买力度，帮助金价在今年底前回升。
 
-”台湾春晖映像公司执行董事孔繁芸接受中新社采访时说，分镜设计是核心差异之一，仅靠线上观摩难以吃透技巧，落地实拍、现场磨合才能掌握门道。
+分析师Lina Thomas和Daan Struyven在落款日为5月15日的报告中指出，2026年黄金购买量预计将回升至每月平均60吨。
 
-“剧本是另一道门槛。
+根据修正后的官方购金估算模型，截至今年3月的12个月移动平均购买量为50吨，高于先前的29吨。
 
-”曾创作《司藤》《有翡》等作品的大陆编剧汪洪说，长剧讲究人物逻辑与长线铺垫；微短剧则是情绪驱动，强调节奏密度、结果导向。
+分析师们援引一项内部调查称，对各国央行而言，对黄金有着“强劲的根本性需求”，近期地缘政治发展 可能进一步强化各国推动储备多元化的趋势。
 
-2026两岸青年微短剧大赛近日在浙江横店举行。
+自中东战争爆发以来，黄金价格表现承压。
 
-参赛台湾团队走进片场，在72小时内完成“一集一分钟，一共拍五集”的挑战。
+能源成本攀升推高全球通胀压力，使各国央行更不愿意放松政策。
 
-孔繁芸认为，对希望进入微短剧赛道的台湾青年而言，实拍已成为“必修课”。
+在冲突看不到结束迹象的情况下，全球债券市场遭遇抛售，进一步压抑不具孳息收益的黄金价格。
 
-“必修”的还有创作技法。
+高盛对官方部门需求的评估，也呼应世界黄金协会先前的乐观评估。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 16:21 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 16:30 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 16:29 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 16:40 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 16:46 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 16:40 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 16:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 16:31 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 16:20 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 16:46 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:33 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 16:46 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 16:51 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 16:44 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 16:39 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:26 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 16:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 16:53 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/615077.shtml)
-- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/246378.shtml)
-- 2026-06-29 16:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/04973513341.shtml)
-- 2026-06-29 16:28 - [金牌调解](http://www.share.kurohicncr.top/Article/details/52857939107.shtml)
-- 2026-06-29 16:30 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/9131581.shtml)
-- 2026-06-29 16:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/89820.shtml)
-- 2026-06-29 16:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/333524278.shtml)
-- 2026-06-29 16:19 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/497339585346.shtml)
-- 2026-06-29 16:20 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/80582867.shtml)
-- 2026-06-29 16:27 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/866555.shtml)
-- 2026-06-29 16:27 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/1016374.shtml)
-- 2026-06-29 16:18 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/474077013.shtml)
-- 2026-06-29 16:35 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/058396628026.shtml)
-- 2026-06-29 16:31 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/176901.shtml)
-- 2026-06-29 16:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/67991489.shtml)
+- 2026-06-29 16:49 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/08283.shtml)
+- 2026-06-29 16:53 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/68745695.shtml)
+- 2026-06-29 16:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/090229733796.shtml)
+- 2026-06-29 16:41 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/056896626403.shtml)
+- 2026-06-29 16:31 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/983404106.shtml)
+- 2026-06-29 16:31 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/050237.shtml)
+- 2026-06-29 16:47 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/242312364338.shtml)
+- 2026-06-29 16:40 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/13788.shtml)
+- 2026-06-29 16:38 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/46362210055.shtml)
+- 2026-06-29 16:51 - [一见倾心](http://www.blog.minike.top/Article/details/2519430453.shtml)
+- 2026-06-29 16:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/567612827.shtml)
+- 2026-06-29 16:52 - [光与夜之恋](http://www.share.minike.top/Article/details/55735452.shtml)
+- 2026-06-29 16:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/344063249587.shtml)
+- 2026-06-29 16:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/824612241278.shtml)
+- 2026-06-29 16:34 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/59974635151.shtml)

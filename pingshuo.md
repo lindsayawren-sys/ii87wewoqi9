@@ -1,57 +1,52 @@
-# 2026年广州莲花山荷花季开幕 营造诗情荷塘意境
+# “90”后的童年售后彩蛋：“糖果屋”文具封面藏着设计师QQ号
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月27日电 (记者 程景伟)2026年广州莲花山荷花季27日在广州番禺莲花山正式拉开帷幕。 在莲花仙境内，现场展出1200余个莲花品种及超600个精品睡莲品种，品类繁多、千姿百态，共同打造华南地区规模领先的莲荷园艺盛宴。其中，大莲塘以彰显节日喜庆的粉色系莲花为主打花，融合友谊牡丹莲、粉霸王等优秀荷花品种，在视觉上铺展出一幅层次分明的渐变红色美学长卷，辅以各色常开常艳
+发布时间：2026年05月19日 15:34 来源：中国新闻网 千禧年间，“糖果屋”系列文具承载了无数80、90后的青春记忆。设计师梁准准(笔名：星盒子)告诉中新网，当初在每一张笔记本繁复的封面图里，他都藏了自己的QQ号。那个年代，没有微信，没有短视频，一个小小的Q号，成了创作者和使用者之间唯一的连接。有人发现过，但更多的人或许没有注意到，如今再看，仿佛是那些温暖画面给多年后的
 
 ## 正文
 
-中新网广州6月27日电 (记者 程景伟)2026年广州莲花山荷花季27日在广州番禺莲花山正式拉开帷幕。
+发布时间：2026年05月19日 15:34 来源：中国新闻网 千禧年间，“糖果屋”系列文具承载了无数80、90后的青春记忆。
 
-在莲花仙境内，现场展出1200余个莲花品种及超600个精品睡莲品种，品类繁多、千姿百态，共同打造华南地区规模领先的莲荷园艺盛宴。
+设计师梁准准(笔名：星盒子)告诉中新网，当初在每一张笔记本繁复的封面图里，他都藏了自己的QQ号。
 
-其中，大莲塘以彰显节日喜庆的粉色系莲花为主打花，融合友谊牡丹莲、粉霸王等优秀荷花品种，在视觉上铺展出一幅层次分明的渐变红色美学长卷，辅以各色常开常艳的睡莲与极富设计感的园艺造景，营造出诗情满满的荷塘意境。
+那个年代，没有微信，没有短视频，一个小小的Q号，成了创作者和使用者之间唯一的连接。
 
-荷花季期间，这里还上演“莲仙荷梦——莲花仙子快闪表演”，水袖舞动间，莲香沁人心脾。
+有人发现过，但更多的人或许没有注意到，如今再看，仿佛是那些温暖画面给多年后的你我一个彩蛋。
 
-值得一提的是，莲花山景区经过三年的潜心钻研和反复培育，此次集中推出三个自主繁育的莲花品种，分别名为“莲峰金胭”“莲峰绛珠”和“莲峰礼花”，展现荷花睡莲专类园建设成果。
-
-作为本次荷花季的一出大戏，山水实景舞剧《山海莲鸣·花朝千年》在莲花山仙境湖舞台上演。
-
-近50名专业演员倾情演绎，以自然山水为幕布，打造多场景沉浸式国风视听盛宴。
-
-剧目深度串联莲荷文化、莲峰印象、十二花神三大核心元素，构建层次饱满、意境悠远的完整叙事体系，为游客带来沉浸式、高质感的文旅体验。
+(记者 郎朗) 责任编辑：【张曦】
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 16:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 16:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 16:18 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 16:20 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:45 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 16:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 16:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 16:31 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 16:20 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 16:32 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 16:50 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:25 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 16:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 16:26 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 16:47 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 16:43 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 16:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 16:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 16:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:29 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/59611.shtml)
-- 2026-06-29 16:26 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/92207229588.shtml)
-- 2026-06-29 16:37 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/880347596.shtml)
-- 2026-06-29 16:21 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/50082332862.shtml)
-- 2026-06-29 16:28 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/7217446387.shtml)
-- 2026-06-29 16:22 - [媒体：网络测评不能只剩“生意”](http://www.share.kurohicncr.top/Article/details/681707059534.shtml)
-- 2026-06-29 16:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/392447092.shtml)
-- 2026-06-29 16:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/448454750.shtml)
-- 2026-06-29 16:25 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/5246418.shtml)
-- 2026-06-29 16:31 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/100856845575.shtml)
-- 2026-06-29 16:46 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/12856379756.shtml)
-- 2026-06-29 16:22 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/90648080.shtml)
-- 2026-06-29 16:38 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/93279410573.shtml)
-- 2026-06-29 16:33 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/66526177084.shtml)
-- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/55383462.shtml)
+- 2026-06-29 16:41 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/121988991960.shtml)
+- 2026-06-29 16:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/8157613909.shtml)
+- 2026-06-29 16:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/108375.shtml)
+- 2026-06-29 16:39 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/0913531150.shtml)
+- 2026-06-29 16:34 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/790427.shtml)
+- 2026-06-29 16:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/091792865513.shtml)
+- 2026-06-29 16:54 - [爱很美味](http://www.blog.minike.top/Article/details/46357.shtml)
+- 2026-06-29 16:27 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/91670907661.shtml)
+- 2026-06-29 16:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/98429842147.shtml)
+- 2026-06-29 16:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/017706867588.shtml)
+- 2026-06-29 16:39 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/350463281.shtml)
+- 2026-06-29 16:42 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/7309020641.shtml)
+- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/44258504305.shtml)
+- 2026-06-29 16:50 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/524746218.shtml)
+- 2026-06-29 16:51 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/149647599310.shtml)

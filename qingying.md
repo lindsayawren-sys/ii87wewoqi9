@@ -1,55 +1,50 @@
-# 谷歌限制了Meta的Gemini使用量，因为人工智能需求激增导致产能紧张
+# 外交部发言人就美国总统特朗普涉台表态答记者问
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-英国媒体援引三位知情人士消息称，谷歌在今年3月前后告知Meta，无法足额供应其所需的Gemini模型算力额度。此举打乱并推迟了Meta多项内部人工智能项目的推进节奏。 受该算力限制，叠加公司整体压缩人工智能成本的战略，Meta已要求员工节约调用AI令牌，提升使用效率。 谷歌与Meta均拒绝对该报道置评。责任编辑：何云
+新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 正文
 
-英国媒体援引三位知情人士消息称，谷歌在今年3月前后告知Meta，无法足额供应其所需的Gemini模型算力额度。
+新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。
 
-此举打乱并推迟了Meta多项内部人工智能项目的推进节奏。
+台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
 
-受该算力限制，叠加公司整体压缩人工智能成本的战略，Meta已要求员工节约调用AI令牌，提升使用效率。
-
-谷歌与Meta均拒绝对该报道置评。
-
-责任编辑：何云
+“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 16:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 16:38 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 16:39 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 16:33 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 16:44 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 16:33 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 16:35 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 16:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 16:27 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 16:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 16:23 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 16:47 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 16:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 16:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 16:46 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 16:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 16:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 16:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 16:42 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:24 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 16:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 16:25 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 16:49 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 16:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 16:34 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 16:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:53 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 16:46 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/526173163386.shtml)
-- 2026-06-29 16:39 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/841586.shtml)
-- 2026-06-29 16:44 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/3883827273.shtml)
-- 2026-06-29 16:45 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/5581159297.shtml)
-- 2026-06-29 16:24 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/56231747300.shtml)
-- 2026-06-29 16:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/5181193.shtml)
-- 2026-06-29 16:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/612056667980.shtml)
-- 2026-06-29 16:35 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/23088455495.shtml)
-- 2026-06-29 16:25 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/15997940.shtml)
-- 2026-06-29 16:28 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/716102509658.shtml)
-- 2026-06-29 16:20 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/45222.shtml)
-- 2026-06-29 16:44 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/262960008512.shtml)
-- 2026-06-29 16:43 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/839627.shtml)
-- 2026-06-29 16:32 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/19422.shtml)
-- 2026-06-29 16:30 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/63474127076.shtml)
+- 2026-06-29 16:37 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/94930.shtml)
+- 2026-06-29 16:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/14401405.shtml)
+- 2026-06-29 16:35 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/779412143205.shtml)
+- 2026-06-29 16:41 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/158161234381.shtml)
+- 2026-06-29 16:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/65116.shtml)
+- 2026-06-29 16:46 - [吴建豪老婆](http://www.blog.minike.top/Article/details/613804821292.shtml)
+- 2026-06-29 16:44 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/9748391.shtml)
+- 2026-06-29 16:32 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/8944076442.shtml)
+- 2026-06-29 16:42 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/86380031745.shtml)
+- 2026-06-29 16:29 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/972111460.shtml)
+- 2026-06-29 16:42 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/91365049387.shtml)
+- 2026-06-29 16:46 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/869895.shtml)
+- 2026-06-29 16:38 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/30265.shtml)
+- 2026-06-29 16:33 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/177650.shtml)
+- 2026-06-29 16:26 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/2402978102.shtml)

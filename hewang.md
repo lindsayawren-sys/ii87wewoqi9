@@ -1,56 +1,56 @@
-# 古都西安刮起“数字风” 中外友人沉浸式体验数字科技新成果
+# 从“观光”到“参与” 深度体验成旅行新风尚
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网西安6月26日电 题：古都西安刮起“数字风” 中外友人沉浸式体验数字科技新成果 作者 杨英琦 李一璠 后空翻、握手致意、灵活避障……在第七届西部数字经济博览会现场，身姿矫健的机器狗和外表逼真的人形机器人成为展馆最热闹的“主角”。 “我们这次带来了具身智能人形机器人与多功能机器狗两款核心产品。其中人形机器人外观高度仿真人类，经过日常训练，就能复刻使用者行为形成专属互动模式；
+从“观光”到“参与”，从“看景”到“入景”—— 深度体验成旅行新风尚 当下文旅市场中，沉浸式体验游的热度正持续攀升。奔赴江西景德镇邂逅陶瓷文脉，走进河南开封沉浸式感受武侠宋韵，去往陕西西安梦回盛唐烟火……告别走马观花，深度参与、沉浸式共情，成为大众出游的新追求。 体验经济作为重要的消费场景，正日益成为激活国内文旅市场的重要力量，“为一场体验赴一座城”已成为文旅消费新风尚。体验游
 
 ## 正文
 
-中新网西安6月26日电 题：古都西安刮起“数字风” 中外友人沉浸式体验数字科技新成果 作者 杨英琦 李一璠 后空翻、握手致意、灵活避障……在第七届西部数字经济博览会现场，身姿矫健的机器狗和外表逼真的人形机器人成为展馆最热闹的“主角”。
+从“观光”到“参与”，从“看景”到“入景”—— 深度体验成旅行新风尚 当下文旅市场中，沉浸式体验游的热度正持续攀升。
 
-“我们这次带来了具身智能人形机器人与多功能机器狗两款核心产品。
+奔赴江西景德镇邂逅陶瓷文脉，走进河南开封沉浸式感受武侠宋韵，去往陕西西安梦回盛唐烟火……告别走马观花，深度参与、沉浸式共情，成为大众出游的新追求。
 
-其中人形机器人外观高度仿真人类，经过日常训练，就能复刻使用者行为形成专属互动模式；机器狗不只是儿童互动玩具，在小区、室内可承担导航工作，设定固定路线后能完成取快递、外卖配送任务。
+体验经济作为重要的消费场景，正日益成为激活国内文旅市场的重要力量，“为一场体验赴一座城”已成为文旅消费新风尚。
 
-”展厅内，中国移动政企客户部项目经理李超向中新网记者介绍。
+体验游为何如此吸引人？
 
-26日，以“数聚丝路活力 智绘西部未来”为主题的第七届西部数字经济博览会在陕西西安开幕。
+如何才能走得更远？
 
-全国20余个城市代表团、300余家行业头部企业齐聚西安，全方位展示数字经济前沿成果和发展趋势，加速数字新技术新产品大规模应用和迭代发展。
+记者对此进行了采访。
 
-对比往届展会，李超直言其最直观的感受是技术迭代速度迅猛。
+体验游为何引人入戏共情 这个“五一”假期，河南开封再次成为热门旅游目的地。
 
-“我们将紧跟技术浪潮持续提升自身科技研发实力。
+在万岁山武侠城景区，往来游客络绎不绝。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 16:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 16:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 16:27 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:26 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 16:33 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 16:27 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 16:38 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 16:41 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 16:50 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 16:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 16:29 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 16:24 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 16:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 16:44 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 16:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 16:29 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:28 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/0544575183.shtml)
-- 2026-06-29 16:37 - [叠纸](http://www.share.minike.top/Article/details/70050.shtml)
-- 2026-06-29 16:37 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/7727088938.shtml)
-- 2026-06-29 16:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/126804.shtml)
-- 2026-06-29 16:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/50235826529.shtml)
-- 2026-06-29 16:46 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/058779.shtml)
-- 2026-06-29 16:27 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/85472.shtml)
-- 2026-06-29 16:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/0192694976.shtml)
-- 2026-06-29 16:38 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/54779161.shtml)
-- 2026-06-29 16:21 - [105年初心滚烫](http://www.share.minike.top/Article/details/21497278.shtml)
-- 2026-06-29 16:28 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/1327434449.shtml)
-- 2026-06-29 16:35 - [T1零封KC MSI](http://www.share.minike.top/Article/details/44695857720.shtml)
-- 2026-06-29 16:18 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/44600261559.shtml)
-- 2026-06-29 16:22 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/5493301.shtml)
-- 2026-06-29 16:43 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/461950510806.shtml)
+- 2026-06-29 16:42 - [《贺子珍》](http://www.share.minike.top/Article/details/59416832.shtml)
+- 2026-06-29 16:29 - [爱很美味](http://www.share.minike.top/Article/details/69992330.shtml)
+- 2026-06-29 16:24 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/35121128781.shtml)
+- 2026-06-29 16:41 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/30769150218.shtml)
+- 2026-06-29 16:29 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/271418892106.shtml)
+- 2026-06-29 16:42 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/620028429536.shtml)
+- 2026-06-29 16:35 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/28986909.shtml)
+- 2026-06-29 16:52 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/20482671573.shtml)
+- 2026-06-29 16:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/416221.shtml)
+- 2026-06-29 16:50 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/2098197337.shtml)
+- 2026-06-29 16:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/46153967.shtml)
+- 2026-06-29 16:48 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/627627.shtml)
+- 2026-06-29 16:53 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/939674291.shtml)
+- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/2103027.shtml)
+- 2026-06-29 16:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/877072699423.shtml)

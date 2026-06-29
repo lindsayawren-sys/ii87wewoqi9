@@ -1,49 +1,57 @@
-# 现代牙科于6月26日斥资57.9万港元回购10万股
+# 中信建投：算力需求持续强劲，NPO有望加速部署，继续看好AI板块
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-现代牙科（03600）发布公告，于2026年6月26日，该公司斥资57.9万港元回购10万股股份，每股回购价5.79港元。责任编辑：卢昱君
+转自：证券时报 人民财讯5月19日电，中信建投研报表示，算力需求持续强劲，尤其是光连接，NPO有望先于CPO规模部署于Scale up，持续看好人工智能板块。 阿里巴巴与腾讯最新的业绩发布会上均有对算力需求的乐观表达。中国电信宁夏公司启动2026年“Token工厂”生成能力服务集采项目，规模达164.51亿元（不含税），服务期达60个月。近日，IPEC与LightCountin
 
 ## 正文
 
-现代牙科（03600）发布公告，于2026年6月26日，该公司斥资57.9万港元回购10万股股份，每股回购价5.79港元。
+转自：证券时报 人民财讯5月19日电，中信建投研报表示，算力需求持续强劲，尤其是光连接，NPO有望先于CPO规模部署于Scale up，持续看好人工智能板块。
 
-责任编辑：卢昱君
+阿里巴巴与腾讯最新的业绩发布会上均有对算力需求的乐观表达。
+
+中国电信宁夏公司启动2026年“Token工厂”生成能力服务集采项目，规模达164.51亿元（不含税），服务期达60个月。
+
+近日，IPEC与LightCounting联合举办了一场关于NPO的网络研讨会。
+
+专家认为，从可插拔光模块转向NPO/CPO的核心原因是Scale-up网络对带宽密度的需求，更低的功耗和更高的可靠性是NPO/CPO的另外两大重要优势。
+
+NPO可以依赖于成熟的可插拔光模块生态系统，同时在带宽密度和功耗方面提供显著改进。
+
+NPO是当前大规模部署中最实用、最具成本效益的解决方案。
+
+腾讯计划2026第四季度推出3.2T NPO解决方案，阿里的3.2T NPO已进入测试阶段。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 16:45 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 16:32 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 16:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 16:34 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 16:37 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 16:42 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 16:21 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 16:29 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 16:21 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:28 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 16:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 16:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 16:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 16:42 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:26 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 16:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 16:47 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 16:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 16:29 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 16:45 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 16:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 16:46 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 16:38 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 16:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 16:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/01482165154.shtml)
-- 2026-06-29 16:41 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/22760567.shtml)
-- 2026-06-29 16:33 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/63060546335.shtml)
-- 2026-06-29 16:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/497186795262.shtml)
-- 2026-06-29 16:20 - [AG 宫斗](https://www.share.minike.top/Article/details/02928549.shtml)
-- 2026-06-29 16:22 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/27770298.shtml)
-- 2026-06-29 16:42 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/3262111644.shtml)
-- 2026-06-29 16:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/56226619.shtml)
-- 2026-06-29 16:47 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/16546106611.shtml)
-- 2026-06-29 16:34 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/2407469.shtml)
-- 2026-06-29 16:36 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/376753.shtml)
-- 2026-06-29 16:47 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/957780126939.shtml)
-- 2026-06-29 16:37 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/653104067623.shtml)
-- 2026-06-29 16:24 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/760573003.shtml)
-- 2026-06-29 16:40 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/0140545289.shtml)
+- 2026-06-29 16:34 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/600878535.shtml)
+- 2026-06-29 16:47 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/161195.shtml)
+- 2026-06-29 16:25 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/613390693669.shtml)
+- 2026-06-29 16:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/04167771.shtml)
+- 2026-06-29 16:47 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/673709499170.shtml)
+- 2026-06-29 16:40 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/0719112050.shtml)
+- 2026-06-29 16:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/87141784.shtml)
+- 2026-06-29 16:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/303169630.shtml)
+- 2026-06-29 16:46 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/998750425.shtml)
+- 2026-06-29 16:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/99108.shtml)
+- 2026-06-29 16:27 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/753756.shtml)
+- 2026-06-29 16:52 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/18841622994.shtml)
+- 2026-06-29 16:44 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/899859.shtml)
+- 2026-06-29 16:33 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/98438.shtml)
+- 2026-06-29 16:52 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/574444513231.shtml)

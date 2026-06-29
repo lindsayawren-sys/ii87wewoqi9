@@ -1,56 +1,57 @@
-# 这脑回路！摩根大通员工的瓜！
+# 以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：五道口江湖 美国每日邮报6月25日消息2026年6月18日在球队NBA总冠军庆祝活动中，Angie Báez把垃圾桶内垃圾随意倾倒在地上，并把垃圾桶偷走了。这个垃圾桶是纽约尼克斯队‌主题的垃圾桶。 偷走垃圾桶的视频发酵之后，网友就开始各种扒，扒出Angie Báez居然是是摩根大通DEI主管【Dire
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：每经专访以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要 每经记者|蔡鼎 每经编辑|杨军 5月18日，“2026清华五道口全球金融论坛”在四川成都开幕。本届论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为核心主题 。在论坛首日举行的“国际货币体系的重构”主题论坛中
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：每经专访以色列央行前行长雅各布·弗兰克尔：应对全球金融碎片化，防范危机远比“救火”更重要 每经记者|蔡鼎 每经编辑|杨军 5月18日，“2026清华五道口全球金融论坛”在四川成都开幕。
 
-来源：五道口江湖 美国每日邮报6月25日消息2026年6月18日在球队NBA总冠军庆祝活动中，Angie Báez把垃圾桶内垃圾随意倾倒在地上，并把垃圾桶偷走了。
+本届论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为核心主题 。
 
-这个垃圾桶是纽约尼克斯队‌主题的垃圾桶。
+在论坛首日举行的“国际货币体系的重构”主题论坛中，三十人小组（G-30）董事会名誉主席、以色列央行前行长雅各布·弗兰克尔（Jacob A． Frenkel）出席并参与深度讨论。
 
-偷走垃圾桶的视频发酵之后，网友就开始各种扒，扒出Angie Báez居然是是摩根大通DEI主管【Director】，并且也被开除了。
+作为横跨顶尖学术界、国际多边组织与全球核心金融市场的资深专家，弗兰克尔曾于1991年至2000年期间连续两届出任以色列央行行长，并曾长期担任芝加哥大学国际经济学教授、国际货币基金组织（IMF）经济顾问兼研究部主任。
 
-传言四起 不过媒体找摩根大通询问，该公司是否解雇了Baez，摩根大通一位发言人很官方的说：“该员工已经离职了，所有事情已不再与公司有关联。
+在论坛间隙，弗兰克尔接受了《每日经济新闻》记者的独家专访。
 
-“这位发言人的声明确认了偷拿垃圾桶的人就是Baez，并证实她曾就职于摩根大通，但摩根大通的发言人未说Baez是不是因为偷垃圾桶而被开除！
+面对当前发达经济体政策路径的分歧以及地缘局势带来的金融“碎片化”隐忧，弗兰克尔对全球多边协作和防范系统性风险提出了新的治理思考。
 
-媒体进一步确认发现，Baez在摩根大通的职位是executive director， community and industry engagement， card and connected commerce，她之前曾在The Infatuation担任DEI相关工作。
+他表示，国际货币体系已转变为由私营部门和资本市场主导的新现实，要求决策者必须提供更加清晰、透明的前瞻性指引，并通过国际清算银行（BIS）等平台强化跨国政策沟通。
 
-后来摩根大通收购了The Infatuation。
+同时，针对许多新兴市场面临的潜在债务与流动性压力，他认为全球宏观治理亟需打破惯常的“背水一战”救火模式，应当将更多机制化精力和资源倾注于危机前的系统性防范，以长远视野推动包容性与可持续的经济增长。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 16:41 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 16:37 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 16:19 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 16:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 16:22 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 16:46 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 16:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 16:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 16:34 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 16:49 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:29 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 16:51 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 16:30 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 16:35 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 16:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 16:35 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 16:37 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 16:52 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 16:31 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/94731503.shtml)
-- 2026-06-29 16:40 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/7070199421.shtml)
-- 2026-06-29 16:45 - [送你一朵小红花](https://www.share.minike.top/Article/details/61369005220.shtml)
-- 2026-06-29 16:21 - [青春环游记第三季](http://www.share.minike.top/Article/details/6354577819.shtml)
-- 2026-06-29 16:26 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/812775182225.shtml)
-- 2026-06-29 16:45 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/941527.shtml)
-- 2026-06-29 16:26 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/0964647.shtml)
-- 2026-06-29 16:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/812384035.shtml)
-- 2026-06-29 16:18 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/4482418.shtml)
-- 2026-06-29 16:42 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/89897290243.shtml)
-- 2026-06-29 16:38 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/17023.shtml)
-- 2026-06-29 16:23 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/772512480.shtml)
-- 2026-06-29 16:22 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/761867.shtml)
-- 2026-06-29 16:24 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/054318910517.shtml)
-- 2026-06-29 16:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7915820.shtml)
+- 2026-06-29 16:52 - [恋与深空 731](https://www.share.minike.top/Article/details/81093292.shtml)
+- 2026-06-29 16:52 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/143658968.shtml)
+- 2026-06-29 16:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/210990.shtml)
+- 2026-06-29 16:47 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/556467590.shtml)
+- 2026-06-29 16:52 - [永远有话聊的原因](https://www.share.minike.top/Article/details/1993687.shtml)
+- 2026-06-29 16:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/3612548159.shtml)
+- 2026-06-29 16:38 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/46530495.shtml)
+- 2026-06-29 16:26 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/3697788255.shtml)
+- 2026-06-29 16:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/222489150.shtml)
+- 2026-06-29 16:30 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/42492.shtml)
+- 2026-06-29 16:51 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/400107953.shtml)
+- 2026-06-29 16:24 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/75454599.shtml)
+- 2026-06-29 16:35 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/4167305107.shtml)
+- 2026-06-29 16:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/143049053233.shtml)
+- 2026-06-29 16:25 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/29070623005.shtml)

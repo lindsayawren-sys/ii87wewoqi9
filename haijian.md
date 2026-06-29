@@ -1,46 +1,53 @@
-# 号称轻便透气“折叠头盔”能否守护安全？ 电商平台售卖 商家声称“坚固耐摔”
+# 创科实业(00669.HK)向港交所申请5亿美元中期票据计划上市
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
+久期财经讯，5月18日，创科实业有限公司(Techtronic Industries Co. Ltd.，简称“创科实业”，00669.HK)发布关于 500,000,000美元中期票据计划上市的公告。该公司已向港交所申请批准500,000,000美元中期票据计划自2026年5月18日起计为期十二个月仅以向专业投资者(如香港联合交易所有限公司证券上市规则第37章节所定义)以发行债
 
 ## 正文
 
-发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
+久期财经讯，5月18日，创科实业有限公司(Techtronic Industries Co. Ltd.，简称“创科实业”，00669.HK)发布关于 500,000,000美元中期票据计划上市的公告。
+
+该公司已向港交所申请批准500,000,000美元中期票据计划自2026年5月18日起计为期十二个月仅以向专业投资者(如香港联合交易所有限公司证券上市规则第37章节所定义)以发行债务方式上市，详情载于日期为2026年5月18日的相关发售通函。
+
+该计划的上市预计将于2026年5月19日开始生效。
+
+本次发行已委托花旗集团、汇丰银行担任安排行和交易商，澳新银行、法国巴黎银行、中银国际、美银证券、瑞穗证券、三菱日联证券、渣打银行、瑞银集团担任交易商。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 16:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 16:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 16:30 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 16:21 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 16:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 16:42 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 16:40 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 16:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 16:47 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 16:39 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 16:28 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 16:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 16:46 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 16:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 16:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 16:37 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 16:48 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 16:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:42 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 16:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:52 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 16:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 16:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 16:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 16:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/690596.shtml)
-- 2026-06-29 16:25 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/63146.shtml)
-- 2026-06-29 16:21 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/007985.shtml)
-- 2026-06-29 16:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/06757613400.shtml)
-- 2026-06-29 16:19 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/14508359.shtml)
-- 2026-06-29 16:28 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/8785752548.shtml)
-- 2026-06-29 16:30 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/389282.shtml)
-- 2026-06-29 16:42 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/997372095.shtml)
-- 2026-06-29 16:41 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/5412592.shtml)
-- 2026-06-29 16:41 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/3507511709.shtml)
-- 2026-06-29 16:31 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/195596443.shtml)
-- 2026-06-29 16:41 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/665206.shtml)
-- 2026-06-29 16:18 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/092407009.shtml)
-- 2026-06-29 16:38 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/93573927560.shtml)
-- 2026-06-29 16:22 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/306502.shtml)
+- 2026-06-29 16:28 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/154579.shtml)
+- 2026-06-29 16:34 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/1361518.shtml)
+- 2026-06-29 16:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/523161396.shtml)
+- 2026-06-29 16:41 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/244716.shtml)
+- 2026-06-29 16:40 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/91528.shtml)
+- 2026-06-29 16:39 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/27445386.shtml)
+- 2026-06-29 16:38 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/61572280.shtml)
+- 2026-06-29 16:32 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/81133.shtml)
+- 2026-06-29 16:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1963045263.shtml)
+- 2026-06-29 16:37 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/23234838.shtml)
+- 2026-06-29 16:53 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/83132.shtml)
+- 2026-06-29 16:29 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/14562.shtml)
+- 2026-06-29 16:37 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/77313801529.shtml)
+- 2026-06-29 16:43 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/088466861.shtml)
+- 2026-06-29 16:33 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/07269.shtml)

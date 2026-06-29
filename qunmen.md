@@ -1,60 +1,59 @@
-# 杨瑞龙：激发微观活力，首先要稳住企业激发企业
+# 探访博物馆里傅山医学的当代印记
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-专题：中国宏观经济论坛(CMF)2026 中国宏观经济论坛季度论坛（2026年中期）于6月27日举行，中国人民大学国家一级教授、经济研究所联席所长、中国宏观经济论坛（CMF）联合创始人、联席主席杨瑞龙表示，破解宏观失衡必须跳出“就宏观谈宏观”的误区，以微观改革激活主体活力、畅通政策传导，这是提升宏观调控效率的根本路径。 他提出，激发微观活力尤其重要，当下根本之根本的问题，要让企
+中新网太原5月18日电 题：探访博物馆里傅山医学的当代印记 中新网记者 范丽芳 傅山医学手抄草书册页、国内现存最早最完整的《傅青主女科》版本、清同治二年的《傅青主男科》……“5·18国际博物馆日”之际，记者走进山西中医药大学中医药博物馆，于泛黄纸页间，寻访这位明末清初奇人留下的“傅山印记”。 步入馆内，傅山典籍展区一派古朴庄重。展柜中，医学手抄书字体拙古稳健、苍朴圆润，墙上“傅
 
 ## 正文
 
-专题：中国宏观经济论坛(CMF)2026 中国宏观经济论坛季度论坛（2026年中期）于6月27日举行，中国人民大学国家一级教授、经济研究所联席所长、中国宏观经济论坛（CMF）联合创始人、联席主席杨瑞龙表示，破解宏观失衡必须跳出“就宏观谈宏观”的误区，以微观改革激活主体活力、畅通政策传导，这是提升宏观调控效率的根本路径。
+中新网太原5月18日电 题：探访博物馆里傅山医学的当代印记 中新网记者 范丽芳 傅山医学手抄草书册页、国内现存最早最完整的《傅青主女科》版本、清同治二年的《傅青主男科》……“5·18国际博物馆日”之际，记者走进山西中医药大学中医药博物馆，于泛黄纸页间，寻访这位明末清初奇人留下的“傅山印记”。
 
-他提出，激发微观活力尤其重要，当下根本之根本的问题，要让企业好过。
+步入馆内，傅山典籍展区一派古朴庄重。
 
-如果企业不好过就没有投资，没有投资就没有就业，没有就业就没有收入。
+展柜中，医学手抄书字体拙古稳健、苍朴圆润，墙上“傅山”“青主”两方印章朱白分明。
 
-所以要稳住企业，要激发企业。
+最引人注目的，是一方匾额上傅山亲书的“兴来稍可”，笔意从容间，尽显其“医理通哲理”的大家风范。
 
-激发企业很重要的是产权激励和产权保护，尽管我们当下宏观调控的任务很着急，但是我们微观上的改革一定不能松手。
+傅山，山西太原人，明末清初思想家、书法家、诗人，亦精通内、外、妇科。
 
-此外，他表示，优化宏观经济政策的传导机制也非常重要，比如原来的一些政策、增长动能有一个传导机制是房地产，让很多人通过房地产行业，家庭、企业、地方都受益了。
+其所著《傅青主女科》《傅青主男科》《霜红龛集》等影响深远，其中《傅青主女科》被誉为中医妇科经典。
 
-受益了之后就有消费，有投资了。
+山西中医药大学中医药博物馆馆长刘润兰介绍，博物馆现存中医药古籍5000余册，其中傅山相关医籍达27种70余册，为目前全国中医类博物馆系统傅山医学藏品之最。
 
-由于房地产严重收缩，增长动力的传导不行了。
+从孤本手稿到系列刻印典籍，这些珍贵文献为傅山医学体系研究提供厚重支撑。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 16:30 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 16:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 16:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 16:41 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:33 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 16:21 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 16:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 16:22 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 16:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 16:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 16:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 16:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:43 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 16:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 16:35 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 16:41 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 16:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:33 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 16:28 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 16:51 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 16:39 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:47 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 16:28 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 16:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 16:41 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 16:53 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/60973.shtml)
-- 2026-06-29 16:31 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/18969351.shtml)
-- 2026-06-29 16:41 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/977031577733.shtml)
-- 2026-06-29 16:34 - [沙丘](https://www.share.kurohicncr.top/Article/details/593510.shtml)
-- 2026-06-29 16:27 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/3132011033.shtml)
-- 2026-06-29 16:38 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/63044995.shtml)
-- 2026-06-29 16:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/909530982.shtml)
-- 2026-06-29 16:23 - [存储三巨头被告了](http://www.share.minike.top/Article/details/2383791196.shtml)
-- 2026-06-29 16:38 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/92260031.shtml)
-- 2026-06-29 16:25 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/27381.shtml)
-- 2026-06-29 16:22 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/025462076.shtml)
-- 2026-06-29 16:42 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/1241544988.shtml)
-- 2026-06-29 16:40 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/280640867291.shtml)
-- 2026-06-29 16:42 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/0566682135.shtml)
-- 2026-06-29 16:23 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/89554.shtml)
+- 2026-06-29 16:25 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/781842339126.shtml)
+- 2026-06-29 16:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/084341499.shtml)
+- 2026-06-29 16:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/3277333.shtml)
+- 2026-06-29 16:41 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/699212.shtml)
+- 2026-06-29 16:33 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/19195943.shtml)
+- 2026-06-29 16:30 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/76371.shtml)
+- 2026-06-29 16:28 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/990871.shtml)
+- 2026-06-29 16:38 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/64669630842.shtml)
+- 2026-06-29 16:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/2012065.shtml)
+- 2026-06-29 16:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/60787834452.shtml)
+- 2026-06-29 16:53 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/61333042.shtml)
+- 2026-06-29 16:37 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/206207830400.shtml)
+- 2026-06-29 16:53 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/0228438.shtml)
+- 2026-06-29 16:40 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/386804866.shtml)
+- 2026-06-29 16:30 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/85807605380.shtml)

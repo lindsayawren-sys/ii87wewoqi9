@@ -1,60 +1,57 @@
-# 安森美收购新思科技后股价暴跌20%，CEO出面为核心业务辩护
+# 银行债券配置需求有望继续释放，看好国债市场
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-核心要点 安森美半导体首席执行官哈桑・埃尔・胡里宣布公司史上最大规模收购后，公司股价大跌，他随即出面为企业核心业务进行辩护。 本次收购新思科技，意在加速布局物理人工智能领域。 埃尔・胡里在接受《街头早间财经》栏目采访时表示，这笔收购交易 “与公司现有扎实业务布局形成高度互补”。 行情数据 新思科技（SYNA）：上涨 0.23 美元，涨幅 0.18% 安森美（ON）：下跌 27.
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（5月8日）银行间流动性延续宽松，主要资金价格小幅走低，当日央行净投放5亿元。本周一（5月11日）资金面整体维持宽松，7天DR小幅抬升，当日央行净投放为5亿元。本周二资金面整体仍延续宽松，隔夜DR小幅抬升，7天DR边际回落，当日央行净投放5亿元。周三资金面延续宽松格局，各期限回购利率变动不大，当日央行净回笼255亿元。本周
 
 ## 正文
 
-核心要点 安森美半导体首席执行官哈桑・埃尔・胡里宣布公司史上最大规模收购后，公司股价大跌，他随即出面为企业核心业务进行辩护。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（5月8日）银行间流动性延续宽松，主要资金价格小幅走低，当日央行净投放5亿元。
 
-本次收购新思科技，意在加速布局物理人工智能领域。
+本周一（5月11日）资金面整体维持宽松，7天DR小幅抬升，当日央行净投放为5亿元。
 
-埃尔・胡里在接受《街头早间财经》栏目采访时表示，这笔收购交易 “与公司现有扎实业务布局形成高度互补”。
+本周二资金面整体仍延续宽松，隔夜DR小幅抬升，7天DR边际回落，当日央行净投放5亿元。
 
-行情数据 新思科技（SYNA）：上涨 0.23 美元，涨幅 0.18% 安森美（ON）：下跌 27.08 美元，跌幅 22.81% 安森美半导体为抢抓物理人工智能发展机遇，宣布完成公司史上最大一笔收购，随后股价大跌 20%，首席执行官哈桑・埃尔・胡里公开为公司核心业务站台辩护。
+周三资金面延续宽松格局，各期限回购利率变动不大，当日央行净回笼255亿元。
 
-这家主营汽车领域功率元器件与传感芯片的企业于周四官宣，将通过全股票交易方式收购边缘人工智能及无线连接解决方案厂商新思科技。
+本周四资金面延续平稳宽松，各期限回购利率变动不大，当日央行净回笼265亿元。
 
-安森美在公告中表示，本次向物理人工智能赛道转型，将为公司新增 300 亿美元可触达市场空间，到 2030 年公司整体目标市场规模将达到 2430 亿美元。
+本周四（5月14日）相较于上周五，DR001上行6bp收于1.27%，DR007下行3bp收于 1.30%。
 
-埃尔・胡里周五在节目中表示：“这正是本次收购的战略价值所在，交易能与我们已打下的坚实业务基础形成全方位互补。
+海外方面，美国4月未季调CPI同比升3.8%，为2023年5月以来新高，预期升3.7%，前值升3.3%；环比升0.6%，预期升0.6%，前值升0.9%；未季调核心CPI同比升2.8%，为2025年9月以来新高，预期升2.7%，前值升2.6%；环比升0.4%，预期升0.3%，前值升0.2%。
 
-” 他称，此次收购还将为公司开辟全新市场，聚焦人工智能计算平台领域。
+美国4月PPI同比升6%，预期升4.9%，前值自升4%修正至升4.3%；环比升1.4%，预期升0.5%，前值自升0.5%修正至升0.7%；核心PPI同比升5.2%，预期升4.3%，前值自升3.8%修正至升4%；环比升1%，预期升0.3%，前值自升0.1%修正至升0.2%。
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 16:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 16:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 16:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 16:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 16:35 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 16:39 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 16:37 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 16:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 16:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 16:47 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 16:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 16:36 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 16:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 16:38 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 16:40 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 16:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 16:43 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:36 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 16:32 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 16:39 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 16:24 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 16:39 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/6523008951.shtml)
-- 2026-06-29 16:22 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/915407.shtml)
-- 2026-06-29 16:24 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/65832296427.shtml)
-- 2026-06-29 16:28 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/187078925883.shtml)
-- 2026-06-29 16:33 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/69812755084.shtml)
-- 2026-06-29 16:23 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/1895007113.shtml)
-- 2026-06-29 16:42 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/4108240.shtml)
-- 2026-06-29 16:27 - [105年初心滚烫](http://www.share.minike.top/Article/details/135038159.shtml)
-- 2026-06-29 16:22 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/713090290746.shtml)
-- 2026-06-29 16:40 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/58473.shtml)
-- 2026-06-29 16:46 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/26453.shtml)
-- 2026-06-29 16:26 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/790437.shtml)
-- 2026-06-29 16:19 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/25676456.shtml)
-- 2026-06-29 16:26 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/9151367.shtml)
-- 2026-06-29 16:28 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/707849078.shtml)
+- 2026-06-29 16:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/586146.shtml)
+- 2026-06-29 16:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/333067917444.shtml)
+- 2026-06-29 16:44 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/754599774609.shtml)
+- 2026-06-29 16:42 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/67324.shtml)
+- 2026-06-29 16:46 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/25815852.shtml)
+- 2026-06-29 16:49 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/45981348054.shtml)
+- 2026-06-29 16:33 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/613279.shtml)
+- 2026-06-29 16:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/181437.shtml)
+- 2026-06-29 16:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/71291.shtml)
+- 2026-06-29 16:49 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/181535474.shtml)
+- 2026-06-29 16:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/39349.shtml)
+- 2026-06-29 16:31 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/18524217686.shtml)
+- 2026-06-29 16:36 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/9141978835.shtml)
+- 2026-06-29 16:41 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/1913279406.shtml)
+- 2026-06-29 16:40 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/630370801691.shtml)

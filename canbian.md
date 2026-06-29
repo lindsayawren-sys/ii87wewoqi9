@@ -1,60 +1,61 @@
-# 嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史
+# 广西玉林围绕数智化书写向海新文章
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新社浙江嘉兴6月26日电 题：嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史 作者 黄彦君 “亲眼见到复原的红船，书中历史好像‘活’了起来。”在浙江嘉兴南湖湖心岛上，来自江西的“00后”游客郑佳涵端详着泊在岸边的著名红船说。 1921年夏，中共一大在上海秘密召开，但因受巡捕袭扰而被迫中断，代表们辗转至嘉兴南湖一艘画舫上继续开会。正是这次会议，庄严宣告中国共产党诞生。 不过，当年举行
+开局之年看中国丨广西玉林围绕数智化书写向海新文章 5月15日上午，“开局之年看中国·共此壮美广西”网络主题宣传活动正式启动。央视新闻记者随采访团首站奔赴玉林调研，玉林近年围绕数智创新做强向海经济，给记者留下深刻印象。 港湾+数智化 算力也要“向海而兴” 近海不沿海，曾是玉林的遗憾。通过创新的“借地建港”模式，玉林与北海、北部湾港务集团等合作建设了玉林海港码头，已于2023年12
 
 ## 正文
 
-中新社浙江嘉兴6月26日电 题：嘉兴南湖：沉浸式叙事空间讲述鲜活红色历史 作者 黄彦君 “亲眼见到复原的红船，书中历史好像‘活’了起来。
+开局之年看中国丨广西玉林围绕数智化书写向海新文章 5月15日上午，“开局之年看中国·共此壮美广西”网络主题宣传活动正式启动。
 
-”在浙江嘉兴南湖湖心岛上，来自江西的“00后”游客郑佳涵端详着泊在岸边的著名红船说。
+央视新闻记者随采访团首站奔赴玉林调研，玉林近年围绕数智创新做强向海经济，给记者留下深刻印象。
 
-1921年夏，中共一大在上海秘密召开，但因受巡捕袭扰而被迫中断，代表们辗转至嘉兴南湖一艘画舫上继续开会。
+港湾+数智化 算力也要“向海而兴” 近海不沿海，曾是玉林的遗憾。
 
-正是这次会议，庄严宣告中国共产党诞生。
+通过创新的“借地建港”模式，玉林与北海、北部湾港务集团等合作建设了玉林海港码头，已于2023年12月开港运营，一举打通玉林乃至桂东地区的向海通道。
 
-不过，当年举行过一大的那艘画舫后来毁于抗日战争期间，现停泊于此的是1959年按原貌精心仿制的红船。
+同时，玉林围绕“数智向海”布局“玉林智谷”建设，依托机制创新和“智谷”实践，深耕“北上广研发+广西集成+东盟应用”的发展路径；锚定“立足北部湾、借势大湾区、辐射东盟圈”的远景，面向东盟发力打造算力枢纽，目前累计培育智能工厂、数字化车间、智能制造标杆企业56家，成功入选全国中小企业数字化转型试点城市。
 
-历经数十年，这艘南湖红船已经成为世人了解中共发展历程的必到一站。
+香料+数智化 闻香识产业 来到玉林的客商们常说，这座城市蓬勃的产业脉动，离不开它独特的味道。
 
-制作红船模型十余年的浙江省非物质文化遗产“南湖画舫制作技艺”第四代传承人徐薛超认为，红船是有温度的历史载体。
+“无药不过玉林，寻香必至玉州”。
 
-近年来，南湖“红色游”升温，他与团队努力开发贴合年轻人审美的冰箱贴、挂件等文创产品，方便人们“带红船回家”。
+在这里，桂皮与八角香气萦绕，烟火在人间沉淀。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 16:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 16:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:30 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 16:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 16:32 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 16:22 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 16:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 16:43 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 16:35 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 16:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 16:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 16:18 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:43 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 16:54 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 16:38 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 16:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 16:47 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 16:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 16:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 16:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 16:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 16:47 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 16:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 16:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 16:33 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 16:53 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 16:53 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 16:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/41667.shtml)
-- 2026-06-29 16:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/32951830.shtml)
-- 2026-06-29 16:39 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/043942288545.shtml)
-- 2026-06-29 16:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/7162539.shtml)
-- 2026-06-29 16:36 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/45993151279.shtml)
-- 2026-06-29 16:43 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/670069494518.shtml)
-- 2026-06-29 16:43 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/7375600.shtml)
-- 2026-06-29 16:37 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/483829468.shtml)
-- 2026-06-29 16:28 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/282977.shtml)
-- 2026-06-29 16:28 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/427974469.shtml)
-- 2026-06-29 16:47 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/763122448191.shtml)
-- 2026-06-29 16:28 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/221038.shtml)
-- 2026-06-29 16:31 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/0962486.shtml)
-- 2026-06-29 16:42 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/2202339004.shtml)
-- 2026-06-29 16:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/7307324.shtml)
+- 2026-06-29 16:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/757029.shtml)
+- 2026-06-29 16:24 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/175657580.shtml)
+- 2026-06-29 16:24 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/7134004584.shtml)
+- 2026-06-29 16:50 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/442599533523.shtml)
+- 2026-06-29 16:35 - [第一炉香](http://www.share.minike.top/Article/details/9058514378.shtml)
+- 2026-06-29 16:33 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/9853873364.shtml)
+- 2026-06-29 16:48 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/14763644.shtml)
+- 2026-06-29 16:36 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/801381282.shtml)
+- 2026-06-29 16:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/73827.shtml)
+- 2026-06-29 16:36 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/250154024145.shtml)
+- 2026-06-29 16:29 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/014411015.shtml)
+- 2026-06-29 16:28 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/9872987.shtml)
+- 2026-06-29 16:46 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/71853.shtml)
+- 2026-06-29 16:25 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/416144.shtml)
+- 2026-06-29 16:33 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/887529741.shtml)

@@ -1,59 +1,45 @@
-# 什么导致本周市场大动荡？高盛合伙人最新复盘
+# 微观察·中美元首北京会晤丨历史性的一页，要用历史的长镜头去端详
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 本周全球股市的剧烈震荡，根源并非来自美联储主席换届引发的宏观忧虑，而是AI投资热潮内部的结构性再平衡——存储周期的周期本质、对冲基金的极度仓位拥挤，以及市场对AI产业链赢家与输家的认知转变，共同构成了这场动荡的真实驱动力。 高盛销售与交易部合伙人Mark Wilson在最新报告中明确表态，
+发布时间：2026年05月18日 10:05 来源：人民日报客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：华尔街见闻 本周全球股市的剧烈震荡，根源并非来自美联储主席换届引发的宏观忧虑，而是AI投资热潮内部的结构性再平衡——存储周期的周期本质、对冲基金的极度仓位拥挤，以及市场对AI产业链赢家与输家的认知转变，共同构成了这场动荡的真实驱动力。
-
-高盛销售与交易部合伙人Mark Wilson在最新报告中明确表态，尽管新任美联储主席凯文·沃什（Kevin Warsh）履新初期市场已出现盈亏平衡通胀率骤降、实际利率走高、美元强势突破等宏观信号。
-
-但他并不认为这是本周股市波动的根本原因，他坚持其一贯判断：“目前仍是股市在驱动宏观，而非宏观在驱动股市。
-
-” 本周市场动荡的直观写照：韩国Kospi指数两度触发熔断，微软创下52周新低，亚马逊跌破200日均线；“科技七巨头”（Mag7）年初至今整体跌幅超过5%，苹果与戴尔单日各挫逾5%。
-
-与此同时，美光（Micron）录得创纪录毛利率——AI供应链中的受益方与承压方之间的分化，正以前所未有的清晰度呈现在市场面前。
-
-Wilson的核心结论是：这场波动并非AI投资周期终结的信号——“我们仍处于一场历史性投资热潮的进行之中”——而是市场对这轮热潮中净赢家与净输家的判断，正在经历一次深层次的重估。
-
-韩国成为震中：杠杆结构放大AI主题脆弱性 韩国市场成为本周全球AI交易波动最集中的爆发点。
+发布时间：2026年05月18日 10:05 来源：人民日报客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 16:40 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 16:37 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 16:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 16:37 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 16:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 16:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 16:40 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 16:45 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 16:35 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 16:44 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 16:37 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 16:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:46 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 16:31 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 16:32 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 16:39 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 16:50 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 16:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 16:38 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:30 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 16:48 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/175129896802.shtml)
-- 2026-06-29 16:43 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/2843323545.shtml)
-- 2026-06-29 16:45 - [金牌调解](https://www.share.minike.top/Article/details/7589823552.shtml)
-- 2026-06-29 16:36 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/16570844280.shtml)
-- 2026-06-29 16:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/58376.shtml)
-- 2026-06-29 16:23 - [一生一世](http://www.share.minike.top/Article/details/842196.shtml)
-- 2026-06-29 16:34 - [T1 KC](https://www.blog.minike.top/Article/details/2850626.shtml)
-- 2026-06-29 16:22 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/4370678.shtml)
-- 2026-06-29 16:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/454558238678.shtml)
-- 2026-06-29 16:42 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/17853634.shtml)
-- 2026-06-29 16:27 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/096858906.shtml)
-- 2026-06-29 16:37 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/03403965.shtml)
-- 2026-06-29 16:38 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/686956.shtml)
-- 2026-06-29 16:18 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/70172.shtml)
-- 2026-06-29 16:21 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/852578.shtml)
+- 2026-06-29 16:29 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/997497.shtml)
+- 2026-06-29 16:52 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/4409875315.shtml)
+- 2026-06-29 16:43 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/4392260443.shtml)
+- 2026-06-29 16:28 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/495755944763.shtml)
+- 2026-06-29 16:36 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/1026757800.shtml)
+- 2026-06-29 16:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/10189966653.shtml)
+- 2026-06-29 16:49 - [金牌调解](http://www.share.kurohicncr.top/Article/details/19704028.shtml)
+- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/85730102202.shtml)
+- 2026-06-29 16:37 - [T1 KC](https://www.share.minike.top/Article/details/435891592.shtml)
+- 2026-06-29 16:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/1199413.shtml)
+- 2026-06-29 16:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/61248466878.shtml)
+- 2026-06-29 16:24 - [速度与激情9](https://www.share.minike.top/Article/details/64810397518.shtml)
+- 2026-06-29 16:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/004541985.shtml)
+- 2026-06-29 16:46 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/553201351239.shtml)
+- 2026-06-29 16:53 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/70813893922.shtml)

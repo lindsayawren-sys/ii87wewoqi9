@@ -1,58 +1,58 @@
-# 上调！国际评级机构出手！中信、中金首次获评A类
+# 七国集团内部分歧凸显，此次财长会议形势严峻
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，国际评级机构惠誉评级发布最新报告，对多家国内券商进行了评级。 评级报告显示，中信证券、中金公司被评为“A-”，成为国内首批获得惠誉“A-”国际主体评级的证券公司。与此同时，中信建投、广发证券、兴业证券等多家券商评级均为B类。 中金公司表示，本次上调有助于增强国际投资者信心，吸引更多长期优质资本的关注与
+法国财政部表示，本次会议还将迎来七国集团各国央行代表出席，各方将探讨如何通过临时性、针对性且可逆转的政策举措，协同应对通胀等各类经济冲击。 欧洲央行行长克里斯蒂娜・拉加德抵达会场时，被问及是否担忧债券抛售潮，她向记者坦言：“我始终心怀忧虑，这本就是我的职责所在。” 七国集团财长力求在化解全球经济矛盾、统筹关键原材料供应等议题上达成共识。但集团内部存在诸多分歧，难以凝聚统一立场，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+法国财政部表示，本次会议还将迎来七国集团各国央行代表出席，各方将探讨如何通过临时性、针对性且可逆转的政策举措，协同应对通胀等各类经济冲击。
 
-近日，国际评级机构惠誉评级发布最新报告，对多家国内券商进行了评级。
+欧洲央行行长克里斯蒂娜・拉加德抵达会场时，被问及是否担忧债券抛售潮，她向记者坦言：“我始终心怀忧虑，这本就是我的职责所在。
 
-评级报告显示，中信证券、中金公司被评为“A-”，成为国内首批获得惠誉“A-”国际主体评级的证券公司。
+” 七国集团财长力求在化解全球经济矛盾、统筹关键原材料供应等议题上达成共识。
 
-与此同时，中信建投、广发证券、兴业证券等多家券商评级均为B类。
+但集团内部存在诸多分歧，难以凝聚统一立场，而各国领导人即将于 6 月 15 日至 17 日在依云温泉小镇举行峰会，财长们需为此做好筹备工作。
 
-中金公司表示，本次上调有助于增强国际投资者信心，吸引更多长期优质资本的关注与配置。
+此次巴黎会议的核心议题，是法国财长莱斯屈尔会前提及的根深蒂固的全球经济失衡问题。
 
-中信证券称，评级提升将进一步拓宽境外融资渠道、降低跨境资金成本，为公司深耕全球资本市场、开展国际化经营筑牢信用根基。
+这类失衡不仅加剧贸易摩擦，还极易引发金融市场剧烈动荡。
 
-中信、中金首次获得“A-” 6月26日，惠誉评级发布最新报告，将中金公司及全资子公司中金国际的长期发行人主体评级由“BBB+”上调至“A-”，展望稳定，股东支持评级同步由“bbb+”上调至“a-”。
+他指出，过去十余年间全球经济的发展模式显然难以为继，具体表现为一些国家消费不足、美国消费过剩、欧洲投资乏力。
 
-本次评级调整后，中金公司的惠誉国际评级达到国内券商的最高评级水平。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 16:19 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 16:19 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 16:37 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 16:28 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 16:41 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 16:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 16:30 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 16:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 16:39 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 16:42 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 16:45 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 16:44 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 16:50 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 16:48 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 16:41 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 16:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 16:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 16:24 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 16:33 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:26 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 16:40 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 16:49 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 16:41 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/733455337.shtml)
-- 2026-06-29 16:31 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/25870195196.shtml)
-- 2026-06-29 16:30 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/21357014605.shtml)
-- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/8574573008.shtml)
-- 2026-06-29 16:39 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/192829305449.shtml)
-- 2026-06-29 16:28 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/306056323.shtml)
-- 2026-06-29 16:40 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/70434.shtml)
-- 2026-06-29 16:39 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/069385330.shtml)
-- 2026-06-29 16:18 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/8498365.shtml)
-- 2026-06-29 16:46 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/4818971064.shtml)
-- 2026-06-29 16:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/59843307348.shtml)
-- 2026-06-29 16:37 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/47042324.shtml)
-- 2026-06-29 16:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/28409268829.shtml)
-- 2026-06-29 16:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/0633111448.shtml)
-- 2026-06-29 16:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/6316143.shtml)
+- 2026-06-29 16:25 - [叠纸](https://www.blog.kurohicncr.top/Article/details/483140065.shtml)
+- 2026-06-29 16:30 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/280698.shtml)
+- 2026-06-29 16:49 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/606199.shtml)
+- 2026-06-29 16:49 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/055192.shtml)
+- 2026-06-29 16:38 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/4734489347.shtml)
+- 2026-06-29 16:53 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/07446804.shtml)
+- 2026-06-29 16:31 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/49309379593.shtml)
+- 2026-06-29 16:31 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/24330014947.shtml)
+- 2026-06-29 16:47 - [第一炉香](http://www.share.minike.top/Article/details/500961.shtml)
+- 2026-06-29 16:46 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/75189.shtml)
+- 2026-06-29 16:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/7870235691.shtml)
+- 2026-06-29 16:51 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/075651988.shtml)
+- 2026-06-29 16:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/0331159.shtml)
+- 2026-06-29 16:53 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/9646182.shtml)
+- 2026-06-29 16:52 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/774543.shtml)

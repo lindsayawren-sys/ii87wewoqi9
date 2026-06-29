@@ -1,57 +1,56 @@
-# 全国人大常委会举行宪法宣誓仪式
+# 特朗普放弃百亿诉讼，换取司法部创设17.6亿美元“反武器化”基金
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-新华社北京6月26日电 十四届全国人大常委会26日下午在北京人民大会堂举行宪法宣誓仪式。全国人大常委会副委员长王东明主持并监誓。 刚刚闭幕的十四届全国人大常委会第二十三次会议任命王忠林为全国人大环境与资源保护委员会副主任委员，任命曾萍为全国人大常委会法制工作委员会副主任。此前的十四届全国人大常委会第二十二次会议决定任命张柱为农业农村部部长。根据宪法和全国人大常委会关于实行宪法宣
+诉讼撤销与和解方案 美国总统特朗普已正式放弃针对美国国税局的100亿美元诉讼。根据周一提交给迈阿密联邦法院的文件，特朗普的律师请求“自愿撤销”此案。作为和解的核心，司法部将创设一笔17.76亿美元（数字暗指美国建国年份1776年）的“反武器化基金”，用于赔偿自称在前总统任内遭受“政府武器化”迫害的个人。 争议焦点与条款内容 该和解方案立即引发巨大争议。据报道，该基金将由五名专员
 
 ## 正文
 
-新华社北京6月26日电 十四届全国人大常委会26日下午在北京人民大会堂举行宪法宣誓仪式。
+诉讼撤销与和解方案 美国总统特朗普已正式放弃针对美国国税局的100亿美元诉讼。
 
-全国人大常委会副委员长王东明主持并监誓。
+根据周一提交给迈阿密联邦法院的文件，特朗普的律师请求“自愿撤销”此案。
 
-刚刚闭幕的十四届全国人大常委会第二十三次会议任命王忠林为全国人大环境与资源保护委员会副主任委员，任命曾萍为全国人大常委会法制工作委员会副主任。
+作为和解的核心，司法部将创设一笔17.76亿美元（数字暗指美国建国年份1776年）的“反武器化基金”，用于赔偿自称在前总统任内遭受“政府武器化”迫害的个人。
 
-此前的十四届全国人大常委会第二十二次会议决定任命张柱为农业农村部部长。
+争议焦点与条款内容 该和解方案立即引发巨大争议。
 
-根据宪法和全国人大常委会关于实行宪法宣誓制度的决定，上述人员依法进行宪法宣誓。
+据报道，该基金将由五名专员监督，其中四人由司法部长任命且特朗普有权无理由罢免。
 
-全国人大机关、农业农村部有关负责同志参加了宣誓活动。
+代理司法部长托德·布朗奇在声明中称，此举旨在“纠正过去的错误”。
+
+然而，近百名众议院民主党人提交法庭之友简报，直斥此举是“惊人的腐败”，旨在为特朗普的政治盟友创造利益。
+
+诉讼起源与利益冲突质疑 特朗普于今年1月提起诉讼，指控国税局在2020年未能阻止前承包商查尔斯·利特尔约翰泄露其税务记录，导致《纽约时报》在其竞选期间曝光其纳税情况，造成名誉及经济损失。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 16:45 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 16:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 16:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 16:28 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 16:31 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 16:31 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 16:24 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:26 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 16:28 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 16:29 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 16:43 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 16:20 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 16:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 16:18 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 16:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 16:28 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:24 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 16:25 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 16:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 16:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 16:48 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 16:25 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 16:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/571890835370.shtml)
-- 2026-06-29 16:45 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/770994940104.shtml)
-- 2026-06-29 16:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/534126.shtml)
-- 2026-06-29 16:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/26756.shtml)
-- 2026-06-29 16:28 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/76921.shtml)
-- 2026-06-29 16:43 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/809081735787.shtml)
-- 2026-06-29 16:30 - [天道](https://www.share.kurohicncr.top/Article/details/64192.shtml)
-- 2026-06-29 16:25 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/708324.shtml)
-- 2026-06-29 16:31 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/95188.shtml)
-- 2026-06-29 16:37 - [恋与深空 731](https://www.blog.minike.top/Article/details/796706.shtml)
-- 2026-06-29 16:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/5916142273.shtml)
-- 2026-06-29 16:30 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/42835970.shtml)
-- 2026-06-29 16:23 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/06437875181.shtml)
-- 2026-06-29 16:26 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/590114.shtml)
-- 2026-06-29 16:34 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/15691.shtml)
+- 2026-06-29 16:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/224189914.shtml)
+- 2026-06-29 16:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/86294744.shtml)
+- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/289349737109.shtml)
+- 2026-06-29 16:40 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/678175429.shtml)
+- 2026-06-29 16:47 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/2518802.shtml)
+- 2026-06-29 16:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/561994336.shtml)
+- 2026-06-29 16:35 - [博主：黄金和原油回落不等于风险消失](http://www.blog.minike.top/Article/details/376267217.shtml)
+- 2026-06-29 16:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/724951198.shtml)
+- 2026-06-29 16:29 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/98147.shtml)
+- 2026-06-29 16:30 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/526496293063.shtml)
+- 2026-06-29 16:49 - [流金岁月](http://www.share.minike.top/Article/details/92839616.shtml)
+- 2026-06-29 16:40 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/019079503149.shtml)
+- 2026-06-29 16:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/107430.shtml)
+- 2026-06-29 16:53 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/6526057819.shtml)
+- 2026-06-29 16:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/0299582198.shtml)

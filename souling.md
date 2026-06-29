@@ -1,56 +1,58 @@
-# 黄金价格大跌，消费者权益保护指南
+# ADES将北海自升式钻井平台合同延长至三年期
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-近期，国际金价持续走低，引发广泛关注。6月25日盘中，纽约黄金期价一度跌至每盎司3976.30美元，创下自去年11月以来的新低，较今年1月每盎司5594.82美元的历史高点跌幅接近30%。国内金价也随之回落至900元以下，各大银行纷纷发布公告调整个人贵金属业务，建设银行等多家银行紧急关闭相关交易功能。面对这一轮黄金大跌，消费者在投资和消费方面的困惑也随之而来。 黄金消费中的常见
+合同延期细节 海上钻井承包商ADES Holding已将“Shelf Drilling Winner”号自升式钻井平台与Tenaz Energy Netherlands的合同从一年期确定为三年期，作业区域为荷兰北海海域。该合同于2025年11月启动，原包含一年确定期和两个一年期可选续约权。修订后的协议在保留两个一年期可选续约权的同时，将确定期延长至三年。包含可选期在内的总潜在合
 
 ## 正文
 
-近期，国际金价持续走低，引发广泛关注。
+合同延期细节 海上钻井承包商ADES Holding已将“Shelf Drilling Winner”号自升式钻井平台与Tenaz Energy Netherlands的合同从一年期确定为三年期，作业区域为荷兰北海海域。
 
-6月25日盘中，纽约黄金期价一度跌至每盎司3976.30美元，创下自去年11月以来的新低，较今年1月每盎司5594.82美元的历史高点跌幅接近30%。
+该合同于2025年11月启动，原包含一年确定期和两个一年期可选续约权。
 
-国内金价也随之回落至900元以下，各大银行纷纷发布公告调整个人贵金属业务，建设银行等多家银行紧急关闭相关交易功能。
+修订后的协议在保留两个一年期可选续约权的同时，将确定期延长至三年。
 
-面对这一轮黄金大跌，消费者在投资和消费方面的困惑也随之而来。
+包含可选期在内的总潜在合同价值约为2.219亿美元。
 
-黄金消费中的常见陷阱 黄金消费市场的纠纷类型并不少见。
+战略意义 ADES表示，此次延期增加了公司的确定积压订单，进一步提升了“Shelf Drilling Winner”号的收入可见度，同时有助于该平台在荷兰北海海域保持持续运营。
 
-一是成色与标识不符，部分商家以次充好，黄金纯度低于标注；二是克重缩水，消费者购买后复称发现重量不足；三是以旧换新中的猫腻，旧金折价标准不透明，换购过程中被收取高额工费；四是投资金条回购困难，部分银行或金店设置苛刻的回购门槛；此外，一口价黄金饰品刻意模糊克重信息，诱导消费者高价购买的问题也时有发生。
+延期还体现了ADES严谨的商业策略，以及在海上供应紧张、优质资产稀缺的市场环境中积极为船队锁定作业的专注态度。
 
-遭遇纠纷，有哪些维权渠道？
+公司背景 2025年11月，ADES完成了对竞争对手Shelf Drilling的收购。
 
-首先，消费者可以拨打12315热线或通过全国12315平台网站、APP、微信小程序进行投诉举报。
+合并后的集团运营着超过80座海上自升式钻井平台，其中包括在全球最具吸引力的盆地中的45多座优质平台。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 16:32 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 16:43 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 16:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 16:33 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 16:28 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 16:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 16:20 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 16:32 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 16:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 16:31 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 16:26 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 16:25 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 16:40 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 16:50 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 16:37 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 16:49 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 16:43 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 16:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 16:45 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 16:52 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/17514.shtml)
-- 2026-06-29 16:44 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/0050528510.shtml)
-- 2026-06-29 16:22 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/30394138943.shtml)
-- 2026-06-29 16:28 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/79054.shtml)
-- 2026-06-29 16:48 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/98062387882.shtml)
-- 2026-06-29 16:33 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/21922332.shtml)
-- 2026-06-29 16:26 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/239580439535.shtml)
-- 2026-06-29 16:27 - [啊啊啊](https://www.share.minike.top/Article/details/74970.shtml)
-- 2026-06-29 16:33 - [毒液2](https://www.blog.minike.top/Article/details/85798.shtml)
-- 2026-06-29 16:30 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/047471191.shtml)
-- 2026-06-29 16:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/06243843451.shtml)
-- 2026-06-29 16:33 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/19571.shtml)
-- 2026-06-29 16:18 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/20713967.shtml)
-- 2026-06-29 16:43 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/525641040.shtml)
-- 2026-06-29 16:25 - [AG 宫斗](http://www.share.minike.top/Article/details/38050.shtml)
+- 2026-06-29 16:29 - [爱很美味](http://www.blog.minike.top/Article/details/162747.shtml)
+- 2026-06-29 16:48 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/26099.shtml)
+- 2026-06-29 16:49 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/827540230.shtml)
+- 2026-06-29 16:45 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/33866190.shtml)
+- 2026-06-29 16:46 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/450775.shtml)
+- 2026-06-29 16:44 - [明星大侦探第一季](https://www.share.minike.top/Article/details/130873.shtml)
+- 2026-06-29 16:39 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/83702.shtml)
+- 2026-06-29 16:45 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/91149327.shtml)
+- 2026-06-29 16:44 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/6963127.shtml)
+- 2026-06-29 16:52 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/194412262.shtml)
+- 2026-06-29 16:27 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/429852.shtml)
+- 2026-06-29 16:27 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/789193.shtml)
+- 2026-06-29 16:49 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/28517274.shtml)
+- 2026-06-29 16:39 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/9582599.shtml)
+- 2026-06-29 16:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/5073379277.shtml)

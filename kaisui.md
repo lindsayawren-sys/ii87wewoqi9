@@ -1,58 +1,54 @@
-# 中亚媒体代表新疆柯柯牙感受荒漠治理故事
+# 特朗普称伊朗若不快行动将一无所有
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网新疆温宿6月28日电 (安冉)来自哈萨克斯坦、吉尔吉斯斯坦和塔吉克斯坦的媒体代表，27日走进新疆阿克苏地区温宿县丰庆园冰糖心苹果种植示范基地和核桃示范基地，实地感受柯柯牙荒漠绿化工程40年来“感天动地”的治理奇迹。 柯柯牙，维吾尔语意为“青色的崖壁”，40年前是一片寸草不生的荒原。20世纪80年代，当地每年沙尘天气超过100天，荒漠以每年5米的速度逼近城市。1986年，阿
+来源：@中国经济网微博 【#特朗普称伊朗若不快行动将一无所有#】美国总统特朗普当地时间5月17日与以色列总理内塔尼亚胡通话后，在社交媒体发文称：“对伊朗而言，时间紧迫，他们最好赶快行动起来，动作要快，否则他们将一无所有。刻不容缓！”#特朗普与以总理通话后再威胁伊朗#据美国和以色列媒体报道，特朗普与内塔尼亚胡当天通电话，讨论重启对伊朗军事行动的可能性。不过据以色列第12频道电视台
 
 ## 正文
 
-中新网新疆温宿6月28日电 (安冉)来自哈萨克斯坦、吉尔吉斯斯坦和塔吉克斯坦的媒体代表，27日走进新疆阿克苏地区温宿县丰庆园冰糖心苹果种植示范基地和核桃示范基地，实地感受柯柯牙荒漠绿化工程40年来“感天动地”的治理奇迹。
+来源：@中国经济网微博 【#特朗普称伊朗若不快行动将一无所有#】美国总统特朗普当地时间5月17日与以色列总理内塔尼亚胡通话后，在社交媒体发文称：“对伊朗而言，时间紧迫，他们最好赶快行动起来，动作要快，否则他们将一无所有。
 
-柯柯牙，维吾尔语意为“青色的崖壁”，40年前是一片寸草不生的荒原。
+刻不容缓！
 
-20世纪80年代，当地每年沙尘天气超过100天，荒漠以每年5米的速度逼近城市。
+”#特朗普与以总理通话后再威胁伊朗#据美国和以色列媒体报道，特朗普与内塔尼亚胡当天通电话，讨论重启对伊朗军事行动的可能性。
 
-1986年，阿克苏启动柯柯牙荒漠绿化工程，各族民众吃住在戈壁滩上，硬是靠着双手修渠、种树。
+不过据以色列第12频道电视台报道，特朗普当天在接受采访时表示，他仍然相信伊朗有意达成协议，并预计伊朗将在未来几天提交一份更新的提议。
 
-历经40年接力奋斗，柯柯牙绿化工程累计造林120余万亩，森林覆盖率由1986年的8%提高到73%。
+另据美媒报道，特朗普预计将于当地时间5月19日在白宫战情室与其国家安全团队举行会议，讨论重启对伊朗军事行动的方案。
 
-如今，这片曾经的荒原已蝶变为集生态林、经济林于一体的“绿色长城”。
-
-在丰庆园冰糖心苹果种植示范基地，媒体代表们看到，8000亩戈壁荒滩已蜕变为“绿色海洋”。
-
-果树上写满的串串数字引起外宾们的注意——这是当地果农靠做“减法”种出高端苹果的“数字密码”。
+（CCTV国际时讯）
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 16:26 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 16:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 16:36 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 16:41 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 16:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 16:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 16:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 16:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 16:30 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 16:38 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 16:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 16:52 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 16:33 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:28 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 16:53 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 16:39 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 16:51 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 16:34 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 16:35 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 16:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 16:32 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 16:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/779139111.shtml)
-- 2026-06-29 16:23 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/941140868535.shtml)
-- 2026-06-29 16:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/34026000.shtml)
-- 2026-06-29 16:18 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/099911.shtml)
-- 2026-06-29 16:22 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/3731724901.shtml)
-- 2026-06-29 16:34 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/689186761.shtml)
-- 2026-06-29 16:38 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/57762.shtml)
-- 2026-06-29 16:28 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/369693228198.shtml)
-- 2026-06-29 16:22 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/6732338.shtml)
-- 2026-06-29 16:46 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/446136.shtml)
-- 2026-06-29 16:42 - [沉睡花园](http://www.share.minike.top/Article/details/744881.shtml)
-- 2026-06-29 16:45 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6078450.shtml)
-- 2026-06-29 16:44 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/952816.shtml)
-- 2026-06-29 16:40 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/5037331.shtml)
-- 2026-06-29 16:47 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/0061759.shtml)
+- 2026-06-29 16:34 - [美人鱼](http://www.blog.minike.top/Article/details/7900444.shtml)
+- 2026-06-29 16:36 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5178520.shtml)
+- 2026-06-29 16:39 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/39816358919.shtml)
+- 2026-06-29 16:49 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/599061258.shtml)
+- 2026-06-29 16:35 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/338659794929.shtml)
+- 2026-06-29 16:32 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/4159366.shtml)
+- 2026-06-29 16:38 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/16655097060.shtml)
+- 2026-06-29 16:42 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/50666560.shtml)
+- 2026-06-29 16:25 - [中国战机大片上新](https://www.share.minike.top/Article/details/1808038.shtml)
+- 2026-06-29 16:43 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/988169351484.shtml)
+- 2026-06-29 16:49 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/6437636.shtml)
+- 2026-06-29 16:43 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/761068.shtml)
+- 2026-06-29 16:34 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/211695336430.shtml)
+- 2026-06-29 16:39 - [急先锋](http://www.share.kurohicncr.top/Article/details/157237978075.shtml)
+- 2026-06-29 16:39 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/97863.shtml)

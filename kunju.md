@@ -1,53 +1,56 @@
-# 跨越山海，情深意长：40秒速览中柬铁杆友谊
+# 第八届两岸（湖北）青年东湖交流季启幕
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 19:21 来源：中国新闻网 应中国共产党邀请，柬埔寨人民党主席、参议院主席洪森6月25日抵达北京，开始对中国进行正式友好访问。 中国和柬埔寨地理相近，友好交往可以追溯到近2000年前。两国建立全面战略合作伙伴关系以来，铁杆友谊更是不断巩固。中柬双方的务实合作，携手描绘出跨越山海、民心相通的互利共赢新画卷。 责任编辑：【孟湘君】
+中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。 当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。 台湾青年歌手赖煜哲与中南民
 
 ## 正文
 
-发布时间：2026年06月26日 19:21 来源：中国新闻网 应中国共产党邀请，柬埔寨人民党主席、参议院主席洪森6月25日抵达北京，开始对中国进行正式友好访问。
+中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。
 
-中国和柬埔寨地理相近，友好交往可以追溯到近2000年前。
+当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。
 
-两国建立全面战略合作伙伴关系以来，铁杆友谊更是不断巩固。
+歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。
 
-中柬双方的务实合作，携手描绘出跨越山海、民心相通的互利共赢新画卷。
+台湾青年歌手赖煜哲与中南民族大学学生合作，表演了融合演唱与说唱的节目《楚歌行》。
 
-责任编辑：【孟湘君】
+“音乐是一座桥梁，把我们连接在一起，不同思想碰撞出来的作品反而更有生命力。
+
+”赖煜哲说，“期待与大陆青年一起‘玩’音乐，创作出属于我们这代人的好作品。
+
+” 在湖北襄阳开咖啡店的台青陈郁婷与其邻居刘青，一起骑着自行车来到舞台。
+
+陈郁婷与开自行车店的刘青因骑行结缘，在创业中互相成就。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 16:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 16:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 16:38 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 16:40 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 16:19 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 16:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 16:43 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 16:28 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 16:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 16:34 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 16:20 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 16:26 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 16:39 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 16:36 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 16:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 16:27 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 16:51 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 16:49 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 16:52 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 16:29 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 16:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 16:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/34134753.shtml)
-- 2026-06-29 16:37 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/75253.shtml)
-- 2026-06-29 16:48 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/15410.shtml)
-- 2026-06-29 16:21 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/37729.shtml)
-- 2026-06-29 16:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/200038.shtml)
-- 2026-06-29 16:31 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/7218485758.shtml)
-- 2026-06-29 16:38 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/66665144584.shtml)
-- 2026-06-29 16:30 - [流金岁月](https://www.share.minike.top/Article/details/133442919.shtml)
-- 2026-06-29 16:25 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/282907.shtml)
-- 2026-06-29 16:31 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/6645858744.shtml)
-- 2026-06-29 16:19 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/3605183.shtml)
-- 2026-06-29 16:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/163340812539.shtml)
-- 2026-06-29 16:47 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/0617148797.shtml)
-- 2026-06-29 16:32 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/8331181.shtml)
-- 2026-06-29 16:40 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/400809591864.shtml)
+- 2026-06-29 16:43 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/7062926541.shtml)
+- 2026-06-29 16:33 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/2923511865.shtml)
+- 2026-06-29 16:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5083360863.shtml)
+- 2026-06-29 16:35 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/163125377123.shtml)
+- 2026-06-29 16:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/142786153978.shtml)
+- 2026-06-29 16:31 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/198322.shtml)
+- 2026-06-29 16:31 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/077952394.shtml)
+- 2026-06-29 16:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/959736.shtml)
+- 2026-06-29 16:42 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/015408423987.shtml)
+- 2026-06-29 16:31 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/16055.shtml)
+- 2026-06-29 16:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/34590.shtml)
+- 2026-06-29 16:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/35051807396.shtml)
+- 2026-06-29 16:42 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/100900047775.shtml)
+- 2026-06-29 16:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/93855314.shtml)
+- 2026-06-29 16:52 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/29832552856.shtml)

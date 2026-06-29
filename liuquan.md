@@ -1,58 +1,45 @@
-# A股下半年怎么走，头部券商划出4大主线
+# 现场画面 湖南石门遭遇极端暴雨 洪水将房屋淹没
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 年中临近，券商中期策略密集发布。市场共识已基本明确——结构性行情延续，但在上涨斜率、AI估值、非科技板块机会及美联储加息预期四个变量上，各家机构分歧犹存。 综合券商观点，具体配置层面可关注四个重点： 其一，节奏研判。 三季度成长风格仍占主导，十月前后可能面临风格切换窗口，核心逻辑在于市场驱动力
+发布时间：2026年05月18日 16:51 来源：中国新闻网 现场画面 湖南石门遭遇极端暴雨 洪水将房屋淹没 责任编辑：【翟璐】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-记者丨崔文静 年中临近，券商中期策略密集发布。
-
-市场共识已基本明确——结构性行情延续，但在上涨斜率、AI估值、非科技板块机会及美联储加息预期四个变量上，各家机构分歧犹存。
-
-综合券商观点，具体配置层面可关注四个重点： 其一，节奏研判。
-
-三季度成长风格仍占主导，十月前后可能面临风格切换窗口，核心逻辑在于市场驱动力正从估值扩张转向盈利兑现。
-
-中信建投判断，指数上行斜率将趋于平缓，结构性慢牛格局已基本确立，“算力牛”与“复苏牛”两条景气主线具备较高跟踪价值。
-
-其二，估值与交易拥挤度。
-
-截至5月29日，A股成交额前5%个股占比已达44.4%，逼近45%的历史警戒线，高拥挤、高估值、高杠杆特征客观存在。
+发布时间：2026年05月18日 16:51 来源：中国新闻网 现场画面 湖南石门遭遇极端暴雨 洪水将房屋淹没 责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 16:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:46 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 16:39 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 16:23 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 16:29 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 16:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 16:24 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 16:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 16:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 16:23 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 16:35 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 16:43 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:47 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 16:35 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 16:47 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 16:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 16:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 16:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 16:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 16:34 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 16:45 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 16:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 16:34 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 16:48 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/575998516.shtml)
-- 2026-06-29 16:41 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/410411077.shtml)
-- 2026-06-29 16:25 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/045525481.shtml)
-- 2026-06-29 16:28 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/20742.shtml)
-- 2026-06-29 16:36 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/173403094299.shtml)
-- 2026-06-29 16:28 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/1948715.shtml)
-- 2026-06-29 16:36 - [啊啊啊](http://www.blog.minike.top/Article/details/487952089.shtml)
-- 2026-06-29 16:37 - [金牌调解](http://www.share.kurohicncr.top/Article/details/26729571744.shtml)
-- 2026-06-29 16:24 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/13360783.shtml)
-- 2026-06-29 16:27 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/7268222.shtml)
-- 2026-06-29 16:44 - [一生一世](https://www.blog.kurohicncr.top/Article/details/167294436168.shtml)
-- 2026-06-29 16:47 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/48276284.shtml)
-- 2026-06-29 16:46 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/6900698295.shtml)
-- 2026-06-29 16:39 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/042308772.shtml)
-- 2026-06-29 16:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/863191.shtml)
+- 2026-06-29 16:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/99358657.shtml)
+- 2026-06-29 16:48 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/169886452.shtml)
+- 2026-06-29 16:46 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/488860673530.shtml)
+- 2026-06-29 16:50 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/91515239362.shtml)
+- 2026-06-29 16:53 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/3344239853.shtml)
+- 2026-06-29 16:38 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/36251614857.shtml)
+- 2026-06-29 16:48 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/83996.shtml)
+- 2026-06-29 16:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/5720716025.shtml)
+- 2026-06-29 16:50 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/952844145.shtml)
+- 2026-06-29 16:39 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/4299220641.shtml)
+- 2026-06-29 16:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/339837010466.shtml)
+- 2026-06-29 16:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/09618315943.shtml)
+- 2026-06-29 16:40 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/53377380582.shtml)
+- 2026-06-29 16:34 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/93533.shtml)
+- 2026-06-29 16:40 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/6977892.shtml)

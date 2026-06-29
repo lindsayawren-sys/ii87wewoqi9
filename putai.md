@@ -1,61 +1,53 @@
-# 云南云县邦六村：澜沧江畔看布朗山寨变迁
+# 剂泰科技-P午前涨超4% 公司与沙砾生物达成免疫靶向LNP技术合作
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网云南临沧6月27日电 题：云南云县邦六村：澜沧江畔看布朗山寨变迁 作者 沈仕春 郭璇 云南省临沧市云县邦六村坐落于澜沧江与罗扎河交汇处，是一个以布朗族为主体的多民族村寨。全村依山临江、属山区半山区地貌，曾经交通闭塞、产业薄弱、发展滞后。 近年来，依托乡村振兴战略，邦六村立足生态资源、深耕产业发展、美化人居环境、筑牢民族团结根基，实现了全方位的蜕变，村寨风貌、民众生活、精神
+剂泰科技-P（07666）午前涨超4%，截至发稿，股价上涨4.15%，现报22.60港元，成交额6448.45万港元。 剂泰科技宣布，与肿瘤免疫细胞治疗企业沙砾生物正式签署全面技术合作战略协议，双方将围绕免疫靶向脂质纳米颗粒（LNP）递送技术展开合作，共同推进新一代体内免疫治疗产品的研发与转化。 据悉，此次合作依托剂泰科技自研的全球首个AI纳米递送平台NanoForge，是该平
 
 ## 正文
 
-中新网云南临沧6月27日电 题：云南云县邦六村：澜沧江畔看布朗山寨变迁 作者 沈仕春 郭璇 云南省临沧市云县邦六村坐落于澜沧江与罗扎河交汇处，是一个以布朗族为主体的多民族村寨。
+剂泰科技-P（07666）午前涨超4%，截至发稿，股价上涨4.15%，现报22.60港元，成交额6448.45万港元。
 
-全村依山临江、属山区半山区地貌，曾经交通闭塞、产业薄弱、发展滞后。
+剂泰科技宣布，与肿瘤免疫细胞治疗企业沙砾生物正式签署全面技术合作战略协议，双方将围绕免疫靶向脂质纳米颗粒（LNP）递送技术展开合作，共同推进新一代体内免疫治疗产品的研发与转化。
 
-近年来，依托乡村振兴战略，邦六村立足生态资源、深耕产业发展、美化人居环境、筑牢民族团结根基，实现了全方位的蜕变，村寨风貌、民众生活、精神面貌焕然一新。
+据悉，此次合作依托剂泰科技自研的全球首个AI纳米递送平台NanoForge，是该平台赋能OpenCGT项目的又一重要里程碑。
 
-产业兴旺是乡村振兴的核心底气。
+截至目前，剂泰科技依托NanoForge已实现对人体8个关键器官和组织的精准靶向递送，管线覆盖肿瘤、免疫系统、中枢神经、呼吸系统、心血管、肌肉及代谢疾病等多个领域，累计提交专利申请224项，获授权专利52项。
 
-曾经的邦六村虽坐拥山林和江水资源，却因产业单一、思路受限，难以将生态优势转化为发展优势，民众增收渠道狭窄。
-
-为破解发展难题，邦六村党支部立足本村资源禀赋，确立“生态建设产业化、产业发展生态化”的发展思路，构建起长短结合、以短养长的多元产业体系。
-
-“以前我们守着满山林木、一江碧水，只能望江兴叹，如今在党支部的带领下，荒山林地都变成了致富的‘绿色银行’。
-
-”正在香椿基地采摘的村民张大姐满脸欣喜。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 16:33 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 16:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 16:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 16:38 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 16:25 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 16:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 16:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 16:45 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:37 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 16:21 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 16:38 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 16:21 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 16:46 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 16:37 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 16:49 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 16:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 16:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 16:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 16:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 16:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 16:43 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 16:42 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 16:32 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 16:29 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 16:33 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 16:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 16:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/318776520391.shtml)
-- 2026-06-29 16:32 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/8829771757.shtml)
-- 2026-06-29 16:30 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/21262013357.shtml)
-- 2026-06-29 16:40 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/9370991840.shtml)
-- 2026-06-29 16:43 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/6785042.shtml)
-- 2026-06-29 16:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/0237741.shtml)
-- 2026-06-29 16:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/193717932.shtml)
-- 2026-06-29 16:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/92930165.shtml)
-- 2026-06-29 16:47 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/3799854.shtml)
-- 2026-06-29 16:43 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/55841408934.shtml)
-- 2026-06-29 16:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/21680596742.shtml)
-- 2026-06-29 16:41 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/28353506867.shtml)
-- 2026-06-29 16:35 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/40934461.shtml)
-- 2026-06-29 16:32 - [一生一世](http://www.share.kurohicncr.top/Article/details/074631565279.shtml)
-- 2026-06-29 16:44 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/361187680.shtml)
+- 2026-06-29 16:53 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/8270705.shtml)
+- 2026-06-29 16:48 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/48028594481.shtml)
+- 2026-06-29 16:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/929239628036.shtml)
+- 2026-06-29 16:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/0754755961.shtml)
+- 2026-06-29 16:41 - [明星大侦探第一季](http://www.share.minike.top/Article/details/276354.shtml)
+- 2026-06-29 16:47 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/699549411.shtml)
+- 2026-06-29 16:46 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/274358013514.shtml)
+- 2026-06-29 16:32 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/44615.shtml)
+- 2026-06-29 16:38 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/17253947.shtml)
+- 2026-06-29 16:29 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/460023552672.shtml)
+- 2026-06-29 16:48 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/511842.shtml)
+- 2026-06-29 16:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/018578.shtml)
+- 2026-06-29 16:49 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/683273601.shtml)
+- 2026-06-29 16:35 - [小娘惹](http://www.blog.minike.top/Article/details/426518847059.shtml)
+- 2026-06-29 16:47 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/684141.shtml)

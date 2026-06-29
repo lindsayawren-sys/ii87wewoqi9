@@ -1,59 +1,57 @@
-# 麦肯锡：中国是“全球最硬核的健身房”
+# 实拍湖北省襄阳市博物馆“镇馆之宝”青铜马
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-经济热点快评丨麦肯锡：中国是“全球最硬核的健身房” 随着全球市场不确定增加、供应链重构，不少跨国企业寻找可替代的制造与消费市场，试图寻找 “下一个中国”。不过，麦肯锡中国区主席倪以理近日接受美国《财富》杂志采访时表示：“你听到了各种各样的声音。我们正试图从中国分散风险。我们正试图降低对中国的依赖。但你找不到另一个中国。如今世界上根本不存在第二个中国。”倪以理还将中国形容为“全球
+发布时间：2026年05月18日 21:50 来源：中国新闻网 游览湖北襄阳市博物馆，一尊体态矫健的青铜马在展厅中央静静矗立，它肌肉结实，头小微昂。远远望去，便仿佛与它一同回到1800多年前三国群雄逐鹿的年代。 2008年10月，这尊青铜马出土于樊城区菜越三国一号墓。就其体量而言，迄今出土者无出其右，因此这尊青铜马被誉为“中华第一青铜立马”。 这尊青铜马通高、体长均为163厘米
 
 ## 正文
 
-经济热点快评丨麦肯锡：中国是“全球最硬核的健身房” 随着全球市场不确定增加、供应链重构，不少跨国企业寻找可替代的制造与消费市场，试图寻找 “下一个中国”。
+发布时间：2026年05月18日 21:50 来源：中国新闻网 游览湖北襄阳市博物馆，一尊体态矫健的青铜马在展厅中央静静矗立，它肌肉结实，头小微昂。
 
-不过，麦肯锡中国区主席倪以理近日接受美国《财富》杂志采访时表示：“你听到了各种各样的声音。
+远远望去，便仿佛与它一同回到1800多年前三国群雄逐鹿的年代。
 
-我们正试图从中国分散风险。
+2008年10月，这尊青铜马出土于樊城区菜越三国一号墓。
 
-我们正试图降低对中国的依赖。
+就其体量而言，迄今出土者无出其右，因此这尊青铜马被誉为“中华第一青铜立马”。
 
-但你找不到另一个中国。
+这尊青铜马通高、体长均为163厘米，重达720斤，按真实马匹形体等比例以青铜浇注而成，填补了长江中游地区三国时期大型青铜器研究的空白。
 
-如今世界上根本不存在第二个中国。
-
-”倪以理还将中国形容为“全球最硬核的健身房”，这里磨炼出了极具竞争力的企业。
-
-这句话并非否定其他经济体的发展潜力，而是指全球范围内，没有国家能完美复刻中国完整的产业、市场与创新综合优势，未来全球增长、产业创新与投资机遇的主要市场中，中国依然是必选项。
+(张倩龙) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 16:23 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 16:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 16:21 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 16:38 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 16:29 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:21 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:20 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 16:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 16:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 16:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 16:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 16:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 16:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 16:29 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 16:37 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 16:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 16:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 16:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 16:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 16:47 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 16:52 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 16:24 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 16:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 16:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 16:37 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 16:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [斗破苍穹](https://www.blog.minike.top/Article/details/930214718245.shtml)
-- 2026-06-29 16:47 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/72953666.shtml)
-- 2026-06-29 16:26 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/98267.shtml)
-- 2026-06-29 16:30 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/66213989347.shtml)
-- 2026-06-29 16:38 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/852867797788.shtml)
-- 2026-06-29 16:41 - [普京介绍前线战事](https://www.share.minike.top/Article/details/39292.shtml)
-- 2026-06-29 16:24 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/479464.shtml)
-- 2026-06-29 16:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/385387211.shtml)
-- 2026-06-29 16:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/380787.shtml)
-- 2026-06-29 16:20 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/520888.shtml)
-- 2026-06-29 16:39 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/558029602.shtml)
-- 2026-06-29 16:29 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/61315.shtml)
-- 2026-06-29 16:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/035550414.shtml)
-- 2026-06-29 16:30 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/09763909143.shtml)
-- 2026-06-29 16:30 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/33482284.shtml)
+- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/864032.shtml)
+- 2026-06-29 16:43 - [斗破苍穹](http://www.blog.minike.top/Article/details/3073599509.shtml)
+- 2026-06-29 16:27 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/867682.shtml)
+- 2026-06-29 16:33 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/455422031.shtml)
+- 2026-06-29 16:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/9600243424.shtml)
+- 2026-06-29 16:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/2324455.shtml)
+- 2026-06-29 16:29 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/39549107.shtml)
+- 2026-06-29 16:33 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/604516110.shtml)
+- 2026-06-29 16:26 - [《贺子珍》](http://www.share.minike.top/Article/details/921712.shtml)
+- 2026-06-29 16:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/30373474407.shtml)
+- 2026-06-29 16:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/27705.shtml)
+- 2026-06-29 16:26 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/093877906.shtml)
+- 2026-06-29 16:51 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/42513967.shtml)
+- 2026-06-29 16:33 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/476543009807.shtml)
+- 2026-06-29 16:36 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/6840412.shtml)

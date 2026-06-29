@@ -1,59 +1,57 @@
-# 监管趋严 小额贷款公司将何去何从
+# 百家台企龙江行 共话向北发展
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 重庆，曾经是中国小额贷款行业最重要的一个坐标。 美团、京东、百度、携程……大部分头部互联网平台旗下的小额贷款公司，都将注册地选在重庆。鼎盛时期，它们依托全国展业的网络小贷牌照，将消费信贷的触角延伸至每一部手机。 这一格局正在悄然改变。近日，有业内人士表示，重庆地区已叫停辖区内小额贷款公司发行资产支持证券（ABS）及资产支持票据（ABN）。与此同时，规模更为庞大的
+中新网哈尔滨5月19日电(记者 王妮娜)5月18日，“融通发展·共创未来—百家台企龙江行”活动在哈尔滨启幕。来自数字经济、现代农业、商贸流通等领域的百余名台商代表齐聚冰城，共觅合作新机。 在开幕式暨推介洽谈会上，黑龙江省农业农村厅重点推介“黑土优品”省级农业品牌及定制农业项目，展现大粮仓的现代发展潜力。更引人注目的是，哈尔滨工业大学、东北农业大学等4所高校集中发布智能光学变色材
 
 ## 正文
 
-来源：金融时报 重庆，曾经是中国小额贷款行业最重要的一个坐标。
+中新网哈尔滨5月19日电(记者 王妮娜)5月18日，“融通发展·共创未来—百家台企龙江行”活动在哈尔滨启幕。
 
-美团、京东、百度、携程……大部分头部互联网平台旗下的小额贷款公司，都将注册地选在重庆。
+来自数字经济、现代农业、商贸流通等领域的百余名台商代表齐聚冰城，共觅合作新机。
 
-鼎盛时期，它们依托全国展业的网络小贷牌照，将消费信贷的触角延伸至每一部手机。
+在开幕式暨推介洽谈会上，黑龙江省农业农村厅重点推介“黑土优品”省级农业品牌及定制农业项目，展现大粮仓的现代发展潜力。
 
-这一格局正在悄然改变。
+更引人注目的是，哈尔滨工业大学、东北农业大学等4所高校集中发布智能光学变色材料、智慧灌溉、工厂化养殖精准控制等一批前沿科技成果，为台商投资战略性新兴产业提供了“硬核”选项。
 
-近日，有业内人士表示，重庆地区已叫停辖区内小额贷款公司发行资产支持证券（ABS）及资产支持票据（ABN）。
+此外，来自全省的10家企业围绕生物经济、新能源、跨境电商等方向作了推介，全方位展示龙江多元产业生态。
 
-与此同时，规模更为庞大的区域性小贷公司正在加速“瘦身”。
+与会台商对黑龙江的优质农产品和科教资源表现出浓厚兴趣。
 
-以重庆为例，日前，重庆监管局同步发布两份数据，一份是《重庆市小额贷款公司名录》（截至2026年3月31日），有11家小贷公司被暂停网络贷款业务资质；另一份是《2026年1至3月重庆市小额贷款公司退出行业公示》，明确有21家小贷公司正式退出行业。
+多位台商表示，黑龙江现代农业优势突出、科教资源富集、对俄区位独特，与台湾在精致农业、科技应用、跨境贸易等领域互补性强，期待通过实地考察找到合作契合点。
 
-而重庆只是这场清退行动的缩影，国家金融监督管理总局数据显示，截至2025年12月末，以小额贷款公司为主的六类地方金融组织数量与历史峰值相比已下降55%，2024年以来累计清退不合规机构超过5600家。
+据了解，本次活动期间还将举办“黑土优品·韵味龙江”农产品推介品鉴会，并组织台商赴哈尔滨、大庆等地实地考察，推动龙台经济合作走深走实。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 16:35 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 16:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 16:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 16:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 16:36 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 16:34 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 16:37 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 16:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 16:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 16:24 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 16:25 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 16:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 16:42 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 16:46 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 16:52 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:35 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 16:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 16:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 16:29 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 16:38 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 16:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 16:30 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/80279.shtml)
-- 2026-06-29 16:37 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/429800.shtml)
-- 2026-06-29 16:37 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/1895437458.shtml)
-- 2026-06-29 16:19 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/9779803.shtml)
-- 2026-06-29 16:29 - [东方风云榜](http://www.blog.minike.top/Article/details/45532.shtml)
-- 2026-06-29 16:46 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/79033141.shtml)
-- 2026-06-29 16:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/1127367942.shtml)
-- 2026-06-29 16:26 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/8638034.shtml)
-- 2026-06-29 16:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/90805750761.shtml)
-- 2026-06-29 16:39 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/17335192.shtml)
-- 2026-06-29 16:35 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/630906204.shtml)
-- 2026-06-29 16:47 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/317996.shtml)
-- 2026-06-29 16:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/8496523890.shtml)
-- 2026-06-29 16:21 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/959396.shtml)
-- 2026-06-29 16:39 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/923200226826.shtml)
+- 2026-06-29 16:33 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/849803527.shtml)
+- 2026-06-29 16:43 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/689565852819.shtml)
+- 2026-06-29 16:34 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/58947.shtml)
+- 2026-06-29 16:32 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/1463610.shtml)
+- 2026-06-29 16:48 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/1012784202.shtml)
+- 2026-06-29 16:48 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/253548527.shtml)
+- 2026-06-29 16:42 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/93496.shtml)
+- 2026-06-29 16:36 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/966958062948.shtml)
+- 2026-06-29 16:49 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/334148.shtml)
+- 2026-06-29 16:52 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/532985.shtml)
+- 2026-06-29 16:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/4089304.shtml)
+- 2026-06-29 16:28 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/51430917380.shtml)
+- 2026-06-29 16:47 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/362398.shtml)
+- 2026-06-29 16:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/573639.shtml)
+- 2026-06-29 16:37 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/01325094.shtml)

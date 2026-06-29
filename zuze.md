@@ -1,58 +1,56 @@
-# 今年以来厦金“小三通”客运航线出入境旅客量突破百万人次
+# 北京开展网络食品虚假宣传专项整治 食品广告不得涉及疾病治疗功能
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新社厦门6月26日电 (吴冠标 付佳萍)厦门边检总站高崎边检站26日通报称，截至当天15时，今年以来厦金“小三通”客运航线出入境旅客量突破100万人次，较去年提前44天实现该节点，刷新该航线通航以来破百万人次客流最快纪录。厦金“小三通”客运航线是两岸人员往来的“黄金通道”。今年以来，两岸民众往来意愿持续高涨，该航线客流始终保持高位运行。目前该航线每日稳定开行24个往返船班，口
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。 此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第
 
 ## 正文
 
-中新社厦门6月26日电 (吴冠标 付佳萍)厦门边检总站高崎边检站26日通报称，截至当天15时，今年以来厦金“小三通”客运航线出入境旅客量突破100万人次，较去年提前44天实现该节点，刷新该航线通航以来破百万人次客流最快纪录。
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。
 
-厦金“小三通”客运航线是两岸人员往来的“黄金通道”。
+此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第三方电商平台、社交平台、直播平台、短视频平台、自建网站、小程序、应用程序等各类网络经营主体。
 
-今年以来，两岸民众往来意愿持续高涨，该航线客流始终保持高位运行。
+同时压紧压实平台企业、入网食品销售者、直播间运营者、直播营销人员及服务机构、广告主、广告经营者、广告发布者、广告代言人等全链条各环节主体责任，要求各类经营主体严守法律法规，坚决不触碰法律红线。
 
-目前该航线每日稳定开行24个往返船班，口岸根据实时客流动态灵活加开加班船，保障旅客顺畅出行。
+专项整治将重点打击网络食品销售虚假商业营销行为，明确禁止普通食品和保健食品宣称疾病预防、治疗功能，普通食品不得宣称保健功能；严禁将普通食品、保健食品与药品相互混淆，使用医疗用语进行营销。
 
-据高崎边检站介绍，今年该航线的百万人次客流呈现出“结构扩容、群体多元、互动活跃”的特点。
+同时，对食品及原料的商标、成分、功能、适用人群等作虚假或者引人误解的商业宣传，虚构食品原产地、有机认证等资质，利用科研机构、行业协会、医疗机构及医护、营养等专业人员名义或形象作虚假推荐证明，发布篡改、伪造的食品安全检验数据，以及采用虚假交易、技术手段营造虚假人气等行为，均在重点查处之列。
 
-台胞出入境数量超80万人次，同比增长超35%，创通航以来同期新高。
+针对网络食品虚假违法广告问题，专项整治明确要求，食品广告不得涉及疾病治疗功能，不得使用医疗用语或者易使商品与药品、医疗器械相混淆的用语，不得明示或者暗示食品为保障健康所必需。
 
-同时，福建、上海居民赴金门旅游政策红利持续释放，“厦门+金门”联游产品带动两岸旅游市场升温，两岸“双向互动、常来常往”的格局正加速形成。
+保健食品广告严禁利用广告代言人做推荐、证明，且必须显著标明“本品不能代替药物”或“保健食品不是药物，不能替代药物治疗疾病”等警示用语，未按规定标注的将依法严肃查处。
 
-“虽然每日船班班次仅为2019年的三分之二，但今年日均出入境旅客达到约5600人次，高于2019年的4900人次。
+专项整治还将严厉查处平台经营者食品安全管理制度不健全、落实不到位，对平台内经营者、直播间运营者审核查验不严，发现食品安全违法行为未及时制止并报告等问题。
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 16:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 16:46 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:31 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 16:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 16:30 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 16:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 16:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 16:24 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 16:27 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 16:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 16:49 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 16:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 16:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 16:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:29 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 16:26 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 16:36 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 16:42 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 16:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/99128016375.shtml)
-- 2026-06-29 16:24 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/516677060.shtml)
-- 2026-06-29 16:28 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/516217.shtml)
-- 2026-06-29 16:19 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8149586928.shtml)
-- 2026-06-29 16:44 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/57926132057.shtml)
-- 2026-06-29 16:27 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/6419169.shtml)
-- 2026-06-29 16:23 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/8573683.shtml)
-- 2026-06-29 16:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/5921358.shtml)
-- 2026-06-29 16:43 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/90132990.shtml)
-- 2026-06-29 16:43 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/9838638.shtml)
-- 2026-06-29 16:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/952224453982.shtml)
-- 2026-06-29 16:40 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/321832281218.shtml)
-- 2026-06-29 16:34 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/045019.shtml)
-- 2026-06-29 16:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/4006353.shtml)
-- 2026-06-29 16:23 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/39982669.shtml)
+- 2026-06-29 16:47 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/711183.shtml)
+- 2026-06-29 16:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/6869112.shtml)
+- 2026-06-29 16:35 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/1070706122.shtml)
+- 2026-06-29 16:40 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/26143.shtml)
+- 2026-06-29 16:48 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/59793075643.shtml)
+- 2026-06-29 16:25 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/460249108128.shtml)
+- 2026-06-29 16:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/20783.shtml)
+- 2026-06-29 16:37 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/4622223.shtml)
+- 2026-06-29 16:49 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/262916021244.shtml)
+- 2026-06-29 16:50 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/8456642342.shtml)
+- 2026-06-29 16:30 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/32802.shtml)
+- 2026-06-29 16:33 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/27533031.shtml)
+- 2026-06-29 16:28 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/145525416072.shtml)
+- 2026-06-29 16:50 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/68917412.shtml)
+- 2026-06-29 16:39 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/834688.shtml)

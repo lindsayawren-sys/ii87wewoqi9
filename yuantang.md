@@ -1,53 +1,61 @@
-# 中国成为世界规模化创新的“标准答案”
+# 俄罗斯各界期待两国元首外交引领中俄关系开启新篇章
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 12:24 来源：三里河 6月23-25日，世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)在大连举行，本届论坛参与人数创历史新高，来自90多个国家和地区的1700多位嘉宾到场参会。在全球经济充满不确定性的2026年，为什么这么多人来到中国？他们想找什么答案？这条视频带你了解。(戴悦 吴家驹 薛凌桥 唐雨弦） 责任编辑：【程春雨】
+原标题：特稿｜继往开来的重要时刻——俄罗斯各界期待两国元首外交引领中俄关系开启新篇章 新华社北京/莫斯科5月18日电 特稿｜继往开来的重要时刻——俄罗斯各界期待两国元首外交引领中俄关系开启新篇章 新华社记者赵嫣 栾海 刘恺 应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问，两国元首将举行今年以来首次面对面会晤。今年是中俄战略协作伙伴关系建立30周年和
 
 ## 正文
 
-发布时间：2026年06月26日 12:24 来源：三里河 6月23-25日，世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)在大连举行，本届论坛参与人数创历史新高，来自90多个国家和地区的1700多位嘉宾到场参会。
+原标题：特稿｜继往开来的重要时刻——俄罗斯各界期待两国元首外交引领中俄关系开启新篇章 新华社北京/莫斯科5月18日电 特稿｜继往开来的重要时刻——俄罗斯各界期待两国元首外交引领中俄关系开启新篇章 新华社记者赵嫣 栾海 刘恺 应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问，两国元首将举行今年以来首次面对面会晤。
 
-在全球经济充满不确定性的2026年，为什么这么多人来到中国？
+今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，中俄关系发展迎来新的历史契机。
 
-他们想找什么答案？
+俄罗斯各界人士表示，期待这次元首会晤对俄中各领域合作新目标、新任务作出顶层设计，开启俄中新时代全面战略协作伙伴关系的崭新篇章，继续为维护全球战略稳定和国际公平正义贡献力量。
 
-这条视频带你了解。
+“名副其实的全面战略协作伙伴关系” 2013年以来，习近平主席和普京总统在不同场合会面超过40次，为中俄关系定向领航。
 
-(戴悦 吴家驹 薛凌桥 唐雨弦） 责任编辑：【程春雨】
+多名受访俄罗斯人士表示，两国领导人的密切互动和高度互信，是俄中关系持续保持高水平运行的根本保障。
+
+“俄罗斯各界高度关注俄中两国元首即将举行的会晤，相信这次会晤将为双边关系发展注入新动力，引领俄中关系再攀新高。
+
+”俄罗斯科学院东方研究所首席研究员安德烈·奥斯特洛夫斯基说。
+
+中俄友好、和平与发展委员会俄方主席鲍里斯·季托夫说：“在俄中关系发展新的历史阶段，两国元首的密切沟通与友好互动发挥着重要战略引领作用，持续增强双方政治互信与协作。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 16:39 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:39 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:41 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 16:45 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 16:30 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 16:30 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 16:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 16:32 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 16:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 16:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 16:31 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 16:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 16:51 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 16:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 16:31 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:27 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 16:33 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 16:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 16:29 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 16:51 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 16:42 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 16:29 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 16:48 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 16:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 16:26 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 16:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/03502766393.shtml)
-- 2026-06-29 16:30 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/096560239.shtml)
-- 2026-06-29 16:40 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/54100482.shtml)
-- 2026-06-29 16:35 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/82779338.shtml)
-- 2026-06-29 16:41 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/6324229.shtml)
-- 2026-06-29 16:41 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/9248440.shtml)
-- 2026-06-29 16:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/7361923.shtml)
-- 2026-06-29 16:33 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/246476936410.shtml)
-- 2026-06-29 16:18 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/09187040710.shtml)
-- 2026-06-29 16:23 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/2443864.shtml)
-- 2026-06-29 16:23 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/02119641.shtml)
-- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/69879121173.shtml)
-- 2026-06-29 16:39 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/2348969445.shtml)
-- 2026-06-29 16:40 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/065834.shtml)
-- 2026-06-29 16:41 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/364811.shtml)
+- 2026-06-29 16:38 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/42282.shtml)
+- 2026-06-29 16:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/8085117.shtml)
+- 2026-06-29 16:51 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/684026.shtml)
+- 2026-06-29 16:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/22646861.shtml)
+- 2026-06-29 16:40 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/51859213.shtml)
+- 2026-06-29 16:44 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/2241615.shtml)
+- 2026-06-29 16:42 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/117592655371.shtml)
+- 2026-06-29 16:34 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/464255534.shtml)
+- 2026-06-29 16:49 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/49147153.shtml)
+- 2026-06-29 16:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/211098177.shtml)
+- 2026-06-29 16:37 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/549583139979.shtml)
+- 2026-06-29 16:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/3275685669.shtml)
+- 2026-06-29 16:43 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/30200.shtml)
+- 2026-06-29 16:44 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/966956663915.shtml)
+- 2026-06-29 16:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/926877626.shtml)

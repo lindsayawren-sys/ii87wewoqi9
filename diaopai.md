@@ -1,59 +1,56 @@
-# 全国跆拳道锦标系列赛（第二站）第三日 冀晋浙苏各得一金
+# 佛罗斯特研究公司开启2026年度安全与风险企业领导力奖提名
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月28日电 (记者 张璐)2026年全国跆拳道锦标系列赛(第二站)27日进入第三个比赛日，河北队杨赛、山西队秦瑞洁、浙江队顾嘉宇、江苏队牛冠森分获当日四个级别的冠军。 女子49公斤级决赛在河北队杨赛和吉林队冯奕涵之间展开。首局杨赛率先进入状态，前腿横踢先拿2分，后半段凭借身高优势防守反击再得2分，以4:0先胜。第二局冯奕涵率先中段得分，杨赛前腿侧踢扳平，局末利用前腿
+表彰信任优先的安全实践 Forrester宣布，正式开启2026年度安全与风险企业领导力奖的提名通道。 Forrester （佛罗斯特研究公司） 是一家全球知名的独立研究和咨询公司，其股票在纳斯达克以代码“FORR”上市交易。 该奖项旨在表彰那些践行Forrester“信任要务”核心理念，与客户、员工和合作伙伴建立安全可信关系的组织机构。同时，奖项也嘉奖那些应用Forreste
 
 ## 正文
 
-中新网广州6月28日电 (记者 张璐)2026年全国跆拳道锦标系列赛(第二站)27日进入第三个比赛日，河北队杨赛、山西队秦瑞洁、浙江队顾嘉宇、江苏队牛冠森分获当日四个级别的冠军。
+表彰信任优先的安全实践 Forrester宣布，正式开启2026年度安全与风险企业领导力奖的提名通道。
 
-女子49公斤级决赛在河北队杨赛和吉林队冯奕涵之间展开。
+Forrester （佛罗斯特研究公司） 是一家全球知名的独立研究和咨询公司，其股票在纳斯达克以代码“FORR”上市交易。
 
-首局杨赛率先进入状态，前腿横踢先拿2分，后半段凭借身高优势防守反击再得2分，以4:0先胜。
+该奖项旨在表彰那些践行Forrester“信任要务”核心理念，与客户、员工和合作伙伴建立安全可信关系的组织机构。
 
-第二局冯奕涵率先中段得分，杨赛前腿侧踢扳平，局末利用前腿牵制、中高结合连得5分，以9:2再胜夺冠。
+同时，奖项也嘉奖那些应用Forrester的AEGIS框架，主动评估和缓解代理式AI等新兴技术风险，将AI安全从合规行为转变为战略信任赋能器的企业。
 
-冯奕涵获亚军，福建队林婧雯和江苏队李米雪获季军。
+全球企业均可参评 本次评选面向全球拥有1000名及以上员工的公立和私营机构开放。
 
-女子73公斤级决赛为山西队内战，于颖滢对阵秦瑞洁。
+评审将从四大维度进行评估：提供安全、私密且有韧性的客户产品与体验；建立既能保障公司安全又能促进员工成功的实践；建立使AI系统安全、透明且可靠的治理、身份与运营控制；以及培育能够激发创新的可信合作伙伴生态系统。
 
-首局双方前腿横踢互有得分，秦瑞洁中段再拿2分反超，局末于颖滢后腿横踢扳成4:4，秦瑞洁凭点数优势险胜。
+评选标准与提名方式 Forrester副总裁兼集团研究总监Stephanie Balaouras表示，技术的快速进步和地缘政治的不确定性持续颠覆威胁格局。
 
-第二局于颖滢加强攻势，秦瑞洁严密防守多次化解对手进攻，双方战至0:0，秦瑞洁再次凭点数优势获胜夺金。
+该奖项旨在表彰那些将安全、隐私和风险管理从合规职能转变为构建信任、推动业务成功的战略能力的组织机构。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 16:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 16:40 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 16:27 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 16:24 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 16:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 16:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 16:20 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:32 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 16:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 16:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 16:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:33 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 16:26 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 16:52 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 16:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 16:40 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:35 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 16:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 16:25 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 16:36 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 16:29 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/4859489.shtml)
-- 2026-06-29 16:26 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/4263582.shtml)
-- 2026-06-29 16:34 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/49111182496.shtml)
-- 2026-06-29 16:28 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/8421950813.shtml)
-- 2026-06-29 16:22 - [光与夜之恋](https://www.blog.minike.top/Article/details/308219450.shtml)
-- 2026-06-29 16:47 - [送你一朵小红花](https://www.blog.minike.top/Article/details/7011219508.shtml)
-- 2026-06-29 16:38 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/275955445.shtml)
-- 2026-06-29 16:19 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/741490358.shtml)
-- 2026-06-29 16:25 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/185293776.shtml)
-- 2026-06-29 16:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/0966051083.shtml)
-- 2026-06-29 16:18 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/76573.shtml)
-- 2026-06-29 16:20 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/10493135863.shtml)
-- 2026-06-29 16:45 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/0753356643.shtml)
-- 2026-06-29 16:37 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/198855676.shtml)
-- 2026-06-29 16:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/62072560220.shtml)
+- 2026-06-29 16:52 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/385864952756.shtml)
+- 2026-06-29 16:28 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/845879480.shtml)
+- 2026-06-29 16:52 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/11032.shtml)
+- 2026-06-29 16:38 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/513224970.shtml)
+- 2026-06-29 16:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/005130.shtml)
+- 2026-06-29 16:50 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/11336411199.shtml)
+- 2026-06-29 16:24 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8507250999.shtml)
+- 2026-06-29 16:54 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/345884624.shtml)
+- 2026-06-29 16:47 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/66950781.shtml)
+- 2026-06-29 16:50 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/567996.shtml)
+- 2026-06-29 16:32 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/9373302.shtml)
+- 2026-06-29 16:42 - [美人鱼](http://www.blog.minike.top/Article/details/02724399.shtml)
+- 2026-06-29 16:37 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/69501826.shtml)
+- 2026-06-29 16:44 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/400751193.shtml)
+- 2026-06-29 16:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/279375.shtml)

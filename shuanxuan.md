@@ -1,55 +1,59 @@
-# 国家矿山安全技术创新中心举行“安全生产月”成果发布活动
+# 欧洲股市上涨，特朗普伊朗表态提振市场情绪
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月27日电 应急管理部26日晚间消息，围绕全国“安全生产月”活动主题“人人讲安全、个个会应急——排查整治风险隐患”，24日，国家矿山安全技术创新中心(以下简称国创中心)聚焦科技赋能安全生产、提升风险隐患排查整治质效，集中发布了一批最新科研攻关成果。本次发布的成果有煤矿隐蔽工作面探测仪、井工煤矿一氧化碳消纳装备、矿用快速开启式压缩氧自救器、矿用带式输送机断带抓捕机器人
+斯托克 600 指数：+0.79% 德国 DAX 指数：+1.29% 周二欧洲股市走高。伊朗方面提出最新和平提议后，美国暂缓对伊朗实施军事打击，投资者对此消息表示欢迎，达成协议的可能性似乎增大。 美国总统唐纳德・特朗普称，目前 “极有可能” 达成一项限制伊朗核计划的协议。油价一度下跌多达 2%，但仍维持在每桶 100 美元以上；此前数个交易日债券遭遇大幅抛售，如今走势企稳。 格
 
 ## 正文
 
-中新网北京6月27日电 应急管理部26日晚间消息，围绕全国“安全生产月”活动主题“人人讲安全、个个会应急——排查整治风险隐患”，24日，国家矿山安全技术创新中心(以下简称国创中心)聚焦科技赋能安全生产、提升风险隐患排查整治质效，集中发布了一批最新科研攻关成果。
+斯托克 600 指数：+0.79% 德国 DAX 指数：+1.29% 周二欧洲股市走高。
 
-本次发布的成果有煤矿隐蔽工作面探测仪、井工煤矿一氧化碳消纳装备、矿用快速开启式压缩氧自救器、矿用带式输送机断带抓捕机器人、铝加工(深井铸造)熔融铝液与水接触阻隔技术等一批关键技术与装备。
+伊朗方面提出最新和平提议后，美国暂缓对伊朗实施军事打击，投资者对此消息表示欢迎，达成协议的可能性似乎增大。
 
-这批成果精准对接矿山等重点行业领域风险防控与隐患排查整治的迫切技术需求，从发现问题、技术攻关到现场验证，充分体现了国创中心立足安全生产一线，坚持问题导向、实战导向、应用导向，以科技攻关赋能安全生产的工作成效。
+美国总统唐纳德・特朗普称，目前 “极有可能” 达成一项限制伊朗核计划的协议。
 
-作为安全应急领域重要的国家级科技创新平台，国创中心将持续发挥平台枢纽作用，秉持开放合作理念，推动“政产学研用”深度融合，联动各类创新主体开展联合研发、技术合作与成果落地转化，共同为煤炭、金属非金属、石油天然气及隧道等行业安全生产治本攻坚和重大风险防范化解提供坚实科技支撑。
+油价一度下跌多达 2%，但仍维持在每桶 100 美元以上；此前数个交易日债券遭遇大幅抛售，如今走势企稳。
 
-应急管理部、国家矿山安全监察局、国家安全生产应急救援中心有关司局和部门，科技部新质生产力促进中心以及北京市昌平区、密云区有关部门和单位负责同志，国创中心共建单位代表等出席本次成果发布活动。
+格林尼治标准时间 08：06，泛欧斯托克 600 指数上涨 0.8%，报 614.83 点，但仍低于战前水平。
 
-(完)
+欧洲其他主要市场亦全线走高：德国 DAX 指数上涨 1.1%，法国 CAC 40 指数上涨 0.8%。
+
+欧洲股市整体表现落后于全球其他市场，主要原因在于该地区高度依赖石油进口，能源问题持续拖累市场表现；与此同时，美股及全球市场在人工智能乐观情绪带动下实现反弹。
+
+全球债券遭抛售同样带来压力，投资者定价显示，欧洲央行预计在年底前至少还会加息两次。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 16:28 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 16:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 16:31 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 16:31 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 16:39 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 16:33 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 16:30 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 16:24 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 16:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 16:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 16:42 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 16:20 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 16:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 16:48 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:42 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 16:50 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 16:39 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 16:48 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 16:34 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 16:48 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 16:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 16:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 16:48 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 16:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/1181076.shtml)
-- 2026-06-29 16:19 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/118916021405.shtml)
-- 2026-06-29 16:21 - [《贺子珍》](https://www.blog.minike.top/Article/details/725695.shtml)
-- 2026-06-29 16:22 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/10594490113.shtml)
-- 2026-06-29 16:42 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/74385.shtml)
-- 2026-06-29 16:18 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/85595018.shtml)
-- 2026-06-29 16:25 - [急先锋](https://www.blog.minike.top/Article/details/4575748.shtml)
-- 2026-06-29 16:20 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/925631522.shtml)
-- 2026-06-29 16:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/0495412.shtml)
-- 2026-06-29 16:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/108859242.shtml)
-- 2026-06-29 16:37 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/182886.shtml)
-- 2026-06-29 16:28 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/33618302278.shtml)
-- 2026-06-29 16:42 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/623162768121.shtml)
-- 2026-06-29 16:30 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/966128922.shtml)
-- 2026-06-29 16:20 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/140828312382.shtml)
+- 2026-06-29 16:53 - [爱很美味](https://www.share.minike.top/Article/details/067445744.shtml)
+- 2026-06-29 16:31 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/314467.shtml)
+- 2026-06-29 16:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/3564741847.shtml)
+- 2026-06-29 16:29 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/226067785188.shtml)
+- 2026-06-29 16:47 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/121538854.shtml)
+- 2026-06-29 16:28 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/89790.shtml)
+- 2026-06-29 16:45 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/19741.shtml)
+- 2026-06-29 16:30 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/5375059.shtml)
+- 2026-06-29 16:24 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/90652.shtml)
+- 2026-06-29 16:44 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/80197.shtml)
+- 2026-06-29 16:34 - [AG 宫斗](https://www.blog.minike.top/Article/details/236247452198.shtml)
+- 2026-06-29 16:40 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/234969294.shtml)
+- 2026-06-29 16:24 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/10305696.shtml)
+- 2026-06-29 16:39 - [沙丘](https://www.blog.kurohicncr.top/Article/details/785776611.shtml)
+- 2026-06-29 16:32 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/863994.shtml)

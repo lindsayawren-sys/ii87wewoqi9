@@ -1,61 +1,59 @@
-# 辽宁抚顺市新宾县依托“东北超”促进各民族交往交流交融纪实
+# 工商银行原首席技术官吕仲涛：智能体将成为未来银行的核心基础设施
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-绿茵逐梦聚同心 石榴花开满山城——抚顺市新宾县依托“东北超”促进各民族交往交流交融纪实 2026年盛夏，首届东北地区城市足球超级联赛(东北超)火热开赛。抚顺市新宾满族自治县以足球为纽带，搭建起各族群众交往交流交融的广阔舞台，以绿茵赛场书写民族团结故事。 跨省携手，双城共叙“一家亲” 6月13日，“辽吉一脉·‘新’意相‘通’”新宾、通化双城文旅嘉年华在新宾举办。辽吉两地游客、足球
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，今日，在成都举行的2026清华五道口全球金融论坛之“金融监管新挑战：绿色、数字与人工智能”主题论坛上，中国工商银行原首席技术官吕仲涛表示，AI正驱动金融业迎来企业与效能的双重深度变革，智能体将成为未来银行的核心基础设施，正推动银行从3.0的开放银行迈向4.0的智能体银行，对内重塑组织形
 
 ## 正文
 
-绿茵逐梦聚同心 石榴花开满山城——抚顺市新宾县依托“东北超”促进各民族交往交流交融纪实 2026年盛夏，首届东北地区城市足球超级联赛(东北超)火热开赛。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，今日，在成都举行的2026清华五道口全球金融论坛之“金融监管新挑战：绿色、数字与人工智能”主题论坛上，中国工商银行原首席技术官吕仲涛表示，AI正驱动金融业迎来企业与效能的双重深度变革，智能体将成为未来银行的核心基础设施，正推动银行从3.0的开放银行迈向4.0的智能体银行，对内重塑组织形态，对外提供更加普惠便利的服务。
 
-抚顺市新宾满族自治县以足球为纽带，搭建起各族群众交往交流交融的广阔舞台，以绿茵赛场书写民族团结故事。
+吕仲涛称，AI智能体实现了从“看、说、想”的认知能力向“自主决策、协同执行”的行动能力跨越，正成为企业落地的核心抓手。
 
-跨省携手，双城共叙“一家亲” 6月13日，“辽吉一脉·‘新’意相‘通’”新宾、通化双城文旅嘉年华在新宾举办。
+以OpenClaw为代表的开源个人智能体展现出真正做事的数字员工潜力。
 
-辽吉两地游客、足球运动员、球迷朋友欢聚一堂，座谈共话“地缘相近、人缘相亲、文化相通”；球场之上各族球员同场竞技、以球结友；文化之旅中大家一同走进清永陵和赫图阿拉城，共同触摸中华民族厚重历史，感受满乡风情，体悟中华文化的博大精深。
+在吕仲涛看来，为构筑差异化的竞争壁垒，关键在于把企业专属业务知识和隐性经验沉淀为可复用的知识资产，以此拓展认知半径，让智能体在复杂任务中表现更专业，构建“人类把控核心决策、智能体精准执行”的人机互补模式。
 
-实实在在的“赛事红利”更让大家暖心，两地互推文旅惠民政策，新宾县面向通化县各族游客推出景区首道门票全免政策，通化县也以景区门票、住宿折扣“大礼包”回馈新宾。
+现阶段应以岗位智能体为抓手，推进“岗位+技能”建设，形成“岗位+事务”的业务闭环，全面赋能客户和员工。
 
-从思想碰撞到绿茵挥洒，从文化探寻到夜市欢歌，生动展现辽吉各族群众手足相亲、守望相助的深厚情谊。
+提及AI应用安全方面，吕仲涛指出，生成式AI蓬勃发展的同时，大模型固有的内容幻觉风险催生出提示词注入、认知规划误操作、工具投毒等多维新型安全风险。
 
-古城为媒，第二现场架起“连心桥” 6月20日，“东北超”迎来万众瞩目的辽宁德比——沈大对决。
+安全已成为企业AI应用的主要瓶颈。
 
-在拥有四百年历史的赫图阿拉城，一场别开生面的“第二现场”观赛活动火热开启。
+企业急需围绕智能体定位、知识工程约束、多智能体制衡、权限治理、攻防能力、全流程监控这六大方向，系统性构建可监测、可追溯、可干预、可审计的全域安全防线。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 16:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 16:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 16:20 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 16:29 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 16:40 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 16:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 16:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 16:26 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 16:23 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 16:37 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 16:39 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 16:47 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 16:44 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 16:33 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 16:39 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 16:51 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 16:31 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 16:28 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 16:44 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 16:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 16:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 16:51 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 16:44 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 16:27 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 16:33 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 16:52 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/339969.shtml)
-- 2026-06-29 16:38 - [南昌市委书记调整](http://www.share.minike.top/Article/details/55601458881.shtml)
-- 2026-06-29 16:29 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/133503359.shtml)
-- 2026-06-29 16:37 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/7998546.shtml)
-- 2026-06-29 16:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/72377026.shtml)
-- 2026-06-29 16:29 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/3190569.shtml)
-- 2026-06-29 16:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/1765518.shtml)
-- 2026-06-29 16:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/0648326.shtml)
-- 2026-06-29 16:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/9176434398.shtml)
-- 2026-06-29 16:22 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/8193217.shtml)
-- 2026-06-29 16:43 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/98029703.shtml)
-- 2026-06-29 16:24 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/37113742.shtml)
-- 2026-06-29 16:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/985026727.shtml)
-- 2026-06-29 16:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/14272102145.shtml)
-- 2026-06-29 16:27 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/759574507168.shtml)
+- 2026-06-29 16:24 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/410336227.shtml)
+- 2026-06-29 16:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/05674123.shtml)
+- 2026-06-29 16:25 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/546554383148.shtml)
+- 2026-06-29 16:32 - [吴建豪老婆](http://www.share.minike.top/Article/details/7436076642.shtml)
+- 2026-06-29 16:46 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/4771708.shtml)
+- 2026-06-29 16:25 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/5738989429.shtml)
+- 2026-06-29 16:30 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/125157377022.shtml)
+- 2026-06-29 16:46 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/828322.shtml)
+- 2026-06-29 16:52 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/13697603.shtml)
+- 2026-06-29 16:45 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/821362057.shtml)
+- 2026-06-29 16:45 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.kurohicncr.top/Article/details/1396230746.shtml)
+- 2026-06-29 16:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/34246910.shtml)
+- 2026-06-29 16:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/860345495.shtml)
+- 2026-06-29 16:53 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/56242354324.shtml)
+- 2026-06-29 16:24 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/5145662529.shtml)

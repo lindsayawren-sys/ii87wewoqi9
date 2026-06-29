@@ -1,61 +1,60 @@
-# 俄罗斯境内设施遇袭引发连锁反应 哈萨克斯坦关键油田大幅减产
+# 油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-哈萨克斯坦大型Karachaganak油气田的原油产量已削减逾四分之一。此前，一起无人机袭击迫使俄罗斯一座处理该油田天然气的加工厂停产。 Karachaganak为哈萨克斯坦三大油气项目之一，约占该国原油产量的10%。该油田若要显著减少天然气产量，势必需要同步削减原油产量。 据国际文传电讯社援引哈萨克斯坦能源部长Yerlan Akkenzhenov的话报道，受此次袭击影响，Ka
+核心要点 周一国际油价上涨。美国总统特朗普在和平谈判陷入僵局之际警告伊朗 “最好赶紧行动”，同时专家指出全球库存已跌至历史低位。 特朗普周末对伊朗的警告释放信号：华盛顿与德黑兰在和平协议与重开霍尔木兹海峡问题上的僵局，可能导致武装冲突再度爆发。 特朗普周日在 Truth Social 发文： “对伊朗而言，时间正在滴答流逝。他们最好立刻、迅速行动，否则将一无所有。时间至关重要！
 
 ## 正文
 
-哈萨克斯坦大型Karachaganak油气田的原油产量已削减逾四分之一。
+核心要点 周一国际油价上涨。
 
-此前，一起无人机袭击迫使俄罗斯一座处理该油田天然气的加工厂停产。
+美国总统特朗普在和平谈判陷入僵局之际警告伊朗 “最好赶紧行动”，同时专家指出全球库存已跌至历史低位。
 
-Karachaganak为哈萨克斯坦三大油气项目之一，约占该国原油产量的10%。
+特朗普周末对伊朗的警告释放信号：华盛顿与德黑兰在和平协议与重开霍尔木兹海峡问题上的僵局，可能导致武装冲突再度爆发。
 
-该油田若要显著减少天然气产量，势必需要同步削减原油产量。
+特朗普周日在 Truth Social 发文： “对伊朗而言，时间正在滴答流逝。
 
-据国际文传电讯社援引哈萨克斯坦能源部长Yerlan Akkenzhenov的话报道，受此次袭击影响，Karachaganak目前原油日产量约为2.5万吨，低于通常的3.4万吨。
+他们最好立刻、迅速行动，否则将一无所有。
 
-此次减产发生在周三。
+时间至关重要！
 
-当天，距离哈萨克斯坦边境约170公里的俄罗斯奥伦堡天然气加工厂遭无人机袭击。
+” 尽管 4 月达成脆弱停火，但美伊紧张持续：伊朗基本关闭霍尔木兹海峡，特朗普政府则继续封锁伊朗港口。
 
-乌克兰总参谋部称，该厂在袭击后已停止运行。
+战前，全球约五分之一的石油与天然气供应经该海峡运输。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 16:45 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 16:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 16:40 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 16:24 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 16:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 16:38 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 16:32 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 16:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 16:42 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 16:20 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 16:29 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 16:29 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 16:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:33 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 16:37 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 16:35 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 16:48 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 16:36 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 16:53 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 16:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:39 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:39 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 16:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 16:28 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/946762872697.shtml)
-- 2026-06-29 16:35 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/5369331.shtml)
-- 2026-06-29 16:46 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/285972992.shtml)
-- 2026-06-29 16:42 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/07622753.shtml)
-- 2026-06-29 16:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/56394312.shtml)
-- 2026-06-29 16:35 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/00465.shtml)
-- 2026-06-29 16:40 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/99639153598.shtml)
-- 2026-06-29 16:29 - [极限挑战第一季](https://www.blog.minike.top/Article/details/07549902.shtml)
-- 2026-06-29 16:40 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/97463505874.shtml)
-- 2026-06-29 16:25 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/23962399.shtml)
-- 2026-06-29 16:37 - [小娘惹](http://www.share.minike.top/Article/details/04873376.shtml)
-- 2026-06-29 16:28 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/99899115426.shtml)
-- 2026-06-29 16:39 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/715746787.shtml)
-- 2026-06-29 16:29 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/0097770168.shtml)
-- 2026-06-29 16:19 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/14888396116.shtml)
+- 2026-06-29 16:52 - [起风了](http://www.blog.kurohicncr.top/Article/details/12923.shtml)
+- 2026-06-29 16:34 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/2117675.shtml)
+- 2026-06-29 16:26 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/706483145.shtml)
+- 2026-06-29 16:31 - [急先锋](http://www.blog.minike.top/Article/details/96942.shtml)
+- 2026-06-29 16:48 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/7102634197.shtml)
+- 2026-06-29 16:52 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/669637314.shtml)
+- 2026-06-29 16:44 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/0119051453.shtml)
+- 2026-06-29 16:39 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/37628.shtml)
+- 2026-06-29 16:25 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/1149146307.shtml)
+- 2026-06-29 16:51 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/929308.shtml)
+- 2026-06-29 16:32 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/85160.shtml)
+- 2026-06-29 16:36 - [AG 宫斗](https://www.blog.minike.top/Article/details/96937324841.shtml)
+- 2026-06-29 16:24 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/37260389602.shtml)
+- 2026-06-29 16:46 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/46917949.shtml)
+- 2026-06-29 16:25 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/14707290018.shtml)

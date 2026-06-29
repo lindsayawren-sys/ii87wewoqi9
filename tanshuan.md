@@ -1,59 +1,58 @@
-# 全线亏损、产能缓慢出清 2026上半年生猪市场复盘
+# 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-Mysteel农产品网 【导语】2026 年上半年生猪市场深陷周期底部，供给过剩叠加淡季需求偏弱，猪价长期低位运行，自繁自养、外购仔猪育肥全线深度亏损。行业养殖效率维持高位，母猪去化节奏缓慢，标肥价差收窄导致二次育肥无套利空间，市场补栏、压栏情绪低迷。 一、行情现状 2026 年上半年生猪市场核心矛盾集中于供给持续过剩、行业全线深度亏损、政策加码产能调控、消费淡季持续走弱四大主
+探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。 文明创建的涓涓细
 
 ## 正文
 
-Mysteel农产品网 【导语】2026 年上半年生猪市场深陷周期底部，供给过剩叠加淡季需求偏弱，猪价长期低位运行，自繁自养、外购仔猪育肥全线深度亏损。
+探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。
 
-行业养殖效率维持高位，母猪去化节奏缓慢，标肥价差收窄导致二次育肥无套利空间，市场补栏、压栏情绪低迷。
+从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。
 
-一、行情现状 2026 年上半年生猪市场核心矛盾集中于供给持续过剩、行业全线深度亏损、政策加码产能调控、消费淡季持续走弱四大主线，猪价长期低位磨底，底部调整特征突出。
+文明创建的涓涓细流，汇聚成乡村全面振兴的澎湃动力，让各地的生动实践，成为广州探索城乡融合、助推高质量发展的鲜活注脚。
 
-供给端宽松是行情承压根本。
+文、图/广州日报全媒体记者叶卡斯 特色引领 百花齐放 白云区太和镇白山村： 白山村位于白云区北部、太和镇东部、帽峰山森林公园南部，村内白山涌穿村而过，森林覆盖率达75%以上，是帽峰山山脚的一颗璀璨明珠。
 
-截至2026年3月全国能繁母猪存栏 3904 万头，较 3750 万头合理保有量高出 154 万头，整体处于产能黄色调控区间。
+该村通过党群服务中心改造工作，将党群服务、文明实践、志愿服务、村史展览等功能融为一体，举办“我们的端午”、暑期大学生下乡支教助力“百千万工程”等活动，打造成为群众想来、爱来、常来的“红色家园”。
 
-尽管行业亏损倒逼散户加速清退低效能母猪，但头部养殖企业减产意愿克制，叠加规模化繁育效率持续提升，配种分娩率稳定在 81.7%，产房存活率超 92.6%，窝均健仔数稳步上行，母猪小幅去化并未有效收缩商品猪供给。
+白山村以绿美公园+森林步道建设为推手撬动休闲健身事业，以客家坞、八社古村落等项目为载体吸引研学科普、民宿康养等运营主体谋求合作，构建新型乡村农旅体商产业体系。
 
-上半年大体重生猪集中压栏出栏，屠宰白条均重创同期新高，叠加仔猪供给充足、价格持续走低，7kg 仔猪均价年内跌幅超五成，补栏与二次育肥积极性全面走弱，二育套利空间消失，进一步放大短期压力。
+同时，白山村大力响应绿美广东生态建设，累计种植苗木920棵，完成绿化美化面积约45.14亩，景观改造面积超10000平方米，“艺美白山”精品线路持续优化，助推文旅产业蓬勃发展。
 
-6 月重点养殖企业出栏总量环比小幅回落，但出栏天数减少推高日均供给，短期猪价反弹动力不足。
+花都区赤坭镇瑞岭村： 瑞岭村深挖百年盆景文化，从引进高端盆景创意园入手，接续擦亮打响盆景艺术节、电商直播节等金字招牌，全力打造成为集种植栽培、交易交流、创作培训、科普展览、休闲旅游于一体的岭南盆景园艺文化艺术名村。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 16:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 16:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 16:21 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 16:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 16:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 16:22 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 16:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 16:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 16:31 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 16:34 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 16:53 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 16:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 16:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 16:31 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 16:43 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 16:24 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 16:39 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 16:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 16:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 16:53 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 16:35 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/689692213334.shtml)
-- 2026-06-29 16:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/6847323.shtml)
-- 2026-06-29 16:25 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/9606881492.shtml)
-- 2026-06-29 16:24 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/769263.shtml)
-- 2026-06-29 16:38 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/368543431496.shtml)
-- 2026-06-29 16:24 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/458260582054.shtml)
-- 2026-06-29 16:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/97431778.shtml)
-- 2026-06-29 16:28 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/6140711.shtml)
-- 2026-06-29 16:28 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/61478.shtml)
-- 2026-06-29 16:25 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/2576297704.shtml)
-- 2026-06-29 16:26 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/550379520.shtml)
-- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/031503959.shtml)
-- 2026-06-29 16:29 - [起风了](https://www.blog.minike.top/Article/details/781150.shtml)
-- 2026-06-29 16:37 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/321656.shtml)
-- 2026-06-29 16:43 - [青春环游记第三季](http://www.share.minike.top/Article/details/40726721981.shtml)
+- 2026-06-29 16:24 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/34964.shtml)
+- 2026-06-29 16:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/7089860691.shtml)
+- 2026-06-29 16:38 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/4127704229.shtml)
+- 2026-06-29 16:32 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/0114294901.shtml)
+- 2026-06-29 16:43 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/17442855905.shtml)
+- 2026-06-29 16:36 - [5万块的威力](http://www.blog.minike.top/Article/details/904398.shtml)
+- 2026-06-29 16:41 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/5401651.shtml)
+- 2026-06-29 16:50 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/1102104.shtml)
+- 2026-06-29 16:34 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/600128099.shtml)
+- 2026-06-29 16:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/90568745.shtml)
+- 2026-06-29 16:24 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/71900881.shtml)
+- 2026-06-29 16:41 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/08097.shtml)
+- 2026-06-29 16:42 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/37555680.shtml)
+- 2026-06-29 16:34 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/556553441.shtml)
+- 2026-06-29 16:39 - [存储三巨头被告了](https://www.share.minike.top/Article/details/225678857556.shtml)

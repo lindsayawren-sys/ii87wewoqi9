@@ -1,61 +1,53 @@
-# 谁是最懂球AI？世界杯32强答案揭晓：腾讯第一，DeepSeek仅列第四
+# 机构：日经指数年底前或触及65,000点
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-随着2026年美加墨世界杯32强全部尘埃落定，由联想集团与咪咕联合发起的“世界杯预测人机大战”赛前32强竞猜成绩也正式揭晓。 腾讯混元以预测准29支队伍的成绩位列第一，成为本届世界杯32强预测阶段的“最强AI预测官”；MiniMax、讯飞星火均以预测准28支并列第二；DeepSeek、智谱、联想天禧AI则以27支并列第四。 这场预测比拼的核心考题《2026世界杯32强竞猜统一考
+SMBC日兴证券的丸山义正表示，考虑到近期的股市动能，以及在稳定、长期的政府推动下基本趋势可能发生的转变，日经指数到年底可能达到65，000点左右。该经济学家表示，预计该指数到2027年底将达到73，000点左右，到2028年底将达到80，000点左右。“然而，如果中东冲突升级，不仅导致原油价格上涨，还演变成严重的供应受限问题，那么包括股票在内的资产价格的预期轨迹可能会被下调，
 
 ## 正文
 
-随着2026年美加墨世界杯32强全部尘埃落定，由联想集团与咪咕联合发起的“世界杯预测人机大战”赛前32强竞猜成绩也正式揭晓。
+SMBC日兴证券的丸山义正表示，考虑到近期的股市动能，以及在稳定、长期的政府推动下基本趋势可能发生的转变，日经指数到年底可能达到65，000点左右。
 
-腾讯混元以预测准29支队伍的成绩位列第一，成为本届世界杯32强预测阶段的“最强AI预测官”；MiniMax、讯飞星火均以预测准28支并列第二；DeepSeek、智谱、联想天禧AI则以27支并列第四。
+该经济学家表示，预计该指数到2027年底将达到73，000点左右，到2028年底将达到80，000点左右。
 
-这场预测比拼的核心考题《2026世界杯32强竞猜统一考试》答题卡，于5月28日正式上线发布，是本次人机大战的赛前核心任务之一。
+“然而，如果中东冲突升级，不仅导致原油价格上涨，还演变成严重的供应受限问题，那么包括股票在内的资产价格的预期轨迹可能会被下调，“他表示。
 
-12大AI在此答题卡上提前填写自己预判的小组出线32队名单，以这份答题卡为作答基准，最终以实际出线队伍核对命中数量、排出预测榜单。
-
-从这个意义上说，这不是一次赛后复盘式判断，而是一场有统一题目、统一作答时间、统一核验标准的AI预测“大考”。
-
-联想集团以“官方技术合作伙伴”身份赋能，AI体育应用场景落地 值得特别关注的是，联想集团不仅是本次“人机大战”的联合主办方，更是2026年美加墨世界杯的官方技术合作伙伴。
-
-联想集团在本届世界杯中的AI实践不是单一层面的。
-
-赛场内及赛事相关场景中，联想集团服务FIFA赛事运行、智能分析、判罚辅助、转播呈现、场馆服务和后台设备管理；赛场外，联想通过天禧AI和咪咕视频连接普通球迷的互动体验。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 16:29 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 16:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 16:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 16:24 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 16:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 16:24 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 16:40 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 16:43 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 16:42 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 16:37 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 16:32 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 16:33 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 16:20 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 16:38 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 16:46 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 16:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 16:36 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 16:45 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 16:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 16:45 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 16:38 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 16:45 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 16:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 16:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 16:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 16:47 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 16:45 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 16:42 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/4908551.shtml)
-- 2026-06-29 16:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/636592496066.shtml)
-- 2026-06-29 16:34 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.minike.top/Article/details/3896060757.shtml)
-- 2026-06-29 16:36 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/986456511957.shtml)
-- 2026-06-29 16:27 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/1728031744.shtml)
-- 2026-06-29 16:21 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/825310.shtml)
-- 2026-06-29 16:22 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/6038105403.shtml)
-- 2026-06-29 16:21 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/0085290944.shtml)
-- 2026-06-29 16:33 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/95844.shtml)
-- 2026-06-29 16:41 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/951890976675.shtml)
-- 2026-06-29 16:42 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/67334844.shtml)
-- 2026-06-29 16:31 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/076737037145.shtml)
-- 2026-06-29 16:37 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/70139229192.shtml)
-- 2026-06-29 16:27 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/66246961.shtml)
-- 2026-06-29 16:38 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/379382179.shtml)
+- 2026-06-29 16:26 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/9820030.shtml)
+- 2026-06-29 16:28 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/3715527.shtml)
+- 2026-06-29 16:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/2493838009.shtml)
+- 2026-06-29 16:30 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/1647062.shtml)
+- 2026-06-29 16:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/102192.shtml)
+- 2026-06-29 16:45 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/9894828.shtml)
+- 2026-06-29 16:30 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/168655350.shtml)
+- 2026-06-29 16:38 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/4930976.shtml)
+- 2026-06-29 16:27 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/96671.shtml)
+- 2026-06-29 16:28 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/49206897394.shtml)
+- 2026-06-29 16:28 - [千与千寻](https://www.share.minike.top/Article/details/68876221.shtml)
+- 2026-06-29 16:46 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/654226194665.shtml)
+- 2026-06-29 16:35 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/432629322148.shtml)
+- 2026-06-29 16:40 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/297381316.shtml)
+- 2026-06-29 16:31 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/0043618942.shtml)

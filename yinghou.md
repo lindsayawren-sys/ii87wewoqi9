@@ -1,47 +1,57 @@
-# 印尼北苏拉威西省附近海域发生6.8级地震
+# 网友追忆“糖果屋”文具，设计师回应
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。(总台记者 陶家乐)
+发布时间：2026年05月19日 15:33 来源：中国新闻网 你的学生时代，有没有一本“糖果屋”笔记本？在当年“非主流”占据主流审美的流行文化中，城堡、向日葵花海、少男少女、旋转木马……“糖果屋”文具繁复的线条和梦幻的色彩曾为80、90后构筑了学生时代的童话世界。15年前，这个经典IP悄悄告别，但在2026，设计师发布的当年的手绘图又掀起一阵阵怀旧潮，网友留言最多的是：“本子
 
 ## 正文
 
-据印尼气象、气候和地球物理局发布的报告，当地时间6月26日18时34分，印尼北苏拉威西省西北196公里海域发生6.8级地震。
+发布时间：2026年05月19日 15:33 来源：中国新闻网 你的学生时代，有没有一本“糖果屋”笔记本？
 
-(总台记者 陶家乐)
+在当年“非主流”占据主流审美的流行文化中，城堡、向日葵花海、少男少女、旋转木马……“糖果屋”文具繁复的线条和梦幻的色彩曾为80、90后构筑了学生时代的童话世界。
+
+15年前，这个经典IP悄悄告别，但在2026，设计师发布的当年的手绘图又掀起一阵阵怀旧潮，网友留言最多的是：“本子还没用我就长大了”。
+
+“我真的没想到，今天还有那么多人喜欢它、需要它。
+
+”近日，“糖果屋”IP原创设计师梁准准(笔名星盒子)接受中新网采访，在众多网友回复中，他感受到的是一种巨大的“遗憾”。
+
+这份遗憾，也在多年之后击中设计师本人。
+
+当初为什么放下这个IP？
+
+记忆中的“糖果屋”是否还能再次和大家见面？
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 16:29 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 16:41 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 16:45 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 16:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 16:39 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 16:44 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 16:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 16:40 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 16:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 16:25 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 16:31 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 16:38 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 16:38 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 16:42 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 16:44 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 16:30 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 16:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 16:52 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 16:27 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 16:29 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:38 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/067448581834.shtml)
-- 2026-06-29 16:30 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/545552.shtml)
-- 2026-06-29 16:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/977291318683.shtml)
-- 2026-06-29 16:37 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/2329884.shtml)
-- 2026-06-29 16:42 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/16331.shtml)
-- 2026-06-29 16:40 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/25750.shtml)
-- 2026-06-29 16:40 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/655375.shtml)
-- 2026-06-29 16:38 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/43851653369.shtml)
-- 2026-06-29 16:43 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/8962897.shtml)
-- 2026-06-29 16:18 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/321172.shtml)
-- 2026-06-29 16:27 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/502547959898.shtml)
-- 2026-06-29 16:42 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/105303.shtml)
-- 2026-06-29 16:33 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/535258.shtml)
-- 2026-06-29 16:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/68473530682.shtml)
-- 2026-06-29 16:37 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/25228.shtml)
+- 2026-06-29 16:34 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5958548614.shtml)
+- 2026-06-29 16:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/040106984140.shtml)
+- 2026-06-29 16:34 - [王俊凯命名方式](http://www.share.minike.top/Article/details/5567426.shtml)
+- 2026-06-29 16:47 - [斛珠夫人](http://www.share.minike.top/Article/details/03596066950.shtml)
+- 2026-06-29 16:26 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/70165617298.shtml)
+- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/80239335002.shtml)
+- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/6268717480.shtml)
+- 2026-06-29 16:37 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/708231624545.shtml)
+- 2026-06-29 16:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/64003.shtml)
+- 2026-06-29 16:41 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/512640.shtml)
+- 2026-06-29 16:30 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/3341474294.shtml)
+- 2026-06-29 16:28 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/6547615.shtml)
+- 2026-06-29 16:34 - [爸爸当家](https://www.share.minike.top/Article/details/58169002782.shtml)
+- 2026-06-29 16:45 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/434250195.shtml)
+- 2026-06-29 16:37 - [王楚钦开门红](https://www.share.minike.top/Article/details/1329371387.shtml)

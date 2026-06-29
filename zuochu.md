@@ -1,57 +1,50 @@
-# “乒乓搭桥：体育、经贸与对话”主题边会举行
+# A股午评：超3500只个股飘绿，三大指数集体收跌，存储器概念大涨
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网美因茨6月27日电(记者 马秀秀)第三届中欧企业环境、社会和公司治理(ESG)最佳案例大会期间，中国驻法兰克福总领馆26日在美因茨举办“乒乓搭桥：体育、经贸与对话”主题边会。 活动旨在以乒乓球为切入点，汇聚中德政界、经济界和体育界代表，打造小范围、高规格的交流平台。 中国驻法兰克福总领事黄昳扬致辞指出，乒乓球在中国被誉为“国球”，在德国同样拥有广泛且深厚的群众基础。随着中
+18日，A股三大指数低开，随后冲高回落，盘中一度集体翻红。截至午间收盘，沪指跌0.22%，深证成指跌0.31%，创业板指跌0.50%。全市半日成交额1.94万亿，超3500只个股下跌。 板块方面，存储器、6G、CPO概念活跃，电信、电脑硬件、发电设备、饮料、能源设备等板块领涨；工程机械、贵金属、摩托车、农业等板块领跌。
 
 ## 正文
 
-中新网美因茨6月27日电(记者 马秀秀)第三届中欧企业环境、社会和公司治理(ESG)最佳案例大会期间，中国驻法兰克福总领馆26日在美因茨举办“乒乓搭桥：体育、经贸与对话”主题边会。
+18日，A股三大指数低开，随后冲高回落，盘中一度集体翻红。
 
-活动旨在以乒乓球为切入点，汇聚中德政界、经济界和体育界代表，打造小范围、高规格的交流平台。
+截至午间收盘，沪指跌0.22%，深证成指跌0.31%，创业板指跌0.50%。
 
-中国驻法兰克福总领事黄昳扬致辞指出，乒乓球在中国被誉为“国球”，在德国同样拥有广泛且深厚的群众基础。
+全市半日成交额1.94万亿，超3500只个股下跌。
 
-随着中国运动员樊振东加盟德国乒乓球甲级联赛，越来越多中国观众开始关注德国乒乓球赛事以及各家俱乐部表现。
-
-越来越多中国民众通过乒乓球认识德国、了解德国、走近德国。
-
-他表示，希望以乒乓球为纽带，充分发挥体育在沟通民心、汇聚资源、促进合作方面的独特作用。
-
-中德双方可以进一步加强俱乐部、教练员和青少年之间的交流，开展更多民间赛事和训练活动，让年轻人在运动中增进了解、收获友谊。
-
-来自体育界、经济界的多位德方嘉宾表示，乒乓球是连接德国与中国的重要桥梁，不仅促进了两国体育交流，也为经贸、文化等领域合作创造了更多机遇。
+板块方面，存储器、6G、CPO概念活跃，电信、电脑硬件、发电设备、饮料、能源设备等板块领涨；工程机械、贵金属、摩托车、农业等板块领跌。
 
 ## 相关推荐
 
-- 2026-06-29 16:39 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 16:24 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 16:44 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 16:35 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 16:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 16:28 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 16:28 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 16:47 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 16:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 16:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 16:44 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 16:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 16:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 16:47 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 16:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 16:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 16:33 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 16:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 16:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 16:42 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/42790055807.shtml)
-- 2026-06-29 16:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/472216641.shtml)
-- 2026-06-29 16:27 - [东方风云榜](https://www.blog.minike.top/Article/details/747526122125.shtml)
-- 2026-06-29 16:41 - [5万块的威力](https://www.share.minike.top/Article/details/94452475.shtml)
-- 2026-06-29 16:22 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/151584664.shtml)
-- 2026-06-29 16:46 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/9589096155.shtml)
-- 2026-06-29 16:19 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/31056.shtml)
-- 2026-06-29 16:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/262248648750.shtml)
-- 2026-06-29 16:32 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/6143316874.shtml)
-- 2026-06-29 16:29 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/45868814670.shtml)
-- 2026-06-29 16:44 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/265199754898.shtml)
-- 2026-06-29 16:34 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/1313629.shtml)
-- 2026-06-29 16:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/86357426.shtml)
-- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/90054376.shtml)
-- 2026-06-29 16:28 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/035873870353.shtml)
+- 2026-06-29 16:30 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/583405.shtml)
+- 2026-06-29 16:34 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/67377.shtml)
+- 2026-06-29 16:37 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/1957258.shtml)
+- 2026-06-29 16:49 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/565067943.shtml)
+- 2026-06-29 16:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/61997.shtml)
+- 2026-06-29 16:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/106023832.shtml)
+- 2026-06-29 16:40 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/170205.shtml)
+- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/72416208938.shtml)
+- 2026-06-29 16:28 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/1187721847.shtml)
+- 2026-06-29 16:27 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/09570519379.shtml)
+- 2026-06-29 16:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/36458.shtml)
+- 2026-06-29 16:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/3808032874.shtml)
+- 2026-06-29 16:40 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/28104.shtml)
+- 2026-06-29 16:40 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/43621.shtml)
+- 2026-06-29 16:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/570073266.shtml)

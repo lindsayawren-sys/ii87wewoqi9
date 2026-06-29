@@ -1,53 +1,55 @@
-# 申港控股：可能延迟刊发年度业绩公布及可能暂停买卖
+# 5月19日“农产品批发价格200指数”比前一天下降0.24个点
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-申港控股（08631）发布公告，由于2026年5月底更换核数师及董事会会议延迟，公司预期最终确定2026年经审核年度业绩及年报所需的必要程序可能无法于各自的监管截止日期前完成。 根据GEM上市规则第17.49A条，倘发行人未能根据GEM上市规则刊发定期财务资料，联交所通常会要求暂停发行人证券的买卖。暂停买卖通常会持续有效，直至发行人刊发载有所规定财务资料的公布为止。因此，公司股
+中新网5月19日电 据农业农村部监测，5月19日“农产品批发价格200指数”为114.37，比昨天下降0.24个点，“菜篮子”产品批发价格指数为114.66，比昨天下降0.28个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.70元/公斤，比昨天下降0.5%；牛肉66.25元/公斤，比昨天下降0.3%；羊肉63.71元/公斤，比昨天下降0.3%；鸡蛋9.29元
 
 ## 正文
 
-申港控股（08631）发布公告，由于2026年5月底更换核数师及董事会会议延迟，公司预期最终确定2026年经审核年度业绩及年报所需的必要程序可能无法于各自的监管截止日期前完成。
+中新网5月19日电 据农业农村部监测，5月19日“农产品批发价格200指数”为114.37，比昨天下降0.24个点，“菜篮子”产品批发价格指数为114.66，比昨天下降0.28个点。
 
-根据GEM上市规则第17.49A条，倘发行人未能根据GEM上市规则刊发定期财务资料，联交所通常会要求暂停发行人证券的买卖。
+截至今日14:00时，全国农产品批发市场猪肉平均价格为14.70元/公斤，比昨天下降0.5%；牛肉66.25元/公斤，比昨天下降0.3%；羊肉63.71元/公斤，比昨天下降0.3%；鸡蛋9.29元/公斤，与昨天持平；白条鸡16.92元/公斤，比昨天上升1.5%。
 
-暂停买卖通常会持续有效，直至发行人刊发载有所规定财务资料的公布为止。
+重点监测的28种蔬菜平均价格为4.12元/公斤，比昨天下降1.0%；重点监测的6种水果平均价格为7.81元/公斤，比昨天下降0.1%。
 
-因此，公司股份于联交所的买卖目前预期将由2026年7月1日（星期三）上午九时正起暂停，直至刊发2026年经审核年度业绩。
+鲫鱼20.12元/公斤，比昨天下降0.9%；鲤鱼15.02元/公斤，比昨天下降0.1%；白鲢鱼10.08元/公斤，比昨天下降0.7%；大带鱼40.45元/公斤，比昨天下降3.2%。
 
-责任编辑：卢昱君
+今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是鸭梨、葱头、白条鸡、菠萝和菠菜，幅度分别为1.9%、1.7%、1.5%、0.9%和0.7%；价格降幅前五名的是莴笋、大带鱼、白萝卜、茄子和西红柿，幅度分别为3.8%、3.2%、3.2%、3.1%和3.1%。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 16:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 16:22 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 16:28 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 16:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 16:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 16:19 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 16:30 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 16:44 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 16:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 16:31 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:46 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 16:51 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 16:34 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 16:34 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:43 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 16:33 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 16:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 16:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 16:48 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 16:37 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 16:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 16:44 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 16:26 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 16:43 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 16:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/283395.shtml)
-- 2026-06-29 16:18 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/186085692.shtml)
-- 2026-06-29 16:37 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/378612490.shtml)
-- 2026-06-29 16:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/445748384701.shtml)
-- 2026-06-29 16:27 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/432538.shtml)
-- 2026-06-29 16:44 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/122797.shtml)
-- 2026-06-29 16:39 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/62903.shtml)
-- 2026-06-29 16:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/61915698.shtml)
-- 2026-06-29 16:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/83624350620.shtml)
-- 2026-06-29 16:26 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/121558517252.shtml)
-- 2026-06-29 16:25 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/16823302548.shtml)
-- 2026-06-29 16:30 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/20711993153.shtml)
-- 2026-06-29 16:30 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/270719035155.shtml)
-- 2026-06-29 16:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/4100877790.shtml)
-- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/8175728769.shtml)
+- 2026-06-29 16:51 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/42894263872.shtml)
+- 2026-06-29 16:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/7879480.shtml)
+- 2026-06-29 16:35 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/32909.shtml)
+- 2026-06-29 16:50 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/74538.shtml)
+- 2026-06-29 16:35 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/20210546.shtml)
+- 2026-06-29 16:32 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/32849389.shtml)
+- 2026-06-29 16:45 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/11868835.shtml)
+- 2026-06-29 16:40 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/74612748.shtml)
+- 2026-06-29 16:27 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/211914782.shtml)
+- 2026-06-29 16:45 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/57229.shtml)
+- 2026-06-29 16:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/88197.shtml)
+- 2026-06-29 16:28 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/758270561.shtml)
+- 2026-06-29 16:40 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/9953846.shtml)
+- 2026-06-29 16:24 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/401939400639.shtml)
+- 2026-06-29 16:44 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/4127113.shtml)

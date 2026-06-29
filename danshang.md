@@ -1,57 +1,59 @@
-# 广西自贸试验区发布十大创新案例 多项成果为首创
+# 国有大行齐发力，华宝基金百亿银行ETF（512800）涨逾1%，机构：银行具备确定性强的绝对收益空间
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月26日电(林浩)6月26日，中国(广西)自由贸易试验区工作办公室介绍，广西自贸试验区近日发布十大创新案例，涵盖数据流动便利、贸易自由、金融自由、运输自由、数字经济、知识产权保护等多个领域，多项成果为全国首创或沿边率先突破。数据跨境流动方面，广西率先在全国中西部和沿边省份中印发自贸试验区数据出境负面清单，全国首次围绕地理信息与气象数据服务、企业信用信息服务、直播跨境
+5月19日，银行股集体走强，工、农、中、建、交均涨超1%，成都银行、江苏银行、宁波银行等涨幅居前。百亿顶流银行ETF华宝（512800）场内价格现涨逾1%，站上5日线。 华创证券指出，中长期资金入市和公募基金改革的核心逻辑未变，重视银行板块配置机会，银行欠配幅度仍然较大。预计2026年仍是银行板块估值系统性回升的一年：从防御到攻守兼备，基本面回暖和资金驱动共同发力。 中信证券研
 
 ## 正文
 
-中新网南宁6月26日电(林浩)6月26日，中国(广西)自由贸易试验区工作办公室介绍，广西自贸试验区近日发布十大创新案例，涵盖数据流动便利、贸易自由、金融自由、运输自由、数字经济、知识产权保护等多个领域，多项成果为全国首创或沿边率先突破。
+5月19日，银行股集体走强，工、农、中、建、交均涨超1%，成都银行、江苏银行、宁波银行等涨幅居前。
 
-数据跨境流动方面，广西率先在全国中西部和沿边省份中印发自贸试验区数据出境负面清单，全国首次围绕地理信息与气象数据服务、企业信用信息服务、直播跨境电商、海外音视频制作与传播等4个领域明确重要数据识别标准，放宽个人信息出境规模。
+百亿顶流银行ETF华宝（512800）场内价格现涨逾1%，站上5日线。
 
-目前，4个领域均实现数据出境。
+华创证券指出，中长期资金入市和公募基金改革的核心逻辑未变，重视银行板块配置机会，银行欠配幅度仍然较大。
 
-贸易和运输自由方面，广西自贸试验区崇左片区在友谊关口岸建成全国首个边境一线高标准实验室，进出口水果检测时长压缩40%，年节约企业物流成本超1亿元；在全国陆地边境口岸率先启用的出入境车辆边检快捷通关查验模式，单台车辆查验时间缩短至15秒左右，效率提升约75%；创新边境出口工程车保税备仓模式，首创“整车保税出口”，将交付周期缩至1—2天，累计为企业减负近8000万元。
+预计2026年仍是银行板块估值系统性回升的一年：从防御到攻守兼备，基本面回暖和资金驱动共同发力。
 
-跨境金融创新领域，广西自贸试验区钦州港片区以跨境人民币业务为改革重点，推动跨境人民币双向流动便利化、跨境人民币同业融资和人民币信贷资产跨境转让，企业投融资和跨境资金流动便利化程度提升，“白名单”企业跨境人民币双向流动便利化业务操作时间由3小时左右缩短为20分钟，人民币信贷资产跨境转让已覆盖9个国家和地区。
+中信证券研究表示，4月信贷偏弱符合预期，一方面归因于银行业扩表策略走向高质量发展逻辑；另一方面受宏观需求审慎的现实条件影响，叠加年初早投放策略后的季节性回落。
 
-广西自贸试验区防城港协同发展区创新推出“数字人民币+越南盾”现钞兑换边境旅游特色应用场景，实现“数字人民币充值—越南盾现钞兑换”全流程系统联动，为游客提供无需绑卡、免手续费、可离线支付的便捷兑换服务。
+预计二季度信贷增长偏弱，5月略有恢复，6月季末月相对积极。
 
-此外，在数字经济与知识产权保护领域，中国—东盟跨境征信服务平台可一键查询全球超250个国家和地区5.7亿家企业信用报告(含东盟十国约787万家企业)，服务融资规模超3700亿元；“中马证照通”平台实现中国驾照与马来西亚驾照认证10分钟办结、成本降低90%以上；全国首创的“侵权风险测评+纠纷多元化解+质量技术赋能”知识产权保护服务体系，使专利有效性评估周期从原来的7个工作日压缩至10分钟，企业知识产权纠纷平均调解周期从过去的31.6天压缩至12.4天，推动专利转化率提高45%。
+板块投资上，尽管银行股受短期市场风格影响明显，相对收益存在波动；但由于上市银行步入基本面修复通道，行业估值提升可期，且股息率对于低风偏资金具备持续吸引力，具备确定性强的绝对收益空间。
 
-接下来，广西自贸试验区将重点围绕西部陆海新通道建设、跨境产业链合作、制度创新协同等方面，与各自贸片区及企业深入交流，探索跨区域联动创新路径。
+银行ETF（512800）及其联接基金（A类：240019；C类：006697）被动跟踪中证银行指数，成份股囊括A股42家上市银行，是跟踪银行板块整体行情的高效投资工具。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 16:24 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 16:40 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 16:25 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 16:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 16:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 16:31 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 16:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 16:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 16:39 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 16:28 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:46 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 16:49 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 16:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 16:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 16:54 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 16:40 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 16:29 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 16:25 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 16:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 16:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:24 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/6078883.shtml)
-- 2026-06-29 16:24 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/969346.shtml)
-- 2026-06-29 16:26 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/4509826977.shtml)
-- 2026-06-29 16:23 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/54341527580.shtml)
-- 2026-06-29 16:39 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/7343758611.shtml)
-- 2026-06-29 16:36 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/98646196.shtml)
-- 2026-06-29 16:18 - [毒液2](http://www.blog.kurohicncr.top/Article/details/657214799.shtml)
-- 2026-06-29 16:39 - [机器人学校开学了](https://www.share.minike.top/Article/details/215339098.shtml)
-- 2026-06-29 16:21 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/06015602496.shtml)
-- 2026-06-29 16:43 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/95312.shtml)
-- 2026-06-29 16:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/689061028.shtml)
-- 2026-06-29 16:44 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/0834995450.shtml)
-- 2026-06-29 16:42 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/721850376.shtml)
-- 2026-06-29 16:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/212735409178.shtml)
-- 2026-06-29 16:23 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/633403.shtml)
+- 2026-06-29 16:41 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/7382196166.shtml)
+- 2026-06-29 16:27 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/88320528513.shtml)
+- 2026-06-29 16:52 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/7777972482.shtml)
+- 2026-06-29 16:36 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/343975497421.shtml)
+- 2026-06-29 16:45 - [东方风云榜红毯](http://www.share.minike.top/Article/details/26422906.shtml)
+- 2026-06-29 16:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/1239703.shtml)
+- 2026-06-29 16:32 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/3257900.shtml)
+- 2026-06-29 16:39 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1613260.shtml)
+- 2026-06-29 16:52 - [逃狱兄弟](http://www.share.minike.top/Article/details/89958.shtml)
+- 2026-06-29 16:36 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/470623.shtml)
+- 2026-06-29 16:37 - [天道](http://www.share.minike.top/Article/details/216736.shtml)
+- 2026-06-29 16:41 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/35886517459.shtml)
+- 2026-06-29 16:48 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/6642744388.shtml)
+- 2026-06-29 16:49 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/03540.shtml)
+- 2026-06-29 16:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/25401.shtml)

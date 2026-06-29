@@ -1,61 +1,42 @@
-# 邳州交管：智慧引领，城市畅行
+# 文脉华章丨要把博物馆事业搞好
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-立足“江苏北大门”特殊区位，江苏省邳州市公安局锚定“科技换人力、智能增效能”核心思路，以大数据、物联网、无人机等数字技术为驱动，着力构建数据感知、智能预警、闭环处置、多域协同的智慧交管体系，持续推进货运超限长效治理、城区路网疏堵提质、农忙季农村道路专项安保，全面解锁县域交通治理数字化转型新路径。 数据赋能精准查缉更高效 邳州地处苏鲁交界处，与徐州贾汪、新沂及山东枣庄、临沂等四县
+发布时间：2026年05月19日 09:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-立足“江苏北大门”特殊区位，江苏省邳州市公安局锚定“科技换人力、智能增效能”核心思路，以大数据、物联网、无人机等数字技术为驱动，着力构建数据感知、智能预警、闭环处置、多域协同的智慧交管体系，持续推进货运超限长效治理、城区路网疏堵提质、农忙季农村道路专项安保，全面解锁县域交通治理数字化转型新路径。
-
-数据赋能精准查缉更高效 邳州地处苏鲁交界处，与徐州贾汪、新沂及山东枣庄、临沂等四县三区接壤。
-
-过境货运车辆基数庞大，超载、百吨王、遮挡号牌、非法改装等违法存量较大。
-
-“对这一实际情况，我们依托多元数据资源，打造了全方位、立体化的监测查缉网络。
-
-”邳州市公安局交管大队大队长吕威介绍，在精准发现方面，全面整合省道收费站、桥梁监测系统等多类核心称重数据资源，基本实现过境超载车辆全覆盖监测。
-
-在优化查缉流程上，根据称重点采集数据，精准发现超载车辆后，及时与公安卡口数据进行比对分析，实时追踪违法车辆；针对部分车辆遮挡号牌躲避抓拍的违法行为，则运用特征比对，精准锁定真实车牌号和行驶轨迹，高效破解难题。
-
-处罚执行环节，联动交通运输部门，创新开发联合治超钉钉小程序，固化“交警引检—交通驳载—依法处罚”标准化流程，留存人车合照、驳载前后对比照片等关键证据，实现交通、交管两部门人员实时共享进度、相互监督配合，有效保障执法的规范透明。
-
-一系列精准的治理举措下，邳州市治超工作成效显著。
+发布时间：2026年05月19日 09:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 16:47 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:26 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 16:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 16:22 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 16:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 16:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 16:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 16:26 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:35 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 16:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 16:45 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 16:19 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 16:35 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 16:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 16:39 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 16:48 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 16:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 16:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 16:39 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 16:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:40 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 16:31 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 16:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/803947094297.shtml)
-- 2026-06-29 16:47 - [勇敢的心第二部](http://www.share.minike.top/Article/details/58604114.shtml)
-- 2026-06-29 16:26 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/8523897644.shtml)
-- 2026-06-29 16:18 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/591918.shtml)
-- 2026-06-29 16:27 - [《贺子珍》](http://www.blog.minike.top/Article/details/77823673.shtml)
-- 2026-06-29 16:22 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/12614.shtml)
-- 2026-06-29 16:35 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/95949.shtml)
-- 2026-06-29 16:33 - [青春环游记第三季](http://www.blog.minike.top/Article/details/2680454644.shtml)
-- 2026-06-29 16:41 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/77144628.shtml)
-- 2026-06-29 16:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/6578957.shtml)
-- 2026-06-29 16:24 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/47198841.shtml)
-- 2026-06-29 16:24 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/422397809.shtml)
-- 2026-06-29 16:30 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/8740018556.shtml)
-- 2026-06-29 16:37 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/11922.shtml)
-- 2026-06-29 16:41 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/74368358466.shtml)
+- 2026-06-29 16:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/51701.shtml)
+- 2026-06-29 16:27 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/8584367634.shtml)
+- 2026-06-29 16:29 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/78471.shtml)
+- 2026-06-29 16:29 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/93411216.shtml)
+- 2026-06-29 16:25 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/223653.shtml)
+- 2026-06-29 16:33 - [叠纸](https://www.share.minike.top/Article/details/04517155799.shtml)
+- 2026-06-29 16:50 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/9844171.shtml)
+- 2026-06-29 16:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/21237.shtml)
+- 2026-06-29 16:40 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/322788598.shtml)
+- 2026-06-29 16:46 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/3642752536.shtml)
+- 2026-06-29 16:43 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/017877.shtml)
+- 2026-06-29 16:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/92057.shtml)
+- 2026-06-29 16:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/54501.shtml)
+- 2026-06-29 16:29 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/2615586771.shtml)
+- 2026-06-29 16:45 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/52267197.shtml)

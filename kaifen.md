@@ -1,53 +1,61 @@
-# 近镜头｜岁岁田垄 深情牵挂
+# 电科数字“蹭热点”被罚300万，受损投资者可索赔
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-正值夏播时节，田间地里一派农忙景象。6月24日，习近平总书记在山东省德州市考察，来到陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况。 在关键农时，习近平总书记一次次深入田间地头、走访乡村农户，察看粮食生产、倾听农民心声。年年岁岁，总书记对“三农”的关心关怀始终如一。 策划：张晓松、刘华 统筹：吴丹、朱基钗、邱红杰、饶力文 编导：杨牧、
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。 上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12
 
 ## 正文
 
-正值夏播时节，田间地里一派农忙景象。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月24日，习近平总书记在山东省德州市考察，来到陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况。
+2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。
 
-在关键农时，习近平总书记一次次深入田间地头、走访乡村农户，察看粮食生产、倾听农民心声。
+因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。
 
-年年岁岁，总书记对“三农”的关心关怀始终如一。
+上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12月17日-2026年1月12日期间买入，且在2026年1月13日之后卖出或仍持有而亏损的即可登记。
 
-策划：张晓松、刘华 统筹：吴丹、朱基钗、邱红杰、饶力文 编导：杨牧、赵博 记者：谢环驰、毕晓洋、燕雁、袁军宝、李小波、王欢、张博令 视觉：金小茜、郝晓静 新华社国内部制作 新华社第一工作室出品
+根据《行政处罚事先告知书》显示，2025年12月17日至12月31日期间，电科数字在上证e互动平台及投资者关系活动记录表中多次宣称，其全资子公司柏飞电子“在卫星互联网领域主要提供星载高性能计算、AI智算及射频传输三类产品”，并“已成功构建了全国产化的解决方案”。
+
+受此消息刺激，电科数字股价连续涨停。
+
+但经监管查实，所谓的“三类核心产品”，实际仅是为客户开展特定研究提供的产品，不仅后续发展存在极大不确定性，产品收入占公司整体业务比重更是不足0.1%。
+
+上海证监局认定，电科数字未准确、完整披露产品开发阶段、收入占比及不确定性风险，致使投资者可能作出错误判断，构成误导性陈述。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 16:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 16:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 16:39 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 16:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 16:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 16:48 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 16:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 16:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 16:44 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:23 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 16:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 16:46 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 16:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 16:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 16:41 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 16:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 16:37 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 16:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 16:51 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 16:24 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 16:46 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 16:37 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:25 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 16:27 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 16:27 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:36 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 16:31 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/08457758415.shtml)
-- 2026-06-29 16:24 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/065152886.shtml)
-- 2026-06-29 16:20 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/437560.shtml)
-- 2026-06-29 16:33 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/23265860547.shtml)
-- 2026-06-29 16:32 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/85451096.shtml)
-- 2026-06-29 16:18 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/341814912.shtml)
-- 2026-06-29 16:24 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/005939270816.shtml)
-- 2026-06-29 16:29 - [女心理师](http://www.share.minike.top/Article/details/41577.shtml)
-- 2026-06-29 16:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/81125596.shtml)
-- 2026-06-29 16:20 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/84023.shtml)
-- 2026-06-29 16:39 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/01580740.shtml)
-- 2026-06-29 16:39 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/27584912791.shtml)
-- 2026-06-29 16:28 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/8253881349.shtml)
-- 2026-06-29 16:27 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/370053287.shtml)
-- 2026-06-29 16:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/57633662.shtml)
+- 2026-06-29 16:49 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/201583623436.shtml)
+- 2026-06-29 16:42 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/12771.shtml)
+- 2026-06-29 16:45 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/7447722931.shtml)
+- 2026-06-29 16:24 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/4075417.shtml)
+- 2026-06-29 16:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/174101670.shtml)
+- 2026-06-29 16:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/0723140.shtml)
+- 2026-06-29 16:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/659209.shtml)
+- 2026-06-29 16:33 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/4060583083.shtml)
+- 2026-06-29 16:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/239936735.shtml)
+- 2026-06-29 16:47 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/8117027272.shtml)
+- 2026-06-29 16:33 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.minike.top/Article/details/68659388.shtml)
+- 2026-06-29 16:31 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/20457.shtml)
+- 2026-06-29 16:48 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/5694542461.shtml)
+- 2026-06-29 16:40 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/161541257.shtml)
+- 2026-06-29 16:34 - [5万块的威力](https://www.share.minike.top/Article/details/824770255047.shtml)

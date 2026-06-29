@@ -1,61 +1,59 @@
-# 世界杯早知道丨英格兰5分钟进2球小组头名晋级 克罗地亚胜加纳两队携手出线
+# 外交部：“倚外谋独”“以武谋独”最终只是痴心妄想
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-北京时间6月28日，2026美加墨世界杯小组赛L组第三轮中，英格兰2-0战胜巴拿马，锁定小组头名。 上半场，双方均未破门，巴拿马0-0英格兰。 下半场，第62分钟，贝林厄姆进球，英格兰1-0巴拿马。第67分钟，凯恩头球破门，英格兰2-0领先巴拿马，并将优势保持到比赛结束，以小组头名晋级淘汰赛。 克罗地亚2-1战胜加纳L组第三轮另一场比赛中，克罗地亚2-1战胜加纳。 三场比赛过后
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。中方对此有何评论？ 郭嘉昆：赖清德此番表演欲盖弥
 
 ## 正文
 
-北京时间6月28日，2026美加墨世界杯小组赛L组第三轮中，英格兰2-0战胜巴拿马，锁定小组头名。
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
 
-上半场，双方均未破门，巴拿马0-0英格兰。
+有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。
 
-下半场，第62分钟，贝林厄姆进球，英格兰1-0巴拿马。
+中方对此有何评论？
 
-第67分钟，凯恩头球破门，英格兰2-0领先巴拿马，并将优势保持到比赛结束，以小组头名晋级淘汰赛。
+郭嘉昆：赖清德此番表演欲盖弥彰，再次暴露其顽固坚持推行“台独”分裂的本质和意图。
 
-克罗地亚2-1战胜加纳L组第三轮另一场比赛中，克罗地亚2-1战胜加纳。
+世界上只有一个中国，台湾从来不是一个国家，过去不是，今后更加绝无可能。
 
-三场比赛过后，克罗地亚两胜一负积6分排名小组第二顺利出线，加纳队则是一胜一平一负积4分，跻身成绩最优的八个小组第三名行列，同样拿到出线名额。
+大陆和台湾同属一个中国。
 
-比赛预告 今天，世界杯赛场还将迎来K组和J组第三轮比赛。
+这是台海真正的现状。
 
-北京时间6月28日7:30，刚果(金)VS乌兹别克斯坦。
+赖清德当局不断勾连外部势力谋“独”挑衅，企图推动台湾问题“国际化”，是台海现状的最大破坏者，是台海和平稳定的最大乱源。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 16:22 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 16:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 16:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 16:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 16:35 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 16:43 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 16:19 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 16:29 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 16:20 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:22 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 16:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 16:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 16:45 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 16:42 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 16:47 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 16:34 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 16:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 16:30 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 16:48 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 16:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 16:50 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 16:42 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 16:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 16:49 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 16:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/68166859.shtml)
-- 2026-06-29 16:34 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/110669.shtml)
-- 2026-06-29 16:44 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/38219163580.shtml)
-- 2026-06-29 16:20 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/4668062.shtml)
-- 2026-06-29 16:36 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/91993269255.shtml)
-- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/4985277.shtml)
-- 2026-06-29 16:19 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/185301.shtml)
-- 2026-06-29 16:18 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/519530639.shtml)
-- 2026-06-29 16:24 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/18338582731.shtml)
-- 2026-06-29 16:46 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/9269366962.shtml)
-- 2026-06-29 16:22 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/9399387.shtml)
-- 2026-06-29 16:24 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/178447377.shtml)
-- 2026-06-29 16:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/92126384842.shtml)
-- 2026-06-29 16:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/288172289.shtml)
-- 2026-06-29 16:18 - [毒液2](https://www.share.kurohicncr.top/Article/details/812537.shtml)
+- 2026-06-29 16:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/36919292811.shtml)
+- 2026-06-29 16:51 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/90489.shtml)
+- 2026-06-29 16:38 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/4717432.shtml)
+- 2026-06-29 16:27 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/847036603715.shtml)
+- 2026-06-29 16:26 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/48092897837.shtml)
+- 2026-06-29 16:32 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/07573502.shtml)
+- 2026-06-29 16:52 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/0200032934.shtml)
+- 2026-06-29 16:31 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/919396245.shtml)
+- 2026-06-29 16:32 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/36876786.shtml)
+- 2026-06-29 16:51 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/86488412714.shtml)
+- 2026-06-29 16:26 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/837653248931.shtml)
+- 2026-06-29 16:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/58330226994.shtml)
+- 2026-06-29 16:24 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/530164312077.shtml)
+- 2026-06-29 16:31 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/41098838.shtml)
+- 2026-06-29 16:41 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/6357465.shtml)

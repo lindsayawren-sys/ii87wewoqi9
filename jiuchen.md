@@ -1,56 +1,59 @@
-# 专家齐聚广州研讨“长征精神的美术表达与新时代阐释”
+# 短剧柔性叙事，让反诈宣传入耳入心
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月27日电 (程景伟 廖晋 黄妍)“长征精神 红色传承——长征精神的美术表达与新时代阐释”学术研讨活动27日在广东画院举行，一批国内美术理论名家、知名艺术家与党史研究专家聚焦长征题材美术创作的历史脉络、理论建构与新时代创新路径，现场进行了分享交流。 研讨活动前期面向全国开展主题论文征集，经专家严格评审，遴选30篇优秀论文，并邀请入选作者代表现场交流。广东画院日前还组
+“娘，我来了！”一声声亲热呼唤，却藏着步步惊心的圈套——据金陵广播电台公众号报道，近日，江苏扬州公安推出短剧《红楼说经侦——当贾母遇上四个“好儿子”》，该剧借大众熟知的红楼IP，演绎贾母深陷养老骗局、宝玉巧妙点醒的剧情，将反诈知识融入趣味故事，打破传统反诈宣传生硬说教的困局，为养老反诈科普提供了极具温度与巧思的创新范本。长期以来，养老诈骗乱象频发。骗子精准拿捏老年群体孤独缺陪伴
 
 ## 正文
 
-中新网广州6月27日电 (程景伟 廖晋 黄妍)“长征精神 红色传承——长征精神的美术表达与新时代阐释”学术研讨活动27日在广东画院举行，一批国内美术理论名家、知名艺术家与党史研究专家聚焦长征题材美术创作的历史脉络、理论建构与新时代创新路径，现场进行了分享交流。
+“娘，我来了！
 
-研讨活动前期面向全国开展主题论文征集，经专家严格评审，遴选30篇优秀论文，并邀请入选作者代表现场交流。
+”一声声亲热呼唤，却藏着步步惊心的圈套——据金陵广播电台公众号报道，近日，江苏扬州公安推出短剧《红楼说经侦——当贾母遇上四个“好儿子”》，该剧借大众熟知的红楼IP，演绎贾母深陷养老骗局、宝玉巧妙点醒的剧情，将反诈知识融入趣味故事，打破传统反诈宣传生硬说教的困局，为养老反诈科普提供了极具温度与巧思的创新范本。
 
-广东画院日前还组织专业人员、画家奔赴韶关、赣州，开展“雄关漫道·纪念中国工农红军长征胜利90周年”考察采风活动。
+长期以来，养老诈骗乱象频发。
 
-此次研讨活动开幕式由广东画院副院长张达聪主持。
+骗子精准拿捏老年群体孤独缺陪伴、健康有焦虑、渴望资产保值等心理，以高息理财、预售养老床位、虚假保健品为诱饵，用甜言蜜语、温情陪伴降低老人警惕，一步步诱导其掏空积蓄。
 
-广东画院副院长、广东省美术家协会副主席郑阿湃，《美术》杂志副主编张鹏先后致辞。
+这类骗局套路并不复杂，却能屡屡得手，除了骗子深谙“共情攻心”之道，传统反诈宣传存在短板也不容忽视。
 
-据介绍，研讨活动旨在打通党史研究、美术理论与艺术创作的融通路径，系统梳理红色美术发展脉络，深挖岭南红色资源价值，推动新时代长征题材美术创作守正创新。
+以往一些反诈宣传难免陷入单向灌输、口号式说教的误区，比如有的街头海报“谨防诈骗”的警示内容缺少生活气息；有的社区讲座多是照本宣科念法条、罗列案例，内容较为枯燥；有的宣传话术相对固化，缺乏对老年群体心理的理解与体恤等。
 
-研讨活动上半场聚焦经典个案、历史叙事与理论梳理，下半场立足名家经典、地域史实与青年新锐研究，分别由中国美术学院教授梁江、《美术》杂志副主编张鹏担任学术主持。
+老年人需要的不是冷冰冰的告诫，而是被理解、被共情，生硬说教的反诈宣传方式，往往难以走进人心。
 
-十余位专家作主旨发言，内容丰富，视角多元。
+红楼系列反诈短剧之所以走红，关键在于找准了符合传播规律的反诈宣传破局之道——用讲故事的方式让养老防骗入脑入心。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 16:31 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 16:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 16:20 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 16:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 16:37 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 16:42 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:30 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 16:36 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 16:51 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 16:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 16:31 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:45 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 16:36 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 16:33 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 16:52 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 16:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 16:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 16:52 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 16:39 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 16:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/3872573447.shtml)
-- 2026-06-29 16:32 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/56396.shtml)
-- 2026-06-29 16:47 - [王楚钦开门红](http://www.blog.minike.top/Article/details/476867.shtml)
-- 2026-06-29 16:32 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/559772366255.shtml)
-- 2026-06-29 16:34 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/19182807.shtml)
-- 2026-06-29 16:45 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/4762647.shtml)
-- 2026-06-29 16:36 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/352906.shtml)
-- 2026-06-29 16:43 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/4515835254.shtml)
-- 2026-06-29 16:30 - [送你一朵小红花](http://www.blog.minike.top/Article/details/43858439465.shtml)
-- 2026-06-29 16:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/847989818024.shtml)
-- 2026-06-29 16:19 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/02701.shtml)
-- 2026-06-29 16:34 - [斗破苍穹](http://www.share.minike.top/Article/details/6871775755.shtml)
-- 2026-06-29 16:42 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/234921.shtml)
-- 2026-06-29 16:33 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/1815072914.shtml)
-- 2026-06-29 16:39 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/8396639672.shtml)
+- 2026-06-29 16:45 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/469985642251.shtml)
+- 2026-06-29 16:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/5670357.shtml)
+- 2026-06-29 16:44 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/34409957863.shtml)
+- 2026-06-29 16:32 - [一见倾心](https://www.share.kurohicncr.top/Article/details/61472.shtml)
+- 2026-06-29 16:48 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/64824.shtml)
+- 2026-06-29 16:26 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/247771.shtml)
+- 2026-06-29 16:28 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/1622974.shtml)
+- 2026-06-29 16:44 - [起风了](http://www.share.minike.top/Article/details/661819954852.shtml)
+- 2026-06-29 16:48 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/86972765.shtml)
+- 2026-06-29 16:27 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/58179133110.shtml)
+- 2026-06-29 16:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/7705809375.shtml)
+- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/53100908.shtml)
+- 2026-06-29 16:30 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/890131683824.shtml)
+- 2026-06-29 16:32 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/575246271595.shtml)
+- 2026-06-29 16:36 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/328590545518.shtml)

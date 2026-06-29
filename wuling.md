@@ -1,57 +1,58 @@
-# 杭州东站启用“无声畅行”警民沟通服务专线 助力无障碍出行
+# 青少年肥胖能用“减肥针”吗？专家：慎用快速减重方式
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月28日电(钱晨菲)28日，杭州东站“无声畅行”警民沟通服务专线启动仪式举办，标志着专属服务“无声畅行码”正式启用，为听障旅客搭建起全天候、全链条、无障碍的站车警务求助与出行保障通道。 当前暑运客流持续攀升，车站语音广播、口头问询、语音求助等传统服务模式，对听障群体存在沟通障碍。听障旅客在站内遭遇财物遗失、出行纠纷、身体不适、突发险情等突发状况时，因听觉、言语沟通受
+中新网5月19日电 国家卫生健康委19日举行新闻发布会介绍时令节气与健康有关情况。针对青少年肥胖是否可通过“注射减肥针”“口服降血糖药”“高蛋白饮食”等方式追求快速减重的提问，中国医学科学院北京协和医院主任医师李乃适表示，各种所谓快速减重的方式要慎用。李乃适指出，儿童青少年处于生长发育期，只要符合健康的生长发育曲线其实就可以了。儿童青少年是否肥胖，可以依据国家卫生健康委发布的《
 
 ## 正文
 
-中新网杭州6月28日电(钱晨菲)28日，杭州东站“无声畅行”警民沟通服务专线启动仪式举办，标志着专属服务“无声畅行码”正式启用，为听障旅客搭建起全天候、全链条、无障碍的站车警务求助与出行保障通道。
+中新网5月19日电 国家卫生健康委19日举行新闻发布会介绍时令节气与健康有关情况。
 
-当前暑运客流持续攀升，车站语音广播、口头问询、语音求助等传统服务模式，对听障群体存在沟通障碍。
+针对青少年肥胖是否可通过“注射减肥针”“口服降血糖药”“高蛋白饮食”等方式追求快速减重的提问，中国医学科学院北京协和医院主任医师李乃适表示，各种所谓快速减重的方式要慎用。
 
-听障旅客在站内遭遇财物遗失、出行纠纷、身体不适、突发险情等突发状况时，因听觉、言语沟通受限，往往难以快速求助、精准表达诉求，极易延误处置时机，成为铁路出行安全服务的薄弱环节。
+李乃适指出，儿童青少年处于生长发育期，只要符合健康的生长发育曲线其实就可以了。
 
-专线聚焦听障旅客急难愁盼，在东站候车室东西两处报警点位专属布设“无声畅行码”，听障旅客扫码即可一键发起线上求助。
+儿童青少年是否肥胖，可以依据国家卫生健康委发布的《7岁以下儿童生长标准》和《学龄儿童青少年超重与肥胖筛查》里面的性别年龄BMI对照表来作初步的判断。
 
-服务专线深度集成杭州东站派出所站区快速接处警、现场处置和乘警支队列车联动处置、旅途兜底保障双重职能，搭配24小时全天候在线的专业远程手语翻译服务，实现线上翻译实时对接、线下警情同步处置，一站式高效处置站内及关联旅途各类求助警情，打通听障旅客警务求助“最后一米”。
+如果体型是持续偏胖，或者已经出现血压、血糖、血脂、脂肪肝这些异常，就要尽早干预。
 
-本次启动活动汇聚杭州市残联、铁路公安、公益社会组织等多方力量，邀请听障市民代表、一线执勤民警现场体验服务成果。
+第一，健康体重管理的基础是生活方式调整。
 
-活动现场同步开设便民服务专区，设置2个听障文创公益摊位、4个综合咨询服务台，免费为过往旅客提供医务科普、法律咨询、铁路警务答疑、无障碍出行指导等暖心服务，配备专业手语翻译，保障听障旅客无障碍参与、零距离咨询，让便民服务更精细、更有温度。
+一是调整饮食结构，优质蛋白、蔬菜、全谷物要增加，避免过度节食，尽量避免含糖饮料、油炸食品和零食摄入，这点非常重要。
 
-(完)
+二是保证充足的运动，提倡中小学生每天综合体育运动的时间不低于2小时。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 16:44 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 16:28 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 16:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 16:21 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 16:40 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 16:46 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 16:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 16:19 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:34 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 16:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 16:47 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 16:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 16:38 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 16:26 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 16:44 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 16:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 16:38 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 16:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 16:38 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 16:33 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:23 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/64663703.shtml)
-- 2026-06-29 16:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/9335142952.shtml)
-- 2026-06-29 16:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/37439995.shtml)
-- 2026-06-29 16:43 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/257394671.shtml)
-- 2026-06-29 16:45 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/080470324009.shtml)
-- 2026-06-29 16:33 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/66731.shtml)
-- 2026-06-29 16:30 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/25772037754.shtml)
-- 2026-06-29 16:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/5557533138.shtml)
-- 2026-06-29 16:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/22840407.shtml)
-- 2026-06-29 16:35 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/22089.shtml)
-- 2026-06-29 16:25 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/579442543956.shtml)
-- 2026-06-29 16:18 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/734045.shtml)
-- 2026-06-29 16:34 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/28344.shtml)
-- 2026-06-29 16:19 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/478730755.shtml)
-- 2026-06-29 16:40 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/947988.shtml)
+- 2026-06-29 16:27 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/55792338581.shtml)
+- 2026-06-29 16:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/40541.shtml)
+- 2026-06-29 16:36 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/3365425367.shtml)
+- 2026-06-29 16:44 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/864903072.shtml)
+- 2026-06-29 16:32 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/1379590575.shtml)
+- 2026-06-29 16:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/491960307854.shtml)
+- 2026-06-29 16:28 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/796449989.shtml)
+- 2026-06-29 16:52 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/28813276.shtml)
+- 2026-06-29 16:25 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/018174.shtml)
+- 2026-06-29 16:25 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/6313333046.shtml)
+- 2026-06-29 16:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/04205.shtml)
+- 2026-06-29 16:26 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/50069816.shtml)
+- 2026-06-29 16:36 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/020900238.shtml)
+- 2026-06-29 16:49 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/71331893.shtml)
+- 2026-06-29 16:32 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/414884.shtml)

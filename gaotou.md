@@ -1,59 +1,56 @@
-# 美国华裔青少年上海开启AI研学探索之旅
+# 伯克希尔一季度持仓出炉 部分股票周一走高
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新社上海6月28日电 (范宇斌)“侨连四海·科创探索”2026美国华裔青少年上海黄浦研学营28日在上海开营，30位美国华裔青少年开启为期10天的研学探索之旅。 本次研学营以人工智能为主轴，围绕“AI+文化”“AI+金融”两大核心课题展开，设置AI工坊、科创企业与创新实验室参访等特色环节，将带领营员探访科创载体、寻访海派文脉。今年，第48届世界技能大赛将在上海举办。营员研学期间
+伯克希尔·哈撒韦对其投资组合的调整推动部分股票在周一走高，投资者正在分析该公司季度申报文件中披露的最新押注与退出操作。 伯克希尔·哈撒韦上周五在一份监管申报文件中披露了其季度末的股票持仓，这标志着在传奇投资者沃伦·巴菲特于年初卸任后，新任CEO格雷格·阿贝尔领导下的投资组合首次部分亮相。 最新申报文件中最大的动作之一是新建了达美航空的大额仓位。伯克希尔购买了该航空公司3980万
 
 ## 正文
 
-中新社上海6月28日电 (范宇斌)“侨连四海·科创探索”2026美国华裔青少年上海黄浦研学营28日在上海开营，30位美国华裔青少年开启为期10天的研学探索之旅。
+伯克希尔·哈撒韦对其投资组合的调整推动部分股票在周一走高，投资者正在分析该公司季度申报文件中披露的最新押注与退出操作。
 
-本次研学营以人工智能为主轴，围绕“AI+文化”“AI+金融”两大核心课题展开，设置AI工坊、科创企业与创新实验室参访等特色环节，将带领营员探访科创载体、寻访海派文脉。
+伯克希尔·哈撒韦上周五在一份监管申报文件中披露了其季度末的股票持仓，这标志着在传奇投资者沃伦·巴菲特于年初卸任后，新任CEO格雷格·阿贝尔领导下的投资组合首次部分亮相。
 
-今年，第48届世界技能大赛将在上海举办。
+最新申报文件中最大的动作之一是新建了达美航空的大额仓位。
 
-营员研学期间将走进世界技能博物馆，感悟精益求精的工匠精神。
+伯克希尔购买了该航空公司3980万股股份，截至3月底价值26亿美元，使其成为截至3月底该公司第14大持仓。
 
-上海市侨联主席齐全胜寄语营员，要动手实践、勤于思考，探寻科技赋能文化、民生、产业的多元路径，走进街巷、体验民俗，近距离触摸鲜活的中华文脉。
+达美航空股价周一盘中一度上涨逾3%。
 
-本次研学营还安排上海市卢湾高级中学学生全程结伴研学，期待中美青少年在交流中互助协作、互学互鉴。
+此次买入达美航空标志着伯克希尔重返航空业。
 
-美国华裔青少年营员代表黄伯纳表示，人工智能、文化、金融、体育等多元内容令他倍感新鲜，期待在研学过程中多听多看多学，加深对中国的了解，提升中文水平。
+六年前，巴菲特曾令市场意外地清空了伯克希尔全部美国航空股组合，抛售了在美联航、美国航空、西南航空和达美航空价值逾40亿美元的持仓。
 
-活动现场同步启动第五届“创意侨声·国潮DNA黄浦卡牌共创计划”全球征集大赛。
+巴菲特当时认为，疫情已经永久改变了消费者习惯和旅行需求。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 16:22 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 16:34 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 16:20 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 16:40 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 16:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 16:24 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 16:45 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:39 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 16:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 16:19 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 16:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 16:30 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 16:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 16:46 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 16:33 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:26 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 16:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 16:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 16:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 16:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:52 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 16:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:38 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/9839161354.shtml)
-- 2026-06-29 16:20 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/4240880.shtml)
-- 2026-06-29 16:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/446115295.shtml)
-- 2026-06-29 16:25 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/21035464900.shtml)
-- 2026-06-29 16:43 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/80230.shtml)
-- 2026-06-29 16:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/106573178463.shtml)
-- 2026-06-29 16:31 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/9562647.shtml)
-- 2026-06-29 16:42 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/39538262.shtml)
-- 2026-06-29 16:37 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/3779136978.shtml)
-- 2026-06-29 16:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/9285998683.shtml)
-- 2026-06-29 16:34 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/17656516.shtml)
-- 2026-06-29 16:23 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/950811650686.shtml)
-- 2026-06-29 16:47 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/487491.shtml)
-- 2026-06-29 16:36 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/7925885956.shtml)
-- 2026-06-29 16:30 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/527859626.shtml)
+- 2026-06-29 16:50 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/502552875.shtml)
+- 2026-06-29 16:28 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/414702254.shtml)
+- 2026-06-29 16:36 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/8218906444.shtml)
+- 2026-06-29 16:38 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/71316.shtml)
+- 2026-06-29 16:35 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/5683617585.shtml)
+- 2026-06-29 16:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/7679310.shtml)
+- 2026-06-29 16:24 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/32548787569.shtml)
+- 2026-06-29 16:51 - [NBA交易](https://www.share.minike.top/Article/details/519835692207.shtml)
+- 2026-06-29 16:50 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/760585341166.shtml)
+- 2026-06-29 16:26 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/850689971373.shtml)
+- 2026-06-29 16:46 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/309198.shtml)
+- 2026-06-29 16:30 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/615302.shtml)
+- 2026-06-29 16:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/71803429.shtml)
+- 2026-06-29 16:45 - [急先锋](https://www.share.kurohicncr.top/Article/details/195216.shtml)
+- 2026-06-29 16:35 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/6487426238.shtml)

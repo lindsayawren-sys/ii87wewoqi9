@@ -1,59 +1,56 @@
-# 消防安全问题引人关注 记者暗访养老机构
+# 俄罗斯无人机击中中国货船？中方证实：相关船只系马绍尔群岛籍
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-消防设施较为完备，但有的无法正常运行；值班制度完整，但有的安全人员一问三不知—— 暗访养老机构消防安全(金台视线) “消防栓怎么没水？”“会使用这个消防设施吗？” 随着我国人口老龄化进程加快，养老机构数量快速增长，人员密集且老年人自救能力弱，养老机构的消防安全问题引人关注。近期，国家消防救援局会同民政部组织开展养老机构安全专项暗访暗查。养老机构的消防设施设置情况如何？各项规范执
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者提问：乌克兰方面18日表示，一架俄罗斯无人机在黑海击中了一艘中国货船。请问外交部对此有何评论？ 郭嘉昆：根据目前掌握的情况，相关船只系马绍尔群岛籍，船上有中国籍船员。中国驻乌克兰使馆已与中国船员取得联系，确认无人员伤亡。 关于乌克兰危机，中方的立场是一贯的、明确的，对话谈判是解决乌克兰危
 
 ## 正文
 
-消防设施较为完备，但有的无法正常运行；值班制度完整，但有的安全人员一问三不知—— 暗访养老机构消防安全(金台视线) “消防栓怎么没水？
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。
 
-”“会使用这个消防设施吗？
+有记者提问：乌克兰方面18日表示，一架俄罗斯无人机在黑海击中了一艘中国货船。
 
-” 随着我国人口老龄化进程加快，养老机构数量快速增长，人员密集且老年人自救能力弱，养老机构的消防安全问题引人关注。
+请问外交部对此有何评论？
 
-近期，国家消防救援局会同民政部组织开展养老机构安全专项暗访暗查。
+郭嘉昆：根据目前掌握的情况，相关船只系马绍尔群岛籍，船上有中国籍船员。
 
-养老机构的消防设施设置情况如何？
+中国驻乌克兰使馆已与中国船员取得联系，确认无人员伤亡。
 
-各项规范执行是否到位？
+关于乌克兰危机，中方的立场是一贯的、明确的，对话谈判是解决乌克兰危机的唯一出路。
 
-记者随同暗访组赴上海、江西、贵州、云南等地，实地对多家单位开展了暗访暗查。
-
-硬件设施不达标：消防设施“带病运行”，避难间、疏散楼梯间被占用 每到一家养老机构，暗访组首先对消防设施的设置情况进行详细检查，包括火灾自动报警系统、自动灭火设施、防排烟设施等。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 16:44 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 16:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 16:30 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 16:21 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 16:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 16:37 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 16:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 16:45 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 16:21 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 16:28 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:40 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 16:48 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 16:33 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 16:46 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 16:29 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:32 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 16:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 16:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 16:36 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 16:45 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 16:42 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 16:40 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:45 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 16:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/5218700998.shtml)
-- 2026-06-29 16:39 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/64445.shtml)
-- 2026-06-29 16:22 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/67109.shtml)
-- 2026-06-29 16:41 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/99644583113.shtml)
-- 2026-06-29 16:35 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/99411543031.shtml)
-- 2026-06-29 16:36 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/36448643541.shtml)
-- 2026-06-29 16:44 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/3260112361.shtml)
-- 2026-06-29 16:18 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/58312.shtml)
-- 2026-06-29 16:41 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/186148879100.shtml)
-- 2026-06-29 16:47 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/439615.shtml)
-- 2026-06-29 16:37 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/85336.shtml)
-- 2026-06-29 16:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/7573666705.shtml)
-- 2026-06-29 16:21 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/22717026089.shtml)
-- 2026-06-29 16:43 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/6890816.shtml)
-- 2026-06-29 16:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/844529011503.shtml)
+- 2026-06-29 16:42 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/284147299809.shtml)
+- 2026-06-29 16:34 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/888057907.shtml)
+- 2026-06-29 16:49 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/56459600558.shtml)
+- 2026-06-29 16:35 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/52797159.shtml)
+- 2026-06-29 16:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/87846.shtml)
+- 2026-06-29 16:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/8926928.shtml)
+- 2026-06-29 16:49 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/427018993010.shtml)
+- 2026-06-29 16:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/355593.shtml)
+- 2026-06-29 16:24 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/590444647772.shtml)
+- 2026-06-29 16:39 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/439167971089.shtml)
+- 2026-06-29 16:27 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/0479974.shtml)
+- 2026-06-29 16:38 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/0357821.shtml)
+- 2026-06-29 16:26 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/94479494.shtml)
+- 2026-06-29 16:28 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/6070560.shtml)
+- 2026-06-29 16:45 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/515944837256.shtml)

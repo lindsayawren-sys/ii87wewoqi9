@@ -1,55 +1,50 @@
-# 美国查封近400个盗播世界杯赛事域名
+# 中国人寿获平安保险(集团)增持1626万股 每股均价约29.87港元
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网6月27日电 据路透社报道，美国司法部官员26日说，美国已查封近400个非法直播世界杯赛事的互联网域名。 美国司法部说，被查封的域名是在国际足联、美国全国广播环球公司和华纳兄弟公司等方面协助下确定， 这些域名被用来非法向用户提供受版权保护的内容，包括正在进行和首次播出的世界杯比赛实时视频内容。 负责国土安全调查的官员埃里克·魏因多夫在一份声明中表示：“这些流媒体平台不仅违
+香港联交所最新资料显示，5月14日，中国平安保险（集团）股份有限公司增持中国人寿（02628）1626万股，每股均价29.8736港元，总金额约为4.86亿港元。增持后最新持股数目约为10.44亿股，最新持股比例为14.03%。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月27日电 据路透社报道，美国司法部官员26日说，美国已查封近400个非法直播世界杯赛事的互联网域名。
+香港联交所最新资料显示，5月14日，中国平安保险（集团）股份有限公司增持中国人寿（02628）1626万股，每股均价29.8736港元，总金额约为4.86亿港元。
 
-美国司法部说，被查封的域名是在国际足联、美国全国广播环球公司和华纳兄弟公司等方面协助下确定， 这些域名被用来非法向用户提供受版权保护的内容，包括正在进行和首次播出的世界杯比赛实时视频内容。
+增持后最新持股数目约为10.44亿股，最新持股比例为14.03%。
 
-负责国土安全调查的官员埃里克·魏因多夫在一份声明中表示：“这些流媒体平台不仅违反了版权法，还让观众面临潜在威胁，包括恶意软件攻击和可能危及个人信息和财务数据的不安全链接。
-
-”美司法部还补充称，在秘鲁和保加利亚发现非法直播世界杯赛事的相关服务器和域名，此外，在克罗地亚、罗马尼亚、波兰和哥伦比亚也发现干扰情况。
-
-美加墨世界杯6月11日至7月19日在美国、加拿大、墨西哥的16个城市举行。
-
-据国际足联称，本届赛事的现场观众人数创下历史新高。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 16:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:39 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 16:27 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:39 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:20 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 16:46 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 16:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 16:21 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 16:23 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 16:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 16:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 16:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 16:25 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 16:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 16:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 16:34 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 16:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 16:25 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 16:24 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 16:44 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 16:53 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 16:24 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 16:51 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 16:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 16:34 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/032954038.shtml)
-- 2026-06-29 16:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/901223648757.shtml)
-- 2026-06-29 16:32 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/58969377.shtml)
-- 2026-06-29 16:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/341755.shtml)
-- 2026-06-29 16:32 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/9265692820.shtml)
-- 2026-06-29 16:19 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/2176699.shtml)
-- 2026-06-29 16:39 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/932653.shtml)
-- 2026-06-29 16:36 - [抓特务票房破亿](https://www.share.minike.top/Article/details/17115937.shtml)
-- 2026-06-29 16:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/14571.shtml)
-- 2026-06-29 16:39 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/94726468275.shtml)
-- 2026-06-29 16:19 - [周生如故](https://www.blog.minike.top/Article/details/757267658.shtml)
-- 2026-06-29 16:29 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/708891936.shtml)
-- 2026-06-29 16:31 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/07582496.shtml)
-- 2026-06-29 16:18 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/149043049.shtml)
-- 2026-06-29 16:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/132844670.shtml)
+- 2026-06-29 16:26 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/272176.shtml)
+- 2026-06-29 16:38 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/136398.shtml)
+- 2026-06-29 16:39 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/37009464774.shtml)
+- 2026-06-29 16:39 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/881110.shtml)
+- 2026-06-29 16:38 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/2403503.shtml)
+- 2026-06-29 16:34 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/14783333894.shtml)
+- 2026-06-29 16:45 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/720623150.shtml)
+- 2026-06-29 16:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/883605.shtml)
+- 2026-06-29 16:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/25511292.shtml)
+- 2026-06-29 16:53 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/6023907545.shtml)
+- 2026-06-29 16:28 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/5927736.shtml)
+- 2026-06-29 16:52 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/959718.shtml)
+- 2026-06-29 16:31 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/757098186.shtml)
+- 2026-06-29 16:27 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/6006115.shtml)
+- 2026-06-29 16:45 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/68712.shtml)

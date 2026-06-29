@@ -1,42 +1,59 @@
-# 习近平会见洪森：共守和平、共谋发展、共创繁荣，扎实推进中柬命运共同体建设
+# 东盟国家官员：中国—东盟商贸资讯平台发挥积极作用
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 14:09 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务
 
 ## 正文
 
-发布时间：2026年06月26日 14:09 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。
+
+座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。
+
+中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务。
+
+平台网页、客户端于2026年1月起陆续上线试运行，已成为广受欢迎的中国—东盟经贸合作信息窗口。
+
+柬埔寨驻南宁总领事馆总领事唐肃安表示，当前背景下，信息共享变得至关重要。
+
+柬中合作成果丰硕，从企业角度来看，信息服务方面的沟通与合作十分重要，中国—东盟商贸资讯平台在推动商贸合作、助力企业转型方面发挥了积极作用。
+
+柬中合作源于传统友谊，面向未来，愿持续拓展合作领域，赋能产业升级，实现互利共赢。
+
+缅甸驻南宁总领事馆总领事凯素林认为，在中国—东盟自贸区3.0版升级议定书签署的大背景下，充分发挥中国—东盟商贸资讯平台价值尤为重要。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:37 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 16:45 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:40 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 16:30 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 16:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 16:44 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 16:43 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 16:23 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 16:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 16:53 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 16:42 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 16:32 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 16:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 16:34 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 16:38 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:49 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 16:46 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 16:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:24 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 16:46 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/963074009778.shtml)
-- 2026-06-29 16:26 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/93206252.shtml)
-- 2026-06-29 16:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/97612326266.shtml)
-- 2026-06-29 16:24 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/547041532141.shtml)
-- 2026-06-29 16:26 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/2164956838.shtml)
-- 2026-06-29 16:46 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/603781705.shtml)
-- 2026-06-29 16:46 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/16642319467.shtml)
-- 2026-06-29 16:41 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/136469808.shtml)
-- 2026-06-29 16:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/488747036.shtml)
-- 2026-06-29 16:42 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/565155888.shtml)
-- 2026-06-29 16:44 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/55982933013.shtml)
-- 2026-06-29 16:31 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/300164558404.shtml)
-- 2026-06-29 16:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/1086688617.shtml)
-- 2026-06-29 16:38 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/999167820772.shtml)
-- 2026-06-29 16:47 - [《贺子珍》](http://www.blog.minike.top/Article/details/085427.shtml)
+- 2026-06-29 16:28 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/6392750.shtml)
+- 2026-06-29 16:28 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/61341.shtml)
+- 2026-06-29 16:42 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/2166180541.shtml)
+- 2026-06-29 16:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/195727577676.shtml)
+- 2026-06-29 16:30 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/0920105.shtml)
+- 2026-06-29 16:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/91984939714.shtml)
+- 2026-06-29 16:31 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/148014.shtml)
+- 2026-06-29 16:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/1799393586.shtml)
+- 2026-06-29 16:51 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/04023029.shtml)
+- 2026-06-29 16:44 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/68756.shtml)
+- 2026-06-29 16:40 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/1560003518.shtml)
+- 2026-06-29 16:44 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/10334568.shtml)
+- 2026-06-29 16:26 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/118935886790.shtml)
+- 2026-06-29 16:30 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/321873.shtml)
+- 2026-06-29 16:41 - [一生一世](http://www.share.kurohicncr.top/Article/details/250537723205.shtml)

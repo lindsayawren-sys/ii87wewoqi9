@@ -1,60 +1,57 @@
-# 海外华媒采风团探访广东湛江 为当地发展活力点赞
+# 调查显示：逾八成中俄青年认为中俄关系友好
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网湛江6月26日电 (梁盛 严娅 庞莹)24日至26日，“2026海外华媒看广东高质量发展”主题采风团探访广东湛江。来自全球20多个国家和地区的华文媒体代表，深入湛江特色产业集群、重点科创企业、非遗基地及基层侨务阵地，用笔和镜头记录当地高质量发展的鲜活实践，向广大海外华侨华人讲述真实立体、蓬勃向上的湛江故事。 采风团首站来到“中国电饭锅之乡”湛江廉江市，先后参观廉江市家电产
+中新网北京5月18日电(巩微微)5月15日，《中俄青年友好与文化交流调查分析报告》发布会在中国人民大学举行。调查显示，87.5%的俄罗斯青年和85.5%的中国青年认为中俄关系友好。 报告发现，中俄青年对两国关系评价积极，对彼此国家形象总体正面，对未来合作普遍乐观，友好合作是两国青年对中俄关系的主流认知。 数据显示，对对方国家持正面评价的俄罗斯青年和中国青年分别为78.0%和76
 
 ## 正文
 
-中新网湛江6月26日电 (梁盛 严娅 庞莹)24日至26日，“2026海外华媒看广东高质量发展”主题采风团探访广东湛江。
+中新网北京5月18日电(巩微微)5月15日，《中俄青年友好与文化交流调查分析报告》发布会在中国人民大学举行。
 
-来自全球20多个国家和地区的华文媒体代表，深入湛江特色产业集群、重点科创企业、非遗基地及基层侨务阵地，用笔和镜头记录当地高质量发展的鲜活实践，向广大海外华侨华人讲述真实立体、蓬勃向上的湛江故事。
+调查显示，87.5%的俄罗斯青年和85.5%的中国青年认为中俄关系友好。
 
-采风团首站来到“中国电饭锅之乡”湛江廉江市，先后参观廉江市家电产业服务中心和华强电器集团有限公司，详细了解廉江家电产业一站式服务体系建设成果，实地观摩企业智能化生产车间，近距离感受县域实体经济转型升级的强劲势头，见证廉江依托产业平台推动传统家电产业数字化、高端化转型，“廉江智造”产品远销海外的亮眼成效。
+报告发现，中俄青年对两国关系评价积极，对彼此国家形象总体正面，对未来合作普遍乐观，友好合作是两国青年对中俄关系的主流认知。
 
-在湛江经开区，采风团调研了巴斯夫一体化生产基地、广东双林生物制药有限公司。
+数据显示，对对方国家持正面评价的俄罗斯青年和中国青年分别为78.0%和76.4%；对中俄合作前景表示乐观的比例分别为77.7%和73.7%。
 
-在广东双林生物制药有限公司，媒体代表深入了解血液制品从血浆采集到终端产品上市的全链条体系。
+这些数据表明，两国青年对彼此国家和双边合作前景的整体判断高度接近，中俄友好具有稳定、积极的青年民意基础。
 
-作为广东省最大血液制品企业，该公司入选国家级专精特新“小巨人”企业，也是首批通过国家GMP认证的血液制品企业。
+两国青年对彼此文化保持较高兴趣。
 
-巴斯夫一体化生产基地、广东双林生物制药有限公司两大标杆企业，集中展现了湛江高端制造与生物医药产业集聚发展的强劲动能。
+俄罗斯青年对中国传统与节日、饮食、建筑等兴趣较高，中国青年对俄罗斯建筑、文学、音乐等保持关注。
 
-雷州石狗雕刻艺术基地、奋勇高新区侨胞之家的非遗魅力和浓厚的侨文化底蕴，更让采风团叹为观止。
+语言学习方面，75.5%的中国青年和52.8%的俄罗斯青年表示愿意学习或提升对方语言水平。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 16:47 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 16:32 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:29 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 16:27 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 16:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 16:18 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 16:18 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 16:22 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 16:26 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 16:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 16:22 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 16:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 16:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 16:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 16:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 16:36 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 16:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 16:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 16:42 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 16:53 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:26 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 16:27 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/290167559.shtml)
-- 2026-06-29 16:38 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/456062073.shtml)
-- 2026-06-29 16:47 - [斗破苍穹](http://www.share.minike.top/Article/details/12002774089.shtml)
-- 2026-06-29 16:26 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/12204891.shtml)
-- 2026-06-29 16:41 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/461316.shtml)
-- 2026-06-29 16:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/5101168.shtml)
-- 2026-06-29 16:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/652959749.shtml)
-- 2026-06-29 16:37 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/72281926.shtml)
-- 2026-06-29 16:31 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/80634.shtml)
-- 2026-06-29 16:22 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/64350734311.shtml)
-- 2026-06-29 16:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/480292.shtml)
-- 2026-06-29 16:26 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/506751.shtml)
-- 2026-06-29 16:20 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/65815.shtml)
-- 2026-06-29 16:41 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/8404340944.shtml)
-- 2026-06-29 16:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/60345685024.shtml)
+- 2026-06-29 16:43 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/85641.shtml)
+- 2026-06-29 16:53 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/44249716.shtml)
+- 2026-06-29 16:47 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/42696729.shtml)
+- 2026-06-29 16:26 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/7881732.shtml)
+- 2026-06-29 16:26 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/2806273.shtml)
+- 2026-06-29 16:24 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/51585.shtml)
+- 2026-06-29 16:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/364768840.shtml)
+- 2026-06-29 16:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/17162425.shtml)
+- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/389950201.shtml)
+- 2026-06-29 16:26 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/06122.shtml)
+- 2026-06-29 16:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/14287885124.shtml)
+- 2026-06-29 16:27 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/411318.shtml)
+- 2026-06-29 16:39 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/623031.shtml)
+- 2026-06-29 16:31 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/045744035.shtml)
+- 2026-06-29 16:29 - [金刚川](https://www.blog.minike.top/Article/details/01872821470.shtml)

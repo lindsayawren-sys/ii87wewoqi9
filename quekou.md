@@ -1,58 +1,52 @@
-# 沿丝路选爆品 德航集团以“文化+数智”模式亮相链博会，做双循环超级链接者
+# “AI与人类未来”主题论坛在港举办 聚力京港科创合作发展
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-6月22日，以“链接世界、共创未来”为主题的第四届中国国际供应链促进博览会在北京中国国际展览中心正式启幕。本届链博会恰逢海南自贸港封关运作后的关键发展窗口，封关以来海南跨境贸易数据持续走高，“零关税”政策、加工增值30%免关税等制度优势持续释放，海南正从传统的“物流通道”升级为全球资源配置网络中的重要枢纽节点。扎根海南多年的德航集团，正是这一进程的亲历者与建设者。 展会现场，德
+中新网香港5月18日电 北京大学香港校友会17日在港举办“AI与人类未来”主题论坛活动。近350名来自京港两地的科技界领袖、学术专家及校友代表参与活动，共议人工智能(AI)技术前沿发展，共谋推动京港科创合作。 北京大学香港校友会会长刘祖繁在活动致辞中表示，北部都会区建设、科技创新人才引进与培养是香港未来发展的重要引擎和支柱，北京大学香港校友会将更好地从科技创新、青年交流和人才发
 
 ## 正文
 
-6月22日，以“链接世界、共创未来”为主题的第四届中国国际供应链促进博览会在北京中国国际展览中心正式启幕。
+中新网香港5月18日电 北京大学香港校友会17日在港举办“AI与人类未来”主题论坛活动。
 
-本届链博会恰逢海南自贸港封关运作后的关键发展窗口，封关以来海南跨境贸易数据持续走高，“零关税”政策、加工增值30%免关税等制度优势持续释放，海南正从传统的“物流通道”升级为全球资源配置网络中的重要枢纽节点。
+近350名来自京港两地的科技界领袖、学术专家及校友代表参与活动，共议人工智能(AI)技术前沿发展，共谋推动京港科创合作。
 
-扎根海南多年的德航集团，正是这一进程的亲历者与建设者。
+北京大学香港校友会会长刘祖繁在活动致辞中表示，北部都会区建设、科技创新人才引进与培养是香港未来发展的重要引擎和支柱，北京大学香港校友会将更好地从科技创新、青年交流和人才发展等方面发挥香港和内地之间的平台与纽带作用。
 
-展会现场，德航集团以“沿丝路，选爆品”为核心理念，打造“文化+供应链”特色展示区：沿着丝绸之路经济带的脉络，集中展出中亚、东南亚、欧洲、非洲等地的特色好物，联合新西兰知名膳食营养品牌OXYENERGY氧气能量带来全系列健康产品矩阵，覆盖健康营养、美妆护肤、特色农品等多元消费品类。
+香港特区政府立法会主席李慧琼出席活动并表示，将来会积极推动北部都会区大学城建设、京港两地青年交流及科技创新人才引进与培养等方面合作，为国家发展和香港繁荣稳定培育更多优秀人才。
 
-不同于普通的商品展销，德航的每一件展品背后都附带完整的落地服务方案，直观向全球客商展示“展品变商品、展商变投资商”的全链路落地路径。
+此次论坛邀请京港两地科创科研人才作主题演讲，同时举办圆桌论坛，多位专家学者共同探讨技术将把人类文明带向何处、人与机器如何共处、创新与人文关怀如何统一等深层次问题，聚焦京港协同科技创新与科技合作的未来愿景。
 
-“过去我们是供应链上的‘坐船人’，现在我们不仅参与修船，更成了畅通双循环的‘摆渡人’。
-
-”德航集团董事长路平在接受采访时表示，连续四年参展链博会，企业亲眼见证了这个国家级平台为全球产业链搭建的巨大资源池，也推动德航完成了从被动参展到主动搭建服务网络的角色转变。
-
-作为海南自贸港成长起来的本土企业，德航的核心优势就在于把自贸港的政策红利转化为可落地的供应链服务能力：一方面依托“零关税”、保税展示等政策优势，帮助南非鲍鱼、马来西亚皇家雪兰莪、意大利圣贝纳泉等海外特色品牌低成本进入中国市场；另一方面依托海南“借港出海”的跳板属性，为内地工业品、非遗文创提供出海的全流程服务，打通“工业品下行、农产品上行”的双向通道。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 16:42 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 16:32 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 16:34 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 16:21 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 16:43 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 16:43 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 16:34 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 16:35 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 16:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 16:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 16:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 16:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 16:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 16:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:43 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 16:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 16:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 16:53 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 16:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/852003114.shtml)
-- 2026-06-29 16:24 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/716433.shtml)
-- 2026-06-29 16:32 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/186502320641.shtml)
-- 2026-06-29 16:38 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/79667045526.shtml)
-- 2026-06-29 16:23 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/385178.shtml)
-- 2026-06-29 16:20 - [王楚钦开门红](https://www.blog.minike.top/Article/details/43449.shtml)
-- 2026-06-29 16:28 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/6063071.shtml)
-- 2026-06-29 16:21 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/51597135134.shtml)
-- 2026-06-29 16:18 - [金刚川](http://www.share.kurohicncr.top/Article/details/5744342247.shtml)
-- 2026-06-29 16:29 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/5110564.shtml)
-- 2026-06-29 16:40 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/175723366.shtml)
-- 2026-06-29 16:39 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/04482940092.shtml)
-- 2026-06-29 16:39 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/719699.shtml)
-- 2026-06-29 16:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/5587371.shtml)
-- 2026-06-29 16:43 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/1086937.shtml)
+- 2026-06-29 16:30 - [美的空调 卡bug](http://www.share.minike.top/Article/details/543900.shtml)
+- 2026-06-29 16:31 - [人形机器人](https://www.blog.minike.top/Article/details/88047691.shtml)
+- 2026-06-29 16:31 - [逆天祖国人](http://www.share.minike.top/Article/details/62994464.shtml)
+- 2026-06-29 16:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/99764.shtml)
+- 2026-06-29 16:39 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/69249135.shtml)
+- 2026-06-29 16:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/29358.shtml)
+- 2026-06-29 16:49 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/57558264.shtml)
+- 2026-06-29 16:24 - [斛珠夫人](https://www.share.minike.top/Article/details/914125.shtml)
+- 2026-06-29 16:28 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/28004974.shtml)
+- 2026-06-29 16:37 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/0688744374.shtml)
+- 2026-06-29 16:30 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/550831968747.shtml)
+- 2026-06-29 16:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/548383.shtml)
+- 2026-06-29 16:33 - [一生一世](https://www.share.kurohicncr.top/Article/details/546743.shtml)
+- 2026-06-29 16:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/601223874334.shtml)
+- 2026-06-29 16:25 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/7522911241.shtml)

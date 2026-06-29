@@ -1,57 +1,56 @@
-# 2026年“公望富春”两岸文化交流周启幕
+# 三星电子罢工“急刹车”！韩法院要求工会维持人力和产能，违规将赔偿
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月27日电(郭其钰)6月27日，2026年“公望富春”两岸文化交流周开幕式暨《我在富春山居图里等你》主题电影开拍发布活动在浙江杭州富阳举行。200余位两岸同胞齐聚富春江畔，共赴一场文化团圆之约。 富阳是《富春山居图》的实景创作地，承载着深厚的两岸文化交流记忆。2011年，分割多年的《富春山居图》实现旷世合璧，成为两岸文化交融的经典佳话。 富阳区委书记王牮在致辞中表示
+中新经纬5月18日电 据韩媒最新报道，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等，否则两家工会须进行赔偿。 三星电子劳资双方18日上午启动第二轮事后调解。此前，劳方已宣布将于21日启动为期18天的总罢工，因此调解能否达成协议从而化解矛盾、避免罢工，引发关注。 韩国《中央日报》中文版18日报道称，韩国法院部分接受了三星电子要
 
 ## 正文
 
-中新网杭州6月27日电(郭其钰)6月27日，2026年“公望富春”两岸文化交流周开幕式暨《我在富春山居图里等你》主题电影开拍发布活动在浙江杭州富阳举行。
+中新经纬5月18日电 据韩媒最新报道，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等，否则两家工会须进行赔偿。
 
-200余位两岸同胞齐聚富春江畔，共赴一场文化团圆之约。
+三星电子劳资双方18日上午启动第二轮事后调解。
 
-富阳是《富春山居图》的实景创作地，承载着深厚的两岸文化交流记忆。
+此前，劳方已宣布将于21日启动为期18天的总罢工，因此调解能否达成协议从而化解矛盾、避免罢工，引发关注。
 
-2011年，分割多年的《富春山居图》实现旷世合璧，成为两岸文化交融的经典佳话。
+韩国《中央日报》中文版18日报道称，韩国法院部分接受了三星电子要求禁止超企业工会三星电子支部及全国三星电子工会举行总罢工的临时处分申请。
 
-富阳区委书记王牮在致辞中表示，富阳作为《富春山居图》的原创地与实景地，始终珍视这份跨越海峡的文脉联结。
+韩国水原地方法院第31民事部(审判长申宇晸)18日在原定于21日举行总罢工前三天，对三星电子针对两家工会提出的“禁止违法争议行为”临时处分申请作出部分支持裁定。
 
-从打造公望两岸圆缘园，构建“以台引台、以青聚青”的创业生态，到系统梳理千年历史渊源，建成公望两岸交流馆，再到策划拍摄《我在富春山居图里等你》主题电影，富阳始终致力于让“两岸一家亲”的情谊跨越山海，也希望两岸同胞携手共绘现代版富春山居图。
+因此，三星电子工会即便在进行劳资斗争期间，也必须维持与争议行为发生前相同程度的人力、运转时间及生产规模等。
 
-全国台湾研究会副会长王在希回顾说，十五年来，三万余名台胞专程来富阳走亲访友，与此同时富阳实实在在建起了两大实体平台，一是去年全新落成的公望两岸交流馆，紧扣两岸血脉相连的历史事实，用真实史料讲清两岸自古一家，以史实印证两岸同根同源；二是公望两岸圆缘园配套各类惠台扶持政策，招引近20个台青创业项目落地扎根，越来越多台湾青年把富阳当作“第二故乡”。
+法院还认定，若工会违反上述规定，通过施加有形压力、发出威胁通知或发布相关指令等方式妨碍相关设施维持平时运转水平，两家工会每天每次违规须各赔偿1亿韩元，各工会支部长及委员长代理则各赔偿1000万韩元。
 
-当日，主题电影《我在富春山居图里等你》的主创团队分享了影片筹拍进度与创作理念。
+韩国《中央日报》中文版还称，据悉，三星电子已根据工会要求，更换了资方首席谈判代表，并向半导体(DS)部门提出相当于年薪600%的绩效奖金方案。
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 16:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 16:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 16:29 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 16:40 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 16:33 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 16:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 16:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 16:32 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 16:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 16:43 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 16:26 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 16:36 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 16:31 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 16:43 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 16:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 16:32 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 16:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 16:28 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 16:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 16:34 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/930565.shtml)
-- 2026-06-29 16:26 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/952785016485.shtml)
-- 2026-06-29 16:45 - [吴建豪老婆](https://www.blog.minike.top/Article/details/97459.shtml)
-- 2026-06-29 16:46 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/981687.shtml)
-- 2026-06-29 16:34 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/395444.shtml)
-- 2026-06-29 16:46 - [流金岁月](https://www.share.kurohicncr.top/Article/details/35849336813.shtml)
-- 2026-06-29 16:30 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/236168.shtml)
-- 2026-06-29 16:28 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/221886.shtml)
-- 2026-06-29 16:34 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/341961040868.shtml)
-- 2026-06-29 16:41 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/443974053.shtml)
-- 2026-06-29 16:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/17697381153.shtml)
-- 2026-06-29 16:31 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/46861717.shtml)
-- 2026-06-29 16:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/63070.shtml)
-- 2026-06-29 16:42 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/9329694779.shtml)
-- 2026-06-29 16:40 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/33251613974.shtml)
+- 2026-06-29 16:34 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/76957158547.shtml)
+- 2026-06-29 16:39 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/1374849.shtml)
+- 2026-06-29 16:42 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/3360744.shtml)
+- 2026-06-29 16:41 - [起风了](https://www.share.kurohicncr.top/Article/details/58172.shtml)
+- 2026-06-29 16:44 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/521837.shtml)
+- 2026-06-29 16:46 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/95042292.shtml)
+- 2026-06-29 16:47 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/338558401.shtml)
+- 2026-06-29 16:28 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/136479.shtml)
+- 2026-06-29 16:52 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/01231009203.shtml)
+- 2026-06-29 16:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/3535174137.shtml)
+- 2026-06-29 16:47 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/1202473329.shtml)
+- 2026-06-29 16:32 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/29472.shtml)
+- 2026-06-29 16:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/35720.shtml)
+- 2026-06-29 16:43 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/37427057.shtml)
+- 2026-06-29 16:40 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/262845237.shtml)

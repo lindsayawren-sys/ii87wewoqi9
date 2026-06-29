@@ -1,60 +1,54 @@
-# 美官员：美国和伊朗同意停止互相打击，将在卡塔尔会晤
+# “洪迪厄斯”号邮轮预计18日抵达荷兰鹿特丹港
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-美国和伊朗签署谅解备忘录后不到两周，双方再次围绕霍尔木兹海峡发生交火，中东局势面临进一步升级的风险。据美国Axios新闻网6月28日报道，多名美国高级官员透露，美伊双方已同意停止互相攻击，双方计划于当地时间30日在卡塔尔首都多哈会晤，解决有关霍尔木兹海峡的争端。 一名美国高级官员表示：“我们决定停止所有进攻性活动。”另一名高级官员称，美国和伊朗都将“暂时”停止行动，船只可以在霍
+中新网北京5月18日电 鹿特丹消息：根据“洪迪厄斯”号邮轮运营方荷兰“泛海探险”公司发布的声明，发生汉坦病毒疫情的该邮轮预计当地时间18日抵达荷兰鹿特丹港。 据路透社、法新社等媒体报道，邮轮上目前有25名船员和两名医疗人员，国籍包括菲律宾、荷兰、乌克兰、俄罗斯和波兰。船只到港后，船上人员将分批下船，所有人员均须严格遵守荷兰官方制定的隔离流程。 “洪迪厄斯”号邮轮4月1日从阿根廷
 
 ## 正文
 
-美国和伊朗签署谅解备忘录后不到两周，双方再次围绕霍尔木兹海峡发生交火，中东局势面临进一步升级的风险。
+中新网北京5月18日电 鹿特丹消息：根据“洪迪厄斯”号邮轮运营方荷兰“泛海探险”公司发布的声明，发生汉坦病毒疫情的该邮轮预计当地时间18日抵达荷兰鹿特丹港。
 
-据美国Axios新闻网6月28日报道，多名美国高级官员透露，美伊双方已同意停止互相攻击，双方计划于当地时间30日在卡塔尔首都多哈会晤，解决有关霍尔木兹海峡的争端。
+据路透社、法新社等媒体报道，邮轮上目前有25名船员和两名医疗人员，国籍包括菲律宾、荷兰、乌克兰、俄罗斯和波兰。
 
-一名美国高级官员表示：“我们决定停止所有进攻性活动。
+船只到港后，船上人员将分批下船，所有人员均须严格遵守荷兰官方制定的隔离流程。
 
-”另一名高级官员称，美国和伊朗都将“暂时”停止行动，船只可以在霍尔木兹海峡“自由航行”，技术谈判将继续进行。
+“洪迪厄斯”号邮轮4月1日从阿根廷乌斯怀亚出发，前往非洲岛国佛得角，途中暴发汉坦病毒聚集性感染，目前已造成一对荷兰夫妇和一名德国公民死亡。
 
-报道援引知情人士的消息称，美国和伊朗原定于当地时间30日在瑞士举行谈判，以解决伊朗核问题。
-
-但在局势再次升级后，双方决定将谈判地点转移到卡塔尔多哈，再次讨论有关霍尔木兹海峡的问题。
-
-预计负责美国技术团队的尼克·斯图尔特将出席会谈。
-
-白宫方面暂未对这一消息发表评论。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 16:22 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 16:46 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 16:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 16:46 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 16:37 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 16:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 16:22 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 16:19 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 16:37 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 16:29 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 16:34 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 16:21 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 16:33 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 16:32 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 16:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 16:38 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 16:43 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 16:43 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:49 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 16:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 16:36 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 16:33 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 16:53 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 16:34 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 16:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 16:31 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 16:36 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/3031622.shtml)
-- 2026-06-29 16:44 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/48141.shtml)
-- 2026-06-29 16:38 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/89926372.shtml)
-- 2026-06-29 16:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/3654997.shtml)
-- 2026-06-29 16:20 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/786291.shtml)
-- 2026-06-29 16:22 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/5685238.shtml)
-- 2026-06-29 16:30 - [新能源车能当外接空调用吗](https://www.share.minike.top/Article/details/0369133874.shtml)
-- 2026-06-29 16:29 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/901779.shtml)
-- 2026-06-29 16:18 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/39933079.shtml)
-- 2026-06-29 16:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/63964777.shtml)
-- 2026-06-29 16:35 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/9104933605.shtml)
-- 2026-06-29 16:42 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/91787156.shtml)
-- 2026-06-29 16:18 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/30529580950.shtml)
-- 2026-06-29 16:18 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/2314817.shtml)
-- 2026-06-29 16:38 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/944517661854.shtml)
+- 2026-06-29 16:35 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/1432362095.shtml)
+- 2026-06-29 16:38 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/634528923.shtml)
+- 2026-06-29 16:26 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/404485931.shtml)
+- 2026-06-29 16:50 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/459913.shtml)
+- 2026-06-29 16:35 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/0054815922.shtml)
+- 2026-06-29 16:45 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/30199277.shtml)
+- 2026-06-29 16:52 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/20044286747.shtml)
+- 2026-06-29 16:29 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/6543639.shtml)
+- 2026-06-29 16:46 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/9923420798.shtml)
+- 2026-06-29 16:52 - [爱很美味](https://www.share.minike.top/Article/details/64784271.shtml)
+- 2026-06-29 16:28 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/346632002358.shtml)
+- 2026-06-29 16:51 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/784054.shtml)
+- 2026-06-29 16:53 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/716391.shtml)
+- 2026-06-29 16:28 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/6496786.shtml)
+- 2026-06-29 16:53 - [毒液2](https://www.share.kurohicncr.top/Article/details/585132883.shtml)

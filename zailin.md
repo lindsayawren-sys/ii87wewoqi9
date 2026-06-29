@@ -1,60 +1,56 @@
-# 股价“腰斩”，章建平减仓，葛卫东坚守
+# 特朗普：应海湾三国请求 推迟攻击伊朗
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-6月27日，江淮汽车发布关于回购股份事项前十名股东及前十名无限售条件股东持股情况的公告。 根据公告，截至6月23日，股东方文艳（牛散章建平妻子）持有江淮汽车2665.02万股，较6月9日的3588.52万股减少923.5万股。按照减持期间（6月10日至23日）区间均价31.39元/股估算，其套现约2.9亿元。 章建平的撤退不止于此。其关联的知春精选一期私募基金，截至6月9日持有
+新华社华盛顿5月18日电(记者黄强 徐剑梅)美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天(19日)”对伊朗发动的军事攻击。 特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。重要的是，协议将规定“伊朗不得拥有核武器”。 特
 
 ## 正文
 
-6月27日，江淮汽车发布关于回购股份事项前十名股东及前十名无限售条件股东持股情况的公告。
+新华社华盛顿5月18日电(记者黄强 徐剑梅)美东时间18日下午，美国总统特朗普在社交媒体发文称，应卡塔尔、沙特阿拉伯、阿联酋领导人请求，他已下令推迟“原定于明天(19日)”对伊朗发动的军事攻击。
 
-根据公告，截至6月23日，股东方文艳（牛散章建平妻子）持有江淮汽车2665.02万股，较6月9日的3588.52万股减少923.5万股。
+特朗普说，美国和伊朗正在进行“严肃的谈判”，上述三国领导人认为，美伊终将达成“美国以及中东地区乃至更广泛范围的所有国家均能接受”的协议。
 
-按照减持期间（6月10日至23日）区间均价31.39元/股估算，其套现约2.9亿元。
+重要的是，协议将规定“伊朗不得拥有核武器”。
 
-章建平的撤退不止于此。
+特朗普称，出于对上述领导人的尊重，他已指示美国防部长赫格塞思、美军参谋长联席会议主席凯恩以及美军，19日将不按原计划对伊朗发动攻击。
 
-其关联的知春精选一期私募基金，截至6月9日持有江淮汽车3702.47万股，位列第四大股东；到6月23日已撤出前十大股东之列。
+同时，他要求美军必须做好准备，一旦未能达成令人满意的协议，随时准备对伊朗发起“全面、大规模”进攻。
 
-值得注意的是，另一位牛散葛卫东及其两位关联人对江淮汽车的持股则纹丝不动。
+特朗普当天早些时候接受美国媒体采访时表示，在收到伊朗“令人失望”的最新提案后，他不考虑向伊朗作出任何让步。
 
-截至6月23日，葛卫东持有江淮汽车3049.35万股，王萍（葛卫东妻子）持股2475.61万股，葛贵莲（葛卫东关联人）持股1661.6万股，持股数量均在6月9日至23日期间未发生变化。
+伊朗塔斯尼姆通讯社18日援引消息人士的话报道，伊朗已通过巴基斯坦将包含14点的最新谈判文本转交美方，核心内容聚焦于“结束战争”相关议题，以及美方应采取的各项建立信任的措施。
 
-此外，由于知春精选一期私募基金的撤出，葛卫东另一关联人持股情况浮出水面，截至6月23日，葛贵兰（葛卫东关联人）持股1262.2万股，新进前十大股东之列。
+美国阿克西奥斯新闻网站随后援引美方高级官员的话报道，白宫认为伊朗最新提案没有实质性改进，不足以作为达成协议的基础，特朗普正考虑重启军事行动。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 16:36 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 16:20 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 16:21 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 16:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 16:47 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 16:35 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 16:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 16:21 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 16:36 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 16:45 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 16:31 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 16:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 16:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 16:45 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 16:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 16:53 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 16:39 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 16:33 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:36 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 16:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 16:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 16:51 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/261989.shtml)
-- 2026-06-29 16:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/5896775229.shtml)
-- 2026-06-29 16:31 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/1398061.shtml)
-- 2026-06-29 16:26 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/260925.shtml)
-- 2026-06-29 16:40 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/6913149966.shtml)
-- 2026-06-29 16:31 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/2901033.shtml)
-- 2026-06-29 16:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5686530.shtml)
-- 2026-06-29 16:37 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/8740296102.shtml)
-- 2026-06-29 16:36 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/77879571.shtml)
-- 2026-06-29 16:27 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/98999.shtml)
-- 2026-06-29 16:23 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/3384915.shtml)
-- 2026-06-29 16:29 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/61804700.shtml)
-- 2026-06-29 16:35 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/12655.shtml)
-- 2026-06-29 16:29 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/98769046.shtml)
-- 2026-06-29 16:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/851861906539.shtml)
+- 2026-06-29 16:31 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/647768779464.shtml)
+- 2026-06-29 16:36 - [绘画区你赢了](https://www.blog.minike.top/Article/details/389647275.shtml)
+- 2026-06-29 16:34 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/20480605372.shtml)
+- 2026-06-29 16:42 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/838328133135.shtml)
+- 2026-06-29 16:52 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/801606221.shtml)
+- 2026-06-29 16:45 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/4272051553.shtml)
+- 2026-06-29 16:38 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/26986.shtml)
+- 2026-06-29 16:40 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/86531.shtml)
+- 2026-06-29 16:31 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/184280447.shtml)
+- 2026-06-29 16:35 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/104428558.shtml)
+- 2026-06-29 16:37 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/67750066088.shtml)
+- 2026-06-29 16:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/860766505.shtml)
+- 2026-06-29 16:24 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/52718745.shtml)
+- 2026-06-29 16:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/046011002577.shtml)
+- 2026-06-29 16:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/5817206.shtml)

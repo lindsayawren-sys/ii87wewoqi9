@@ -1,57 +1,59 @@
-# 从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记
+# 300块出租屋里，“糖果屋”画稿一笔成型
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-中新社香港6月27日电 题：从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记 中新社记者 刘玥晴 邱兆翔 晴空之下，视野开阔，两架直-10K和一架直-20直升机依次从中国人民解放军驻香港部队(简称“驻香港部队”)石岗军营停机坪起飞，默契配合完成低空突击和掩护机降等模拟演示，压轴献上三机跃升、空中“开花”等精彩表演，收获现场观众连绵热烈的掌声。 这一幕出自27日驻香港部队202
+发布时间：2026年05月19日 15:34 来源：中国新闻网 万万没想到，那样绚烂梦幻的画面是这样诞生的！最近，“糖果屋”文具引起网友怀旧潮。设计师梁准准(笔名：星盒子)向中新网回忆了当初创作这幅画的情景。那时候的他不知道什么叫“爆款”，也没想过赚多少钱。他只是在那间并不大、还堆满了画笔和草稿的出租屋里，想给大家带去一些童话和甜蜜。他说：“我觉得，任何时代，人们都是需要童话和
 
 ## 正文
 
-中新社香港6月27日电 题：从三机跃升到叠“豆腐块”——驻香港部队双营开放侧记 中新社记者 刘玥晴 邱兆翔 晴空之下，视野开阔，两架直-10K和一架直-20直升机依次从中国人民解放军驻香港部队(简称“驻香港部队”)石岗军营停机坪起飞，默契配合完成低空突击和掩护机降等模拟演示，压轴献上三机跃升、空中“开花”等精彩表演，收获现场观众连绵热烈的掌声。
+发布时间：2026年05月19日 15:34 来源：中国新闻网 万万没想到，那样绚烂梦幻的画面是这样诞生的！
 
-这一幕出自27日驻香港部队2026年度军营开放活动。
+最近，“糖果屋”文具引起网友怀旧潮。
 
-为庆祝香港回归祖国暨中国人民解放军进驻香港29周年，进一步增进与香港社会各界的沟通交流，驻香港部队于6月20日和21日面向香港市民开放昂船洲军营，27日和28日开放石岗军营与新围军营。
+设计师梁准准(笔名：星盒子)向中新网回忆了当初创作这幅画的情景。
 
-“第一次驾驶直升机在这么多香港市民面前表演，我非常自豪，谢谢大家特意前来观看。
+那时候的他不知道什么叫“爆款”，也没想过赚多少钱。
 
-”参与上述直升机演示的驻香港部队空军少校梁智艺受访时表示，低空风切变给此次飞行操作带来一定挑战，但也能够检验部队平日训练的扎实成果。
+他只是在那间并不大、还堆满了画笔和草稿的出租屋里，想给大家带去一些童话和甜蜜。
 
-“请市民们放心，驻香港部队有能力、有信心捍卫香港的繁荣和安宁。
+他说：“我觉得，任何时代，人们都是需要童话和美好的。
 
-” 来自巴基斯坦的乌斯曼(Usman)已在港工作两年，这是他首次走进驻香港部队军营。
-
-“没想到军营开放的程度这么高，让我们可以近距离观看武装直升机。
+”(记者 郎朗） 责任编辑：【张曦】
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 16:34 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 16:24 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 16:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 16:42 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 16:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 16:40 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 16:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 16:29 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 16:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 16:41 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 16:52 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 16:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 16:51 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 16:52 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 16:41 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 16:39 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:35 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 16:27 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 16:49 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 16:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 16:49 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 16:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:37 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/53883.shtml)
-- 2026-06-29 16:41 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/85952.shtml)
-- 2026-06-29 16:32 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/495762529706.shtml)
-- 2026-06-29 16:41 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/7215676.shtml)
-- 2026-06-29 16:37 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/98779964918.shtml)
-- 2026-06-29 16:39 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/41149586.shtml)
-- 2026-06-29 16:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/254977.shtml)
-- 2026-06-29 16:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/527999.shtml)
-- 2026-06-29 16:36 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/21842.shtml)
-- 2026-06-29 16:36 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/44602.shtml)
-- 2026-06-29 16:38 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/5911881.shtml)
-- 2026-06-29 16:20 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/756413538783.shtml)
-- 2026-06-29 16:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/032625.shtml)
-- 2026-06-29 16:33 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/7982906.shtml)
-- 2026-06-29 16:36 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/963226.shtml)
+- 2026-06-29 16:40 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/5359552.shtml)
+- 2026-06-29 16:42 - [T1 KC](http://www.share.minike.top/Article/details/25048080300.shtml)
+- 2026-06-29 16:32 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/14015.shtml)
+- 2026-06-29 16:24 - [沙丘](http://www.share.kurohicncr.top/Article/details/731792450252.shtml)
+- 2026-06-29 16:27 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/01951525502.shtml)
+- 2026-06-29 16:29 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/306496.shtml)
+- 2026-06-29 16:44 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/73449488.shtml)
+- 2026-06-29 16:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/70520240.shtml)
+- 2026-06-29 16:40 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/02841012199.shtml)
+- 2026-06-29 16:36 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/8529748.shtml)
+- 2026-06-29 16:32 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/12156.shtml)
+- 2026-06-29 16:29 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/4583106.shtml)
+- 2026-06-29 16:31 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/139071138530.shtml)
+- 2026-06-29 16:36 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/878147006806.shtml)
+- 2026-06-29 16:42 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/3665406.shtml)

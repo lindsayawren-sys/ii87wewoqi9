@@ -1,61 +1,61 @@
-# 高原天路，为幸福生活“加油提速”：从三个视角看拉林铁路开通运营五周年
+# Liberty Latin America任命Ignacio Roman为波多黎各及美属维尔京群岛业务总经理
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-《人民日报海外版》(2026年06月25日 第 01 版) 2021年6月25日，西藏首条电气化铁路拉林铁路开通运营。八百余里“钢铁巨龙”，将拉萨、山南、林芝三地紧密相连，结束了藏东南地区不通火车的历史。 5年来，拉林铁路累计运送旅客超625万人次，运输货物超200万吨。这条“高原天路”，方便了人们出行，助推西藏农牧、旅游等产业高质量发展，为沿线群众奔向幸福生活“加油提速”。
+高管任命 Liberty Latin America Ltd．宣布，Ignacio Roman已被任命为高级副总裁兼Liberty Puerto Rico and USVI总经理。Roman拥有超过30年电信行业经验，此前曾担任Liberty Latin America巴拿马B2C商业运营负责人，并在沃达丰、Avantel S.A.S．和Digicel集团等公司担任管理职务。
 
 ## 正文
 
-《人民日报海外版》(2026年06月25日 第 01 版) 2021年6月25日，西藏首条电气化铁路拉林铁路开通运营。
+高管任命 Liberty Latin America Ltd．宣布，Ignacio Roman已被任命为高级副总裁兼Liberty Puerto Rico and USVI总经理。
 
-八百余里“钢铁巨龙”，将拉萨、山南、林芝三地紧密相连，结束了藏东南地区不通火车的历史。
+Roman拥有超过30年电信行业经验，此前曾担任Liberty Latin America巴拿马B2C商业运营负责人，并在沃达丰、Avantel S.A.S．和Digicel集团等公司担任管理职务。
 
-5年来，拉林铁路累计运送旅客超625万人次，运输货物超200万吨。
+管理层评价 Liberty Latin America总裁兼首席执行官Balan Nair表示，Roman非常了解公司业务，是“在最合适的时机领导波多黎各和美属维尔京群岛运营的最合适领导者”，公司正持续推动业务重建并取得良好进展。
 
-这条“高原天路”，方便了人们出行，助推西藏农牧、旅游等产业高质量发展，为沿线群众奔向幸福生活“加油提速”。
+Roman则表态将“继续增强网络、投资员工、关爱社区，并为客户提供更多价值”。
 
-乐游：本地群众解锁乘动车游玩“初体验”每年春暖花开，便有全国各地的游客来林芝观赏桃花。
+业务背景与市场布局 此次任命正值公司大力拓展波多黎各市场之际。
 
-过去，一到旺季，到林芝的航班一票难求；如今，人们可选择先坐飞机到拉萨，然后乘火车去林芝。
+此前，Liberty Latin America已从EchoStar手中收购了波多黎各和美属维尔京群岛的超100MHz频谱资产及近8.5万预付费移动用户，交易金额约2.55亿美元。
 
-“拉林铁路通车后，我们村人气更旺了！
+这些资产旨在增强公司5G移动网络能力并扩大预付费市场份额。
 
-”林芝市巴宜区嘎拉村村民边巴说。
+公司业务覆盖拉丁美洲及加勒比地区20多个国家，旗下拥有BTC、Flow、Liberty和Más Móvil等消费品牌。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:22 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 16:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 16:23 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 16:43 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 16:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 16:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 16:36 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 16:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 16:27 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 16:30 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 16:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 16:41 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 16:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 16:34 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:43 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 16:37 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 16:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 16:31 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 16:48 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 16:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 16:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 16:44 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 16:38 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 16:35 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 16:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 16:53 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 16:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 16:41 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/6988103.shtml)
-- 2026-06-29 16:21 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/24844842790.shtml)
-- 2026-06-29 16:20 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/06366.shtml)
-- 2026-06-29 16:18 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/707558.shtml)
-- 2026-06-29 16:47 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/2158896.shtml)
-- 2026-06-29 16:41 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/174943132817.shtml)
-- 2026-06-29 16:45 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/67112309792.shtml)
-- 2026-06-29 16:33 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/91546048.shtml)
-- 2026-06-29 16:37 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/74503189493.shtml)
-- 2026-06-29 16:28 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/100248849.shtml)
-- 2026-06-29 16:28 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/203611227641.shtml)
-- 2026-06-29 16:42 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/5123752.shtml)
-- 2026-06-29 16:47 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/031394.shtml)
-- 2026-06-29 16:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9885725601.shtml)
-- 2026-06-29 16:42 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/504664172.shtml)
+- 2026-06-29 16:27 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/5489364926.shtml)
+- 2026-06-29 16:27 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/254360918.shtml)
+- 2026-06-29 16:25 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/69758495529.shtml)
+- 2026-06-29 16:51 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/65043.shtml)
+- 2026-06-29 16:52 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/09627.shtml)
+- 2026-06-29 16:38 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/041092.shtml)
+- 2026-06-29 16:30 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/43011111902.shtml)
+- 2026-06-29 16:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/58488080.shtml)
+- 2026-06-29 16:44 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/92072600987.shtml)
+- 2026-06-29 16:39 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/07110.shtml)
+- 2026-06-29 16:47 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/79810.shtml)
+- 2026-06-29 16:52 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/256110.shtml)
+- 2026-06-29 16:42 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/109209535521.shtml)
+- 2026-06-29 16:42 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2397913.shtml)
+- 2026-06-29 16:50 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/082778538.shtml)

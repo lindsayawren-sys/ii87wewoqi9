@@ -1,55 +1,57 @@
-# 澳大利亚加强儿童社交媒体禁令，将对科技公司的罚款上限提高一倍
+# 中信建投：哪些热点有望继续上涨？算力仍是景气主线
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-澳大利亚周六宣布，将把对未能遵守儿童社交媒体禁令的科技公司最高罚款额提高一倍。因为越来越多的证据表明，这项禁令对青少年使用社交媒体的影响微乎其微。 政府还将加强其互联网监管机构——网络安全专员（eSafety Commissioner）的信息收集权力，使其能够强制社交媒体公司提供证据，证明其为阻止16岁以下未成年人注册账户所采取了哪些措施。 根据新规，系统性违反禁令的最高罚款额
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信建投证券研究 文|黄文涛 何盛 行业布局方面，算力仍是景气主线，当前英伟达H200对华出售窗口催化下英伟达产业链绑定较深的环节更受益，而国产算力在短期压制后预计很快就会被资金重新回补，且正由核心硬件存储芯片、光模块、PCB向液冷、算力租赁、供电等“算力+”环节扩散；受益于 AI 算力中心配储需求的爆发式
 
 ## 正文
 
-澳大利亚周六宣布，将把对未能遵守儿童社交媒体禁令的科技公司最高罚款额提高一倍。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-因为越来越多的证据表明，这项禁令对青少年使用社交媒体的影响微乎其微。
+中信建投证券研究 文|黄文涛 何盛 行业布局方面，算力仍是景气主线，当前英伟达H200对华出售窗口催化下英伟达产业链绑定较深的环节更受益，而国产算力在短期压制后预计很快就会被资金重新回补，且正由核心硬件存储芯片、光模块、PCB向液冷、算力租赁、供电等“算力+”环节扩散；受益于 AI 算力中心配储需求的爆发式增长，锂电行业迎来全新的结构性增量需求，其产业链代表性股票一季度业绩表现突出，板块向上动能不断延伸至整条产业链；并且国内近期的六张网政策发布下，基建、电网建设景气显著受益。
 
-政府还将加强其互联网监管机构——网络安全专员（eSafety Commissioner）的信息收集权力，使其能够强制社交媒体公司提供证据，证明其为阻止16岁以下未成年人注册账户所采取了哪些措施。
+创新药板块的景气度从业绩端与交易端获得双重确认，BD 合作常态化推进，龙头企业业绩保持高增长，持续关注小分子赛道。
 
-根据新规，系统性违反禁令的最高罚款额将从4950万澳元跃升至9900万澳元（约合6800万美元）。
+市场风格跟踪：25年4月至5月份市场核心热点集中于贸易战相关题材，市场主题投资行情盛行，风格延续小盘成长占优。
 
-声明称，自禁令实施以来，已有超过 500 万个 16 岁以下社交媒体账户被停用或受到限制。
+7月至8月，市场回暖，上证指数屡创新高，成交额维持高位，市场小盘成长更具弹性。
 
-但大量研究也表明，科技公司设立的年龄保证机制，例如自拍，很容易被儿童规避，而且在许多情况下，儿童从未被要求证明自己的年龄。
+9月市场进入调整期，热点转移至半导体、人形机器人和新能源。
 
-责任编辑：于健 SF069
+10月初，中美关系预期反复，热点围绕军工和稀土。
+
+10月中旬至11月中下旬，热点主要围绕涨价和十五五规划双线逻辑，聚焦于存储芯片、锂电池和量子科技。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 16:40 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 16:46 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 16:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 16:31 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 16:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 16:22 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 16:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 16:26 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 16:47 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 16:34 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 16:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 16:47 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 16:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 16:42 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 16:31 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 16:36 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 16:36 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 16:30 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 16:27 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 16:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 16:29 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:34 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/382167382.shtml)
-- 2026-06-29 16:35 - [T1零封KC MSI](https://www.share.minike.top/Article/details/70681.shtml)
-- 2026-06-29 16:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/586833719.shtml)
-- 2026-06-29 16:47 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/14893040.shtml)
-- 2026-06-29 16:40 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/3317838022.shtml)
-- 2026-06-29 16:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/29758622.shtml)
-- 2026-06-29 16:32 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/93692247340.shtml)
-- 2026-06-29 16:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/97203538.shtml)
-- 2026-06-29 16:33 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/951381.shtml)
-- 2026-06-29 16:38 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/18313002.shtml)
-- 2026-06-29 16:42 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/960744.shtml)
-- 2026-06-29 16:26 - [光与夜之恋](https://www.share.minike.top/Article/details/5623529575.shtml)
-- 2026-06-29 16:46 - [天道](http://www.share.kurohicncr.top/Article/details/80096837130.shtml)
-- 2026-06-29 16:31 - [勇敢的心第二部](https://www.share.minike.top/Article/details/63241279861.shtml)
-- 2026-06-29 16:29 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/33372456912.shtml)
+- 2026-06-29 16:35 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/64442050.shtml)
+- 2026-06-29 16:41 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/324020492518.shtml)
+- 2026-06-29 16:46 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/7007034155.shtml)
+- 2026-06-29 16:44 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/83298538.shtml)
+- 2026-06-29 16:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/6432853291.shtml)
+- 2026-06-29 16:52 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/45403800.shtml)
+- 2026-06-29 16:44 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/4432047352.shtml)
+- 2026-06-29 16:49 - [5万块的威力](https://www.blog.minike.top/Article/details/82534.shtml)
+- 2026-06-29 16:37 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/14864915.shtml)
+- 2026-06-29 16:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/0142778.shtml)
+- 2026-06-29 16:30 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/811052213.shtml)
+- 2026-06-29 16:51 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/531834421969.shtml)
+- 2026-06-29 16:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/25826939182.shtml)
+- 2026-06-29 16:33 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/0109481860.shtml)
+- 2026-06-29 16:32 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/271916107288.shtml)

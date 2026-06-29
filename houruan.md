@@ -1,56 +1,60 @@
-# 天路越羌塘 极地焕新颜——西藏和平解放75年来那曲市基础设施发展纪实
+# 2026年“国际博物馆日”中国主会场活动开幕
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-平均海拔4500米，年平均气温低于0℃，高寒缺氧，条件严苛，曾几何时，“路难行、电不稳、网不通、水难取”是那曲人民心头挥之不去的痛。 西藏和平解放75年来，特别是党的十八大以来，这片藏北高原乘着新时代的浩荡东风，在党中央的亲切关怀下，以“艰苦不怕吃苦，缺氧不缺精神”的毅力，在交通、能源、通信、水利等领域展开基础设施建设攻坚战，这片土地正经历着脱胎换骨的巨变。 如今，“三横四纵四
+中新社呼和浩特5月18日电 (记者 张玮)5月18日是“国际博物馆日”，今年的主题是“博物馆：联结世界的桥梁”，中国主会场活动在呼和浩特举办，“文博热”成为打开世界文明互鉴的窗口。 主会场活动除开幕式、主论坛外，还将举行“全国博物馆十大陈列展览精品推介”评选、“博物馆之夜——沉浸式主题展演活动”。另外，“跟着文博去旅行·2026年博物馆季”品牌活动同步开展，并将贯穿整个旅游季。
 
 ## 正文
 
-平均海拔4500米，年平均气温低于0℃，高寒缺氧，条件严苛，曾几何时，“路难行、电不稳、网不通、水难取”是那曲人民心头挥之不去的痛。
+中新社呼和浩特5月18日电 (记者 张玮)5月18日是“国际博物馆日”，今年的主题是“博物馆：联结世界的桥梁”，中国主会场活动在呼和浩特举办，“文博热”成为打开世界文明互鉴的窗口。
 
-西藏和平解放75年来，特别是党的十八大以来，这片藏北高原乘着新时代的浩荡东风，在党中央的亲切关怀下，以“艰苦不怕吃苦，缺氧不缺精神”的毅力，在交通、能源、通信、水利等领域展开基础设施建设攻坚战，这片土地正经历着脱胎换骨的巨变。
+主会场活动除开幕式、主论坛外，还将举行“全国博物馆十大陈列展览精品推介”评选、“博物馆之夜——沉浸式主题展演活动”。
 
-如今，“三横四纵四通道”的国省干线网络格局已经形成，让那曲成为连接西藏与祖国各地的重要枢纽；主电网覆盖那曲市所有县、区，“电力天路”点亮万家灯火；5G信号覆盖城乡、跨越高山牧场，藏北牧民也能“一网通天下”；水利设施日益完善，清冽的自来水通入了寻常牧家，有效解决了群众的饮水安全问题，一个脱胎换骨的新那曲，正屹立在羌塘草原之上。
+另外，“跟着文博去旅行·2026年博物馆季”品牌活动同步开展，并将贯穿整个旅游季。
 
-天堑变通途2006年7月1日，青藏铁路全线通车，钢铁巨龙首次跨越藏北草原，结束了西藏不通铁路的历史。
+近年来，中国的“文博热”持续升温。
 
-2025年12月11日，雁石坪火车站投入运行，成为青藏铁路自青海进入西藏境内后，沿线乡镇设立的第一个旅客乘降所。
+国家文物局发布数据显示，“十四五”期间，中国备案博物馆由5788家增长至7188家；免费开放博物馆数量由5214家增长至6557家，免费开放率超过91%。
 
-海拔最高的火车站雁石坪站正式开通运营，19年过站不停成为历史。
+本次活动期间，“河山辉映·奕奕青城”呼和浩特历史文化陈列展同步开展。
 
-今天的安多县，基础设施网络日趋完善，交通路网体系持续优化，城乡通行条件全面改善，乡镇、行政村道路通畅率分别达到100%、91%，高质量发展的支撑条件得到了根本性改善。
+国家文物局发布“文明桥梁计划——文物出境展览精品”2026年度项目，将策划推出一批展示中国形象的优秀原创展览走进法国、巴西、格鲁吉亚等地。
 
-古老牧道旁的汽笛声，正不断改写着藏北的时空坐标。
+国家文物局局长饶权介绍，2025年，中国累计举办文物出境展览110余项、入境展览240余项，覆盖四大洲20多个国家和地区。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 16:18 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 16:33 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 16:43 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 16:20 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 16:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 16:40 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 16:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 16:42 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 16:43 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 16:45 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 16:28 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 16:29 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:32 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 16:26 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 16:52 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 16:38 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 16:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 16:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 16:25 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 16:41 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 16:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/416016363.shtml)
-- 2026-06-29 16:31 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/14078.shtml)
-- 2026-06-29 16:36 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/899190394.shtml)
-- 2026-06-29 16:29 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/68052.shtml)
-- 2026-06-29 16:19 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7040472.shtml)
-- 2026-06-29 16:20 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/79523285.shtml)
-- 2026-06-29 16:21 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/35448.shtml)
-- 2026-06-29 16:23 - [明星大侦探第一季](http://www.share.minike.top/Article/details/03653.shtml)
-- 2026-06-29 16:25 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/43532694000.shtml)
-- 2026-06-29 16:43 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/1699300821.shtml)
-- 2026-06-29 16:36 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/00045996361.shtml)
-- 2026-06-29 16:38 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/54126915216.shtml)
-- 2026-06-29 16:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/4636387.shtml)
-- 2026-06-29 16:47 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/376376318516.shtml)
-- 2026-06-29 16:31 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/36416742.shtml)
+- 2026-06-29 16:42 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/684284486.shtml)
+- 2026-06-29 16:43 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/706751.shtml)
+- 2026-06-29 16:38 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/703073.shtml)
+- 2026-06-29 16:31 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/62288748492.shtml)
+- 2026-06-29 16:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/6331950.shtml)
+- 2026-06-29 16:34 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/674951.shtml)
+- 2026-06-29 16:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/3888911.shtml)
+- 2026-06-29 16:38 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/3218266.shtml)
+- 2026-06-29 16:34 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/30871.shtml)
+- 2026-06-29 16:44 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/4442575.shtml)
+- 2026-06-29 16:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/16854.shtml)
+- 2026-06-29 16:29 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/09907679.shtml)
+- 2026-06-29 16:32 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/675048708123.shtml)
+- 2026-06-29 16:34 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/8056648.shtml)
+- 2026-06-29 16:41 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/3234201892.shtml)

@@ -1,50 +1,60 @@
-# 台青翟翾发声戳破台当局“统战”谎言
+# 上海体育博物馆双展上新 展现“体育+文博+城市”融合共生魅力
 
-> 更新时间：2026-06-29 16:48:02 UTC+8
+> 更新时间：2026-06-29 16:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月28日 16:27 来源：中国新闻网 6月28日，台湾青年自媒体人翟翾接受中国新闻网“燕新台”工作室采访时表示，台湾民众尤其是年轻人长期被台当局及部分媒体、自媒体不实信息误导。“民进党的很多歪曲说法真是要破产了，他们口中的‘统战’都是两岸正常的交流，大家正常的双向奔赴而已。”翟翾直言，自己愿做两岸交流引路人，帮助更多台湾同胞来大陆求学、创业、生活。(记
+中新网上海5月18日电 (记者 缪璐)5月18日“国际博物馆日”如约而至，上海体育博物馆策划的“轮转上海 破风前行”上海自行车运动主题展与“人马一心 城市共生”上海马术文化主题展双展上新，在城市与世界之间架起一座“体育之桥”，展现“体育+文博+城市”融合共生的魅力。 今年国际博物馆日的主题为“博物馆：联结世界的桥梁”，这一主题强调在全球化和多元文明共存背景下，博物馆应打破隔阂、
 
 ## 正文
 
-发布时间：2026年06月28日 16:27 来源：中国新闻网 6月28日，台湾青年自媒体人翟翾接受中国新闻网“燕新台”工作室采访时表示，台湾民众尤其是年轻人长期被台当局及部分媒体、自媒体不实信息误导。
+中新网上海5月18日电 (记者 缪璐)5月18日“国际博物馆日”如约而至，上海体育博物馆策划的“轮转上海 破风前行”上海自行车运动主题展与“人马一心 城市共生”上海马术文化主题展双展上新，在城市与世界之间架起一座“体育之桥”，展现“体育+文博+城市”融合共生的魅力。
 
-“民进党的很多歪曲说法真是要破产了，他们口中的‘统战’都是两岸正常的交流，大家正常的双向奔赴而已。
+今年国际博物馆日的主题为“博物馆：联结世界的桥梁”，这一主题强调在全球化和多元文明共存背景下，博物馆应打破隔阂、凝聚共识，促进不同地区、民族和文化间的相互理解与包容。
 
-”翟翾直言，自己愿做两岸交流引路人，帮助更多台湾同胞来大陆求学、创业、生活。
+而体育是超越国界的通用语言，也是涵养城市品格、培育时代风尚的重要力量。
 
-(记者 李柏涛 朱延静 制作：姜雨薇） 责任编辑：【吉翔】
+作为上海体育的文化主阵地和宣传窗口，上海体育博物馆自2021年开馆以来，持续策划不同内容与形式的主题展与合作展，突破时空限制，传承体育文化、弘扬体育精神。
+
+为迎接10月即将在上海崇明举行的2026国际自行车联盟场地自行车世锦赛，展现自行车运动联结上海城市的活力，上海体育博物馆携手上海汽车博物馆联合推出“轮转上海 破风前行”上海自行车运动主题展，共计展出46套56件藏品。
+
+其中包括奥运冠军钟天使在上海队训练时使用的场地自行车，以及她在里约奥运会与东京奥运会获得的中国女子团体竞速赛金牌等珍贵实物。
+
+“轮转上海 破风前行”上海自行车运动主题展分为三个单元：“踏板划过的时光·自行车起源与发展”“破风而过的掠影·上海自行车运动”与“追逐彩虹的轮迹·国际自盟场地自行车世锦赛”。
+
+展览通过回顾自行车运动的发展轨迹，展现自行车运动的速度美学与竞技魅力，并为即将到来的顶级赛事奏响精彩序曲。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 16:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 16:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 16:33 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 16:37 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 16:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 16:28 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 16:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 16:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 16:32 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 16:44 - [爸爸当家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 16:35 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 16:49 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:27 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 16:33 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 16:42 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 16:53 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 16:53 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 16:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 16:52 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 16:36 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 16:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 16:49 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/157154.shtml)
-- 2026-06-29 16:28 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/650804.shtml)
-- 2026-06-29 16:38 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/0442042598.shtml)
-- 2026-06-29 16:25 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/658809059619.shtml)
-- 2026-06-29 16:47 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/773047174773.shtml)
-- 2026-06-29 16:42 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/88263.shtml)
-- 2026-06-29 16:44 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/321983.shtml)
-- 2026-06-29 16:25 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/099422.shtml)
-- 2026-06-29 16:32 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/5030613.shtml)
-- 2026-06-29 16:43 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/0178544267.shtml)
-- 2026-06-29 16:30 - [速度与激情9](https://www.blog.minike.top/Article/details/2261196402.shtml)
-- 2026-06-29 16:37 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/74096026.shtml)
-- 2026-06-29 16:29 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/451775368514.shtml)
-- 2026-06-29 16:45 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/3606408872.shtml)
-- 2026-06-29 16:42 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/1229565649.shtml)
+- 2026-06-29 16:31 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/6899901969.shtml)
+- 2026-06-29 16:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/499001566177.shtml)
+- 2026-06-29 16:31 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/506053032.shtml)
+- 2026-06-29 16:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/089550.shtml)
+- 2026-06-29 16:33 - [人形机器人](http://www.blog.minike.top/Article/details/0911544871.shtml)
+- 2026-06-29 16:47 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/9707948578.shtml)
+- 2026-06-29 16:44 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/22935.shtml)
+- 2026-06-29 16:27 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/7148512902.shtml)
+- 2026-06-29 16:42 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/378471645.shtml)
+- 2026-06-29 16:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7493355.shtml)
+- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/19238893824.shtml)
+- 2026-06-29 16:36 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/607612686347.shtml)
+- 2026-06-29 16:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/214702478.shtml)
+- 2026-06-29 16:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/375909579.shtml)
+- 2026-06-29 16:27 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/11790.shtml)
