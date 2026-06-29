@@ -1,55 +1,56 @@
-# 大唐黄金盘中涨超8% 公司存量矿山具强劲盈利弹性
+# 大宗商品综述：油价基本持稳 铜价微跌 金价下跌
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-大唐黄金（08299）盘中涨超8%，截至发稿，股价上涨6.67%，现报0.32港元，成交额280.41万港元。 近期，大唐黄金发布公告，进一步披露了有关收购陕西省宁陕县两间金矿项目公司的重大交易的细节。公告显示，独立估值师确认目标集团100%股权公允价值约11.3亿港元，大唐黄金将以总计5.85亿港元的代价拿下80%的权益，折价幅度达到约35%。不仅如此，标的矿山探明+控制黄金
+油价基本持稳，市场权衡显示美国原油库存下降的数据与美伊和谈前景。随着交易员持续关注中东局势发展，铜价小幅走低，金价下跌。 原油：油价基本持稳 市场权衡美国库存下降与美伊和谈前景 油价基本持稳，交易员在美国库存迅速下降的迹象与美伊可能重启谈判以结束战争之间进行权衡。 WTI基本持平，收于每桶91美元附近，大致回到周末和谈破裂前的水平。 知情人士称，华盛顿与德黑兰考虑将定于下周二到
 
 ## 正文
 
-大唐黄金（08299）盘中涨超8%，截至发稿，股价上涨6.67%，现报0.32港元，成交额280.41万港元。
+油价基本持稳，市场权衡显示美国原油库存下降的数据与美伊和谈前景。
 
-近期，大唐黄金发布公告，进一步披露了有关收购陕西省宁陕县两间金矿项目公司的重大交易的细节。
+随着交易员持续关注中东局势发展，铜价小幅走低，金价下跌。
 
-公告显示，独立估值师确认目标集团100%股权公允价值约11.3亿港元，大唐黄金将以总计5.85亿港元的代价拿下80%的权益，折价幅度达到约35%。
+原油：油价基本持稳 市场权衡美国库存下降与美伊和谈前景 油价基本持稳，交易员在美国库存迅速下降的迹象与美伊可能重启谈判以结束战争之间进行权衡。
 
-不仅如此，标的矿山探明+控制黄金金属量达69.9万盎司，经计算每盎司资源量收购成本仅约为114美元。
+WTI基本持平，收于每桶91美元附近，大致回到周末和谈破裂前的水平。
 
-责任编辑：卢昱君
+知情人士称，华盛顿与德黑兰考虑将定于下周二到期的停火延长两周，以争取更多时间达成协议。
+
+油价早些时候上涨，因为美国能源信息管理局（EIA）周三公布的数据显示，原油及主要精炼油品库存下降。
+
+这一关键数据打破了清淡的交易格局，投资者正权衡白宫就战争走向释放的相互矛盾信号。
+
+美国财长贝森特重申，美国不会延长允许暂时出售部分俄罗斯和伊朗原油的通用许可。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 22:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 22:48 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 23:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 22:47 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 22:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 22:57 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 22:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 22:43 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 22:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 23:05 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 23:00 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 23:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 22:56 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 22:50 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 23:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 23:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 22:49 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 23:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 22:55 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 22:55 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 23:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 22:55 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 23:13 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 22:54 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/41306943.shtml)
-- 2026-06-29 22:49 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/8542992.shtml)
-- 2026-06-29 22:43 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/97386772.shtml)
-- 2026-06-29 23:04 - [流金岁月](https://www.share.kurohicncr.top/Article/details/11325.shtml)
-- 2026-06-29 23:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/9634969611.shtml)
-- 2026-06-29 22:46 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/96343.shtml)
-- 2026-06-29 22:55 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/2876414954.shtml)
-- 2026-06-29 22:46 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/47479921210.shtml)
-- 2026-06-29 22:57 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/84263821.shtml)
-- 2026-06-29 22:54 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/603420.shtml)
-- 2026-06-29 23:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/23440766491.shtml)
-- 2026-06-29 22:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/039208832.shtml)
-- 2026-06-29 22:51 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/64048175.shtml)
-- 2026-06-29 22:56 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/12769.shtml)
-- 2026-06-29 23:03 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/724075907.shtml)
+- 2026-06-29 22:55 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/110516925460.shtml)
+- 2026-06-29 22:49 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/3763748775.shtml)
+- 2026-06-29 22:58 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/01638.shtml)
+- 2026-06-29 23:10 - [天道](http://www.blog.minike.top/Article/details/3739688.shtml)
+- 2026-06-29 23:04 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/68106615839.shtml)
+- 2026-06-29 22:57 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/58542371.shtml)
+- 2026-06-29 23:02 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/42308481542.shtml)
+- 2026-06-29 23:09 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/4953942475.shtml)
+- 2026-06-29 23:11 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/23474239898.shtml)
+- 2026-06-29 23:14 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/705448.shtml)
+- 2026-06-29 22:51 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/49934058.shtml)
+- 2026-06-29 23:17 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/2084603831.shtml)
+- 2026-06-29 22:51 - [爱很美味](https://www.share.kurohicncr.top/Article/details/1729100746.shtml)
+- 2026-06-29 22:59 - [东方风云榜直播](https://www.blog.minike.top/Article/details/23475.shtml)
+- 2026-06-29 23:05 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/321990338971.shtml)

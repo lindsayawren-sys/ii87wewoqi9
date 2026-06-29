@@ -1,46 +1,57 @@
-# 6月15日周末要闻：美伊达成协议 霍尔木兹海峡将开放 原油下跌 美元走低
+# 拉来华晨宇卖护手霜，“参半”牙膏母公司背负5.8亿对赌冲IPO
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-上周国际市场回顾 6月13日收盘：美股收高道指涨0.7% 市场关注美伊谈判与SpaceX首秀 6月13日美股成交额前20：SpaceX登陆纳斯达克，市值突破2万亿美元 6月13日热门中概股多数上涨 联电涨4.50%，理想汽车涨3.77% 大宗商品综述：油价下挫 铜价上涨 金价微升 欧洲股市接近纪录高位 受美伊协议进展提振 宏观 伊朗最高国家安全委员会正式确认伊美谅解备忘录达成
+来源：风云IPO 港交所 25亿营收，六成花在推广上。 作者|刘俊群 编辑|刘钦文 在抖音和小红书上，你可能刷到过这样一支牙膏：白色简约包装，9.9元包邮，评论区里有人说“平价好物”，也有人追问“真的能美白吗”。这支牙膏背后的公司叫小阔科技，品牌名“参半”。 如今，这家公司正在冲刺港交所。近日，深圳小阔科技股份有限公司（下称“小阔科技”）正式向港交所递交上市申请，剑指港股“口腔
 
 ## 正文
 
-上周国际市场回顾 6月13日收盘：美股收高道指涨0.7% 市场关注美伊谈判与SpaceX首秀 6月13日美股成交额前20：SpaceX登陆纳斯达克，市值突破2万亿美元 6月13日热门中概股多数上涨 联电涨4.50%，理想汽车涨3.77% 大宗商品综述：油价下挫 铜价上涨 金价微升 欧洲股市接近纪录高位 受美伊协议进展提振 宏观 伊朗最高国家安全委员会正式确认伊美谅解备忘录达成 特朗普称美伊达成协议 霍尔木兹海峡开放 伊朗副外长确认伊美谅解备忘录已达成一致 美伊达成和平协议 本周五正式签署 特朗普称霍尔木兹海峡将随美伊协议19日签署而开放 特朗普：与伊朗的协议现已完成 巴总理：美国与伊朗已达成和平协议 公司 欧盟执委会发言人：正评估Anthropic决定的实际影响 通用汽车首席产品官：公司目前主攻乘用车自动驾驶技术 存储芯片需求激增 SK海力士去年新增
+来源：风云IPO 港交所 25亿营收，六成花在推广上。
 
-SpaceX刚上市，马斯克就喊话黄仁勋：合作升级！
+作者|刘俊群 编辑|刘钦文 在抖音和小红书上，你可能刷到过这样一支牙膏：白色简约包装，9.9元包邮，评论区里有人说“平价好物”，也有人追问“真的能美白吗”。
 
-评论 伊美协议落地 美股或迎上涨 协议细节仍不明朗 美元兑G10货币普遍走弱，特朗普宣布与伊朗达成协议 特朗普称伊核协议即将达成，伊朗方面目前尚未确认 伊朗称美国应对以色列最新袭击事件的后果负责 夹在特朗普和押注加息的市场之间 新任美联储主席沃什迎来严峻考验 特朗普在生日当天与普京和泽连斯基通话 尽管俄乌和谈已陷入停滞 瑞士选民投票否决了人口上限提案 特朗普称伊朗协议预计将在两到三小时内签署 福克斯：以色列袭击贝鲁特给美国与伊朗最终敲定协议造成障碍 美国驻联合国大使：特朗普和美方谈判团队“有信心”协议能够达成 特朗普期待周日签署协议 但伊朗方面据称仍在审查文本 韩国与沙特阿拉伯签署协议 将在能源领域开展合作责任编辑：李桐
+这支牙膏背后的公司叫小阔科技，品牌名“参半”。
+
+如今，这家公司正在冲刺港交所。
+
+近日，深圳小阔科技股份有限公司（下称“小阔科技”）正式向港交所递交上市申请，剑指港股“口腔护理第一股”。
+
+图源：罐头图库 据“弗若斯特沙利文”数据显示，参半2025年在中国口腔护理市场排名第三，市场份额6.5%；在线上口腔护理市场排名第一。
+
+2023年至2025年，公司营收从10.96亿元增至24.99亿元，毛利率稳定在70%左右。
+
+然而，光鲜数据的另一面是：销售费用率长期超过60%，三年累计营销开支超30亿元；研发团队仅27人，研发费用率不足1%。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 23:07 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 23:01 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 23:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 22:48 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 22:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 23:06 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 23:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 23:09 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 23:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 22:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 23:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 23:12 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 23:02 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 22:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 22:56 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 23:04 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 23:14 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 23:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/21323799.shtml)
-- 2026-06-29 22:54 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/673193831725.shtml)
-- 2026-06-29 23:10 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/27388.shtml)
-- 2026-06-29 22:58 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/92099154.shtml)
-- 2026-06-29 22:47 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/57227439.shtml)
-- 2026-06-29 23:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/69133805.shtml)
-- 2026-06-29 22:51 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/23259.shtml)
-- 2026-06-29 23:09 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/641193976.shtml)
-- 2026-06-29 22:42 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/451541245.shtml)
-- 2026-06-29 22:57 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/217962.shtml)
-- 2026-06-29 23:09 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/94284204.shtml)
-- 2026-06-29 22:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/697494442105.shtml)
-- 2026-06-29 23:02 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/824440364.shtml)
-- 2026-06-29 22:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/22257.shtml)
-- 2026-06-29 22:45 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/046661972.shtml)
+- 2026-06-29 23:10 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/726756.shtml)
+- 2026-06-29 23:11 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/56594595.shtml)
+- 2026-06-29 22:51 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/96469750.shtml)
+- 2026-06-29 23:09 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/194906.shtml)
+- 2026-06-29 23:02 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/39725431.shtml)
+- 2026-06-29 23:10 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/60737053126.shtml)
+- 2026-06-29 22:58 - [房价什么时候能涨](https://www.share.minike.top/Article/details/633879.shtml)
+- 2026-06-29 23:16 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/17427608205.shtml)
+- 2026-06-29 23:01 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/185683983351.shtml)
+- 2026-06-29 23:13 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/849515997.shtml)
+- 2026-06-29 22:58 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/559819293.shtml)
+- 2026-06-29 22:50 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/29440823.shtml)
+- 2026-06-29 23:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/32198297.shtml)
+- 2026-06-29 23:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/234041832386.shtml)
+- 2026-06-29 23:07 - [乔家的儿女](http://www.blog.minike.top/Article/details/6234528.shtml)

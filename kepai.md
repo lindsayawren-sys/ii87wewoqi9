@@ -1,60 +1,61 @@
-# 机构提示，三大因素若出现根本性反转，需重新审视黄金的配置价值
+# 6万卡国产集群亮剑！国产GPU龙头寒武纪强势8连涨！华宝基金科创人工智能ETF（589520）最高上探1.46%
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-来源：环球网 【环球网财经综合报道】周一（6月15日）亚市早盘，现货黄金高开高走，一度上涨2.18%至4308.91美元/盎司，创近一周高位。另一方面，自5月中旬以来，国际黄金价格快速下行，使得消费者观望情绪浓厚。 对此有业内人士分析指出，业内人士认为，虽然金价短期承压，但是其长期支撑逻辑并未发生改变。在全球央行持续购金为金价提供底部支撑、美联储总体处在降息周期中、国际地缘风险
+周三（4月15日）市场盘整，重点布局国产AI产业链的科创人工智能ETF华宝（589520）早盘活跃，场内涨幅最高上探1.46%，午后随市盘整回调，涨幅逐步缩窄，最终收跌0.49%，但从日k线来看，自本轮低点（3月24日）以来，或已走出震荡上行台阶，可能已经展现出低位攀升的右侧信号。 成份股方面，国产GPU龙头寒武纪强势8连涨，累计涨幅达27.53%，今日盘中一度涨超6%；国产A
 
 ## 正文
 
-来源：环球网 【环球网财经综合报道】周一（6月15日）亚市早盘，现货黄金高开高走，一度上涨2.18%至4308.91美元/盎司，创近一周高位。
+周三（4月15日）市场盘整，重点布局国产AI产业链的科创人工智能ETF华宝（589520）早盘活跃，场内涨幅最高上探1.46%，午后随市盘整回调，涨幅逐步缩窄，最终收跌0.49%，但从日k线来看，自本轮低点（3月24日）以来，或已走出震荡上行台阶，可能已经展现出低位攀升的右侧信号。
 
-另一方面，自5月中旬以来，国际黄金价格快速下行，使得消费者观望情绪浓厚。
+成份股方面，国产GPU龙头寒武纪强势8连涨，累计涨幅达27.53%，今日盘中一度涨超6%；国产ASIC龙头芯原股份领涨超3%，威胜信息、安路科技、萤石网络、云天励飞-U、石头科技跟涨，其余23股尽墨，其中，澜起科技跌超4%，中科星图迭逾3%，跌幅居前，拖累指数表现。
 
-对此有业内人士分析指出，业内人士认为，虽然金价短期承压，但是其长期支撑逻辑并未发生改变。
+消息面上，4月14日，中科曙光发布国内迄今规模最大的AI4S（人工智能驱动科学研究）计算集群，该集群由6万张国产加速卡构成，标志着我国在AI算力底座领域迈出关键一步。
 
-在全球央行持续购金为金价提供底部支撑、美联储总体处在降息周期中、国际地缘风险未退等因素影响下，黄金的避险属性将长期存在，金价虽短期承压，但长期仍有较为坚实的支撑。
+中科曙光全栈自研，打破海外技术垄断，集群包含 6 款自研核心芯片，整体达到国际先进水平，显著提振国产AI芯片供应链（包括GPU和AI加速芯片）信心。
 
-亦有机构提示，若这些因素出现根本性反转，就需要重新审视黄金的配置价值。
+业内人士指出，从2月5日郑州核心节点3万卡上线，到4月14日6万卡计算集群落地，中科曙光仅用不到三个月时间，就完成了从万卡级工程化突破到超大规模部署的跨越。
 
-惠灵顿投资管理公司投资策略分析师亚历克斯·金提醒投资者，不应将大宗商品简单归为地缘或通胀交易，需单独剖析黄金等品类的核心驱动逻辑与资产配置价值。
+这一里程碑背后，不仅是国产算力的技术突围，更标志着中科曙光正在经历从“卖硬件”到“算力即服务”的商业模式重构，业绩弹性、竞争壁垒、估值空间三大维度均迎来系统性重估。
 
-他表示：“黄金自2022年年末以来整体处于牛市，初期受各国央行购金支撑，后续又迎来ETF资金流入；但当仓位过度拥挤时，行情也会出现深度回调。
+随着外部环境变化，国产GPU在智算中心招标中的中标占比提升至35%以上，市场需求从“可用”转向“必用”。
 
-” 中国人民大学财政金融学院教授、博士生导师陆利平接受媒体采访时表示，本轮金价波动是技术性修复与地缘政治因素共同作用的结果，未来随着美联储货币政策走向明朗及全球黄金交易机制变革，黄金市场将呈现新的运行特征。
+国金证券认为，2026年将是中国算力需求从“云端训练”向“训练+推理”双轮驱动转型的关键之年，国产AI芯片厂商有望实现加速发展*。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 23:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 22:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 22:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 23:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 22:50 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 22:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 23:11 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 22:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 23:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 22:45 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 22:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 22:45 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 22:55 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 22:49 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 22:55 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 23:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 23:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 23:00 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 23:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 23:08 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 23:01 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 22:53 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 23:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:51 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 22:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 23:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 22:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/8812095.shtml)
-- 2026-06-29 22:45 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/774511803.shtml)
-- 2026-06-29 22:58 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/788491529.shtml)
-- 2026-06-29 23:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/30946.shtml)
-- 2026-06-29 22:51 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/9498967692.shtml)
-- 2026-06-29 22:55 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/91741.shtml)
-- 2026-06-29 22:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/70809447.shtml)
-- 2026-06-29 22:52 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/3126311947.shtml)
-- 2026-06-29 23:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/741691441908.shtml)
-- 2026-06-29 22:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/9262522037.shtml)
-- 2026-06-29 23:12 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/370724.shtml)
-- 2026-06-29 22:56 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/717405048121.shtml)
-- 2026-06-29 22:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/4431939.shtml)
-- 2026-06-29 22:47 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/4195214345.shtml)
-- 2026-06-29 23:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/661295.shtml)
+- 2026-06-29 23:03 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/8183520037.shtml)
+- 2026-06-29 23:10 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/68687772.shtml)
+- 2026-06-29 23:13 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/204281095.shtml)
+- 2026-06-29 23:12 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/57622738.shtml)
+- 2026-06-29 23:05 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/84340414904.shtml)
+- 2026-06-29 23:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/366405.shtml)
+- 2026-06-29 23:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/50284628045.shtml)
+- 2026-06-29 23:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/9908851.shtml)
+- 2026-06-29 22:52 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/565314243.shtml)
+- 2026-06-29 22:52 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/73075028260.shtml)
+- 2026-06-29 23:04 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/835244412.shtml)
+- 2026-06-29 22:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/791865857957.shtml)
+- 2026-06-29 23:05 - [金刚川](http://www.blog.kurohicncr.top/Article/details/664500.shtml)
+- 2026-06-29 22:50 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/9823603.shtml)
+- 2026-06-29 22:57 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/7925830.shtml)

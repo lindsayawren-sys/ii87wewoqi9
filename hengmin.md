@@ -1,56 +1,50 @@
-# 康耐特光学完成2026年4月H股回购方案
+# 大美边疆看我家丨黑龙江帽儿山：治愈山景暖人心
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。 于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元
+发布时间：2026年04月16日 16:19 来源：中国新闻网 黑龙江省帽儿山镇，春有漫山新绿，夏有浓荫蔽日，秋有层林尽染，冬有银装素裹。每一缕风都带着山林的清冽，每一片叶都藏着家乡的温柔。(作者：丁莉莉 臧福军） 责任编辑：【魏聪聪】
 
 ## 正文
 
-康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。
+发布时间：2026年04月16日 16:19 来源：中国新闻网 黑龙江省帽儿山镇，春有漫山新绿，夏有浓荫蔽日，秋有层林尽染，冬有银装素裹。
 
-2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。
+每一缕风都带着山林的清冽，每一片叶都藏着家乡的温柔。
 
-于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元（不包括交易成本）。
-
-截至2026年5月4日至2026年6月5日期间，本公司根据2026年4月H股回购方案于联交所继续进行一系列H股回购，合共购回602.67万股H股（5至6月股份回购），占本公司截至本公告日期的已发行H股总数约1.195%。
-
-根据董事会于2026年6月15日通过的决议案，本公司根据5至6月股份回购所购回的602.67万股H股均于2026年6月15日悉数注销。
-
-用于5至6月股份回购的资金总额为约2.68亿港元（不包括交易成本）。
-
-待上述602.67万股H股注销后，本公司的已发行H股总数将由5.04亿股H股削减至4.98亿股H股。
-
-责任编辑：卢昱君
+(作者：丁莉莉 臧福军） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 22:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 22:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 22:50 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 22:54 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 22:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 23:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 23:04 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 22:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 22:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 23:15 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 22:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 23:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 23:09 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 23:03 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 23:13 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 22:54 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 22:59 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 22:57 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:09 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 23:14 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 22:56 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 22:49 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:44 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/755606345499.shtml)
-- 2026-06-29 22:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/568569442507.shtml)
-- 2026-06-29 22:42 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/3536377446.shtml)
-- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/64125344.shtml)
-- 2026-06-29 23:08 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/26460847370.shtml)
-- 2026-06-29 22:47 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/90802.shtml)
-- 2026-06-29 22:49 - [世界杯](https://www.blog.kurohicncr.top/Article/details/566569.shtml)
-- 2026-06-29 23:03 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/6825300.shtml)
-- 2026-06-29 23:07 - [流金岁月](http://www.blog.minike.top/Article/details/946252389.shtml)
-- 2026-06-29 22:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/60280963875.shtml)
-- 2026-06-29 22:51 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/309669126106.shtml)
-- 2026-06-29 23:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/46240685.shtml)
-- 2026-06-29 23:02 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/93790918065.shtml)
-- 2026-06-29 22:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/148362.shtml)
-- 2026-06-29 22:44 - [世界杯](https://www.blog.minike.top/Article/details/7641594205.shtml)
+- 2026-06-29 23:12 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/2585605491.shtml)
+- 2026-06-29 22:56 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/0131736.shtml)
+- 2026-06-29 22:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/6786394707.shtml)
+- 2026-06-29 23:01 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/789950.shtml)
+- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6697417613.shtml)
+- 2026-06-29 22:53 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/70936.shtml)
+- 2026-06-29 23:02 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/653225.shtml)
+- 2026-06-29 23:15 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/912508272758.shtml)
+- 2026-06-29 23:12 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/298758533.shtml)
+- 2026-06-29 22:54 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/385389384956.shtml)
+- 2026-06-29 23:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/2414075525.shtml)
+- 2026-06-29 22:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/71242.shtml)
+- 2026-06-29 23:02 - [我和我的家乡](https://www.share.minike.top/Article/details/22952408.shtml)
+- 2026-06-29 22:51 - [女心理师](https://www.blog.kurohicncr.top/Article/details/2825617806.shtml)
+- 2026-06-29 23:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/5807423529.shtml)

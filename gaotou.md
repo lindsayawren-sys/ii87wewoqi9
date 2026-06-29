@@ -1,59 +1,56 @@
-# 欧盟执委会发言人：正评估Anthropic决定的实际影响
+# “你又当又立”VS“你不讲体面”！格力海信爆发“铜铝大战”，两高管互揭老底
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-欧盟执委会周日表示，正在评估一项影响人工智能公司Anthropic的美国出口管制指令的实际影响，并强调相关措施不应歧视合作伙伴。 Anthropic上周五表示，在美国政府以国家安全为由要求其暂停向外国公民开放模型访问权限后，将“突然停用”其最先进的人工智能模型，所有用户均受影响。 “我们正目睹新一代高性能AI模型进入市场。这些模型带来显著益处，包括在网络防御方面，但也引发了亟待
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 丨 《BUG》栏目 周文猛 家电行业两大龙头格力电器与海信空调，因为“真铜实料”的事情怼起来了。 昨日晚间，格力电器CMO朱磊于社交平台喊话海信空调，直言其在上海家博会传播中盗用格力“真铜实料”营销主张，同时喊话海信自查旗下产品铝线电机、铝管应用情况。 随即，海信空调国内营销中心品牌总监杨万手火速回怼，
 
 ## 正文
 
-欧盟执委会周日表示，正在评估一项影响人工智能公司Anthropic的美国出口管制指令的实际影响，并强调相关措施不应歧视合作伙伴。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Anthropic上周五表示，在美国政府以国家安全为由要求其暂停向外国公民开放模型访问权限后，将“突然停用”其最先进的人工智能模型，所有用户均受影响。
+文 丨 《BUG》栏目 周文猛 家电行业两大龙头格力电器与海信空调，因为“真铜实料”的事情怼起来了。
 
-“我们正目睹新一代高性能AI模型进入市场。
+昨日晚间，格力电器CMO朱磊于社交平台喊话海信空调，直言其在上海家博会传播中盗用格力“真铜实料”营销主张，同时喊话海信自查旗下产品铝线电机、铝管应用情况。
 
-这些模型带来显著益处，包括在网络防御方面，但也引发了亟待解决的严重网络安全问题，”欧盟执委会发言人雷尼尔（Thomas Regnier）在一份声明中表示。
+随即，海信空调国内营销中心品牌总监杨万手火速回怼，搬出10年前行业报道反驳“真铜实料”非格力专有，格力拒绝“铝代铜”但公司又于去年3月加入“铝代铜工作组”，“又当又立”。
 
-“我们认为，在此背景下采取的应急措施不应歧视合作伙伴，”他说。
+今天下午，朱磊回应《BUG》栏目称：“我认为中国企业是应该讲点体面的。
 
-“这一事态发展进一步说明了欧洲为何需要加强技术主权，”雷尼尔说。
+刨出10年前的旧闻或许能找补回一点面子，但到底是先抄再找补，自己心里是有数的吧，不要欺心，这很重要。
 
-“我们正在密切关注此事对欧洲用户使用这些服务的实际影响。
+” 对于被指“又当又立”一事，朱磊反驳称，“揣着明白装糊涂，研究铝代铜，和倡议‘铝代铜’是两件完全不同的事。
 
-”责任编辑：李桐
+” 刚刚，海信空调总监回应《BUG》栏目称，“海信空调室内机室外机冷凝器和蒸发器以及内外机连接管均为铜管。
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 23:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 23:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 22:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 22:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 22:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 22:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 23:02 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 22:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 22:55 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:47 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 22:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 23:16 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 22:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 23:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 23:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 22:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 22:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 23:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 23:00 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 22:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/106726553011.shtml)
-- 2026-06-29 22:59 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/37631389323.shtml)
-- 2026-06-29 22:47 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/7099420244.shtml)
-- 2026-06-29 22:51 - [速度与激情9](https://www.blog.minike.top/Article/details/0550537.shtml)
-- 2026-06-29 23:10 - [乔家的儿女](http://www.blog.minike.top/Article/details/22420445661.shtml)
-- 2026-06-29 22:56 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/7701446713.shtml)
-- 2026-06-29 23:03 - [扬名立万](https://www.blog.minike.top/Article/details/41383137035.shtml)
-- 2026-06-29 23:03 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/30207803626.shtml)
-- 2026-06-29 22:43 - [世界杯](https://www.share.minike.top/Article/details/5133168889.shtml)
-- 2026-06-29 23:10 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/864504515680.shtml)
-- 2026-06-29 23:02 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/77949.shtml)
-- 2026-06-29 22:57 - [沙丘](http://www.blog.kurohicncr.top/Article/details/9460320076.shtml)
-- 2026-06-29 22:42 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/32701059.shtml)
-- 2026-06-29 23:06 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/758184983.shtml)
-- 2026-06-29 23:07 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/31433253189.shtml)
+- 2026-06-29 23:04 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/660565359271.shtml)
+- 2026-06-29 23:10 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/65257.shtml)
+- 2026-06-29 23:02 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/01755.shtml)
+- 2026-06-29 23:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/71504971.shtml)
+- 2026-06-29 23:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/9484449771.shtml)
+- 2026-06-29 23:02 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/84142166.shtml)
+- 2026-06-29 22:57 - [炽夏](https://www.share.kurohicncr.top/Article/details/2486027.shtml)
+- 2026-06-29 23:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/95147601666.shtml)
+- 2026-06-29 23:01 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/45657.shtml)
+- 2026-06-29 23:03 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/9318141285.shtml)
+- 2026-06-29 23:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/70770722432.shtml)
+- 2026-06-29 23:06 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/43778441083.shtml)
+- 2026-06-29 23:11 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/48726.shtml)
+- 2026-06-29 22:49 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/36423.shtml)
+- 2026-06-29 22:49 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/246657324489.shtml)

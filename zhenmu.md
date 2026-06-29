@@ -1,60 +1,59 @@
-# 世界杯午报丨苏格兰1-0战胜海地 暂列小组第一
+# 美国股市：标普500和纳斯达克100指数均创纪录新高 停火憧憬推升涨势
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-北京时间6月14日，在美国波士顿体育场进行的2026年美加墨世界杯足球赛C组小组赛中，苏格兰队1-0战胜海地队。 比赛上半场，麦金抽射破门，苏格兰队1-0取得领先。下半场两队均无进球，最终，苏格兰队1-0战胜海地队，积分获得3分，暂列小组第一。 巴西1-1战平摩洛哥 卡塔尔首获世界杯首分北京时间14日，2026年美加墨世界杯小组赛C组首轮在纽约新泽西球场进行，五冠王巴西队对阵非
+美国股市延续涨势，标普500和纳斯达克100指数双双升至纪录新高。投资者对美伊停火以及强劲的企业盈利感到乐观，纷纷涌入股市。 标普500指数收盘上涨0.8%，收于7000点之上，自1月下旬以来首次创下纪录新高，科技和可选消费品板块领涨。 纳斯达克100指数创下2019年以来最长连涨纪录，上涨1.4%，录得10月份以来首个收盘纪录。 美国银行和摩根士丹利股价上涨，其股票交易收入超
 
 ## 正文
 
-北京时间6月14日，在美国波士顿体育场进行的2026年美加墨世界杯足球赛C组小组赛中，苏格兰队1-0战胜海地队。
+美国股市延续涨势，标普500和纳斯达克100指数双双升至纪录新高。
 
-比赛上半场，麦金抽射破门，苏格兰队1-0取得领先。
+投资者对美伊停火以及强劲的企业盈利感到乐观，纷纷涌入股市。
 
-下半场两队均无进球，最终，苏格兰队1-0战胜海地队，积分获得3分，暂列小组第一。
+标普500指数收盘上涨0.8%，收于7000点之上，自1月下旬以来首次创下纪录新高，科技和可选消费品板块领涨。
 
-巴西1-1战平摩洛哥 卡塔尔首获世界杯首分北京时间14日，2026年美加墨世界杯小组赛C组首轮在纽约新泽西球场进行，五冠王巴西队对阵非洲劲旅摩洛哥队。
+纳斯达克100指数创下2019年以来最长连涨纪录，上涨1.4%，录得10月份以来首个收盘纪录。
 
-最终，巴西队1-1战平摩洛哥队。
+美国银行和摩根士丹利股价上涨，其股票交易收入超预期。
 
-北京时间14日，2026年美加墨世界杯小组赛B组首轮在旧金山湾区球场进行，卡塔尔队凭借扈希的绝平头球，卡塔尔1-1战平瑞士，拿到队史世界杯首个积分。
+“中东局势缓和迹象提振市场风险偏好，油价下跌也有助于缓解通胀担忧，”LPL Financial 的首席技术策略师Adam Turnquist表示。
 
-今日比赛预告 稍后还将进行D组对决，澳大利亚VS土耳其。
+此轮反弹延续了股市的强劲逆转走势。
 
-北京时间6月14日12:00，澳大利亚VS土耳其 这将是澳大利亚与土耳其之间的第三次交锋，此前土耳其曾在2004年5月的两场友谊赛中获胜；土耳其在世界杯历史上对阵亚足联球队的四场比赛保持全胜，共打入14球，仅失2球。
+上月底的抛售潮曾使标普500指数较峰值暴跌逾9%。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 22:44 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 22:50 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 23:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 23:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 23:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:05 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 22:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 22:59 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 23:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 23:10 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 22:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 22:56 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 22:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 23:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 23:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 23:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 23:05 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 23:16 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 22:56 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 23:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 23:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 23:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 23:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 23:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:06 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/297377233.shtml)
-- 2026-06-29 22:42 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/35896790.shtml)
-- 2026-06-29 23:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/308602634799.shtml)
-- 2026-06-29 22:42 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/16696465867.shtml)
-- 2026-06-29 23:07 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/53623518510.shtml)
-- 2026-06-29 23:05 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/68574264885.shtml)
-- 2026-06-29 22:45 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/29901799375.shtml)
-- 2026-06-29 22:59 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/129953387.shtml)
-- 2026-06-29 22:46 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/74926.shtml)
-- 2026-06-29 23:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/2677346288.shtml)
-- 2026-06-29 23:04 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/165576380.shtml)
-- 2026-06-29 22:45 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/33741.shtml)
-- 2026-06-29 23:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/287591597585.shtml)
-- 2026-06-29 22:42 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/18437350.shtml)
-- 2026-06-29 23:01 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/38687.shtml)
+- 2026-06-29 22:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/8624547627.shtml)
+- 2026-06-29 22:50 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/480063511430.shtml)
+- 2026-06-29 22:49 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/04511.shtml)
+- 2026-06-29 23:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/7322399.shtml)
+- 2026-06-29 22:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/1394840097.shtml)
+- 2026-06-29 22:58 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/33915946.shtml)
+- 2026-06-29 22:49 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/7003519044.shtml)
+- 2026-06-29 23:04 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/32903.shtml)
+- 2026-06-29 23:09 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/7318051.shtml)
+- 2026-06-29 23:12 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/44146379810.shtml)
+- 2026-06-29 23:12 - [第一炉香](http://www.share.minike.top/Article/details/81204586487.shtml)
+- 2026-06-29 22:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/54447.shtml)
+- 2026-06-29 23:05 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/45990833.shtml)
+- 2026-06-29 22:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/271806861592.shtml)
+- 2026-06-29 23:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/08242.shtml)

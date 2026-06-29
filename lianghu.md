@@ -1,61 +1,48 @@
-# 中英人民币国际使用研讨会举行
+# 正乾金融控股因可换股债券获转换而合计发行5.55亿股
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。中国人
+正乾金融控股（01152）发布公告，可换股债券于2025年11月18日发行，本金总额为4050.9万港元，以每股0.073港元的初始转换价计算合计发行5.55亿股。责任编辑：卢昱君
 
 ## 正文
 
-中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。
+正乾金融控股（01152）发布公告，可换股债券于2025年11月18日发行，本金总额为4050.9万港元，以每股0.073港元的初始转换价计算合计发行5.55亿股。
 
-本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。
-
-与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。
-
-中国人民银行、跨境银行间支付清算有限责任公司、中国银行、汇丰银行等机构代表分别分享了相关成果和案例，展现人民币国际使用在促进贸易投资便利化、提升跨境金融服务效率、服务中英企业高质量发展等方面的积极作用。
-
-活动现场，伦敦金融城介绍并预发布《伦敦人民币业务2026年度报告》。
-
-该报告由伦敦金融城和中国人民银行欧洲代表处牵头，中国银行作为伦敦人民币市场监测工作小组核心成员参与撰写。
-
-报告系统梳理了伦敦离岸人民币市场的发展成果、面临挑战和未来展望。
-
-作为最早在英国设立机构的中资银行，中国银行深耕英国市场近百年，坚持做好两国经贸投资的金融桥梁。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 22:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:08 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 22:46 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 22:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 23:03 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 23:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 22:47 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 22:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 23:03 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 23:00 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:11 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 22:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 22:56 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:05 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 23:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 23:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 22:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 22:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 23:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 22:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:16 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 23:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 22:55 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 22:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/78115.shtml)
-- 2026-06-29 22:44 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/8456436858.shtml)
-- 2026-06-29 22:44 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/35316393733.shtml)
-- 2026-06-29 23:00 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/5567502563.shtml)
-- 2026-06-29 22:42 - [金刚川](http://www.blog.kurohicncr.top/Article/details/911259160.shtml)
-- 2026-06-29 23:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/3985237677.shtml)
-- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/2333960.shtml)
-- 2026-06-29 22:57 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/0729003883.shtml)
-- 2026-06-29 23:03 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/530306036939.shtml)
-- 2026-06-29 23:11 - [天道](https://www.share.minike.top/Article/details/8775943800.shtml)
-- 2026-06-29 22:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/87356700146.shtml)
-- 2026-06-29 22:59 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/86840.shtml)
-- 2026-06-29 23:06 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/865890596872.shtml)
-- 2026-06-29 23:05 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/071828012667.shtml)
-- 2026-06-29 23:00 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/571409601342.shtml)
+- 2026-06-29 23:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/04475921763.shtml)
+- 2026-06-29 23:01 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/813014097861.shtml)
+- 2026-06-29 23:02 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/50312885774.shtml)
+- 2026-06-29 22:59 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/98704687681.shtml)
+- 2026-06-29 22:49 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/10159535.shtml)
+- 2026-06-29 22:52 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/2472322766.shtml)
+- 2026-06-29 23:03 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/063725785593.shtml)
+- 2026-06-29 22:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/826657710.shtml)
+- 2026-06-29 22:48 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/431440.shtml)
+- 2026-06-29 23:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/2597977.shtml)
+- 2026-06-29 22:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/205509815809.shtml)
+- 2026-06-29 22:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/1803843.shtml)
+- 2026-06-29 22:49 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/40268117.shtml)
+- 2026-06-29 23:02 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/8273784246.shtml)
+- 2026-06-29 22:50 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/8225981340.shtml)

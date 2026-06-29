@@ -1,56 +1,57 @@
-# 几十万亿“存款搬家”了吗？业内人士：真实存在但并非大规模迁移
+# 沉浸式体验东南亚风情！广西高校泼水节欢乐上演
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-今年，“存款搬家”话题热度仍居高不下，多机构测算年内到期定存规模可达30万亿至70余万亿元。但业内人士向记者表示：存款搬家真实存在，但绝非大规模迁移。 海量存款集中到期，并不意味着资金会大规模撤离银行体系，多数到期存款仍选择留存在银行：建行、交行等在一季度业绩会上均表示到期存款留存率超过90%，工行提到到期存款转存率超过90%。股份行群体存款留存率一般在60%-80%，低于大行
+发布时间：2026年04月15日 16:00 来源：中国新闻网 4月14日，广西民族大学举办2026年国际文化节暨泼水节活动。来自泰国、老挝、柬埔寨、缅甸等国家的留学生与中国师生齐聚一堂，以泼水互送祝福，沉浸式体验这一极具东南亚风情的文化盛宴。 活动现场，《湄南舞韵》《泼水雨》《越韵飞扬》《山歌好比春江水》等节目表演赢得阵阵掌声。在泼水大战中，中外学子手持水枪、水盆，你追我赶，
 
 ## 正文
 
-今年，“存款搬家”话题热度仍居高不下，多机构测算年内到期定存规模可达30万亿至70余万亿元。
+发布时间：2026年04月15日 16:00 来源：中国新闻网 4月14日，广西民族大学举办2026年国际文化节暨泼水节活动。
 
-但业内人士向记者表示：存款搬家真实存在，但绝非大规模迁移。
+来自泰国、老挝、柬埔寨、缅甸等国家的留学生与中国师生齐聚一堂，以泼水互送祝福，沉浸式体验这一极具东南亚风情的文化盛宴。
 
-海量存款集中到期，并不意味着资金会大规模撤离银行体系，多数到期存款仍选择留存在银行：建行、交行等在一季度业绩会上均表示到期存款留存率超过90%，工行提到到期存款转存率超过90%。
+活动现场，《湄南舞韵》《泼水雨》《越韵飞扬》《山歌好比春江水》等节目表演赢得阵阵掌声。
 
-股份行群体存款留存率一般在60%-80%，低于大行，但也维持在较高水平。
+在泼水大战中，中外学子手持水枪、水盆，你追我赶，尽情泼洒，校园瞬间化身“水上乐园”。
 
-中信证券表示：存款到期不等于存款搬家，存款搬家不等于入市，非银扩张不等于权益流入，真正触达权益市场的资金或小于市场期待。
+当天还举行了剪纸、油茶、书画、投壶等文化展示体验活动。
 
-当下低利率已成常态，保守型储户该如何配置资产？
-
-业内人士建议，对于风险偏好极低的投资者，可以继续选择保本的存款类产品，不应盲目追求潜在的高收益而承受超出自身承受能力的波动。
-
-责任编辑：秦艺
+(黄艳梅 刘芷邑 制作 乐小敏） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 23:10 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:47 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 23:07 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 23:01 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 22:56 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 22:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 23:02 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 23:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 22:58 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 23:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 23:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 22:58 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 23:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 23:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 22:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 22:59 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 23:05 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 23:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 22:48 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 23:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 22:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/5208590433.shtml)
-- 2026-06-29 23:07 - [张凌赫 客串](https://www.share.minike.top/Article/details/258660.shtml)
-- 2026-06-29 23:11 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/1554642.shtml)
-- 2026-06-29 22:44 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5519353.shtml)
-- 2026-06-29 22:55 - [世界杯](https://www.share.kurohicncr.top/Article/details/39815836.shtml)
-- 2026-06-29 22:50 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/57918885.shtml)
-- 2026-06-29 23:06 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/96788455.shtml)
-- 2026-06-29 23:01 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/193907.shtml)
-- 2026-06-29 22:46 - [流金岁月](https://www.blog.minike.top/Article/details/1444690.shtml)
-- 2026-06-29 22:56 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/212418428729.shtml)
-- 2026-06-29 22:45 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/06699840.shtml)
-- 2026-06-29 23:09 - [恋与深空回应争议](http://www.share.minike.top/Article/details/00643953854.shtml)
-- 2026-06-29 23:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/4243196645.shtml)
-- 2026-06-29 22:55 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/142759638131.shtml)
-- 2026-06-29 22:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/66495.shtml)
+- 2026-06-29 22:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/06913179.shtml)
+- 2026-06-29 23:14 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/18535159.shtml)
+- 2026-06-29 22:56 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/0742736.shtml)
+- 2026-06-29 23:07 - [流金岁月](http://www.share.kurohicncr.top/Article/details/96702766.shtml)
+- 2026-06-29 23:01 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/57210165.shtml)
+- 2026-06-29 22:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/001215.shtml)
+- 2026-06-29 23:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/769573282002.shtml)
+- 2026-06-29 23:17 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/6252042.shtml)
+- 2026-06-29 23:10 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/25679.shtml)
+- 2026-06-29 23:13 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/1660624.shtml)
+- 2026-06-29 22:51 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/150745324294.shtml)
+- 2026-06-29 23:00 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/03563407442.shtml)
+- 2026-06-29 22:58 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/51026.shtml)
+- 2026-06-29 22:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/716987.shtml)
+- 2026-06-29 22:49 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0328240.shtml)

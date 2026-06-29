@@ -1,51 +1,58 @@
-# 大和：新奥能源给予“跑赢大市”评级 惟新奥股份增持料下行空间有限
+# 海底捞海外推广遇阻！多品牌战略拉垮毛利率，股价惨遭腰斩
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-大和发布研报称，新奥股份（600803.SH）确认，对新奥能源（02688）的120亿美元私有化要约已告吹。该行表示，目前关键在于新奥天然气股份同时表示计划在公开市场累计买入新奥能源股份。鉴于其股息收益率约为6%，且年初至今股价已下跌约35%，虽然短期市场情绪受挫，但从当前水平来看，相信基本面下行空间有限，对该股评级为“跑赢大市”。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 负责海底捞火锅海外经营的上市实体——特海国际（09658，HK）于4月13日公布了2025年年报。 年报显示，海底捞在海外扩张的第13年，业绩表现很不错，营业收入和净利润双增，特别是在东南亚地区的经营比较有效。不过，这一成绩更多地是受益于汇兑收入和外卖业务的增长，并且公司坚持的“红石榴计划”由
 
 ## 正文
 
-大和发布研报称，新奥股份（600803.SH）确认，对新奥能源（02688）的120亿美元私有化要约已告吹。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该行表示，目前关键在于新奥天然气股份同时表示计划在公开市场累计买入新奥能源股份。
+来源：财通社 负责海底捞火锅海外经营的上市实体——特海国际（09658，HK）于4月13日公布了2025年年报。
 
-鉴于其股息收益率约为6%，且年初至今股价已下跌约35%，虽然短期市场情绪受挫，但从当前水平来看，相信基本面下行空间有限，对该股评级为“跑赢大市”。
+年报显示，海底捞在海外扩张的第13年，业绩表现很不错，营业收入和净利润双增，特别是在东南亚地区的经营比较有效。
 
-责任编辑：卢昱君
+不过，这一成绩更多地是受益于汇兑收入和外卖业务的增长，并且公司坚持的“红石榴计划”由于持续加大投入，造成了毛利率的下滑。
+
+受此影响，特海国际周二小幅收涨1.13%，报11.59港元/股，总市值75.37亿港元。
+
+自2025年初以来，股价已经被腰斩，2025年全年跌幅高达42%。
+
+营收小涨、净利大涨 特海国际的年报显示，2025年收入8.408亿美元，较2024年的7.783亿美元同比增长8.0%。
+
+公司2025年经营溢利3740万美元，较2024年5330万美元同比下降29.83%。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:07 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 23:11 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 23:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 23:10 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 22:46 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 22:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 22:42 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 22:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 23:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 22:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 22:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 23:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 22:54 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 23:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 23:08 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 22:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 23:10 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 22:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 23:02 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 23:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 22:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [美股](https://www.share.minike.top/Article/details/041832.shtml)
-- 2026-06-29 22:42 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/5514335.shtml)
-- 2026-06-29 22:47 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/7276345947.shtml)
-- 2026-06-29 22:54 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/754785958366.shtml)
-- 2026-06-29 23:07 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/2765401.shtml)
-- 2026-06-29 22:55 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/0235472.shtml)
-- 2026-06-29 22:49 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/531328.shtml)
-- 2026-06-29 23:01 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/989815.shtml)
-- 2026-06-29 22:47 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/36592493580.shtml)
-- 2026-06-29 23:11 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/8732829410.shtml)
-- 2026-06-29 23:04 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/09767.shtml)
-- 2026-06-29 23:00 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/38013894.shtml)
-- 2026-06-29 22:58 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/765732.shtml)
-- 2026-06-29 22:58 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/0339731.shtml)
-- 2026-06-29 22:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/4454563.shtml)
+- 2026-06-29 22:50 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/37848.shtml)
+- 2026-06-29 22:56 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/2500846778.shtml)
+- 2026-06-29 22:58 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/77514710675.shtml)
+- 2026-06-29 23:10 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/81812.shtml)
+- 2026-06-29 23:15 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/3355180908.shtml)
+- 2026-06-29 22:54 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/20136922200.shtml)
+- 2026-06-29 22:59 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/66722.shtml)
+- 2026-06-29 22:57 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/171078271.shtml)
+- 2026-06-29 22:48 - [房价什么时候能涨](http://www.share.minike.top/Article/details/47656.shtml)
+- 2026-06-29 23:11 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/15555494583.shtml)
+- 2026-06-29 22:57 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/840750.shtml)
+- 2026-06-29 23:11 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/879179277.shtml)
+- 2026-06-29 23:15 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/74388315166.shtml)
+- 2026-06-29 22:54 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/307117555466.shtml)
+- 2026-06-29 23:01 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/647780180.shtml)

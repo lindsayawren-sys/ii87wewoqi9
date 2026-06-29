@@ -1,57 +1,46 @@
-# 酒价内参6月15日价格发布：青花汾20上涨4元/瓶
+# 中远海能：约3.47亿股A股限售股将于4月22日上市流通
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均
+中远海能（01138）发布公告，约3.47亿股A股限售股将于2026年4月22日上市流通。责任编辑：卢昱君
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。
+中远海能（01138）发布公告，约3.47亿股A股限售股将于2026年4月22日上市流通。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。
-
-市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均上涨或持平，带动总价进一步向9950元一线逼近。
-
-今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
-
-上涨方面，古井贡古20涨幅居前，上涨8元/瓶，价格升至进入六月以来次高位；青花郎上涨7元/瓶，重新登上700元关口，创进入六月以来最高；精品茅台上涨6元/瓶，且成交量明显放大；国窖1573与习酒君品均上涨5元/瓶，其中前者连续两日反弹，重返890元关口，后者连续两日修复，平近半个月最高价格纪录；五粮液普五八代与青花汾20均上涨4元/瓶；飞天茅台上涨2元/瓶，终结此前四连阴。
-
-下跌方面，洋河梦之蓝M6+与水晶剑南春均小幅下跌1元/瓶。
-
-五粮液1618价格环比保持不变，仍平近一月最低价纪录。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:09 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 23:02 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 23:07 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 22:58 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 22:42 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 22:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 22:52 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 22:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 22:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 22:56 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 22:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 22:59 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 22:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:58 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 23:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 22:57 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 23:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 22:50 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 23:13 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 23:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/78766755.shtml)
-- 2026-06-29 22:45 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/30672327594.shtml)
-- 2026-06-29 22:44 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/55253.shtml)
-- 2026-06-29 22:50 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/8136450301.shtml)
-- 2026-06-29 23:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/291449.shtml)
-- 2026-06-29 22:58 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/570957.shtml)
-- 2026-06-29 22:43 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/81247115.shtml)
-- 2026-06-29 22:50 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/273838112774.shtml)
-- 2026-06-29 22:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/01141.shtml)
-- 2026-06-29 22:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/4517333064.shtml)
-- 2026-06-29 23:06 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/107622964291.shtml)
-- 2026-06-29 23:05 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/3818058275.shtml)
-- 2026-06-29 22:50 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/83184475483.shtml)
-- 2026-06-29 22:55 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/55775.shtml)
-- 2026-06-29 22:58 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/6405044.shtml)
+- 2026-06-29 23:10 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/219758845.shtml)
+- 2026-06-29 23:08 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/11770350.shtml)
+- 2026-06-29 22:54 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/49663983778.shtml)
+- 2026-06-29 23:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/94821238388.shtml)
+- 2026-06-29 22:52 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/303499738622.shtml)
+- 2026-06-29 23:17 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/64427329.shtml)
+- 2026-06-29 22:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/3313569553.shtml)
+- 2026-06-29 22:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/53917086195.shtml)
+- 2026-06-29 22:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/64335233.shtml)
+- 2026-06-29 22:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/67981727176.shtml)
+- 2026-06-29 22:53 - [千与千寻](https://www.share.kurohicncr.top/Article/details/96636060786.shtml)
+- 2026-06-29 22:52 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/393986142439.shtml)
+- 2026-06-29 22:59 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/588102851.shtml)
+- 2026-06-29 23:03 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/869172.shtml)
+- 2026-06-29 23:01 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/8250682897.shtml)

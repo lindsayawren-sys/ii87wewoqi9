@@ -1,58 +1,52 @@
-# 聆达股份（300125）股民索赔案提交债权申报，此前已有一审胜诉
+# 微盟集团盘中涨超3% 机构看好AI相关收入有望进一步高增
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的聆达股份（300125）投资者索赔案再提交六安市中级人民法院立案，同步提交部分破产重整债权申报。（许峰律师专栏） 律师提示，聆达股份投资者索赔案已有一审胜诉，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2025年9月11日，聆达股份
+微盟集团（02013）盘中涨超3%，截至发稿，股价上涨2.58%，报1.59港元，成交额3638.24万港元。 近日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。微盟集团技术副总裁肖锋表示，Skill生态是Agent时代的“App Store”，而微盟的核心优势在于深厚的零售行业Kno
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的聆达股份（300125）投资者索赔案再提交六安市中级人民法院立案，同步提交部分破产重整债权申报。
+微盟集团（02013）盘中涨超3%，截至发稿，股价上涨2.58%，报1.59港元，成交额3638.24万港元。
 
-（许峰律师专栏） 律师提示，聆达股份投资者索赔案已有一审胜诉，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+近日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。
 
-2025年9月11日，聆达股份公告收到大连证监局下发的《行政处罚决定书》，经查，当事人存在以下违法事实： （一）未按规定披露对外担保事项 对相关担保事项，聆达股份未履行上市公司相关审议程序和信息披露义务，其中2023年10月24日和2023年11月5日发生的2笔合计8，000万元对外担保未在2023年年度报告中披露，占当期经审计净资产的19.42%；2023年期末余额5，000万元，占当期经审计净资产的12.13%。
+微盟集团技术副总裁肖锋表示，Skill生态是Agent时代的“App Store”，而微盟的核心优势在于深厚的零售行业Know-How。
 
-（二）未按规定披露关联方资金占用情况 聆达股份连续12个月内累计关联方资金占用金额为6，560万元，占最近一期经审计净资产的9.95%。
+光大证券表示，微盟集团发布Work Claw和AI Skill，将抢滩Agent时代分发入口。
 
-对上述资金占用行为，聆达股份未履行上市公司相关审议程序和信息披露义务，其中2023年7月24日、2023年8月至9月期间发生的2笔合计5，000万元资金占用未在2023年年度报告中披露，占当期经审计净资产的12.13%；2023年关联方资金占用期末余额5，648.08万元，占当期经审计净资产的13.71%。
+该行认为，2025年微盟AI相关收入已突破1.16亿元，2026年AI相关收入有望进一步高增，新产品的推出也为微盟打开从订阅制付费向效果付费转型的想象空间。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2023年7月5日到2024年4月27日之间买入聆达股份股票，并在2024年4月27日后卖出或继续持有股票的投资者，目前还可发起索赔。
-
-（ST聆达维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
-
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 23:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 22:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 23:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 22:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 23:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 22:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 23:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:56 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 23:07 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 22:42 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:02 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 23:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 22:48 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 23:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 23:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 23:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 23:14 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 22:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 23:14 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 23:05 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/84682453718.shtml)
-- 2026-06-29 23:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/98794974.shtml)
-- 2026-06-29 22:46 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/31849.shtml)
-- 2026-06-29 22:49 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/856107241.shtml)
-- 2026-06-29 22:53 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/89159589987.shtml)
-- 2026-06-29 23:11 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/392556954073.shtml)
-- 2026-06-29 23:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/320406967219.shtml)
-- 2026-06-29 22:50 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/63498183.shtml)
-- 2026-06-29 23:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/4299474.shtml)
-- 2026-06-29 23:01 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/745171.shtml)
-- 2026-06-29 22:44 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/74972.shtml)
-- 2026-06-29 22:53 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/10986.shtml)
-- 2026-06-29 22:46 - [极限挑战第一季](http://www.share.minike.top/Article/details/678087432.shtml)
-- 2026-06-29 22:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/7677362400.shtml)
-- 2026-06-29 23:11 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/1101811.shtml)
+- 2026-06-29 23:04 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/61717759578.shtml)
+- 2026-06-29 23:08 - [沉睡花园](https://www.blog.minike.top/Article/details/1301672.shtml)
+- 2026-06-29 23:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/7434185265.shtml)
+- 2026-06-29 23:01 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/7915507.shtml)
+- 2026-06-29 23:14 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/51576994454.shtml)
+- 2026-06-29 23:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/7113743747.shtml)
+- 2026-06-29 22:55 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/59780944052.shtml)
+- 2026-06-29 23:14 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/38860050598.shtml)
+- 2026-06-29 23:06 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/190105128050.shtml)
+- 2026-06-29 23:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/4468670776.shtml)
+- 2026-06-29 23:16 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/6719968632.shtml)
+- 2026-06-29 22:52 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/598074.shtml)
+- 2026-06-29 23:00 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/0628903.shtml)
+- 2026-06-29 23:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/79453537972.shtml)
+- 2026-06-29 22:59 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/69101070420.shtml)

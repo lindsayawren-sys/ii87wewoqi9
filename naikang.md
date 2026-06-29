@@ -1,61 +1,60 @@
-# 统计局：5月份规模以上工业增加值增长4.5% 社会消费品零售总额下降0.6%
+# 国家统计局：目前看原油价格变化对CPI的影响比较小
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-5月份，在以习近平同志为核心的党中央坚强领导下，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。 一、工业生产加快，装备制造业和高技术制造业较
+国家统计局公布的数据显示，一季度，全国居民消费价格（CPI）同比上涨0.9%，涨幅比上年四季度扩大0.4个百分点。3月份，全国居民消费价格同比上涨1.0%，环比下降0.7%。 4月16日，国家统计局副局长毛盛勇在国新办新闻发布会上表示，从一季度、包括前一段时间CPI的走势来看，物价形势总体平稳，居民消费价格温和回升。从季度看，一季度，CPI同比上涨0.9%，涨幅比上年四季度扩大
 
 ## 正文
 
-5月份，在以习近平同志为核心的党中央坚强领导下，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。
+国家统计局公布的数据显示，一季度，全国居民消费价格（CPI）同比上涨0.9%，涨幅比上年四季度扩大0.4个百分点。
 
-一、工业生产加快，装备制造业和高技术制造业较快增长 5月份，全国规模以上工业增加值同比增长4.5%，比上月加快0.4个百分点；环比增长0.40%。
+3月份，全国居民消费价格同比上涨1.0%，环比下降0.7%。
 
-分三大门类看，采矿业增加值同比增长2.3%，制造业增长4.4%，电力、热力、燃气及水生产和供应业增长7.6%。
+4月16日，国家统计局副局长毛盛勇在国新办新闻发布会上表示，从一季度、包括前一段时间CPI的走势来看，物价形势总体平稳，居民消费价格温和回升。
 
-装备制造业增加值同比增长9.5%，高技术制造业增加值增长15.1%，分别比上月加快1.2和2.3个百分点。
+从季度看，一季度，CPI同比上涨0.9%，涨幅比上年四季度扩大0.4个百分点，比去年全年扩大0.9个百分点，连续两个季度扩大，季度涨幅是近三年最高水平。
 
-分经济类型看，国有控股企业增加值同比增长3.7%；股份制企业增长5.2%，外商及港澳台投资企业增长1.9%；私营企业增长2.7%。
+扣除食品和能源后的核心CPI上涨1.2%。
 
-分产品看，3D打印设备、锂离子电池、工业机器人产品产量同比分别增长54.4%、40.0%、27.9%。
+从月度来看，3月份CPI同比上涨1%，核心CPI涨幅是1.1%，最近几个月同比涨幅都稳定在1%以上，因此CPI延续温和上涨的态势。
 
-1—5月份，全国规模以上工业增加值同比增长5.4%。
+在谈到油价上涨对经济的影响时，毛盛勇表示，从CPI主要构成来看，食品是一大块，今年一季度，食品价格上涨0.4%，去年全年下降1.5%。
 
-5月份，制造业采购经理指数为50.0%，企业生产经营活动预期指数为53.9%。
+第二块是工业消费品，不含能源的工业消费品价格一季度上涨2.5%，比去年全年加快1.4个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 23:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:42 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 22:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 22:55 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 23:06 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 23:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 22:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 23:02 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 22:47 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 23:00 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 22:50 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 23:02 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 23:07 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 22:46 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:53 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:09 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 22:59 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 22:54 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 23:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 23:08 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 23:01 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 23:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 23:02 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 23:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/54260570565.shtml)
-- 2026-06-29 22:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/9798118085.shtml)
-- 2026-06-29 22:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/47265864648.shtml)
-- 2026-06-29 23:05 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/020208.shtml)
-- 2026-06-29 23:00 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/72136.shtml)
-- 2026-06-29 22:56 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/847696.shtml)
-- 2026-06-29 22:56 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/76819147253.shtml)
-- 2026-06-29 23:00 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/618302.shtml)
-- 2026-06-29 23:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/470850432678.shtml)
-- 2026-06-29 22:53 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/60358321528.shtml)
-- 2026-06-29 22:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/914838468429.shtml)
-- 2026-06-29 22:47 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/694360338.shtml)
-- 2026-06-29 22:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/31938642746.shtml)
-- 2026-06-29 22:43 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/78023.shtml)
-- 2026-06-29 22:55 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/871352383214.shtml)
+- 2026-06-29 23:08 - [起风了](https://www.blog.minike.top/Article/details/577278576474.shtml)
+- 2026-06-29 23:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/29614.shtml)
+- 2026-06-29 22:51 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/88437.shtml)
+- 2026-06-29 23:14 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/820512301.shtml)
+- 2026-06-29 22:58 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/530363.shtml)
+- 2026-06-29 23:00 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/3762993062.shtml)
+- 2026-06-29 22:49 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/33897662.shtml)
+- 2026-06-29 22:58 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/02097.shtml)
+- 2026-06-29 23:03 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/708795060177.shtml)
+- 2026-06-29 23:01 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/163770565.shtml)
+- 2026-06-29 23:15 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/055366461.shtml)
+- 2026-06-29 23:14 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/7009140.shtml)
+- 2026-06-29 23:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/65614525358.shtml)
+- 2026-06-29 23:15 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/73772534863.shtml)
+- 2026-06-29 23:04 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/606968313829.shtml)

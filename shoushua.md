@@ -1,57 +1,44 @@
-# 抢收、抢种、收购……从“三夏”麦收地图看夏粮收获好“丰”光
+# 恒安国际：许文默将由执行董事调任为非执行董事
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-央视网消息：农业农村部最新小麦机收进度显示，麦收地区大部持续晴热天气，局地有短时阵雨，山东、河北、山西、陕西等省组织机具紧盯成熟麦田推进抢收，已有联合收割机向西北麦区转移。目前，全国小麦收获进度85%。据农业农村部最新小麦机收进度，截至6月13日17时，全国已收获夏粮小麦2.88亿亩，收获进度85%。江苏麦收基本结束，山东麦收进度过八成，河北麦收进度近七成，陕西麦收进度过六成半
+4月15日，恒安国际（01044）发布公告，宣布公司执行董事许文默将于2026年5月18日的股东周年大会上获得重选后，调任为非执行董事，自股东周年大会结束起生效。
 
 ## 正文
 
-央视网消息：农业农村部最新小麦机收进度显示，麦收地区大部持续晴热天气，局地有短时阵雨，山东、河北、山西、陕西等省组织机具紧盯成熟麦田推进抢收，已有联合收割机向西北麦区转移。
-
-目前，全国小麦收获进度85%。
-
-据农业农村部最新小麦机收进度，截至6月13日17时，全国已收获夏粮小麦2.88亿亩，收获进度85%。
-
-江苏麦收基本结束，山东麦收进度过八成，河北麦收进度近七成，陕西麦收进度过六成半，山西麦收进度过五成，新疆、甘肃小麦零星收获。
-
-气象部门预计，6月14—16日，麦收地区大部天气晴好，山东、山西及华北北部局地有阵雨，麦收地区应加强机具调度和服务保障，利用晴好天气推进麦收进度，同时压茬推进秋粮机播，为全年粮食丰收夯实基础。
-
-河北望都：麦田连夜抢收应对强降雨 据气象部门预报，近期河北将迎来大范围强降雨、强对流天气，局部还会出现冰雹。
-
-面对天气考验，河北依托科技手段昼夜奋战抢收小麦，目前麦收进度已过半。
-
-眼下，保定市望都县29.8万亩小麦迎来集中收割期。
+4月15日，恒安国际（01044）发布公告，宣布公司执行董事许文默将于2026年5月18日的股东周年大会上获得重选后，调任为非执行董事，自股东周年大会结束起生效。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 22:54 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 23:04 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 22:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 22:54 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 23:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 22:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 23:09 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 22:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 23:07 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 23:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 22:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 23:14 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 22:56 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 22:55 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 23:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:55 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 23:17 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 22:50 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 23:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 23:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 22:54 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/73573046920.shtml)
-- 2026-06-29 22:59 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/01226.shtml)
-- 2026-06-29 22:52 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/78045.shtml)
-- 2026-06-29 23:11 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/586066.shtml)
-- 2026-06-29 22:57 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/4977694470.shtml)
-- 2026-06-29 23:08 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/9671103193.shtml)
-- 2026-06-29 22:55 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/454869880350.shtml)
-- 2026-06-29 22:52 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/39596044518.shtml)
-- 2026-06-29 22:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/200471906720.shtml)
-- 2026-06-29 23:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/73847.shtml)
-- 2026-06-29 23:06 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/6116967777.shtml)
-- 2026-06-29 22:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/49766.shtml)
-- 2026-06-29 22:57 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/9050156.shtml)
-- 2026-06-29 22:58 - [沙丘](https://www.blog.minike.top/Article/details/8146073639.shtml)
-- 2026-06-29 22:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/061056199406.shtml)
+- 2026-06-29 23:01 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/508674753912.shtml)
+- 2026-06-29 22:53 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/7214385.shtml)
+- 2026-06-29 23:01 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/6982724675.shtml)
+- 2026-06-29 23:13 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/096255571.shtml)
+- 2026-06-29 23:12 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/80759575.shtml)
+- 2026-06-29 22:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/34027901618.shtml)
+- 2026-06-29 22:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/63211.shtml)
+- 2026-06-29 22:55 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/149576.shtml)
+- 2026-06-29 23:10 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/5559208.shtml)
+- 2026-06-29 22:53 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/0262615.shtml)
+- 2026-06-29 23:15 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/350383.shtml)
+- 2026-06-29 23:01 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/91021718044.shtml)
+- 2026-06-29 23:08 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/837775.shtml)
+- 2026-06-29 23:13 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/370662038269.shtml)
+- 2026-06-29 23:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/740851720882.shtml)

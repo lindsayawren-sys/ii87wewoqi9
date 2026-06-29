@@ -1,59 +1,58 @@
-# （聚焦海峡论坛）第二届海峡慈善论坛在福州开幕
+# 海文颖：呦吼~我得了不治之症 一场以病为师的“重生”之旅
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。 台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时
+专题：2026年CC讲坛 由北京君和创新公益基金会、中国科学院大学校友会联合主办，主题为“和而不同，思想无界”的CC讲坛第71期演讲2026年4月12日在中国科学院大学（北京玉泉路校区）礼堂举行。来自《接纳力三部曲》作者海文颖出席，并以《呦吼~我得了不治之症 一场以病为师的“重生”之旅》为题发表演讲。 演讲实录： 今天，我想和大家分享一段长达1500天的特殊旅程。这不是一次环球
 
 ## 正文
 
-中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。
+专题：2026年CC讲坛 由北京君和创新公益基金会、中国科学院大学校友会联合主办，主题为“和而不同，思想无界”的CC讲坛第71期演讲2026年4月12日在中国科学院大学（北京玉泉路校区）礼堂举行。
 
-来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。
+来自《接纳力三部曲》作者海文颖出席，并以《呦吼~我得了不治之症 一场以病为师的“重生”之旅》为题发表演讲。
 
-台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。
+演讲实录： 今天，我想和大家分享一段长达1500天的特殊旅程。
 
-他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时，大陆都会主动伸出援手。
+这不是一次环球旅行，而是一次向内的、深入生命与成长本质的探险。
 
-论坛上，7位来自海峡两岸及港澳地区的专家学者、慈善业界代表围绕“公益慈善与人心融合”等议题，就慈善事业创新、两岸公益协作、基层社会治理等内容发表主题演讲。
+我 2018 年 5 月9日开始眼睛视物出现重影，当时还以为自己是老花眼了，后来被我老公拎着去医院去看病。
 
-台胞杨文山回忆了其在2009年汶川大地震一周年之际赴汶川大地震灾区捐赠台商台企物资的经历。
+医生特别严肃的对我老公说：她这是重症肌无力，这个病现在还没有什么好的治疗方法，她现在是眼疾型，这个病症发展的特别快，最后就会呼吸肌无力，人的生命……当时我老公一脸凝重，我在旁边就扑哧一下乐出了声。
 
-他说，慈善是心与心、生命对生命的碰触，“我体会到公益带来的温暖，也真切感受到与大陆土地、同胞紧密相连的归属感”。
+我说：“哎，这个病还挺适合我得的”。
 
-福建省海峡两岸助残志愿者协会会长王永澄介绍，协会成立近一年来，聚焦两岸残疾人群体实际需求，在福建推动设立两岸残疾人养老示范点与盲人按摩医院，联动福建本地院校推进盲人特色科教班落地，推动两岸残疾人证件互通、职业技能联合培训等，在扶危济困中增进两岸同胞情谊，在守望相助中凝聚融合共识。
+当时我真的觉得有点小兴奋，那个医生特别诧异的看着我说：从来没有见过你这样的病人。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 22:51 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 23:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 22:52 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 22:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 22:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 22:43 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 22:57 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:09 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 22:48 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 22:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 22:50 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 22:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 23:02 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 23:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 23:02 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 23:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 23:11 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 22:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 23:11 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:11 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 23:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 22:54 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 23:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/67320373123.shtml)
-- 2026-06-29 22:43 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/472371.shtml)
-- 2026-06-29 22:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/18211.shtml)
-- 2026-06-29 22:48 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/1495676952.shtml)
-- 2026-06-29 23:01 - [青春环游记第三季](http://www.blog.minike.top/Article/details/212619.shtml)
-- 2026-06-29 22:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/857683.shtml)
-- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/611761673540.shtml)
-- 2026-06-29 22:48 - [存储三巨头被告了](https://www.share.minike.top/Article/details/028748730407.shtml)
-- 2026-06-29 23:10 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/359280864197.shtml)
-- 2026-06-29 22:48 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/446464.shtml)
-- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/54123642676.shtml)
-- 2026-06-29 23:09 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/216667252.shtml)
-- 2026-06-29 22:42 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/4327078.shtml)
-- 2026-06-29 23:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/78982.shtml)
-- 2026-06-29 22:46 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/582647.shtml)
+- 2026-06-29 22:58 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/708222.shtml)
+- 2026-06-29 22:49 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/6481130569.shtml)
+- 2026-06-29 22:50 - [美股](http://www.blog.kurohicncr.top/Article/details/7002366.shtml)
+- 2026-06-29 23:13 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/788141118730.shtml)
+- 2026-06-29 22:58 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/765526860.shtml)
+- 2026-06-29 23:08 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/63386848.shtml)
+- 2026-06-29 22:59 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/45848490.shtml)
+- 2026-06-29 23:08 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/298387.shtml)
+- 2026-06-29 22:59 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/6106987.shtml)
+- 2026-06-29 23:07 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/563563658172.shtml)
+- 2026-06-29 23:01 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/8626942776.shtml)
+- 2026-06-29 23:10 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/813964798.shtml)
+- 2026-06-29 23:17 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/16817.shtml)
+- 2026-06-29 23:02 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/743902127.shtml)
+- 2026-06-29 23:17 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/490054529.shtml)

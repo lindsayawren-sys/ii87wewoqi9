@@ -1,58 +1,57 @@
-# 雨果奖得主承认用AI写作 文学创作的边界该由谁守护
+# 中国—东盟（南宁）动漫游戏产业园揭牌
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-雨果奖得主郝景芳承认用AI写作 文学创作的真实边界该由谁守护 近日，一个“郝景芳承认用AI写作”的词条引发热议。郝景芳是著名科幻作家，代表作《北京折叠》曾获雨果奖。6月初，郝景芳接受了《深圳侨报》的专访，她分享了自己对AI的思考，其中提到了AI辅助写作这一话题。 郝景芳说，自己今年新出的小说《银河学院》里，AI写作比重已经占到一半了，出版社编辑和读者也都夸她写得好，“其实读者也
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。 中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合
 
 ## 正文
 
-雨果奖得主郝景芳承认用AI写作 文学创作的真实边界该由谁守护 近日，一个“郝景芳承认用AI写作”的词条引发热议。
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。
 
-郝景芳是著名科幻作家，代表作《北京折叠》曾获雨果奖。
+该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。
 
-6月初，郝景芳接受了《深圳侨报》的专访，她分享了自己对AI的思考，其中提到了AI辅助写作这一话题。
+中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合示范园引入优质IP，搭建面向东盟的数字内容加工、译制、发行全链条，推动数字文化产品规模化“出海”，构建双向文化协作通道，实现产业集聚与文化传播双向赋能。
 
-郝景芳说，自己今年新出的小说《银河学院》里，AI写作比重已经占到一半了，出版社编辑和读者也都夸她写得好，“其实读者也看不出来哪些部分是AI写的。
+据悉，中国—东盟(南宁)动漫游戏产业园规划有中国—东盟国际动漫制作中心、中国—东盟国际动漫游戏交易中心、中国—东盟国际研学基地、AI动漫青年创业中心(校企合作实训基地)等十大核心功能板块。
 
-”这实际上不是郝景芳第一次讲述这件事，6月11日郝景芳在《三联生活周刊》的访谈中提到：“最近几年，我创作了一套少儿科幻小说《银河学院》系列，共5本，其中AI起到的作用越来越大。
+中国—东盟(南宁)动漫游戏产业园负责人周卫炜表示，南宁作为中国面向东盟开放合作的前沿枢纽城市，不仅拥有独特的区位优势，更兼具深厚的民族文化底蕴。
 
-写最后两本时，已经在自己手搓的AI写作平台上辅助创作了。
+当日还举行了中国—东盟(南宁)动漫游戏产业园入园企业及文旅合作签约仪式和AIGC(人工智能生成内容)人才培养基地授牌仪式。
 
-”郝景芳对AI技术的热情是毋庸置疑的，她授权了AI影视创作，用AI制作线上教育产品，将自己创立的教育机构转型成一人公司，AI成为她公司的核心员工，她在文学创作中使用AI辅助似乎并不那么令人感到意外。
-
-郝景芳用AI辅助创作的书读者是不是真的能接受，市场会给出真实的反应。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 23:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 22:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 23:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 23:06 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 22:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 23:00 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 23:01 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 23:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 22:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 22:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 22:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 22:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 22:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 23:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 22:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 23:07 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:01 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 23:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 22:59 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 23:02 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 22:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 22:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 22:59 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 22:55 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/728102386667.shtml)
-- 2026-06-29 22:56 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/1374229.shtml)
-- 2026-06-29 23:02 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/85053630730.shtml)
-- 2026-06-29 23:05 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/210546011734.shtml)
-- 2026-06-29 23:00 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/4323240232.shtml)
-- 2026-06-29 22:45 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/2655851.shtml)
-- 2026-06-29 22:44 - [沉睡花园](http://www.share.minike.top/Article/details/920339218.shtml)
-- 2026-06-29 23:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/070955799.shtml)
-- 2026-06-29 22:47 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/01618.shtml)
-- 2026-06-29 22:55 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/750936000.shtml)
-- 2026-06-29 23:06 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/122339551873.shtml)
-- 2026-06-29 23:10 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/78576504.shtml)
-- 2026-06-29 22:44 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/82118120286.shtml)
-- 2026-06-29 23:03 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/523653.shtml)
-- 2026-06-29 22:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/690268.shtml)
+- 2026-06-29 23:08 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/29640.shtml)
+- 2026-06-29 23:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/08128208.shtml)
+- 2026-06-29 22:56 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/817942832.shtml)
+- 2026-06-29 23:03 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/3788593167.shtml)
+- 2026-06-29 22:58 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/7409531.shtml)
+- 2026-06-29 23:06 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/617951778.shtml)
+- 2026-06-29 22:49 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/664184.shtml)
+- 2026-06-29 23:16 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/70106406338.shtml)
+- 2026-06-29 22:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/10467.shtml)
+- 2026-06-29 23:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/984236.shtml)
+- 2026-06-29 22:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/75996898684.shtml)
+- 2026-06-29 22:51 - [女心理师](https://www.blog.minike.top/Article/details/08129.shtml)
+- 2026-06-29 23:15 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/48463.shtml)
+- 2026-06-29 22:57 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/262318625442.shtml)
+- 2026-06-29 23:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/33087.shtml)

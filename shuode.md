@@ -1,56 +1,54 @@
-# 3800公里最远西迁 39头江苏大丰麋鹿落户天山
+# 佳鑫国际资源午前涨超11% 机构指公司成本结构有望进一步改善
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。 这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。 3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今
+佳鑫国际资源（03858）盘中拉升超12%，截至发稿，股价上涨11.35%，现报124.60港元，成交额3.48亿港元。 佳鑫国际资源2025年实现收入10.63亿港元；利润3.05亿港元，同比扭亏为盈。国信证券指出，公司收入全部来源于白钨精矿。自2025年4月启动商业生产及销售后，全年生产白钨精矿5008吨，销售4879吨。随着产能爬坡和运营优化，公司成本结构有望进一步改善。
 
 ## 正文
 
-6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。
+佳鑫国际资源（03858）盘中拉升超12%，截至发稿，股价上涨11.35%，现报124.60港元，成交额3.48亿港元。
 
-这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。
+佳鑫国际资源2025年实现收入10.63亿港元；利润3.05亿港元，同比扭亏为盈。
 
-3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今为止距离最远的一次麋鹿跨区域迁地保护行动，创下我国麋鹿迁地保护最远纪录。
+国信证券指出，公司收入全部来源于白钨精矿。
 
-6月11日清晨7点，江苏大丰麋鹿国家级自然保护区工作人员为鹿群逐一完成疫苗接种，并挑选一头麋鹿佩戴GPS项圈，全时追踪其行进状态。
+自2025年4月启动商业生产及销售后，全年生产白钨精矿5008吨，销售4879吨。
 
-为最大程度减少惊扰，保护区专门设计“L”字形转运通道，配合挡板实现缓压引导，让麋鹿平稳步入运输车厢。
+随着产能爬坡和运营优化，公司成本结构有望进一步改善。
 
-“此次远行的39头麋鹿平均年龄为5岁，其中雄性13头、雌性26头，全部通过严格体检，身体状态良好。
+预计2026年产量能增长至9000吨左右，2027年有望随着二期抛废项目的投运，设计年处理能力达到495万吨/年，完全达产后年产量稳定在1.3万吨以上。
 
-”保护区工作人员介绍，考虑到麋鹿生性敏感胆小，极易产生应激反应，车厢内铺设软稻草、备足草料与饮用水，安排兽医全程随行。
-
-长途运输全程，麋鹿得到专业管护。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 22:52 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 23:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 22:55 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 22:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 22:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 23:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 23:04 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 23:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 23:08 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 22:55 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 22:54 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 22:53 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 23:05 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 23:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 22:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/969093843.shtml)
-- 2026-06-29 22:44 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/61724101962.shtml)
-- 2026-06-29 23:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/30128762.shtml)
-- 2026-06-29 22:55 - [炽夏](http://www.share.kurohicncr.top/Article/details/454125.shtml)
-- 2026-06-29 22:48 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/162667.shtml)
-- 2026-06-29 23:07 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/6150630677.shtml)
-- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/8732714536.shtml)
-- 2026-06-29 22:59 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/2285732.shtml)
-- 2026-06-29 22:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/6371723.shtml)
-- 2026-06-29 22:57 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/7333199664.shtml)
-- 2026-06-29 22:59 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/52172185707.shtml)
-- 2026-06-29 22:56 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/12007072200.shtml)
-- 2026-06-29 22:59 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/515137.shtml)
-- 2026-06-29 23:05 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/68303252.shtml)
-- 2026-06-29 23:09 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/68922286.shtml)
+- 2026-06-29 22:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/369158605.shtml)
+- 2026-06-29 22:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/43386339.shtml)
+- 2026-06-29 22:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/9589027.shtml)
+- 2026-06-29 22:57 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/7189517756.shtml)
+- 2026-06-29 22:53 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/991311935588.shtml)
+- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/52659657.shtml)
+- 2026-06-29 23:14 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/98933191007.shtml)
+- 2026-06-29 22:52 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/2838755548.shtml)
+- 2026-06-29 22:59 - [蔚来车主罚站](https://www.share.minike.top/Article/details/224734.shtml)
+- 2026-06-29 22:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/2965898.shtml)
+- 2026-06-29 23:12 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/676159052825.shtml)
+- 2026-06-29 22:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/036721250.shtml)
+- 2026-06-29 22:48 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/174848.shtml)
+- 2026-06-29 22:48 - [扫黑风暴](https://www.blog.minike.top/Article/details/96247852.shtml)
+- 2026-06-29 23:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/72142608.shtml)

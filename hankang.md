@@ -1,56 +1,61 @@
-# 公安部网安局公布10起网络谣言违法犯罪典型案例
+# 信创巨头遇冷！诚迈科技连续两年亏损，8亿短期借款压顶，未来何去何从？
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。 这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。 在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。经查，网传信息均为虚构，属地公安机关已对
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：眼镜财经 从主业毛利率的持续下滑，到参股公司统信软件的财务不确定性，再到股东高管的减持行为，诚迈科技正面临上市以来最为严峻的经营考验。 作为信创领域的代表性企业，诚迈科技（300598.SZ）曾受到资本市场的广泛关注。然而，随着行业热度回落，这家操作系统领域的企业正面临日益突出的经营挑战。2025年业
 
 ## 正文
 
-新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。
+来源：眼镜财经 从主业毛利率的持续下滑，到参股公司统信软件的财务不确定性，再到股东高管的减持行为，诚迈科技正面临上市以来最为严峻的经营考验。
 
-在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。
+作为信创领域的代表性企业，诚迈科技（300598.SZ）曾受到资本市场的广泛关注。
 
-经查，网传信息均为虚构，属地公安机关已对张某作出行政处罚。
+然而，随着行业热度回落，这家操作系统领域的企业正面临日益突出的经营挑战。
 
-在付某、邓某某、黄某某等6人虚构事实案中，6人为安徽宿州当地驾校培训行业从业人员，为博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发“安徽宿州2026年驾考新增项目”等谣言扩散，干扰驾校正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
+2025年业绩预告显示，公司预计归母净利润亏损6850万元至3450万元，自身业务已连续两年处于亏损状态。
 
-对这类散布网络谣言违法犯罪行为，全国公安网安部门将持续加大打击整治力度，全力维护清朗网络空间与社会秩序。
+不仅于此，《眼镜财经》梳理发现，股东集中减持、现金流持续承压、新业务投入产出比偏低等一系列问题，使这家曾经的行业热门公司受到市场广泛关注。
 
-网警提示，广大网民要恪守网络言行底线，坚持不信谣、不传谣、不造谣，切勿为博取流量虚构事实，共同维护清朗有序的网络环境。
+在信创产业从概念推广走向业绩验证的当下，诚迈科技尚未找到明确的可持续盈利路径。
+
+毛利率大幅下滑，增收不增利现象凸显 尽管诚迈科技在营收规模上保持增长态势，但其盈利能力出现明显下滑，反映出主营业务存在一定的经营压力。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 23:01 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:47 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 23:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 22:57 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 23:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 22:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 23:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 23:04 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 22:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:04 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:14 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 22:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 22:50 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 23:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 23:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 23:09 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 22:52 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 22:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 22:48 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 22:54 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 22:52 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:16 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:06 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 22:58 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/09204.shtml)
-- 2026-06-29 22:49 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/944007337141.shtml)
-- 2026-06-29 23:10 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/239331274.shtml)
-- 2026-06-29 22:50 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/437434173251.shtml)
-- 2026-06-29 23:06 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/806198973.shtml)
-- 2026-06-29 23:09 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/5672385.shtml)
-- 2026-06-29 22:51 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/6071055.shtml)
-- 2026-06-29 22:57 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/60869534.shtml)
-- 2026-06-29 22:57 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/672530034.shtml)
-- 2026-06-29 22:53 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/62195683.shtml)
-- 2026-06-29 22:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/51495.shtml)
-- 2026-06-29 22:43 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/352471.shtml)
-- 2026-06-29 23:01 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/98542143940.shtml)
-- 2026-06-29 22:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/344002408841.shtml)
-- 2026-06-29 22:52 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/38212474.shtml)
+- 2026-06-29 23:13 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/79742045201.shtml)
+- 2026-06-29 23:08 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/035198.shtml)
+- 2026-06-29 22:52 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/066938888.shtml)
+- 2026-06-29 22:54 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/611977360.shtml)
+- 2026-06-29 23:01 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/017366551712.shtml)
+- 2026-06-29 23:06 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/87121.shtml)
+- 2026-06-29 23:01 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/728947716.shtml)
+- 2026-06-29 23:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/010298801.shtml)
+- 2026-06-29 23:01 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/695337.shtml)
+- 2026-06-29 23:00 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/6961787.shtml)
+- 2026-06-29 23:02 - [啊啊啊](https://www.blog.minike.top/Article/details/4019021.shtml)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/49312224.shtml)
+- 2026-06-29 23:16 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/352697909.shtml)
+- 2026-06-29 23:07 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/84258947.shtml)
+- 2026-06-29 22:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/681097166875.shtml)

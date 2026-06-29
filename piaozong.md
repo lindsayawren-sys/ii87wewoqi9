@@ -1,58 +1,59 @@
-# 东西问丨倪玉平：为何说平陆运河连通江海融通东盟？
+# 10小时、2400公里！苏林再坐中国高铁，背后深意耐人寻味
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社南宁6月15日电 题：为何说平陆运河连通江海融通东盟？ ——专访清华大学人文学院副院长、历史系教授倪玉平 中新社记者 杨陈 两千多年前，中国秦代灵渠劈山凿岭，打通秦王朝通往岭南的水陆要道；两千多年后，同在广西大地，平陆运河全线建设进入倒计时，将于今年9月正式通航。 一古一今两条运河如何跨越时空遥相呼应？作为新中国成立以来建设的第一条通江达海的运河，平陆运河何以连通江海、融
+越共中央总书记、国家主席苏林又一次坐上了中国高铁。 继14日乘“复兴号”参访雄安新区后，16日上午，苏林再度选择乘坐高铁从北京前往广西南宁，继续其为期四天的访华之行。这趟高铁途经中国中西部多个省份，里程超2400公里，车程约10小时。 据了解，苏林此次访华期间乘坐中国高铁总时长预计近12小时。外界认为，苏林在紧凑的国事访问行程中抽出十多个小时乘坐高铁，背后有诸多深意。 这是对中
 
 ## 正文
 
-中新社南宁6月15日电 题：为何说平陆运河连通江海融通东盟？
+越共中央总书记、国家主席苏林又一次坐上了中国高铁。
 
-——专访清华大学人文学院副院长、历史系教授倪玉平 中新社记者 杨陈 两千多年前，中国秦代灵渠劈山凿岭，打通秦王朝通往岭南的水陆要道；两千多年后，同在广西大地，平陆运河全线建设进入倒计时，将于今年9月正式通航。
+继14日乘“复兴号”参访雄安新区后，16日上午，苏林再度选择乘坐高铁从北京前往广西南宁，继续其为期四天的访华之行。
 
-一古一今两条运河如何跨越时空遥相呼应？
+这趟高铁途经中国中西部多个省份，里程超2400公里，车程约10小时。
 
-作为新中国成立以来建设的第一条通江达海的运河，平陆运河何以连通江海、融通东盟？
+据了解，苏林此次访华期间乘坐中国高铁总时长预计近12小时。
 
-清华大学人文学院副院长、历史系教授倪玉平近日接受中新社“东西问”专访，从四大维度解读平陆运河的时代价值。
+外界认为，苏林在紧凑的国事访问行程中抽出十多个小时乘坐高铁，背后有诸多深意。
 
-现将访谈实录摘要如下： 中新社记者：从世界级古代水利工程灵渠，到新时代平陆运河建设落地，二者怎样接续千年运河历史脉络，实现古今水利文明的传承与创新？
+这是对中国高铁建设发展成果的直观体验。
 
-倪玉平：灵渠是中国古代标志性水利杰作之一。
+作为自主创新的成功范例，高铁是中国一张亮丽的名片。
 
-当年秦始皇下令开凿灵渠，打通秦王朝与岭南水陆通道，助力中央政权整合岭南疆域，成为稳固古代大一统格局的一个关键工程。
+中国高铁运营里程已突破5万公里，居全球首位，也是世界上高铁运营时速最高的国家。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 23:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 22:58 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 23:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 22:58 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 23:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 22:56 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 22:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 22:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 22:44 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 23:05 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 23:10 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 23:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 23:08 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 22:54 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 22:56 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 23:00 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 23:14 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 22:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 22:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 22:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 22:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 22:48 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 23:12 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [爱很美味](https://www.share.kurohicncr.top/Article/details/15352.shtml)
-- 2026-06-29 22:47 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/060452124328.shtml)
-- 2026-06-29 22:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/277948071.shtml)
-- 2026-06-29 23:07 - [青春环游记第三季](https://www.share.minike.top/Article/details/305377.shtml)
-- 2026-06-29 23:08 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/161978899.shtml)
-- 2026-06-29 23:05 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/5974801659.shtml)
-- 2026-06-29 22:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/67563553.shtml)
-- 2026-06-29 23:03 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/61684.shtml)
-- 2026-06-29 23:07 - [青春环游记第三季](https://www.share.minike.top/Article/details/4106040.shtml)
-- 2026-06-29 22:54 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/43085664.shtml)
-- 2026-06-29 22:52 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/65655.shtml)
-- 2026-06-29 23:01 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/33589.shtml)
-- 2026-06-29 22:47 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/456728745.shtml)
-- 2026-06-29 23:08 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/01769.shtml)
-- 2026-06-29 22:51 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/16338756.shtml)
+- 2026-06-29 22:52 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/720953301.shtml)
+- 2026-06-29 23:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/926833402.shtml)
+- 2026-06-29 23:17 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/716408.shtml)
+- 2026-06-29 22:56 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/52422.shtml)
+- 2026-06-29 22:55 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/744503.shtml)
+- 2026-06-29 23:07 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/75802926696.shtml)
+- 2026-06-29 23:13 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/96261874.shtml)
+- 2026-06-29 22:58 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/716532247.shtml)
+- 2026-06-29 22:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/6586295114.shtml)
+- 2026-06-29 22:52 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/66021451.shtml)
+- 2026-06-29 22:59 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/7885734.shtml)
+- 2026-06-29 22:49 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/57802.shtml)
+- 2026-06-29 22:54 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/797874981131.shtml)
+- 2026-06-29 23:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/79707.shtml)
+- 2026-06-29 23:15 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/21991173960.shtml)

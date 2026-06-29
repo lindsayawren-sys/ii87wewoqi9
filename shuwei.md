@@ -1,61 +1,55 @@
-# （乡村行·看振兴）扬州广陵汤汪：“垄上拾光”点亮都市田园梦 荒地蝶变网红打卡地
+# 海底捞早盘涨近6% 杨利娟重回海底捞执掌“红石榴”计划
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网扬州6月15日电 题：扬州广陵汤汪：“垄上拾光”点亮都市田园梦 荒地蝶变网红打卡地 作者 徐珊珊 朱轩卿 清晨薄雾未散，扬州市广陵区汤汪街道“垄上拾光”共享农场已热闹起来：孩子们在家长引导下拔出油菜，沾满泥土的小脸笑容灿烂；番茄苗旁，亲子家庭比着谁的小苗长得更高；田埂边，几位老人围坐交流种菜心得。半年前这里还是杂草丛生、杂物堆砌的闲置荒地，如今已变身扬州城区知名的“都市田
+海底捞（06862）早盘涨近6%，截至发稿，股价上5.81%，现报15.31港元，成交额2.31亿港元。 4月15日，特海国际发布公告称，杨利娟已辞任公司执行董事兼CEO，并将加入海底捞，统筹推动“红石榴计划”实施。据悉，多品牌发展已成为海底捞的长期发展战略之一，2024年8月海底捞宣布推出“红石榴计划”，鼓励孵化和发展更多的餐饮新品牌，推动餐饮服务创新。 海底捞2025年年报
 
 ## 正文
 
-中新网扬州6月15日电 题：扬州广陵汤汪：“垄上拾光”点亮都市田园梦 荒地蝶变网红打卡地 作者 徐珊珊 朱轩卿 清晨薄雾未散，扬州市广陵区汤汪街道“垄上拾光”共享农场已热闹起来：孩子们在家长引导下拔出油菜，沾满泥土的小脸笑容灿烂；番茄苗旁，亲子家庭比着谁的小苗长得更高；田埂边，几位老人围坐交流种菜心得。
+海底捞（06862）早盘涨近6%，截至发稿，股价上5.81%，现报15.31港元，成交额2.31亿港元。
 
-半年前这里还是杂草丛生、杂物堆砌的闲置荒地，如今已变身扬州城区知名的“都市田园会客厅”。
+4月15日，特海国际发布公告称，杨利娟已辞任公司执行董事兼CEO，并将加入海底捞，统筹推动“红石榴计划”实施。
 
-这场蝶变，正是汤汪街道人居环境整治的生动缩影。
+据悉，多品牌发展已成为海底捞的长期发展战略之一，2024年8月海底捞宣布推出“红石榴计划”，鼓励孵化和发展更多的餐饮新品牌，推动餐饮服务创新。
 
-“垄上拾光”位于G40沪陕高速以南、安贝斯厂区以北，占地约56.76亩，总投资130万元，2025年9月建成开放。
+海底捞2025年年报中指出，去年海底捞集团正式进入“多品牌并行”的集团化运营新阶段，“红石榴计划”已由内部孵化转向市场扩张。
 
-项目筹备阶段，街道将人居环境整治贯穿全程：平整复垦荒地，配套节水喷灌、生态围栏、分类垃圾回收点，推行有机废弃物堆肥循环利用，并建成田间步道、农具共享点、洗手池、生态厕所等，彻底解决了脏乱差问题。
+截至去年底，海底捞集团已运营20个涵盖海鲜大排档、寿司、西式轻食、小火锅及中式快餐等细分领域的子品牌，共计207家餐厅。
 
-如今农场划分团建活动区(4亩)和家庭种植区(39亩)。
+业绩方面，归因于“红石榴计划”的贡献，去年其他餐厅经营收入达15.21亿元，同比增超2倍。
 
-390块小菜田中已有350块被市民认种，采用预约制运营，周末农耕体验活动一位难求。
-
-汤汪街道相关负责人介绍，农场推出自种、半托管、全托管三种模式，85%的市民选择自种。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 22:52 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 23:03 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 23:04 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 23:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 22:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 22:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 23:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 22:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 23:02 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 23:05 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 22:45 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 23:10 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 22:45 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 22:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 23:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 22:55 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 23:15 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 23:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 23:13 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 22:59 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 22:51 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 22:50 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 23:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 23:16 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/239335986.shtml)
-- 2026-06-29 22:57 - [扫黑风暴](https://www.blog.minike.top/Article/details/83852.shtml)
-- 2026-06-29 22:54 - [送你一朵小红花](https://www.share.minike.top/Article/details/3684875027.shtml)
-- 2026-06-29 23:09 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/099521761811.shtml)
-- 2026-06-29 22:45 - [斛珠夫人](https://www.blog.minike.top/Article/details/483728964688.shtml)
-- 2026-06-29 22:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0853566.shtml)
-- 2026-06-29 23:09 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/38929.shtml)
-- 2026-06-29 22:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/072448.shtml)
-- 2026-06-29 23:10 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/280177907.shtml)
-- 2026-06-29 22:53 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/5970172.shtml)
-- 2026-06-29 23:07 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/4971542133.shtml)
-- 2026-06-29 23:11 - [我和我的家乡](https://www.blog.minike.top/Article/details/647933.shtml)
-- 2026-06-29 23:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/27113932302.shtml)
-- 2026-06-29 22:43 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/0222853283.shtml)
-- 2026-06-29 23:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/444732555.shtml)
+- 2026-06-29 23:11 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/65320.shtml)
+- 2026-06-29 23:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/4300686792.shtml)
+- 2026-06-29 22:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/901980.shtml)
+- 2026-06-29 23:05 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/85868.shtml)
+- 2026-06-29 23:02 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/218265193.shtml)
+- 2026-06-29 22:56 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/218199529.shtml)
+- 2026-06-29 23:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/884165701.shtml)
+- 2026-06-29 22:51 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/843371999735.shtml)
+- 2026-06-29 23:03 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/064639.shtml)
+- 2026-06-29 23:17 - [极限挑战第一季](http://www.share.minike.top/Article/details/992504086524.shtml)
+- 2026-06-29 23:06 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/42518.shtml)
+- 2026-06-29 23:02 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/8759787162.shtml)
+- 2026-06-29 22:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/63010.shtml)
+- 2026-06-29 23:07 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/88914093.shtml)
+- 2026-06-29 23:09 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/90047.shtml)

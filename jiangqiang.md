@@ -1,46 +1,46 @@
-# 特朗普：“非常接近”达成美伊协议 将给黎巴嫩带来和平
+# 加拿大暂停征收联邦燃油税至9月初
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿6月14日电 美国总统特朗普14日称，“非常接近”达成美伊协议，为包括黎巴嫩在内的整个地区带来和平。（完）责任编辑：宋雅芳
+加拿大总理马克·卡尼将加拿大的燃油消费税暂停至9月初，以抵消战时价格飙升的影响，这一举措对包括森科能源（SU）在内的交通运输和能源利益相关方产生影响。责任编辑：张俊 SF065
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+加拿大总理马克·卡尼将加拿大的燃油消费税暂停至9月初，以抵消战时价格飙升的影响，这一举措对包括森科能源（SU）在内的交通运输和能源利益相关方产生影响。
 
-新华社华盛顿6月14日电 美国总统特朗普14日称，“非常接近”达成美伊协议，为包括黎巴嫩在内的整个地区带来和平。
-
-（完）责任编辑：宋雅芳
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 22:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 23:06 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 23:09 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 22:51 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 22:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 22:52 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 23:05 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 22:46 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 23:15 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 22:50 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 22:53 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 23:00 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 23:00 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 22:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 22:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 23:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 23:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 22:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 23:04 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/20061.shtml)
-- 2026-06-29 23:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/0053078.shtml)
-- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/00737.shtml)
-- 2026-06-29 22:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/389981060.shtml)
-- 2026-06-29 23:05 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/6622149673.shtml)
-- 2026-06-29 22:56 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/986500428.shtml)
-- 2026-06-29 22:42 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/6694944465.shtml)
-- 2026-06-29 23:11 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/988723.shtml)
-- 2026-06-29 23:01 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/95632750996.shtml)
-- 2026-06-29 23:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/23714261757.shtml)
-- 2026-06-29 23:01 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/687571689278.shtml)
-- 2026-06-29 22:57 - [世界杯](https://www.share.kurohicncr.top/Article/details/5308311.shtml)
-- 2026-06-29 23:03 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/9559557473.shtml)
-- 2026-06-29 22:48 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/38441895413.shtml)
-- 2026-06-29 23:10 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/27191586.shtml)
+- 2026-06-29 23:17 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/32936914519.shtml)
+- 2026-06-29 23:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/4144786904.shtml)
+- 2026-06-29 23:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/2040813.shtml)
+- 2026-06-29 23:13 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/25798358478.shtml)
+- 2026-06-29 23:10 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/704461949595.shtml)
+- 2026-06-29 23:16 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/6077697.shtml)
+- 2026-06-29 22:54 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/094782238.shtml)
+- 2026-06-29 23:06 - [美股](https://www.blog.kurohicncr.top/Article/details/610165573.shtml)
+- 2026-06-29 23:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/29428795.shtml)
+- 2026-06-29 23:06 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/094581507.shtml)
+- 2026-06-29 22:48 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5020854963.shtml)
+- 2026-06-29 22:58 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/296489575.shtml)
+- 2026-06-29 22:55 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/62032541.shtml)
+- 2026-06-29 22:59 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/857644808216.shtml)
+- 2026-06-29 23:04 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/0839594.shtml)

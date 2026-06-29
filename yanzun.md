@@ -1,56 +1,59 @@
-# 美银：首予智谱和MINIMAX-W“买入”评级 全球AI市场正在形成双速格局
+# 特朗普过去24小时都忙了什么？（2026-04-15）
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-美国银行发布研报称，首次给予智谱（02513）和MINIMAX-W（00100）“买入”的投资评级，目标价分别为1250港元及500港元。美银表示，全球人工智能（AI）市场正在形成双速格局：美国企业可能在前沿能力方面保持领先，而中国模型则凭借其低成本和高性能而获得市场认可。尽管运算能力受限，中国企业仍在优化支出策略——随着前沿模型价格的上涨，这种性价比优势在全球日益重要，尤其是
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 美伊会谈或在未来两天内举行——美国总统特朗普14日告诉《纽约邮报》，与伊朗会谈“可能未来两天内”在巴基斯坦举行。 2． 称伊朗战争“接近结束”——特朗普在接受福克斯新闻采访时称伊朗战事已“接近结束”，但他同时也表示美国的工作尚未完成。 3． 很可能在月底前与伊朗达成协议——特朗普表示，
 
 ## 正文
 
-美国银行发布研报称，首次给予智谱（02513）和MINIMAX-W（00100）“买入”的投资评级，目标价分别为1250港元及500港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美银表示，全球人工智能（AI）市场正在形成双速格局：美国企业可能在前沿能力方面保持领先，而中国模型则凭借其低成本和高性能而获得市场认可。
+来源：金十数据 1． 美伊会谈或在未来两天内举行——美国总统特朗普14日告诉《纽约邮报》，与伊朗会谈“可能未来两天内”在巴基斯坦举行。
 
-尽管运算能力受限，中国企业仍在优化支出策略——随着前沿模型价格的上涨，这种性价比优势在全球日益重要，尤其是在大批量、非关键应用场景中。
+2． 称伊朗战争“接近结束”——特朗普在接受福克斯新闻采访时称伊朗战事已“接近结束”，但他同时也表示美国的工作尚未完成。
 
-美银指，凭借更强劲的资产负债表和整合的云平台，现有企业能够更好地承受模型层利润率较低的情况，从而推动运算资源的交叉销售。
+3． 很可能在月底前与伊朗达成协议——特朗普表示，在本月晚些时候（英国）国王访问美国之前，“很有可能”能够与伊朗达成协议。
 
-同时，DeepSeek 不断提升的能力和有限的商业化策略正在将行业标杆重新定义为“高性能、低成本”，从而压缩了独立模型提供者的利润空间。
+4． 不考虑延长伊朗停火——特朗普14日表示没有考虑延长同伊朗的停火，因为没有必要。
 
-AI 的商业化仍然以企业为主导，云和模型即服务（MaaS）是最清晰的途径。
+当被问及战争会以协议还是“摧毁伊朗能力”结束时，他说两种都有可能，但更倾向于达成协议。
 
-在消费级AI领域，并非所有用户都能平等地盈利。
+5． 拟向中东增兵施压伊朗——美国官员透露，五角大楼近日将向中东增派数千兵力，一方面逼迫伊朗谈判结束冲突，另一方面为停火破裂后的打击或地面行动做准备。
 
-价值正向高意图的“产消者”转移，而通过订阅实现的大众普及型商业化仍处于起步阶段。
+6． 本周将终止伊朗海上石油制裁豁免——两名美国官员周二表示，特朗普政府将允许本周到期的伊朗石油30天制裁豁免不再延期。
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 22:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 23:11 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 23:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 22:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 22:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 23:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 22:50 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 22:50 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 23:05 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 22:51 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 23:09 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 22:50 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 23:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 23:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 22:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 23:00 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 22:54 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 22:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 23:09 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 23:02 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 22:49 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:44 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3008913416.shtml)
-- 2026-06-29 23:02 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/42061.shtml)
-- 2026-06-29 22:47 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/922429648667.shtml)
-- 2026-06-29 23:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/748567113.shtml)
-- 2026-06-29 23:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/09616.shtml)
-- 2026-06-29 22:44 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/3782894.shtml)
-- 2026-06-29 22:45 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/1639941.shtml)
-- 2026-06-29 22:56 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/33945551288.shtml)
-- 2026-06-29 23:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/032358.shtml)
-- 2026-06-29 22:50 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/460912.shtml)
-- 2026-06-29 23:04 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/25059378705.shtml)
-- 2026-06-29 23:10 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/34055277283.shtml)
-- 2026-06-29 23:01 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/50137969259.shtml)
-- 2026-06-29 22:58 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/05046.shtml)
-- 2026-06-29 22:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/7162705630.shtml)
+- 2026-06-29 22:58 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/24399.shtml)
+- 2026-06-29 22:58 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/420488906795.shtml)
+- 2026-06-29 23:01 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/55899369701.shtml)
+- 2026-06-29 23:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/26921328.shtml)
+- 2026-06-29 23:02 - [小娘惹](http://www.blog.minike.top/Article/details/6032436785.shtml)
+- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/481437773499.shtml)
+- 2026-06-29 23:05 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/899256.shtml)
+- 2026-06-29 22:49 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/38953480.shtml)
+- 2026-06-29 23:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/2112417.shtml)
+- 2026-06-29 23:02 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/8232349103.shtml)
+- 2026-06-29 22:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/95532545100.shtml)
+- 2026-06-29 23:05 - [周生如故](http://www.share.kurohicncr.top/Article/details/124114761.shtml)
+- 2026-06-29 22:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/120969.shtml)
+- 2026-06-29 22:55 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/092338856.shtml)
+- 2026-06-29 22:59 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8767459.shtml)

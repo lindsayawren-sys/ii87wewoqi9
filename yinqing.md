@@ -1,56 +1,52 @@
-# 两年亏1.2亿，泡泡玛特手游《梦想家园》将停运
+# 2026上海市民艺术夜校春季班开班 外籍人士定制课搭起文化交融桥
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！图片来源：《梦想家园》官网 界面新闻记者 | 宋佳楠 潮玩巨头的游戏试水，终究没能撑过两年。 近日，泡泡玛特旗下自研手游《梦想家园》官方账号发布停运公告，宣布因“运营规划调整”，游戏将于2026年8月12日10：00正式终止运营，同时将关闭游戏官网及相关社区。从6月12日起，游戏已关闭全平台充值、新用户注册
+发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。 据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。
 
-图片来源：《梦想家园》官网 界面新闻记者 | 宋佳楠 潮玩巨头的游戏试水，终究没能撑过两年。
+首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。
 
-近日，泡泡玛特旗下自研手游《梦想家园》官方账号发布停运公告，宣布因“运营规划调整”，游戏将于2026年8月12日10：00正式终止运营，同时将关闭游戏官网及相关社区。
+据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮审美相结合。
 
-从6月12日起，游戏已关闭全平台充值、新用户注册，并且全平台下载入口陆续关闭。
-
-图片来源：《梦想家园》App 《梦想家园》方面表示，为回馈玩家支持，停运前官方将在游戏内发放福利，并开启全限定角色与家具的占星池，让玩家能收集所有未拥有的限定内容。
-
-6月15日，泡泡玛特客服也向界面新闻确认了上述游戏将停运的消息。
-
-对于停运的原因，客服人员表示只是接到相关通知，具体信息以官网消息为准。
-
-界面新闻注意到，目前苹果应用商店暂时仍可正常下载《梦想家园》，但下载后游戏画面显示已暂停新账号注册。
+记者 徐银 康玉湛 上海报道 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 22:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:50 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 23:09 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 22:42 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 22:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 22:49 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 22:48 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 22:46 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 22:59 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 22:54 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 23:11 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 23:12 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 23:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 23:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 23:08 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:05 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 22:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 23:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 23:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 23:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 22:57 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/13675929989.shtml)
-- 2026-06-29 23:02 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/17641714.shtml)
-- 2026-06-29 22:55 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/7276311609.shtml)
-- 2026-06-29 22:56 - [速度与激情9](http://www.blog.minike.top/Article/details/16972576261.shtml)
-- 2026-06-29 23:05 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/08353580108.shtml)
-- 2026-06-29 23:08 - [请回答王牌2019](https://www.share.minike.top/Article/details/561268230899.shtml)
-- 2026-06-29 22:46 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/050483823692.shtml)
-- 2026-06-29 22:51 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/248424.shtml)
-- 2026-06-29 23:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/589213687603.shtml)
-- 2026-06-29 22:55 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/965214622.shtml)
-- 2026-06-29 23:09 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/0056723.shtml)
-- 2026-06-29 22:55 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/625356054.shtml)
-- 2026-06-29 22:51 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/02811.shtml)
-- 2026-06-29 22:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/8543437547.shtml)
-- 2026-06-29 23:02 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/955153964410.shtml)
+- 2026-06-29 23:01 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/44238205.shtml)
+- 2026-06-29 23:00 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/2660671324.shtml)
+- 2026-06-29 23:15 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/18216.shtml)
+- 2026-06-29 23:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/129708234.shtml)
+- 2026-06-29 23:01 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/924923001922.shtml)
+- 2026-06-29 22:55 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/805304784.shtml)
+- 2026-06-29 22:53 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/8364233.shtml)
+- 2026-06-29 23:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/94595.shtml)
+- 2026-06-29 23:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/99453.shtml)
+- 2026-06-29 22:57 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/78501240.shtml)
+- 2026-06-29 23:04 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/97647274638.shtml)
+- 2026-06-29 23:01 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/181392417.shtml)
+- 2026-06-29 22:50 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/946569353.shtml)
+- 2026-06-29 23:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/33915.shtml)
+- 2026-06-29 22:56 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/457458.shtml)

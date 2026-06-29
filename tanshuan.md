@@ -1,61 +1,59 @@
-# 亚足联球队四场不败，欧洲球队该慌了？
+# 软银集团将发行35.6亿美元外币计价票据
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国
+专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 软银集团计划发行35.6亿美元的外币计价优先票据，用于偿还债务。这家日本科技投资公司周四表示，将出售价值15亿美元的美元计价债券，以及总计17.5亿欧元（相当于20.6亿美元）的欧元计价票据。软银将把此次发债所得用于偿还债务，包括为投资OpenAI而获得的一笔过渡性贷款。 该公司表示，对于美元计价债券，3.5年期票据将支
 
 ## 正文
 
-中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。
+专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 软银集团计划发行35.6亿美元的外币计价优先票据，用于偿还债务。
 
-有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国队0:2不敌韩国队，直接导致小组出局。
+这家日本科技投资公司周四表示，将出售价值15亿美元的美元计价债券，以及总计17.5亿欧元（相当于20.6亿美元）的欧元计价票据。
 
-四年前，日本队在小组赛后发制人，连续逆转击败德国和西班牙，德国队连续两届杯赛止步小组赛。
+软银将把此次发债所得用于偿还债务，包括为投资OpenAI而获得的一笔过渡性贷款。
 
-如今又一个四年过去，借助扩军利好，在“亚欧交锋”中集体低迷的欧足联球队，或许是时候重新评估亚足联对手的实力了，而曾被视为世界杯“陪跑者”的亚足联球队，则有望进一步打破偏见。
+该公司表示，对于美元计价债券，3.5年期票据将支付7.625%的利率，5.5年期债券将支付8.250%的利率，10年期债券将支付8.500%的利率。
 
-在与欧洲“无冕之王”荷兰队对决中，尽管两度陷入落后困境，日本队顽强扳平比分，用全场不足40%的控球率，打出了碾压对手的进攻效率。
+对于欧元计价债券，4年期票据将支付6.375%的利率，6年期债券将支付7.000%的利率，8年期债券将支付7.375%的利率。
 
-这一回，曾三度闯入世界杯决赛的荷兰队也在日本队栽了跟头。
+这些票据已被Standard & Poor‘s Financial Services评为BB+级。
 
-这场比赛让不少球迷想到了童年经典《足球小将》。
-
-动漫里荷兰队始终是日本队的常年对手，大空翼和加尔富特斗得天昏地暗，大比分和名场面频出。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 22:59 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 23:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 22:47 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 22:51 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 22:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 23:04 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 23:10 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 22:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 23:06 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 22:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 22:57 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 23:10 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 22:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 22:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 22:52 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 23:00 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 23:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 22:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 23:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 22:55 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 23:16 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 22:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 23:15 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 23:11 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 23:07 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/98658628548.shtml)
-- 2026-06-29 22:46 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/43405917.shtml)
-- 2026-06-29 23:10 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/70434.shtml)
-- 2026-06-29 23:01 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/59571.shtml)
-- 2026-06-29 23:01 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/2682411993.shtml)
-- 2026-06-29 23:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/56143.shtml)
-- 2026-06-29 23:09 - [扬名立万](https://www.blog.minike.top/Article/details/04986518074.shtml)
-- 2026-06-29 22:59 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/94263.shtml)
-- 2026-06-29 23:11 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/78381548122.shtml)
-- 2026-06-29 22:48 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/8858084394.shtml)
-- 2026-06-29 22:52 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/135321.shtml)
-- 2026-06-29 23:07 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/291983.shtml)
-- 2026-06-29 23:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/12687368.shtml)
-- 2026-06-29 22:50 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/0277740127.shtml)
-- 2026-06-29 22:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/911875934950.shtml)
+- 2026-06-29 22:52 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/0081102.shtml)
+- 2026-06-29 22:50 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/18302.shtml)
+- 2026-06-29 23:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/65239820771.shtml)
+- 2026-06-29 23:07 - [周生如故](https://www.share.minike.top/Article/details/35858502548.shtml)
+- 2026-06-29 23:07 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/42423650.shtml)
+- 2026-06-29 23:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/941681328558.shtml)
+- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/32550817610.shtml)
+- 2026-06-29 23:16 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/54704272112.shtml)
+- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/737912.shtml)
+- 2026-06-29 23:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/212169057031.shtml)
+- 2026-06-29 23:00 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/24699.shtml)
+- 2026-06-29 23:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/0375885.shtml)
+- 2026-06-29 22:49 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/792873.shtml)
+- 2026-06-29 23:07 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/57756.shtml)
+- 2026-06-29 23:02 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/54538812635.shtml)

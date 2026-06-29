@@ -1,60 +1,56 @@
-# 美国高级官员：美伊已签署谅解备忘录
+# 最高年化收益率4.81%！商业养老金试点三年成效斐然
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。 当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。 该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。海峡内的交通量即刻起将大幅增加。 该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金
+来源：国际金融报 历经三年发展，商业养老金试点工作成绩斐然，开户数和管理规模均实现翻倍式增长。 4家试点险企已悉数披露商业养老金业务2025年年度报告。 据《国际金融报》记者统计，截至2025年末，人保养老、国寿养老、太平养老、国民养老累计开立商业养老金账户317.39万户，同比增长62.3%；合计管理规模突破1600亿元，同比增长53.7%。 分析人士指出，下一步，试点保险公
 
 ## 正文
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。
+来源：国际金融报 历经三年发展，商业养老金试点工作成绩斐然，开户数和管理规模均实现翻倍式增长。
 
-当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。
+4家试点险企已悉数披露商业养老金业务2025年年度报告。
 
-该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。
+据《国际金融报》记者统计，截至2025年末，人保养老、国寿养老、太平养老、国民养老累计开立商业养老金账户317.39万户，同比增长62.3%；合计管理规模突破1600亿元，同比增长53.7%。
 
-海峡内的交通量即刻起将大幅增加。
+分析人士指出，下一步，试点保险公司应针对不同客户群体，开发更具个性化的商业养老金产品，如针对高收入人群的定制化产品、针对特定职业的专属产品等。
 
-该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金与制裁减免将视履约情况而定。
+同时，探索与养老产业、医疗健康产业等深度融合的产品创新，提供更全面的养老保障服务。
 
-根据备忘录，美方计划在下一阶段谈判期间维持目前的军事态势，在达成最终协议后削减军事力量。
+存量规模超1600亿元 商业养老金是养老保险公司经营的新型商业养老保险业务，主要依托保险经营规则创新产品和服务，向客户提供养老账户管理、养老规划、资金管理、风险管理等服务，是第三支柱养老保险的组成部分。
 
-美高级官员：伊朗议会议长已获最高领袖授权进行谈判并签署协议 该官员称，据美方了解，伊朗议会议长卡利巴夫已获最高领袖授权签署协议并开展谈判。
+2023年1月1日起，商业养老金业务在北京市、上海市、江苏省、浙江省、福建省、山东省、河南省、广东省、四川省、陕西省等10个省（市）率先开展试点。
 
-此外，美国对阿曼在战前谈判期间的表现感到不满。
+参与试点的有4家养老保险公司，分别是人保养老、国寿养老、太平养老和国民养老。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 22:49 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 22:52 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 23:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 23:02 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 23:04 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 23:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 22:59 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 23:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 22:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 22:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 22:49 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 23:03 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 22:49 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 22:52 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 23:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 22:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 22:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 23:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 23:15 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:56 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 23:13 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/39926641.shtml)
-- 2026-06-29 23:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/4093908412.shtml)
-- 2026-06-29 22:45 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/3230916.shtml)
-- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/3195368783.shtml)
-- 2026-06-29 22:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/8407575.shtml)
-- 2026-06-29 22:53 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/07090993.shtml)
-- 2026-06-29 22:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/399947581390.shtml)
-- 2026-06-29 23:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6195800.shtml)
-- 2026-06-29 22:49 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0708998.shtml)
-- 2026-06-29 23:07 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/80832996.shtml)
-- 2026-06-29 22:58 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/22618704240.shtml)
-- 2026-06-29 22:59 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/351806.shtml)
-- 2026-06-29 22:55 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/4981125.shtml)
-- 2026-06-29 22:53 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/81633816129.shtml)
-- 2026-06-29 23:04 - [金刚川](https://www.share.kurohicncr.top/Article/details/56360303210.shtml)
+- 2026-06-29 22:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/8047545404.shtml)
+- 2026-06-29 23:04 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/41747337808.shtml)
+- 2026-06-29 22:54 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/5238619.shtml)
+- 2026-06-29 22:59 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/6964858735.shtml)
+- 2026-06-29 22:58 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/80120949911.shtml)
+- 2026-06-29 22:58 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/200722195.shtml)
+- 2026-06-29 23:11 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/014625.shtml)
+- 2026-06-29 23:16 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/85984746560.shtml)
+- 2026-06-29 23:13 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/234674487139.shtml)
+- 2026-06-29 22:57 - [东方风云榜](https://www.blog.minike.top/Article/details/940830.shtml)
+- 2026-06-29 23:06 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/42402.shtml)
+- 2026-06-29 23:14 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/83344028877.shtml)
+- 2026-06-29 23:14 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/38343330.shtml)
+- 2026-06-29 23:03 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/336246987.shtml)
+- 2026-06-29 22:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/65817.shtml)

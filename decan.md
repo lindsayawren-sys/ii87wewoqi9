@@ -1,55 +1,61 @@
-# 走进国产“擎天柱”生产线 充电18分钟续航200公里的重卡“出圈”
+# 湖北多措施推动人工智能与制造业深度融合
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 21:03 来源：中国新闻网 6月13日，中外媒体采访团走进北奔重型汽车生产车间实地探访，近距离观摩重卡整车制造流程。生产线上，工人有序开展装配作业，车辆底盘经由传送带逐步完成零部件拼接组装，一步步成型为完整重型卡车。 厂区展区陈列着多款经典车型，呈现了从20世纪80年代至今重卡车型的升级迭代历程。历经多年技术积淀，企业现已打造出覆盖燃油、燃气
+中新网武汉4月16日电 (梁婷 贺斌)湖北推动人工智能与制造业深度融合，将系统部署底座筑基、产品焕新、场景渗透、行业赋能、协同共建、生态优化六大专项行动，聚焦电子信息、汽车、原材料、消费品、医药等重点行业，为湖北制造业智能化转型提供坚实支撑。 2026湖北人工智能产业发展生态大会暨“AI+制造”政策宣贯活动16日在武汉举行，记者获悉上述消息。 此次大会以“强产业·筑生态·育新机
 
 ## 正文
 
-发布时间：2026年06月13日 21:03 来源：中国新闻网 6月13日，中外媒体采访团走进北奔重型汽车生产车间实地探访，近距离观摩重卡整车制造流程。
+中新网武汉4月16日电 (梁婷 贺斌)湖北推动人工智能与制造业深度融合，将系统部署底座筑基、产品焕新、场景渗透、行业赋能、协同共建、生态优化六大专项行动，聚焦电子信息、汽车、原材料、消费品、医药等重点行业，为湖北制造业智能化转型提供坚实支撑。
 
-生产线上，工人有序开展装配作业，车辆底盘经由传送带逐步完成零部件拼接组装，一步步成型为完整重型卡车。
+2026湖北人工智能产业发展生态大会暨“AI+制造”政策宣贯活动16日在武汉举行，记者获悉上述消息。
 
-厂区展区陈列着多款经典车型，呈现了从20世纪80年代至今重卡车型的升级迭代历程。
+此次大会以“强产业·筑生态·育新机”为主题，凝聚政产学研用多方合力，集中展示湖北人工智能产业创新成果，拓展优质应用场景，链接优势产业资源，探讨人工智能与实体经济深度融合新路径。
 
-历经多年技术积淀，企业现已打造出覆盖燃油、燃气、甲醇、纯电动、氢燃料、混合动力、无人驾驶、非公路矿用车型的全品类重卡产品。
+清华大学软件学院院长、大数据系统软件国家工程研究中心执行主任王建民表示，AI时代正重构工业软件开发范式，工业终端智能化与数据融合成为智能制造核心趋势。
 
-其中纯电动重卡快充性能突出，电量从10%充至90%仅需18分钟，续航可达200公里。
+当前，湖北正致力构建以科技创新为牵引、产业能级为基础、数字底座为支撑、场景应用为导向、生态优化为保障的人工智能发展体系。
 
-目前这些重卡出口至非洲、中东等全球100多个国家和地区，在国际市场收获广泛认可。
+该省近日出台《湖北省“人工智能+制造”专项行动实施方案》提出，到2027年，建成100个达到国内先进水平的行业垂直大模型；推出100个以上高水平工业智能体；打造50个以上工业领域高质量数据集；发布200个以上“人工智能+制造”典型应用场景；培育1200家以上智能工厂。
 
-(记者 陈峰 奥蓝） 责任编辑：【吉翔】
+由湖北省经信厅组织编制的《湖北省人工智能产业发展白皮书(2025)》正式发布，聚焦技术攻关、场景应用、生态构建、人才引育等关键领域，系统梳理湖北人工智能产业发展情况。
+
+数据显示，2025年，湖北人工智能产业规模突破1600亿元，形成覆盖基础层、技术层、应用层的完整产业链条；全省算力规模超过18000P，国家级5G工厂数量位居全国第3位。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 23:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 23:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 22:42 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 23:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 23:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 23:05 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:56 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 23:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 22:53 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 23:11 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 23:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 22:57 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 23:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 23:05 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:48 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 22:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 23:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 23:04 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 23:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 22:48 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 22:50 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/25255555215.shtml)
-- 2026-06-29 23:11 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/3784054.shtml)
-- 2026-06-29 23:04 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/5591759.shtml)
-- 2026-06-29 23:05 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/81427827.shtml)
-- 2026-06-29 23:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/54027.shtml)
-- 2026-06-29 23:06 - [世界杯](https://www.share.minike.top/Article/details/24881780.shtml)
-- 2026-06-29 23:04 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/97406.shtml)
-- 2026-06-29 23:00 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/664613124843.shtml)
-- 2026-06-29 22:51 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/8701129942.shtml)
-- 2026-06-29 22:58 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/78568245.shtml)
-- 2026-06-29 23:02 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/32927320895.shtml)
-- 2026-06-29 22:44 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/905560537674.shtml)
-- 2026-06-29 22:46 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/63023269.shtml)
-- 2026-06-29 23:02 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/487360841729.shtml)
-- 2026-06-29 23:02 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/55908170.shtml)
+- 2026-06-29 22:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9578709.shtml)
+- 2026-06-29 23:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/062761.shtml)
+- 2026-06-29 23:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/526599114139.shtml)
+- 2026-06-29 22:59 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/900157966.shtml)
+- 2026-06-29 23:02 - [勇敢的心第二部](http://www.share.minike.top/Article/details/54326.shtml)
+- 2026-06-29 23:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/85080070398.shtml)
+- 2026-06-29 23:05 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/192034154644.shtml)
+- 2026-06-29 23:00 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/98901215585.shtml)
+- 2026-06-29 22:59 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/8282533.shtml)
+- 2026-06-29 22:53 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/33113.shtml)
+- 2026-06-29 22:55 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/32150.shtml)
+- 2026-06-29 23:06 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/147632553.shtml)
+- 2026-06-29 22:52 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/142651.shtml)
+- 2026-06-29 23:06 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/8105703432.shtml)
+- 2026-06-29 23:09 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/23144.shtml)

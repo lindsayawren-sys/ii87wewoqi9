@@ -1,59 +1,48 @@
-# 几十万元的“不老针”，谁在打？
+# 时隔14年 日本柏崎刈羽核电站6号机组启动商业运行
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：牛荷 发于2026.6.15总第1239期《中国新闻周刊》杂志 “‘五一’之后管得严了，现在只收熟客。”6月2日，山东某市一家细胞技术服务机构的工作人员周成对《中国新闻周刊》说。 该机构位于一栋普通办公楼，在其所在楼层，走廊两侧几间房门开着或半掩着，为专门的细胞输注区。在其中一间输液室，记者看到两三个人正躺着接受静脉输注，其中一位输注者满头白发。 周成称，这些
+中新网4月16日电 据日本《朝日新闻》报道，当地时间16日下午，日本东京电力公司宣布，柏崎刈羽核电站6号机组启动商业运行。 报道称，这是自2012年3月以来，该机组时隔14年后重启商业运行。 报道指出，东京电力公司原计划在2月26日启动该机组商业运行，但因接连发生故障等原因，两度推迟启动。 位于新潟县的柏崎刈羽核电站是日本最大的核电站。
 
 ## 正文
 
-中国新闻周刊记者：牛荷 发于2026.6.15总第1239期《中国新闻周刊》杂志 “‘五一’之后管得严了，现在只收熟客。
+中新网4月16日电 据日本《朝日新闻》报道，当地时间16日下午，日本东京电力公司宣布，柏崎刈羽核电站6号机组启动商业运行。
 
-”6月2日，山东某市一家细胞技术服务机构的工作人员周成对《中国新闻周刊》说。
+报道称，这是自2012年3月以来，该机组时隔14年后重启商业运行。
 
-该机构位于一栋普通办公楼，在其所在楼层，走廊两侧几间房门开着或半掩着，为专门的细胞输注区。
+报道指出，东京电力公司原计划在2月26日启动该机组商业运行，但因接连发生故障等原因，两度推迟启动。
 
-在其中一间输液室，记者看到两三个人正躺着接受静脉输注，其中一位输注者满头白发。
-
-周成称，这些客人回输的都是公司自制的脐带血间充质干细胞，来源于公司细胞库，最近来打的人大多冲着亚健康调节和日常保健，也有用于辅助治疗。
-
-5月1日起施行的国务院令第818号《生物医学新技术临床研究和临床转化应用管理条例》(以下称“818号令”)，对这类将细胞输注包装成“健康管理”“抗衰保养”灰色生意的机构冲击尤为明显。
-
-新规明确，开展生物医学新技术临床研究的机构必须是三甲医院，且不得向受试者收费；违规者最高可处违法所得20倍罚款。
-
-这扇让有钱人通向不老梦的门关上了？
+位于新潟县的柏崎刈羽核电站是日本最大的核电站。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 22:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:47 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:45 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 22:50 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 23:03 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 23:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 23:01 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 23:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 23:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 23:07 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 23:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 23:08 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 23:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 23:16 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 22:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 22:54 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 23:01 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 22:54 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 22:58 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 23:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 23:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/1931953.shtml)
-- 2026-06-29 22:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/506160040.shtml)
-- 2026-06-29 22:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/751248.shtml)
-- 2026-06-29 22:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/213674659694.shtml)
-- 2026-06-29 22:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/10095491.shtml)
-- 2026-06-29 23:11 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/384552384.shtml)
-- 2026-06-29 23:03 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/7164275.shtml)
-- 2026-06-29 23:05 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/78647199363.shtml)
-- 2026-06-29 22:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/15685735180.shtml)
-- 2026-06-29 23:00 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/45469.shtml)
-- 2026-06-29 22:59 - [我们的少年时代2](https://www.share.minike.top/Article/details/6322170.shtml)
-- 2026-06-29 23:02 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/4777083.shtml)
-- 2026-06-29 22:58 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/186247921245.shtml)
-- 2026-06-29 23:11 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/429998742230.shtml)
-- 2026-06-29 22:56 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/475323264.shtml)
+- 2026-06-29 22:49 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/30184477355.shtml)
+- 2026-06-29 22:54 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/788992859519.shtml)
+- 2026-06-29 23:12 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/718263.shtml)
+- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/858794646.shtml)
+- 2026-06-29 22:51 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/077910.shtml)
+- 2026-06-29 23:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/391384517.shtml)
+- 2026-06-29 23:00 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/09491228.shtml)
+- 2026-06-29 23:12 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/99998094.shtml)
+- 2026-06-29 22:56 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/216214141975.shtml)
+- 2026-06-29 23:12 - [青春环游记第三季](https://www.blog.minike.top/Article/details/909135543502.shtml)
+- 2026-06-29 22:51 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/03506032202.shtml)
+- 2026-06-29 22:50 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/7229075.shtml)
+- 2026-06-29 22:52 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/5829479792.shtml)
+- 2026-06-29 23:06 - [月亮](http://www.share.minike.top/Article/details/68205.shtml)
+- 2026-06-29 22:52 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/547706766631.shtml)

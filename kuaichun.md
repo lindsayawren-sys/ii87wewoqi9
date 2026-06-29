@@ -1,44 +1,59 @@
-# 我国成功发射吉星高分07C04星等8颗卫星
+# 开源AI智能体风险剧增 需建复杂系统治理新范式
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 08:57 来源：央视新闻 责任编辑：【王祎】
+OpenClaw等开源AI智能体（AI Agent）的爆发式增长，正将人工智能安全风险从信息空间迅速扩散至物理世界。面对风险形态转型、规模飙升、传导级联放大的全新挑战，传统以内容安全为核心的治理体系已显“结构性失灵”。在智能经济新形态与未来产业发展背景下，应基于人类中心的责任归属机制，构建风险“识别－预警－治理”的前瞻递进式复杂系统治理新范式，促进开源生态在自主可控中繁荣发展。
 
 ## 正文
 
-发布时间：2026年06月16日 08:57 来源：央视新闻 责任编辑：【王祎】
+OpenClaw等开源AI智能体（AI Agent）的爆发式增长，正将人工智能安全风险从信息空间迅速扩散至物理世界。
+
+面对风险形态转型、规模飙升、传导级联放大的全新挑战，传统以内容安全为核心的治理体系已显“结构性失灵”。
+
+在智能经济新形态与未来产业发展背景下，应基于人类中心的责任归属机制，构建风险“识别－预警－治理”的前瞻递进式复杂系统治理新范式，促进开源生态在自主可控中繁荣发展。
+
+2026年政府工作报告首次提出“打造智能经济新形态”，为培育智能新模式、壮大增长新动能指明了前进方向。
+
+国务院《关于深入实施“人工智能+”行动的意见》更是明确提出：到2027年，智能体应用普及率超70%；到2030年，这一数字要突破90%。
+
+然而，技术跃进伴随风险剧增。
+
+与传统生成式AI不同，开源AI智能体的安全风险呈现三大特征：风险形态加速转型、风险规模指数飙升、风险传导级联放大。
+
+例如，传统生成式AI风险多集中于换脸拟声、数据投毒等信息空间，而开源AI智能体已深度集成办公系统、ERP系统、财务系统，可通过伪装成常用工具的恶意技能，诱发账户劫持、供应链攻击等物理性危害。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 22:45 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 23:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 22:42 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 23:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 22:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:10 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 23:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 23:11 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 23:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 22:59 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 23:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 22:55 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 23:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 22:51 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 23:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 23:07 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 22:59 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 22:51 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 23:02 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 23:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/62022.shtml)
-- 2026-06-29 22:45 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/54842700.shtml)
-- 2026-06-29 22:49 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/53721.shtml)
-- 2026-06-29 23:06 - [金牌调解](http://www.blog.minike.top/Article/details/053927077.shtml)
-- 2026-06-29 22:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/765701.shtml)
-- 2026-06-29 22:58 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/883857552.shtml)
-- 2026-06-29 22:42 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/8045867.shtml)
-- 2026-06-29 23:00 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/080794.shtml)
-- 2026-06-29 22:47 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/071577.shtml)
-- 2026-06-29 22:50 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/5195528375.shtml)
-- 2026-06-29 22:50 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/41028113184.shtml)
-- 2026-06-29 23:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/64549590.shtml)
-- 2026-06-29 23:11 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/827811022.shtml)
-- 2026-06-29 22:55 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/97041240.shtml)
-- 2026-06-29 23:08 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/69458839.shtml)
+- 2026-06-29 23:06 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/89033326.shtml)
+- 2026-06-29 23:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/95920557100.shtml)
+- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/35742587737.shtml)
+- 2026-06-29 23:16 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/330260969.shtml)
+- 2026-06-29 23:00 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/738477101789.shtml)
+- 2026-06-29 23:07 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/62063331.shtml)
+- 2026-06-29 23:01 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/541469161628.shtml)
+- 2026-06-29 22:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/45170991.shtml)
+- 2026-06-29 22:52 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/842332.shtml)
+- 2026-06-29 23:11 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/6649288.shtml)
+- 2026-06-29 23:14 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/89013.shtml)
+- 2026-06-29 23:10 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/672558794.shtml)
+- 2026-06-29 23:06 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/322622144196.shtml)
+- 2026-06-29 23:13 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/93773650589.shtml)
+- 2026-06-29 23:04 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/997683290497.shtml)

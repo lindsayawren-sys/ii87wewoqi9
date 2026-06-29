@@ -1,60 +1,45 @@
-# 黄金相关ETF规模“缩水”，年内已有超百只基金调降管理费率
+# 多国政要密集访华，为什么都往咱这儿跑？
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。 在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。 业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。当
+发布时间：2026年04月15日 12:30 来源：中国新闻网 中新网热评|多国政要密集访华，为什么都往咱这儿跑？ 责任编辑：【张楠】
 
 ## 正文
 
-金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。
+发布时间：2026年04月15日 12:30 来源：中国新闻网 中新网热评|多国政要密集访华，为什么都往咱这儿跑？
 
-与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。
-
-在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。
-
-业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。
-
-当前需要保持谨慎，短期风险窗口尚未关闭，在“长期叙事未变”与“短期压制未消”的格局下，保持耐心、等待信号明朗，或是当前更理性的策略。
-
-二季度以来债券型ETF规模增长超千亿元 公开数据显示，债券型ETF总规模已逼近8700亿元，较一季度末增长超千亿元，其中多只债券型ETF二季度以来规模增长超过或接近100亿元。
-
-公募基金行业首笔利率互换交易落地 日前，华夏基金（香港）旗下华夏精选人民币投资级别收益基金顺利完成首笔人民币利率互换（IRS）交易。
-
-这是“互换通”机制推出以来，离岸公募基金行业成功落地的第一单利率互换交易。
+责任编辑：【张楠】
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 22:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 22:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 22:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 22:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 22:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 22:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 22:56 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 23:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 22:59 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 23:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 22:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 23:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 22:55 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 22:59 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:06 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 23:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 23:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 23:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/4723755.shtml)
-- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/32300639637.shtml)
-- 2026-06-29 22:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/278234955824.shtml)
-- 2026-06-29 23:10 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/07029383374.shtml)
-- 2026-06-29 23:01 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/63982087.shtml)
-- 2026-06-29 23:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3750969832.shtml)
-- 2026-06-29 22:43 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/7493926.shtml)
-- 2026-06-29 23:02 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/85145286.shtml)
-- 2026-06-29 23:03 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/3547033.shtml)
-- 2026-06-29 22:55 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/07368904715.shtml)
-- 2026-06-29 22:49 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/871461545.shtml)
-- 2026-06-29 23:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/771893.shtml)
-- 2026-06-29 23:08 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/831148.shtml)
-- 2026-06-29 22:51 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/742858733.shtml)
-- 2026-06-29 23:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/8330073.shtml)
+- 2026-06-29 22:55 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/679996.shtml)
+- 2026-06-29 22:55 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/1394327.shtml)
+- 2026-06-29 23:12 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/724256.shtml)
+- 2026-06-29 23:17 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/22625580886.shtml)
+- 2026-06-29 23:04 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/109434582381.shtml)
+- 2026-06-29 23:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/9321363847.shtml)
+- 2026-06-29 22:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/70150.shtml)
+- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/9253379.shtml)
+- 2026-06-29 23:07 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/6053894.shtml)
+- 2026-06-29 23:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/5608892703.shtml)
+- 2026-06-29 23:09 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/94823.shtml)
+- 2026-06-29 22:56 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/61764813386.shtml)
+- 2026-06-29 23:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/378180.shtml)
+- 2026-06-29 22:51 - [刘念回应](http://www.blog.minike.top/Article/details/9297765.shtml)
+- 2026-06-29 23:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/7072987.shtml)

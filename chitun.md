@@ -1,57 +1,61 @@
-# “黄金九分”频现 粤BA八强出炉
+# Palantir股价无视估值担忧，"特朗普效应"压倒空头
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网河源6月14日电 (记者 张璐)2026年李宁·广东省城市篮球联赛(简称“粤BA”)13日结束八强附加赛第二回合较量。粤BA八强附加赛(简称“八强附加赛”)第二回合较量战况焦灼。首战失利的云浮队、珠海队、湛江队、河源队本轮均获得胜利，四场对决均出现“黄金九分”附加赛。最终，汕头队、潮州队、揭阳队、佛山队战胜各自对手，获得八强席位。 八强附加赛，采用主客场回合制，东区、西区
+Palantir Technologies股价周二上涨约3%，延续了近期获得政府合同以及前总统唐纳德·特朗普公开背书所带来的积极情绪。 这家数据分析公司近几周已与美国国防机构签署了多项大规模协议。其中包括与美国陆军签订的一项为期10年的软件合同，据称是该军种历史上规模最大的合同，以及与国土安全部签订的一项多年期协议。 特朗普在4月10日的讲话中称赞了Palantir的国防能力，
 
 ## 正文
 
-中新网河源6月14日电 (记者 张璐)2026年李宁·广东省城市篮球联赛(简称“粤BA”)13日结束八强附加赛第二回合较量。
+Palantir Technologies股价周二上涨约3%，延续了近期获得政府合同以及前总统唐纳德·特朗普公开背书所带来的积极情绪。
 
-粤BA八强附加赛(简称“八强附加赛”)第二回合较量战况焦灼。
+这家数据分析公司近几周已与美国国防机构签署了多项大规模协议。
 
-首战失利的云浮队、珠海队、湛江队、河源队本轮均获得胜利，四场对决均出现“黄金九分”附加赛。
+其中包括与美国陆军签订的一项为期10年的软件合同，据称是该军种历史上规模最大的合同，以及与国土安全部签订的一项多年期协议。
 
-最终，汕头队、潮州队、揭阳队、佛山队战胜各自对手，获得八强席位。
+特朗普在4月10日的讲话中称赞了Palantir的国防能力，这一表态似乎强化了投资者对该公司在军用人工智能生态系统中根深蒂固地位的看法。
 
-八强附加赛，采用主客场回合制，东区、西区排名第3至第6的队伍通过交叉对阵争夺剩余4个八强席位。
+此外，ARK Invest增持了Palantir的头寸，这一举动可能有助于抵消该股早些时候面临的抛售压力。
 
-在八强附加赛首回合的比赛中，佛山队主场战胜河源队。
+分析师对Palantir的 sentiment 总体保持积极，共识评级为“中度买入”，目标价高达260美元。
 
-当日，两队展开激烈对决。
+不过，对于估值水平和来自新兴AI竞争对手的竞争压力，仍存在一些谨慎情绪。
 
-比赛开始，两队拼抢激烈。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 23:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:06 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 23:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 23:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 22:51 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:58 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 22:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 22:46 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 23:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 22:56 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 22:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 23:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 22:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 23:10 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 23:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 23:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 23:11 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 22:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 23:06 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:49 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 23:10 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 23:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/9986893.shtml)
-- 2026-06-29 22:54 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/62243863513.shtml)
-- 2026-06-29 22:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/575831.shtml)
-- 2026-06-29 23:02 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/8819447418.shtml)
-- 2026-06-29 22:56 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/76068272963.shtml)
-- 2026-06-29 22:58 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/57764411761.shtml)
-- 2026-06-29 23:03 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/51497166.shtml)
-- 2026-06-29 22:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1906748356.shtml)
-- 2026-06-29 23:10 - [85花告别古偶](https://www.share.minike.top/Article/details/8229293588.shtml)
-- 2026-06-29 22:56 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/5162645.shtml)
-- 2026-06-29 22:45 - [逃狱兄弟](http://www.share.minike.top/Article/details/55672192.shtml)
-- 2026-06-29 22:44 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/065501509.shtml)
-- 2026-06-29 22:59 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/0597401631.shtml)
-- 2026-06-29 22:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/23971774055.shtml)
-- 2026-06-29 22:56 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/2983147.shtml)
+- 2026-06-29 23:05 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/7198513203.shtml)
+- 2026-06-29 23:17 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/5247686.shtml)
+- 2026-06-29 23:15 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/82634703.shtml)
+- 2026-06-29 23:01 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/66335.shtml)
+- 2026-06-29 23:07 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/0281209.shtml)
+- 2026-06-29 23:11 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/136237.shtml)
+- 2026-06-29 22:59 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/8648180121.shtml)
+- 2026-06-29 22:56 - [炽夏](http://www.blog.kurohicncr.top/Article/details/79647139541.shtml)
+- 2026-06-29 23:16 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/95763.shtml)
+- 2026-06-29 22:51 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/71410591.shtml)
+- 2026-06-29 23:02 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/031629948344.shtml)
+- 2026-06-29 22:54 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/31479421.shtml)
+- 2026-06-29 23:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/955389004.shtml)
+- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/227092179.shtml)
+- 2026-06-29 23:05 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/14458421.shtml)

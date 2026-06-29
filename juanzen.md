@@ -1,50 +1,47 @@
-# 中国成功发射吉星高分07C04星等8颗卫星
+# 中国新增两处世界地质公园 总数增至51处
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 13:18 来源：中国新闻网 北京时间6月15日11时44分，中国在东风商业航天创新试验区使用力箭一号遥十四运载火箭，成功将吉星高分07C04等8颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是力箭一号运载火箭的第14次飞行。(马帅莎 李欣媛 制作 王嘉怡 视频来源 酒泉卫星发射中心） 责任编辑：【罗攀】
+发布时间：2026年04月15日 21:51 来源：中国新闻网 记者从国家林草局获悉，当地时间4月15日上午10时49分(北京时间下午16时49分)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，中国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。至此，中国世界地质公园增至51处，分布在全国24个省(自治区、直辖市)及香港特别行政区。(记者 郎佳慧 制作
 
 ## 正文
 
-发布时间：2026年06月15日 13:18 来源：中国新闻网 北京时间6月15日11时44分，中国在东风商业航天创新试验区使用力箭一号遥十四运载火箭，成功将吉星高分07C04等8颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+发布时间：2026年04月15日 21:51 来源：中国新闻网 记者从国家林草局获悉，当地时间4月15日上午10时49分(北京时间下午16时49分)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，中国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。
 
-此次任务是力箭一号运载火箭的第14次飞行。
+至此，中国世界地质公园增至51处，分布在全国24个省(自治区、直辖市)及香港特别行政区。
 
-(马帅莎 李欣媛 制作 王嘉怡 视频来源 酒泉卫星发射中心） 责任编辑：【罗攀】
+(记者 郎佳慧 制作 刘鹏 视频来源 国家林草局） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 23:05 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 23:02 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 22:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 22:48 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 22:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 22:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 23:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 23:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 22:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 23:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 22:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 23:09 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 22:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 23:03 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 23:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 22:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 22:57 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 23:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 23:06 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 22:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 23:10 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:57 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 22:58 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/99003173.shtml)
-- 2026-06-29 22:58 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/1383912.shtml)
-- 2026-06-29 22:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/4067327474.shtml)
-- 2026-06-29 22:45 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/98362.shtml)
-- 2026-06-29 23:01 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/73935351.shtml)
-- 2026-06-29 23:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/92070.shtml)
-- 2026-06-29 22:54 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/37631855.shtml)
-- 2026-06-29 22:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/098134.shtml)
-- 2026-06-29 22:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/31311732245.shtml)
-- 2026-06-29 23:10 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/2949815565.shtml)
-- 2026-06-29 23:00 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/894041410361.shtml)
-- 2026-06-29 23:00 - [东方风云榜直播](http://www.share.minike.top/Article/details/4804629.shtml)
-- 2026-06-29 22:48 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/056121.shtml)
-- 2026-06-29 22:42 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/58145130.shtml)
-- 2026-06-29 23:07 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/9892948433.shtml)
+- 2026-06-29 22:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/035372805797.shtml)
+- 2026-06-29 23:00 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/163353666.shtml)
+- 2026-06-29 22:54 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/754488939450.shtml)
+- 2026-06-29 23:08 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/6707949644.shtml)
+- 2026-06-29 23:11 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/83771.shtml)
+- 2026-06-29 23:18 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/374118.shtml)
+- 2026-06-29 22:59 - [斗破苍穹](https://www.share.minike.top/Article/details/485737.shtml)
+- 2026-06-29 23:02 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/56488831771.shtml)
+- 2026-06-29 23:00 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/73958.shtml)
+- 2026-06-29 22:58 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/961110.shtml)
+- 2026-06-29 23:00 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/225583.shtml)
+- 2026-06-29 23:16 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/69181.shtml)
+- 2026-06-29 23:15 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/883012.shtml)
+- 2026-06-29 22:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/6513283.shtml)
+- 2026-06-29 22:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/451485.shtml)

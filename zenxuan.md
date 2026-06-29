@@ -1,57 +1,61 @@
-# 中国攻克硅基量子芯片关键材料
+# 中药饮片集采新进展：3000亿市场格局迎变
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 (记者 庞无忌)记者15日从中核集团获悉，当日，中国科学家在稳定同位素富集与高纯硅制备领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。这将为中国硅基量子计算核心材料的自主研制以及先进制程半导体、高端导航、计量基准等前沿科技领域发展提供支撑。 硅-28作为硅的稳定同位素，因原子核自旋为零、可极大降低
+时隔五个月，第二批全国中药饮片集采迎来新进展。 近日，全国中药饮片联盟采购办公室发布《全国中药饮片采购联盟集中采购文件（征求意见稿）》，拟采购41个品种，每个品种分为选货、统货2个规格等级。本轮集采遵循“稳临床、保质量、反内卷、防围标”原则，由山东医保局牵头推进。 中药饮片是指用中药材制成的固态制剂，是中医药领域的重要剂型之一。随着药品集中带量采购改革不断深化，越来越多的化药、
 
 ## 正文
 
-中新社北京6月15日电 (记者 庞无忌)记者15日从中核集团获悉，当日，中国科学家在稳定同位素富集与高纯硅制备领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。
+时隔五个月，第二批全国中药饮片集采迎来新进展。
 
-这将为中国硅基量子计算核心材料的自主研制以及先进制程半导体、高端导航、计量基准等前沿科技领域发展提供支撑。
+近日，全国中药饮片联盟采购办公室发布《全国中药饮片采购联盟集中采购文件（征求意见稿）》，拟采购41个品种，每个品种分为选货、统货2个规格等级。
 
-硅-28作为硅的稳定同位素，因原子核自旋为零、可极大降低量子计算中的环境噪声干扰，被誉为“世界上最纯净的硅”，是硅基量子芯片不可或缺的核心材料。
+本轮集采遵循“稳临床、保质量、反内卷、防围标”原则，由山东医保局牵头推进。
 
-该产品由中核集团旗下中国原子能工业有限公司所属核工业理化工程研究院研制生产。
+中药饮片是指用中药材制成的固态制剂，是中医药领域的重要剂型之一。
 
-中国科学院院士俞大鹏指出，这一突破彻底解决了硅基量子计算“无米之炊”的燃眉之急，为中国硅基量子计算实现规模化比特操控铺平了道路。
+随着药品集中带量采购改革不断深化，越来越多的化药、生物药、中成药纳入集采范围，有效减轻群众用药负担。
 
-中国工程院院士雷增光表示，高丰度硅-28同位素制备从开始技术攻关到此次量产落地，凝聚了科研团队多年的心血，具有里程碑意义。
+而中药饮片因标准不统一、质量参差、价格波动大等特性，集采推进难度较高。
 
-除了硅-28，核理化院后续还将面向核能与核医疗、航空航天、量子信息、粒子物理、深空探测等领域的重大需求，开展系列稳定同位素产品的研发。
+2023年，山东牵头15个联盟地区完成21种中药饮片集采，为实施全国中药饮片联采工作积累了经验。
 
-稳定同位素在核医学成像、精准放疗、核安保溯源、环境追踪、基础物理研究等领域也具有不可替代的战略价值。
+2024年5月，山东省医保局牵头将中药饮片采购联盟首次扩大到全国；首批全国中药饮片集采纳入45个饮片品种，于2025年4月逐步落地，多数省份将于今年5月底结束。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 22:58 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 23:11 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 23:06 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 22:56 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 22:55 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 22:45 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 22:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 23:06 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 22:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 22:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 22:58 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 23:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:14 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:12 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 22:55 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 22:57 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 23:04 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:10 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:55 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 22:50 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 22:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 22:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 23:12 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/115392768.shtml)
-- 2026-06-29 22:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/9180595164.shtml)
-- 2026-06-29 22:48 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/55241769305.shtml)
-- 2026-06-29 23:11 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/057445965.shtml)
-- 2026-06-29 22:59 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/543497127.shtml)
-- 2026-06-29 22:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/96103.shtml)
-- 2026-06-29 23:06 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/3231827.shtml)
-- 2026-06-29 22:50 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/31329516182.shtml)
-- 2026-06-29 22:58 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/181620446987.shtml)
-- 2026-06-29 22:57 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/296744378042.shtml)
-- 2026-06-29 23:10 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/399515.shtml)
-- 2026-06-29 23:00 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/33011145830.shtml)
-- 2026-06-29 22:49 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/09173.shtml)
-- 2026-06-29 23:11 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/91880475246.shtml)
-- 2026-06-29 22:48 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/80556541086.shtml)
+- 2026-06-29 22:50 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/40842399.shtml)
+- 2026-06-29 22:56 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/61069949087.shtml)
+- 2026-06-29 23:05 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/0117328712.shtml)
+- 2026-06-29 22:53 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/754979809.shtml)
+- 2026-06-29 23:14 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/033460.shtml)
+- 2026-06-29 23:15 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/50001096966.shtml)
+- 2026-06-29 22:53 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/507407290207.shtml)
+- 2026-06-29 23:17 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/327954.shtml)
+- 2026-06-29 23:04 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/31992667.shtml)
+- 2026-06-29 23:07 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/01478.shtml)
+- 2026-06-29 22:49 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/0973391.shtml)
+- 2026-06-29 23:01 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/775027362467.shtml)
+- 2026-06-29 23:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/803716574918.shtml)
+- 2026-06-29 22:56 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/64733755.shtml)
+- 2026-06-29 22:48 - [速度与激情9](http://www.share.minike.top/Article/details/49249.shtml)

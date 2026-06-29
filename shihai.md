@@ -1,56 +1,59 @@
-# 中信银行：吕天贵行长、首席合规官任职资格获核准
+# 美国将向中东增派数千名士兵 施压伊朗同时备战谈判破裂
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-6月15日金融一线消息，中信银行公告称，近日，该行收到国家金融监督管理总局的批复，国家金融监督管理总局已核准吕天贵该行行长的任职资格。吕天贵自6月15日起正式就任该行行长、首席合规官。 简历显示，吕天贵，男，1972年10月出生，四川大学工商管理硕士，高级会计师。现任中信银行党委副书记。吕天贵先生曾任中信银行信用卡中心党委委员、总裁助理、副总裁、党委书记、总裁，总行零售银行部总
+美国五角大楼官员表示，未来几天内，五角大楼将向中东增派数千名士兵。与此同时，特朗普政府正试图迫使伊朗达成协议，以结束已持续数周的冲突；若脆弱的停火未能维持，美国也在考虑进一步打击或地面行动的可能性。 现任和前任官员称，部署到该地区的部队包括约6000名驻扎在“乔治·H·W·布什”号航空母舰及其护航战舰上的人员。由于讨论军事行动，这些官员与其他一些人一样要求匿名。此外，约4200
 
 ## 正文
 
-6月15日金融一线消息，中信银行公告称，近日，该行收到国家金融监督管理总局的批复，国家金融监督管理总局已核准吕天贵该行行长的任职资格。
+美国五角大楼官员表示，未来几天内，五角大楼将向中东增派数千名士兵。
 
-吕天贵自6月15日起正式就任该行行长、首席合规官。
+与此同时，特朗普政府正试图迫使伊朗达成协议，以结束已持续数周的冲突；若脆弱的停火未能维持，美国也在考虑进一步打击或地面行动的可能性。
 
-简历显示，吕天贵，男，1972年10月出生，四川大学工商管理硕士，高级会计师。
+现任和前任官员称，部署到该地区的部队包括约6000名驻扎在“乔治·H·W·布什”号航空母舰及其护航战舰上的人员。
 
-现任中信银行党委副书记。
+由于讨论军事行动，这些官员与其他一些人一样要求匿名。
 
-吕天贵先生曾任中信银行信用卡中心党委委员、总裁助理、副总裁、党委书记、总裁，总行零售银行部总经理、私人银行部总经理，总行业务总监、党委委员、副行长，中信信托有限责任公司党委书记、董事长；曾兼任中信百信银行股份有限公司董事、董事长，阿尔金银行董事，中国银联股份有限公司董事。
+此外，约4200名隶属于“拳师”两栖戒备群及其搭载的海军陆战队第11远征部队的人员，预计将在本月底抵达该地区。
 
-责任编辑：李琳琳
+随着为期两周的停火将于4月22日到期，这一轮火力增援很可能与已部署在中东的军舰形成合力。
+
+五角大楼此前表示，目前约有5万名美军人员参与对抗伊朗的行动，这些新增部队将加入其中。
+
+为了在经济上施压德黑兰，总统唐纳德·特朗普周日宣布对进出伊朗港口的海上交通实施封锁。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 22:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 23:00 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 22:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 22:57 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 23:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:43 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 22:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 23:06 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 22:50 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 22:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 22:58 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 23:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 22:48 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:09 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 23:13 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 23:03 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 22:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 23:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 23:17 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 22:56 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:01 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 23:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 23:17 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 22:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 22:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/40100.shtml)
-- 2026-06-29 23:04 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/3964550.shtml)
-- 2026-06-29 22:47 - [美人鱼](http://www.share.minike.top/Article/details/1229909.shtml)
-- 2026-06-29 22:48 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/73404331.shtml)
-- 2026-06-29 22:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/802260282.shtml)
-- 2026-06-29 22:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/40965.shtml)
-- 2026-06-29 23:00 - [时光音乐会](https://www.blog.minike.top/Article/details/94639342.shtml)
-- 2026-06-29 22:42 - [张凌赫 客串](https://www.blog.minike.top/Article/details/1817794901.shtml)
-- 2026-06-29 23:10 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/168518635276.shtml)
-- 2026-06-29 22:55 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/6366999.shtml)
-- 2026-06-29 23:11 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/12754064537.shtml)
-- 2026-06-29 23:11 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/0432819.shtml)
-- 2026-06-29 22:48 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/9124323459.shtml)
-- 2026-06-29 23:02 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/75187.shtml)
-- 2026-06-29 23:00 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/39955273.shtml)
+- 2026-06-29 23:03 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/57942.shtml)
+- 2026-06-29 22:59 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/060200891.shtml)
+- 2026-06-29 23:02 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/92744.shtml)
+- 2026-06-29 23:14 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/19114.shtml)
+- 2026-06-29 23:02 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/221262.shtml)
+- 2026-06-29 22:53 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/989452530.shtml)
+- 2026-06-29 23:12 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/55178.shtml)
+- 2026-06-29 22:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/777018003.shtml)
+- 2026-06-29 23:12 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/932469338466.shtml)
+- 2026-06-29 22:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/28189.shtml)
+- 2026-06-29 23:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/40661.shtml)
+- 2026-06-29 22:59 - [这一刀 会很帅](http://www.share.minike.top/Article/details/41384365.shtml)
+- 2026-06-29 23:17 - [存储三巨头被告了](https://www.share.minike.top/Article/details/99622617.shtml)
+- 2026-06-29 23:00 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/4412490.shtml)
+- 2026-06-29 23:13 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/89208324.shtml)

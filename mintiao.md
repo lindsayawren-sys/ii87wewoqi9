@@ -1,57 +1,53 @@
-# 美伊达成和平协议，霍尔木兹海峡何时通？
+# 极视角盘中涨逾12% 公司深耕AI计算器视觉解决方案
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-特朗普称美伊19日签署协议之时，就是霍尔木兹海峡开放之时。 经过反复“讨价还价”，美国和伊朗达成了协议。 据新华社报道，美国东部时间14日，美国总统特朗普在社交媒体上发文说，美伊协议“现在完成”。伊朗最高国家安全委员会秘书处当地时间15日凌晨发表声明，正式宣布伊美已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。 此次，美国和伊朗同时发文证明，增加了美伊协
+极视角（06636）早盘涨逾12%，截至发稿，股价上涨8.17%，现报101.90港元，成交额4157.82万港元。 公开资料显示，极视角专注于为企业提供AI计算机视觉解决方案，并已成功拓展至具备商业可行性的AI大模型解决方案领域。根据弗若斯特沙利文的数据，按2024年收入计，极视角在中国新兴企业级计算机视觉解决方案市场中排名第八，市场份额为1.6%。 公司业务主要分为两个部分
 
 ## 正文
 
-特朗普称美伊19日签署协议之时，就是霍尔木兹海峡开放之时。
+极视角（06636）早盘涨逾12%，截至发稿，股价上涨8.17%，现报101.90港元，成交额4157.82万港元。
 
-经过反复“讨价还价”，美国和伊朗达成了协议。
+公开资料显示，极视角专注于为企业提供AI计算机视觉解决方案，并已成功拓展至具备商业可行性的AI大模型解决方案领域。
 
-据新华社报道，美国东部时间14日，美国总统特朗普在社交媒体上发文说，美伊协议“现在完成”。
+根据弗若斯特沙利文的数据，按2024年收入计，极视角在中国新兴企业级计算机视觉解决方案市场中排名第八，市场份额为1.6%。
 
-伊朗最高国家安全委员会秘书处当地时间15日凌晨发表声明，正式宣布伊美已最终敲定关于“结束战争谈判”的谅解备忘录文本，并计划于19日正式签署。
+公司业务主要分为两个部分，首先是AI计算器视觉解决方案，公司提供标准AI计算器视觉解决方案、定制AI计算器视觉解决方案及软件定义的一体化AI解决方案。
 
-此次，美国和伊朗同时发文证明，增加了美伊协议的确定性，不过虽然正式签字仪式近在咫尺，但长期互不信任仍是横亘在美伊之间的障碍。
+其次是大模型解决方案，公司利用多智能体优化、RAG及基于场景的算法等先进技术，提供为企业专业用途设计的定制化大模型解决方案。
 
-此外，以色列能否就此停火，尚未可知。
-
-西北大学中东研究所教授王晋向第一财经记者表示，这份协议回应了双方各自的国内诉求。
-
-美国方面希望通过停火实现从当前冲突中脱离；伊朗方面则有国内经济形势问题考量，同时停火也有助于其尽早重启内部政治整合。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 22:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 23:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 23:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:57 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 22:44 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 22:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 22:56 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 22:59 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 22:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 22:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 23:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 23:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 23:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 23:13 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 22:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 23:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 23:14 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 23:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 23:07 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 22:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/587887918007.shtml)
-- 2026-06-29 23:09 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/7946178171.shtml)
-- 2026-06-29 22:52 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/621408.shtml)
-- 2026-06-29 22:50 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/72581.shtml)
-- 2026-06-29 22:57 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/7290211.shtml)
-- 2026-06-29 22:50 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/906313541.shtml)
-- 2026-06-29 22:47 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/3890810673.shtml)
-- 2026-06-29 22:47 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/0710343.shtml)
-- 2026-06-29 23:03 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/9716027.shtml)
-- 2026-06-29 23:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/085200401980.shtml)
-- 2026-06-29 23:10 - [啊啊啊](https://www.blog.minike.top/Article/details/3630345672.shtml)
-- 2026-06-29 23:02 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/5032492916.shtml)
-- 2026-06-29 23:03 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/419410182410.shtml)
-- 2026-06-29 23:04 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/4540454480.shtml)
-- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/698676212.shtml)
+- 2026-06-29 23:00 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/9005111.shtml)
+- 2026-06-29 23:10 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/6077977.shtml)
+- 2026-06-29 23:00 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/2384164.shtml)
+- 2026-06-29 23:13 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/7473710.shtml)
+- 2026-06-29 22:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/601106864436.shtml)
+- 2026-06-29 22:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/932166100664.shtml)
+- 2026-06-29 23:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/300076.shtml)
+- 2026-06-29 23:12 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/929665744.shtml)
+- 2026-06-29 22:58 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/9524596185.shtml)
+- 2026-06-29 22:57 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/955119.shtml)
+- 2026-06-29 23:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/33002712.shtml)
+- 2026-06-29 22:51 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/147784445179.shtml)
+- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/33612996766.shtml)
+- 2026-06-29 22:54 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/4115833689.shtml)
+- 2026-06-29 23:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/4521127361.shtml)

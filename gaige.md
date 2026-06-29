@@ -1,53 +1,58 @@
-# 第十七届海峡两岸少儿美术大展厦门展开幕
+# 芯片巨头AMD、高通、安谋为自动驾驶初创公司Wayve提供新资金
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。 展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。 厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两
+核心要点 英国自动驾驶技术初创公司 Wayve 周三宣布，已获得高通、AMD 和安谋（Arm）的投资，在对抗谷歌母公司 Alphabet 旗下 Waymo 等竞争对手的同时，又将科技行业的一批顶尖企业纳入了投资方行列。 该公司周三表示，这三家半导体企业向 Wayve 注资 6000 万美元，作为今年 2 月这家自动驾驶公司宣布的 12 亿美元融资轮次的追加投资。 尽管金额相对不
 
 ## 正文
 
-发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。
+核心要点 英国自动驾驶技术初创公司 Wayve 周三宣布，已获得高通、AMD 和安谋（Arm）的投资，在对抗谷歌母公司 Alphabet 旗下 Waymo 等竞争对手的同时，又将科技行业的一批顶尖企业纳入了投资方行列。
 
-展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。
+该公司周三表示，这三家半导体企业向 Wayve 注资 6000 万美元，作为今年 2 月这家自动驾驶公司宣布的 12 亿美元融资轮次的追加投资。
 
-厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两岸城市举办巡展，延续这场跨越海峡的艺术之旅。
+尽管金额相对不大，但这笔投资具有重要战略意义。
 
-记者了解到，海峡两岸少儿美术大展是国台办对台重点交流项目，由两岸多家机构、单位共同发起并推动，自2009年至今已成功举办至十七届，是两岸覆盖面广、影响力大、水平高、持续时间长的少儿美术大展。
+Wayve 的技术无需依赖高清地图，也无需在特定区域进行海量训练即可实现车辆自动驾驶，这与 Waymo 等竞争对手的技术路线截然不同。
 
-(记者 吴晟炜) 责任编辑：【周驰】
+这家总部位于英国的公司所开发的技术可适配任何汽车制造商。
+
+不过不同车企会使用各类芯片驱动自动驾驶系统，例如英伟达或高通设计的芯片。
+
+安谋与 AMD 均涉足汽车芯片领域。
+
+在今年 2 月的 12 亿美元融资中，Wayve 已宣布英伟达成为投资方。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 23:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 23:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 22:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 23:00 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 23:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 22:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 22:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 23:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 23:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 22:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 23:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 23:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 23:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 22:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 23:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 23:01 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 23:06 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 22:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 23:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 23:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 23:11 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/879537397348.shtml)
-- 2026-06-29 23:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/0160864.shtml)
-- 2026-06-29 22:59 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/241574.shtml)
-- 2026-06-29 22:51 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/9614548194.shtml)
-- 2026-06-29 23:01 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/06191595.shtml)
-- 2026-06-29 22:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/247398449.shtml)
-- 2026-06-29 22:49 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/8748352.shtml)
-- 2026-06-29 22:54 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/38759626.shtml)
-- 2026-06-29 22:51 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/10462.shtml)
-- 2026-06-29 22:56 - [金刚川](https://www.share.kurohicncr.top/Article/details/40118319.shtml)
-- 2026-06-29 23:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/9534174.shtml)
-- 2026-06-29 23:10 - [急先锋](https://www.blog.kurohicncr.top/Article/details/461272488.shtml)
-- 2026-06-29 23:01 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/6711429.shtml)
-- 2026-06-29 23:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8481105.shtml)
-- 2026-06-29 22:44 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/962820.shtml)
+- 2026-06-29 23:12 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/8088218.shtml)
+- 2026-06-29 22:56 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/92992.shtml)
+- 2026-06-29 23:13 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/7756097.shtml)
+- 2026-06-29 23:10 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/109656.shtml)
+- 2026-06-29 22:48 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/699145619311.shtml)
+- 2026-06-29 22:59 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/488819.shtml)
+- 2026-06-29 22:48 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/75444416.shtml)
+- 2026-06-29 22:50 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/298554212.shtml)
+- 2026-06-29 22:52 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/85154.shtml)
+- 2026-06-29 22:58 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7175845.shtml)
+- 2026-06-29 22:58 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/405437.shtml)
+- 2026-06-29 23:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/919375738.shtml)
+- 2026-06-29 23:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/75314844738.shtml)
+- 2026-06-29 23:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/186632407545.shtml)
+- 2026-06-29 22:53 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/8469670.shtml)

@@ -1,56 +1,57 @@
-# 引入国资旗下投资机构，这家公司实控人拟变更！
+# 外交部驻港公署举办全国两会精神专题宣介会
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-距离上次股份转让尚不满一年，江苏必得科技股份有限公司(以下简称“必得科技”)实际控制人拟再度进行股权转让。6月14日晚间，必得科技公告称，6月12日，实际控制人王坚群、刘英与衢州启信企业管理合伙企业(有限合伙)(以下简称“衢州启信”)签署了《股份转让协议》，王坚群和刘英拟向衢州启信转让其持有上市公司合计1242.45万股股份，占上市公司总股本的6.6140%。本次标的股份转让价
+中新网香港4月15日电 (记者 戴小橦)中国外交部驻香港特别行政区特派员公署(简称“外交部驻港公署”)14日举办全国两会精神专题宣介会，来自44个国家的外国驻港总领事、代总领事出席。 外交部驻港公署特派员崔建春，以及全国政协常委廖长江、蔡冠深，港区全国人大代表陈振英，港区全国政协委员苏绍聪、任咏华等5位港区全国两会代表、委员，从不同角度作主旨宣讲。 会上，崔建春重点围绕中国外交
 
 ## 正文
 
-距离上次股份转让尚不满一年，江苏必得科技股份有限公司(以下简称“必得科技”)实际控制人拟再度进行股权转让。
+中新网香港4月15日电 (记者 戴小橦)中国外交部驻香港特别行政区特派员公署(简称“外交部驻港公署”)14日举办全国两会精神专题宣介会，来自44个国家的外国驻港总领事、代总领事出席。
 
-6月14日晚间，必得科技公告称，6月12日，实际控制人王坚群、刘英与衢州启信企业管理合伙企业(有限合伙)(以下简称“衢州启信”)签署了《股份转让协议》，王坚群和刘英拟向衢州启信转让其持有上市公司合计1242.45万股股份，占上市公司总股本的6.6140%。
+外交部驻港公署特派员崔建春，以及全国政协常委廖长江、蔡冠深，港区全国人大代表陈振英，港区全国政协委员苏绍聪、任咏华等5位港区全国两会代表、委员，从不同角度作主旨宣讲。
 
-本次标的股份转让价格为53.44元/股，转让价款合计6.64亿元。
+会上，崔建春重点围绕中国外交政策宣讲两会精神，从中国是维护和平的中坚力量、完善全球治理的稳定力量、推动合作的建设性力量、地区安全的稳定锚、发展振兴的同行者、开放合作的引领者等6个方面进行介绍，并表示香港必将在融入和服务国家高水平对外开放和世界互利共赢中发挥更大作用。
 
-本次交易为一揽子交易，王坚群拟向衢州启信转让持有的上市公司3.9651%股份，刘英拟向衢州启信转让持有的上市公司2.6490%股份。
+5位港区全国两会代表、委员分别从全局宏观视角和经贸、金融、法律、科技等专业角度，结合参加全国两会亲身感受和香港实际宣讲两会精神。
 
-交易完成后，衢州启信将成为公司持股5%以上股东，刘英则清仓退出，王坚群持股比例变为34.90%。
+宣讲后，崔建春和港区代表、委员同外国驻港总领事进行座谈交流。
 
-公司实际控制人由王坚群、刘英夫妻二人变更为王坚群，公司控股股东不变，仍为王坚群。
+与会外国驻港总领事认为宣介会形式创新、内容丰富，有助于其全面准确理解全国两会精神和“十五五”规划，并表示愿继续用好香港平台的独特优势，进一步深化对华、对港合作。
 
-必得科技在公告中表示，本次股份协议转让系公司实际控制人结合自身资金需要以及优化上市公司股权结构做出的安排。
-
-《证券日报》记者查阅公告发现，本次股权转让为实际控制人近一年内第二次进行股权转让。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:47 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 22:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 22:46 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 23:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 23:10 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:49 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 23:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 22:50 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 22:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 23:13 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 23:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 22:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:03 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 22:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 22:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 22:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:57 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 23:13 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 23:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:05 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 22:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 22:49 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/45976027684.shtml)
-- 2026-06-29 22:50 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/4883482117.shtml)
-- 2026-06-29 23:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/287947.shtml)
-- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/10088.shtml)
-- 2026-06-29 23:08 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/41438998394.shtml)
-- 2026-06-29 22:47 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/2879873739.shtml)
-- 2026-06-29 22:53 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/248953.shtml)
-- 2026-06-29 22:58 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8917091838.shtml)
-- 2026-06-29 22:57 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/9276575.shtml)
-- 2026-06-29 22:53 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/0828603726.shtml)
-- 2026-06-29 22:56 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/760255592416.shtml)
-- 2026-06-29 23:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/54272.shtml)
-- 2026-06-29 23:03 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/092696.shtml)
-- 2026-06-29 22:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/9301765288.shtml)
-- 2026-06-29 23:10 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/47037.shtml)
+- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/86794.shtml)
+- 2026-06-29 22:54 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/94016.shtml)
+- 2026-06-29 23:09 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/945100368730.shtml)
+- 2026-06-29 23:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/899844084260.shtml)
+- 2026-06-29 22:51 - [起风了](https://www.share.minike.top/Article/details/4213057677.shtml)
+- 2026-06-29 23:12 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/98189378351.shtml)
+- 2026-06-29 23:12 - [《贺子珍》](http://www.blog.minike.top/Article/details/31070.shtml)
+- 2026-06-29 22:59 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/22712165753.shtml)
+- 2026-06-29 23:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/021631.shtml)
+- 2026-06-29 23:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/6859127929.shtml)
+- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/298941403720.shtml)
+- 2026-06-29 23:05 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/770261055794.shtml)
+- 2026-06-29 23:13 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/49341506897.shtml)
+- 2026-06-29 22:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/0510768225.shtml)
+- 2026-06-29 23:09 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/071262006433.shtml)

@@ -1,57 +1,56 @@
-# 中东，突生变数！伊朗称将报复以色列
+# 哈警方查处多起“家庭式”贩毒案件 10天缴获近1吨毒品
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！突生变数。 据新华社消息，伊朗议会议长卡利巴夫今天（6月14日）在社交媒体发文表示，以色列对黎巴嫩首都贝鲁特南郊的袭击再次表明，美国“要么没有履行承诺的意愿，要么没有履行承诺的能力”，“继续推进对话进程变得不可能”。 与此同时，针对以色列14日再次袭击黎巴嫩首都贝鲁特南郊，伊朗武装部队哈塔姆·安比亚中央司令
+中新网阿斯塔纳4月15日电 据哈萨克斯坦警察网15日消息，哈内务部近期查处多起以亲属关系为纽带的贩毒案件，并在4月前10天累计缴获毒品近1吨。哈执法部门指出，当前该国毒品犯罪呈现“家庭化”趋势，部分不法分子将亲属拉入其中，形成相对隐蔽的犯罪链条。数据显示，4月前10天，哈执法部门从非法流通中缴获毒品近1吨，其中超过800公斤为合成毒品。 在阿拉木图市，警方拦截一辆汽车，查获两兄
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网阿斯塔纳4月15日电 据哈萨克斯坦警察网15日消息，哈内务部近期查处多起以亲属关系为纽带的贩毒案件，并在4月前10天累计缴获毒品近1吨。
 
-突生变数。
+哈执法部门指出，当前该国毒品犯罪呈现“家庭化”趋势，部分不法分子将亲属拉入其中，形成相对隐蔽的犯罪链条。
 
-据新华社消息，伊朗议会议长卡利巴夫今天（6月14日）在社交媒体发文表示，以色列对黎巴嫩首都贝鲁特南郊的袭击再次表明，美国“要么没有履行承诺的意愿，要么没有履行承诺的能力”，“继续推进对话进程变得不可能”。
+数据显示，4月前10天，哈执法部门从非法流通中缴获毒品近1吨，其中超过800公斤为合成毒品。
 
-与此同时，针对以色列14日再次袭击黎巴嫩首都贝鲁特南郊，伊朗武装部队哈塔姆·安比亚中央司令部副司令穆罕默德·贾法尔·阿萨迪表示，以色列在黎巴嫩的“罪行”必将遭到报复性打击。
+在阿拉木图市，警方拦截一辆汽车，查获两兄弟运输的合成毒品约1公斤，现场还缴获一支改装枪支及相关弹药。
 
-据伊朗新闻电视台14日报道，伊朗伊斯兰革命卫队一名高级指挥官表示，伊朗武装部队目前处于全面戒备状态，已做好应对任何敌对行动的准备。
+在阿拉木图州，执法人员捣毁一处由两兄弟组织的毒品种植点。
 
-该名指挥官说，伊朗正处于高度警戒状态。
+两人在租住房屋内种植大麻用于贩卖。
 
-任何方面试图对伊朗采取敌对行动，伊朗有能力并已准备好立即予以回应。
+警方共查获大麻植株102盆，总重量达61公斤，同时缴获植物补光灯、通风设备等相关设施。
 
-当天稍早前，以军再次空袭黎巴嫩首都贝鲁特南郊。
+另一起案件中，一名阿拉木图居民利用其姐姐住所进行毒品分装和藏匿。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 23:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 23:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 22:58 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 23:09 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 23:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 22:55 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 23:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 23:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 22:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 22:59 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 23:16 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 23:13 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 23:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 22:49 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 23:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 23:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 23:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 22:56 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 22:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 23:07 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/82538.shtml)
-- 2026-06-29 22:51 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/385681415.shtml)
-- 2026-06-29 23:01 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/00374006739.shtml)
-- 2026-06-29 22:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/20580309242.shtml)
-- 2026-06-29 23:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/26323.shtml)
-- 2026-06-29 22:58 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/1420212.shtml)
-- 2026-06-29 23:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/956630326.shtml)
-- 2026-06-29 22:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/07132987.shtml)
-- 2026-06-29 22:44 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/141311.shtml)
-- 2026-06-29 22:48 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/46308278.shtml)
-- 2026-06-29 23:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/877061.shtml)
-- 2026-06-29 22:48 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/781684248.shtml)
-- 2026-06-29 23:03 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7606983201.shtml)
-- 2026-06-29 22:50 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/92554316.shtml)
-- 2026-06-29 22:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/51176.shtml)
+- 2026-06-29 22:59 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/2732347.shtml)
+- 2026-06-29 23:06 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/19901.shtml)
+- 2026-06-29 23:05 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/73919.shtml)
+- 2026-06-29 22:52 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/836952006650.shtml)
+- 2026-06-29 22:56 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/474992.shtml)
+- 2026-06-29 23:10 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/7933634749.shtml)
+- 2026-06-29 22:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/4473299.shtml)
+- 2026-06-29 22:53 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/966812419.shtml)
+- 2026-06-29 23:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/901773582208.shtml)
+- 2026-06-29 23:12 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/8589124069.shtml)
+- 2026-06-29 23:17 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/60060.shtml)
+- 2026-06-29 23:10 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/206504554664.shtml)
+- 2026-06-29 23:12 - [东方风云榜直播](https://www.share.minike.top/Article/details/69660.shtml)
+- 2026-06-29 23:17 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/199113284519.shtml)
+- 2026-06-29 23:05 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/80736319566.shtml)

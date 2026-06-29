@@ -1,52 +1,48 @@
-# 美国股指期货上涨 美伊达成和平协议
+# 伊朗宣布全国各级学校将转为线上教学
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-美国股指期货上涨，美国和伊朗宣布达成和平协议，将重新开放霍尔木兹海峡，结束这场造成了数千人死亡的战争。 标普500指数指数期货涨0.8%，纳斯达克100指数期货涨1.3%。 美国总统特朗普称，霍尔木兹海峡将于周五协议签署时重新开放。恢复该关键水道的能源运输将缓解油价上涨压力，油价上涨已推高通胀并抑制了全球经济增长前景。责任编辑：王永生
+当地时间16日，伊朗教育部发言人表示，根据教育部决定，自本月21日起，全国各级学校将统一转为线上教学，直至另行通知。(总台记者 李健南 王寅）
 
 ## 正文
 
-美国股指期货上涨，美国和伊朗宣布达成和平协议，将重新开放霍尔木兹海峡，结束这场造成了数千人死亡的战争。
+当地时间16日，伊朗教育部发言人表示，根据教育部决定，自本月21日起，全国各级学校将统一转为线上教学，直至另行通知。
 
-标普500指数指数期货涨0.8%，纳斯达克100指数期货涨1.3%。
-
-美国总统特朗普称，霍尔木兹海峡将于周五协议签署时重新开放。
-
-恢复该关键水道的能源运输将缓解油价上涨压力，油价上涨已推高通胀并抑制了全球经济增长前景。
-
-责任编辑：王永生
+(总台记者 李健南 王寅）
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 22:45 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 22:53 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 23:00 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 22:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 23:02 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 23:10 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 22:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 22:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 23:07 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 23:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 22:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 23:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 22:58 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 23:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 23:10 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:54 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 23:08 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 22:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 23:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:01 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 23:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 23:03 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 23:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 23:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 23:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/01955132.shtml)
-- 2026-06-29 22:47 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/5122282.shtml)
-- 2026-06-29 22:52 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/373807745.shtml)
-- 2026-06-29 22:45 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/7897695152.shtml)
-- 2026-06-29 22:59 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/85980.shtml)
-- 2026-06-29 22:53 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/67230901578.shtml)
-- 2026-06-29 23:09 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/34527718.shtml)
-- 2026-06-29 22:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/084233.shtml)
-- 2026-06-29 22:57 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/306710222.shtml)
-- 2026-06-29 22:43 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/66236219989.shtml)
-- 2026-06-29 22:58 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/05671.shtml)
-- 2026-06-29 23:07 - [金刚川](https://www.blog.minike.top/Article/details/216460.shtml)
-- 2026-06-29 22:45 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/330930444.shtml)
-- 2026-06-29 22:50 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/77815342725.shtml)
-- 2026-06-29 23:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/3878252.shtml)
+- 2026-06-29 22:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/60847.shtml)
+- 2026-06-29 23:02 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/07533881.shtml)
+- 2026-06-29 23:17 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/36106.shtml)
+- 2026-06-29 23:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/25628764.shtml)
+- 2026-06-29 22:54 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/616918406179.shtml)
+- 2026-06-29 23:06 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/611070.shtml)
+- 2026-06-29 22:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/7554334203.shtml)
+- 2026-06-29 23:08 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/7964396461.shtml)
+- 2026-06-29 23:02 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/1310539.shtml)
+- 2026-06-29 23:08 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/587599888.shtml)
+- 2026-06-29 23:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/017291.shtml)
+- 2026-06-29 22:58 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/92414615381.shtml)
+- 2026-06-29 23:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/89350966407.shtml)
+- 2026-06-29 23:05 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/03705248537.shtml)
+- 2026-06-29 22:57 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/9660074.shtml)

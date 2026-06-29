@@ -1,51 +1,59 @@
-# 三花智控获Schroders PLC增持345.52万股 每股作价约29.05港元
+# 以“质量意识”抓落实（大家谈·树立和践行正确政绩观②）
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。增持后最新持股数目为6514.43万股，最新持股比例为13.67%。责任编辑：卢昱君
+习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。”抓好落实，容不得半点马虎，必须真刀真枪干。本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。与此同时，也需警惕“重速度，轻质量”的情况。 没有一定的发展速度，就难以实现既定的
 
 ## 正文
 
-香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。
+习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。
 
-增持后最新持股数目为6514.43万股，最新持股比例为13.67%。
+”抓好落实，容不得半点马虎，必须真刀真枪干。
 
-责任编辑：卢昱君
+本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。
+
+——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。
+
+与此同时，也需警惕“重速度，轻质量”的情况。
+
+没有一定的发展速度，就难以实现既定的目标；不把控好质量，即便速度上去了，发展也会难以为继。
+
+中部地区某市为开发温泉景区，不加论证就盲目引进打着生态发展旗号的“特色小镇”项目，结果项目大面积烂尾，造成土地闲置、资金浪费。
+
+这正说明，只有把速度和质量统一起来，发展才能可持续、没水分，避免留下“后遗症”。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 23:10 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 22:49 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 22:47 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 22:53 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 22:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 22:48 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 22:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 22:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 23:05 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 22:55 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 22:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 23:00 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 23:04 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 23:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 22:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 23:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 23:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 23:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 22:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 23:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 23:02 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 23:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 22:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 23:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 22:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 23:10 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 22:54 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/999473.shtml)
-- 2026-06-29 22:45 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/57048.shtml)
-- 2026-06-29 22:58 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/509453074574.shtml)
-- 2026-06-29 23:08 - [美股](https://www.blog.minike.top/Article/details/1413124566.shtml)
-- 2026-06-29 22:42 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/585552.shtml)
-- 2026-06-29 22:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/5115296.shtml)
-- 2026-06-29 23:07 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/288040415499.shtml)
-- 2026-06-29 23:05 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/53627325.shtml)
-- 2026-06-29 23:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/96891.shtml)
-- 2026-06-29 22:48 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/70563840.shtml)
-- 2026-06-29 22:43 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/0561993995.shtml)
-- 2026-06-29 22:42 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/02319274922.shtml)
-- 2026-06-29 23:09 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/74963.shtml)
-- 2026-06-29 22:57 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/52255608732.shtml)
-- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/968793868.shtml)
+- 2026-06-29 23:05 - [周生如故](http://www.blog.kurohicncr.top/Article/details/075898662.shtml)
+- 2026-06-29 22:51 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/722801593.shtml)
+- 2026-06-29 22:55 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/534877.shtml)
+- 2026-06-29 23:00 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/98206.shtml)
+- 2026-06-29 23:09 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/27217641.shtml)
+- 2026-06-29 22:52 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/45739.shtml)
+- 2026-06-29 23:14 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/00091075028.shtml)
+- 2026-06-29 22:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/08207617.shtml)
+- 2026-06-29 22:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/58704.shtml)
+- 2026-06-29 23:06 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/74991190287.shtml)
+- 2026-06-29 23:09 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/737770801548.shtml)
+- 2026-06-29 23:07 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/57491025659.shtml)
+- 2026-06-29 22:55 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/512588631.shtml)
+- 2026-06-29 23:02 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/262441.shtml)
+- 2026-06-29 22:57 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/77073.shtml)

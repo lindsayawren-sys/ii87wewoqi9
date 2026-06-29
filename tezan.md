@@ -1,51 +1,61 @@
-# 大摩：周大福维持“增持”评级 目标价19港元
+# 小米改款热度下降，吉利稳住第二，国产新能源等待新一轮爆发
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，维持对周大福（01929）的“增持”评级，目标价19港元，最牛情景目标价由25港元下调至24港元，最熊看9港元。该行下调周大福2027财年经营利润预测，但预计在更低的金价下对冲亏损会下降，因此上调每股盈利预测4%至1.06港元，2028财年每股盈利预测则下调4%至1.07港元。 大摩表示，金价已由今年2月高位回落，此下跌释放了对于按重量计价黄金珠宝产品的被
+34分钟内锁单量突破1.5万台，这是小米新一代Su7的成绩。小米毫无疑问还是十分能打，但跟过去的自己比，已经下滑。回到2024年初代SU7上市，27分钟大定5万台。一场发布会锁定一年的产能，这样的盛况已经不复存在。曾经红得发紫的小米，回到同一起跑线。3月，随着车辆购置税减免政策落地，国际环境变迁，国产新能源启动新一年的增长。Part.01静待新一轮爆发第一季度往往是新能源汽车的
 
 ## 正文
 
-摩根士丹利发布研报称，维持对周大福（01929）的“增持”评级，目标价19港元，最牛情景目标价由25港元下调至24港元，最熊看9港元。
+34分钟内锁单量突破1.5万台，这是小米新一代Su7的成绩。
 
-该行下调周大福2027财年经营利润预测，但预计在更低的金价下对冲亏损会下降，因此上调每股盈利预测4%至1.06港元，2028财年每股盈利预测则下调4%至1.07港元。
+小米毫无疑问还是十分能打，但跟过去的自己比，已经下滑。
 
-大摩表示，金价已由今年2月高位回落，此下跌释放了对于按重量计价黄金珠宝产品的被压抑需求，这类产品亦占公司六成销售，虽然4-5月同店销售增长强于预期，但是由于按重量计价的产品是以现货金价销售，金价走弱可能会转化为较低的毛利率及经营利润率。
+回到2024年初代SU7上市，27分钟大定5万台。
 
-责任编辑：卢昱君
+一场发布会锁定一年的产能，这样的盛况已经不复存在。
+
+曾经红得发紫的小米，回到同一起跑线。
+
+3月，随着车辆购置税减免政策落地，国际环境变迁，国产新能源启动新一年的增长。
+
+Part.01静待新一轮爆发第一季度往往是新能源汽车的淡季。
+
+结束了年终促销，市场处在以旧换新政策、购置税减免政策尚未全面出台的空窗期，多数车主处于观望状态，因此1月、2月厂商销量往往并不理想。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 22:51 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 22:58 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 23:00 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 22:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 22:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 23:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 22:46 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 22:49 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 23:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 22:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 23:01 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:45 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 23:14 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 22:56 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 23:04 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 23:11 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 22:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 23:14 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 23:04 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 22:55 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 23:09 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 23:13 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 22:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 23:14 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 23:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/0484077.shtml)
-- 2026-06-29 22:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/200048212029.shtml)
-- 2026-06-29 23:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/288298151.shtml)
-- 2026-06-29 22:45 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/604771.shtml)
-- 2026-06-29 23:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/31336735.shtml)
-- 2026-06-29 22:54 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/477031575.shtml)
-- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/493236067.shtml)
-- 2026-06-29 23:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/08498102.shtml)
-- 2026-06-29 22:47 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/81036144.shtml)
-- 2026-06-29 22:45 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/0720450.shtml)
-- 2026-06-29 22:56 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/2198213.shtml)
-- 2026-06-29 22:50 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/38115625.shtml)
-- 2026-06-29 23:03 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/07051.shtml)
-- 2026-06-29 23:07 - [美人鱼](https://www.share.kurohicncr.top/Article/details/3642058685.shtml)
-- 2026-06-29 23:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/08489201.shtml)
+- 2026-06-29 22:51 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/103632159.shtml)
+- 2026-06-29 23:13 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/975937178.shtml)
+- 2026-06-29 22:58 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/1939301.shtml)
+- 2026-06-29 23:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/294599901959.shtml)
+- 2026-06-29 22:56 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/010140650.shtml)
+- 2026-06-29 22:59 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/99560.shtml)
+- 2026-06-29 22:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/76310.shtml)
+- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/7979341.shtml)
+- 2026-06-29 23:17 - [女心理师](http://www.share.minike.top/Article/details/922179.shtml)
+- 2026-06-29 23:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/568553356.shtml)
+- 2026-06-29 23:05 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/64831541.shtml)
+- 2026-06-29 22:58 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/18628.shtml)
+- 2026-06-29 22:56 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/80170.shtml)
+- 2026-06-29 23:07 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/108203993694.shtml)
+- 2026-06-29 22:54 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/766466503516.shtml)

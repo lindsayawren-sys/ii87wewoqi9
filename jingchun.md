@@ -1,56 +1,61 @@
-# “全球大模型第一股”智谱再度大涨超10%，市值突破7000亿港元！ A股如何借道布局？
+# 机器人半马即将开跑，五大看点早知道
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-今日（6月16日），港股硬科技板块在昨日大涨后迎来小幅盘整，崛起中的大模型巨头智谱继昨日单日飙涨32%后今日再度发力，逆市涨超10%，市值突破7000亿港元！同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）窄幅震荡，场内价格现跌0.46%，盘中溢价明显，实时成交额7.5亿元。 业内人士认为港股通制度调整是本轮AI板块走强的一大支撑。6月8日，壁仞科技、天数智
+中新网北京4月15日电(记者 吴家驹)2026人形机器人半程马拉松将于4月19日在北京亦庄开跑，五大看点值得关注。 第一：谁更能跑？ 去年4月的人形机器人半马，天工机器人一骑绝尘夺冠，宇树官方并未派队参赛。当时有第三方队伍使用宇树机器人参赛，结果在起点就直接摔倒，成绩不佳，一时让宇树机器人的跑步能力备受质疑。 到了8月的2025世界人形机器人运动会，情况出现反转。宇树机器人在1
 
 ## 正文
 
-今日（6月16日），港股硬科技板块在昨日大涨后迎来小幅盘整，崛起中的大模型巨头智谱继昨日单日飙涨32%后今日再度发力，逆市涨超10%，市值突破7000亿港元！
+中新网北京4月15日电(记者 吴家驹)2026人形机器人半程马拉松将于4月19日在北京亦庄开跑，五大看点值得关注。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）窄幅震荡，场内价格现跌0.46%，盘中溢价明显，实时成交额7.5亿元。
+第一：谁更能跑？
 
-业内人士认为港股通制度调整是本轮AI板块走强的一大支撑。
+去年4月的人形机器人半马，天工机器人一骑绝尘夺冠，宇树官方并未派队参赛。
 
-6月8日，壁仞科技、天数智芯、智谱、海致科技四家企业集中调入港股通，覆盖了国产AI产业完整闭环：壁仞科技、天数智芯解决算力供给；智谱提供通用大模型能力；海致科技聚焦产业落地。
+当时有第三方队伍使用宇树机器人参赛，结果在起点就直接摔倒，成绩不佳，一时让宇树机器人的跑步能力备受质疑。
 
-四家企业同步纳入南向资金池，内地资金可直接配置国产AI核心资产。
+到了8月的2025世界人形机器人运动会，情况出现反转。
 
-6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
+宇树机器人在1500米、400米、4×100米接力多个跑步项目中，面对面击败天工机器人，完成“复仇”。
 
-就在当天，智谱正式纳入港股通信息技术ETF华宝（159131）标的指数成份股，该指数成为全市场率先纳入智谱的港股科技类指数之一。
+不过在备受瞩目的100米“飞机器人大战”中，宇树机器人率先冲线，而天工机器人凭借自主跑步的系数加成最终夺冠。
 
-同步纳入的新晋成份股还有壁仞科技、胜宏科技、天数智芯、海致科技等硬件翘楚。
+两家已经“卯上”的机器人公司，4月19日谁能笑到最后？
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 22:48 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 23:05 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 23:01 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 22:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 22:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 22:49 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 23:03 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 22:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 22:48 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 23:13 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 22:55 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 23:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 23:11 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 23:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 22:48 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 22:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 22:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 22:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 23:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 22:48 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 23:16 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 22:53 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [新官上任三把火](http://www.blog.minike.top/Article/details/76757.shtml)
-- 2026-06-29 22:46 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/309997354.shtml)
-- 2026-06-29 23:04 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/24246539758.shtml)
-- 2026-06-29 22:50 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/20175.shtml)
-- 2026-06-29 23:00 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/47368894224.shtml)
-- 2026-06-29 23:06 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/315369112.shtml)
-- 2026-06-29 23:10 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/45564.shtml)
-- 2026-06-29 22:49 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/9914845794.shtml)
-- 2026-06-29 23:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/594996.shtml)
-- 2026-06-29 22:59 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/49294.shtml)
-- 2026-06-29 22:43 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/101860122.shtml)
-- 2026-06-29 22:46 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/58688455695.shtml)
-- 2026-06-29 22:58 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/8665699.shtml)
-- 2026-06-29 22:43 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/80567800.shtml)
-- 2026-06-29 23:03 - [扬名立万](https://www.share.minike.top/Article/details/923885.shtml)
+- 2026-06-29 22:50 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/83020075.shtml)
+- 2026-06-29 23:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/64107.shtml)
+- 2026-06-29 22:56 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/922818257551.shtml)
+- 2026-06-29 23:04 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/71067955339.shtml)
+- 2026-06-29 22:48 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/200892.shtml)
+- 2026-06-29 23:07 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/1923263.shtml)
+- 2026-06-29 23:04 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/131793.shtml)
+- 2026-06-29 23:16 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/51273048.shtml)
+- 2026-06-29 23:11 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/97240.shtml)
+- 2026-06-29 22:55 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/148529740.shtml)
+- 2026-06-29 23:13 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/97221.shtml)
+- 2026-06-29 23:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/980722676930.shtml)
+- 2026-06-29 23:14 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/288718094537.shtml)
+- 2026-06-29 23:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/305316.shtml)
+- 2026-06-29 23:08 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/30380204711.shtml)

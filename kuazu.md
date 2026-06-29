@@ -1,58 +1,59 @@
-# 国际社会多方欢迎美国和伊朗达成谅解备忘录
+# （乡村行·看振兴）支教“夫妻档”：千里送初心
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 综合消息：针对美国和伊朗达成谅解备忘录一事，当地时间14日以来，国际社会多方发声表示欢迎，称其有助于和平解决冲突、恢复地区稳定。 综合联合国新闻网、路透社、卡塔尔半岛电视台、土耳其阿纳多卢通讯社等报道，联合国秘书长发言人14日发表声明称，秘书长古特雷斯对美伊双方就和平协议达成一致表示欢迎，并称其为解决冲突的“关键一步”。声明同时赞赏巴基斯坦、卡塔尔、埃及
+中新网兴安盟4月16日电题：支教“夫妻档”：千里送初心 作者 张玮 曾令刚 又是一年开学季，在内蒙古自治区兴安盟突泉县的校园里，一群来自北京的教育工作者，怀揣振兴乡村教育的初心，跨越千里扎根草原，用先进教育理念、优质教学资源为当地学子点亮成长之路。 清晨，突泉县三街小学书声琅琅，来自北京市房山区良乡第四小学的支教教师王英华，正站在一年级语文课堂上，引导孩子们品读课文、感知文字之
 
 ## 正文
 
-中新社北京6月15日电 综合消息：针对美国和伊朗达成谅解备忘录一事，当地时间14日以来，国际社会多方发声表示欢迎，称其有助于和平解决冲突、恢复地区稳定。
+中新网兴安盟4月16日电题：支教“夫妻档”：千里送初心 作者 张玮 曾令刚 又是一年开学季，在内蒙古自治区兴安盟突泉县的校园里，一群来自北京的教育工作者，怀揣振兴乡村教育的初心，跨越千里扎根草原，用先进教育理念、优质教学资源为当地学子点亮成长之路。
 
-综合联合国新闻网、路透社、卡塔尔半岛电视台、土耳其阿纳多卢通讯社等报道，联合国秘书长发言人14日发表声明称，秘书长古特雷斯对美伊双方就和平协议达成一致表示欢迎，并称其为解决冲突的“关键一步”。
+清晨，突泉县三街小学书声琅琅，来自北京市房山区良乡第四小学的支教教师王英华，正站在一年级语文课堂上，引导孩子们品读课文、感知文字之美。
 
-声明同时赞赏巴基斯坦、卡塔尔、埃及、沙特阿拉伯、土耳其和其他地区国家在支持谈判方面发挥的作用，并呼吁各方乘势而上，加倍努力，争取最终达成解决方案。
+“在我57周岁这年，终于圆了萦绕心头多年的支教梦。
 
-英国、法国、德国、意大利15日发表联合声明，欢迎美伊双方达成谅解备忘录。
+”作为班主任和语文教师，王英华坦言，能投身乡村教育，她倍感珍惜。
 
-声明称，该谅解备忘录为恢复地区稳定及促进全球经济稳定提供了机遇，相关方应予以全面落实。
+“我希望结合突泉县的教育实际，与当地教师携手推进教学改革，助力孩子们全面成长。
 
-四国将与美国、伊朗和地区伙伴密切合作，“保持这一势头，达成长期的外交解决方案”。
+” 课堂上，王英华创新性引入北京良乡第四小学成熟的“大拇指”鼓励机制，推行代币制评价体系，将早读、课堂互动、课间纪律、日常行为规范等细节全部纳入激励范畴。
 
-声明同时呼吁重新开放霍尔木兹海峡，并强调不可让伊朗获得核武器。
+孩子们每一次认真听讲、每一次主动发言、每一次遵守规则，都能收获一枚“大拇指”奖励，积累一定数量可兑换贴画、文创袋等小礼品。
 
-英国首相斯塔默在社交媒体上发表声明称，当前的重点是全面落实这份谅解备忘录，确保霍尔木兹海峡重新开放并保持全面、永久畅通。
+“王老师用小目标激励同学们养成良好品行与学习习惯，让课堂氛围愈发活跃，我们的学习积极性显著提升。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 23:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 22:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 23:06 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 22:44 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 22:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 22:55 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 22:53 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 23:02 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 22:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 22:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 22:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 23:00 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 23:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:17 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 22:50 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 22:51 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 23:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 22:50 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 23:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 23:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 22:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 23:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 22:48 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/8180911801.shtml)
-- 2026-06-29 23:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/74688.shtml)
-- 2026-06-29 22:42 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/447590831769.shtml)
-- 2026-06-29 23:03 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/575842529.shtml)
-- 2026-06-29 23:08 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/570472422.shtml)
-- 2026-06-29 22:46 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/09684817.shtml)
-- 2026-06-29 23:10 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/89671541.shtml)
-- 2026-06-29 22:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/8467783094.shtml)
-- 2026-06-29 23:09 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/817627859.shtml)
-- 2026-06-29 22:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/35756.shtml)
-- 2026-06-29 22:58 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/80001004.shtml)
-- 2026-06-29 22:43 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/3001020629.shtml)
-- 2026-06-29 23:03 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/1857200.shtml)
-- 2026-06-29 22:48 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/10104684240.shtml)
-- 2026-06-29 22:47 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/79275.shtml)
+- 2026-06-29 23:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/6472550.shtml)
+- 2026-06-29 22:54 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/129905.shtml)
+- 2026-06-29 22:53 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/85437.shtml)
+- 2026-06-29 23:17 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/34552218608.shtml)
+- 2026-06-29 23:11 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/2593398.shtml)
+- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/447693435.shtml)
+- 2026-06-29 23:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/47882667.shtml)
+- 2026-06-29 22:50 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/4011868.shtml)
+- 2026-06-29 22:56 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/5195200313.shtml)
+- 2026-06-29 23:09 - [《贺子珍》](https://www.blog.minike.top/Article/details/9629689726.shtml)
+- 2026-06-29 22:53 - [勇敢的心第二部](https://www.share.minike.top/Article/details/00259541679.shtml)
+- 2026-06-29 22:55 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/301115634.shtml)
+- 2026-06-29 23:16 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/823743127.shtml)
+- 2026-06-29 23:13 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/72866.shtml)
+- 2026-06-29 23:02 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/947143684381.shtml)

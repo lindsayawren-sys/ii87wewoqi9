@@ -1,60 +1,57 @@
-# 绿电点亮南博会 更连通澜湄万家灯火
+# 美联储，重磅报告！
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
+来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！昨夜今晨又有很多大事发生。 美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。 美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。 标普500指数、纳指创收盘新高 美国三大股指
 
 ## 正文
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
+来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。
 
-中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
+特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！
 
-绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
+昨夜今晨又有很多大事发生。
 
-在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
+美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。
 
-今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
+大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。
 
-“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
+美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。
 
-”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
+标普500指数、纳指创收盘新高 美国三大股指收盘涨跌不一，道指跌0.15%，报48463.72点；标普500指数涨0.8%，报7022.95点；纳指涨1.59%，报24016.02点，录得连续11日上涨。
 
-黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
+标普500指数、纳指创收盘新高。
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 22:55 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:50 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 23:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 23:00 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 22:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 22:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 23:05 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 22:44 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 22:59 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 23:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 22:48 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 22:59 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 23:14 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 22:52 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 22:48 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 22:52 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 22:59 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 22:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 23:14 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 23:05 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 23:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/1648292283.shtml)
-- 2026-06-29 22:55 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/986498848.shtml)
-- 2026-06-29 23:00 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/6991272.shtml)
-- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/5558363.shtml)
-- 2026-06-29 22:43 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/95862294.shtml)
-- 2026-06-29 22:56 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/55741483152.shtml)
-- 2026-06-29 23:11 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/377115631.shtml)
-- 2026-06-29 23:07 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/111861.shtml)
-- 2026-06-29 22:43 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/774948179104.shtml)
-- 2026-06-29 23:00 - [起风了](https://www.blog.minike.top/Article/details/48744429.shtml)
-- 2026-06-29 22:42 - [女心理师](http://www.share.minike.top/Article/details/89354362559.shtml)
-- 2026-06-29 22:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/9461607.shtml)
-- 2026-06-29 22:52 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/042734.shtml)
-- 2026-06-29 22:58 - [急先锋](https://www.share.kurohicncr.top/Article/details/638187541226.shtml)
-- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/8851202893.shtml)
+- 2026-06-29 22:52 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/7123824.shtml)
+- 2026-06-29 22:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/09990.shtml)
+- 2026-06-29 22:49 - [沉睡花园](http://www.share.minike.top/Article/details/61371277234.shtml)
+- 2026-06-29 23:16 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/182476101645.shtml)
+- 2026-06-29 23:03 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/7277208.shtml)
+- 2026-06-29 22:59 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/9413234.shtml)
+- 2026-06-29 22:48 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/28210666639.shtml)
+- 2026-06-29 23:04 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/32952.shtml)
+- 2026-06-29 22:51 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/703387510961.shtml)
+- 2026-06-29 23:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/52851.shtml)
+- 2026-06-29 23:03 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/99728.shtml)
+- 2026-06-29 23:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/098569878.shtml)
+- 2026-06-29 23:08 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/23730.shtml)
+- 2026-06-29 22:51 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/67850.shtml)
+- 2026-06-29 22:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/843320518441.shtml)

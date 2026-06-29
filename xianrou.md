@@ -1,56 +1,56 @@
-# 东西问｜赵树坤：东西方如何携手迈向“数字包容”新图景？
+# 欧洲债市：债券收益率小幅上升 市场走势平静
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社成都6月14日电 题：东西方如何携手迈向“数字包容”新图景？ 作者 赵树坤 西南政法大学人权研究院教授、《人权法学》副主编 包容和包容性是联合国《全球数字契约》、欧盟《数字十年政策计划》等文本中的高频词。中国在快速推进数字建设的同时，始终关注“数字包容”议题。 “数字包容”源于对数字鸿沟的回应。早期主要关注网络接入、设备拥有和信息获取的差距等问题。在中国，这些问题进一步与
+欧洲国债周三小幅下跌，投资者正等待有关伊朗战争的实质性消息。市场窄幅震荡，并未受到美伊停火可能延长两周的影响。 收益率曲线熊市陡化，德国、法国和意大利的2年期国债收益率变化不大。2年10年期曲线陡化2-3个基点。 期限较长的英国国债跌幅最大，30年期英国国债收益率上涨4个基点。 市场加大对英国央行收紧货币政策的押注，预计到12月累计加息40个基点。 自伊朗战争爆发以来，债券表现
 
 ## 正文
 
-中新社成都6月14日电 题：东西方如何携手迈向“数字包容”新图景？
+欧洲国债周三小幅下跌，投资者正等待有关伊朗战争的实质性消息。
 
-作者 赵树坤 西南政法大学人权研究院教授、《人权法学》副主编 包容和包容性是联合国《全球数字契约》、欧盟《数字十年政策计划》等文本中的高频词。
+市场窄幅震荡，并未受到美伊停火可能延长两周的影响。
 
-中国在快速推进数字建设的同时，始终关注“数字包容”议题。
+收益率曲线熊市陡化，德国、法国和意大利的2年期国债收益率变化不大。
 
-“数字包容”源于对数字鸿沟的回应。
+2年10年期曲线陡化2-3个基点。
 
-早期主要关注网络接入、设备拥有和信息获取的差距等问题。
+期限较长的英国国债跌幅最大，30年期英国国债收益率上涨4个基点。
 
-在中国，这些问题进一步与城乡、区域以及老年人、残障人士、妇女儿童等特定群体的数字机会平等联系在一起。
+市场加大对英国央行收紧货币政策的押注，预计到12月累计加息40个基点。
 
-随着各领域数字化的发展，这些问题被进一步扩展为接入、使用、服务和发展机会的综合公平。
+自伊朗战争爆发以来，债券表现一直与能源价格密切相关，周三能源价格也小幅波动，布伦特原油价格上涨0.6%。
 
-中国正在通过基础设施建设、产品适配、场景嵌入和能力支持，将“数字包容”实体化。
+市场： 德国国债收益率上涨2个基点至3.04%； 德国国债期货跌4.00个点至125.28%； 意大利10年期国债收益率上涨3个基点至3.81%； 意大利-德国国债利差扩大2个基点至77基点； 法国10年期国债收益率上涨2个基点至3.68%； 10年期英国国债收益率上涨3个基点至4.81%。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 22:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 22:47 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 23:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 22:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 23:11 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 22:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:03 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 22:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 23:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 22:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 23:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 22:56 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 23:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 23:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 22:50 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 22:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/4282380439.shtml)
-- 2026-06-29 23:11 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/916469960789.shtml)
-- 2026-06-29 23:06 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/26325008875.shtml)
-- 2026-06-29 22:47 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/462208810516.shtml)
-- 2026-06-29 23:06 - [新官上任三把火](https://www.blog.minike.top/Article/details/0543892.shtml)
-- 2026-06-29 22:58 - [月亮](https://www.share.minike.top/Article/details/99951.shtml)
-- 2026-06-29 23:07 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/4918241144.shtml)
-- 2026-06-29 22:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/270649.shtml)
-- 2026-06-29 22:50 - [扬名立万](https://www.share.minike.top/Article/details/241702516.shtml)
-- 2026-06-29 22:48 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/57039349447.shtml)
-- 2026-06-29 23:04 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/51904.shtml)
-- 2026-06-29 22:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/580442889713.shtml)
-- 2026-06-29 23:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/440622.shtml)
-- 2026-06-29 23:02 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/676574759492.shtml)
-- 2026-06-29 23:09 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/78435.shtml)
+- 2026-06-29 22:53 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/130371354.shtml)
+- 2026-06-29 22:54 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/968247809.shtml)
+- 2026-06-29 23:14 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/65437.shtml)
+- 2026-06-29 23:04 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/96003.shtml)
+- 2026-06-29 22:56 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/027378.shtml)
+- 2026-06-29 22:52 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/97367.shtml)
+- 2026-06-29 23:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/485634.shtml)
+- 2026-06-29 22:54 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/26920947560.shtml)
+- 2026-06-29 22:51 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/97843438.shtml)
+- 2026-06-29 23:11 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/783736358.shtml)
+- 2026-06-29 23:13 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/37262053107.shtml)
+- 2026-06-29 22:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/70435493544.shtml)
+- 2026-06-29 23:02 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/61216855241.shtml)
+- 2026-06-29 23:04 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/5393098.shtml)
+- 2026-06-29 22:55 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/806911063.shtml)

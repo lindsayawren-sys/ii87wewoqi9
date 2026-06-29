@@ -1,59 +1,50 @@
-# 比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队
+# 国家安全，我们一起守护！
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-世界杯早知道丨比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队 北京时间6月16日，2026年美加墨世界杯进行G组首轮角逐，比利时队对阵埃及队。最终，比利时队1-1战平埃及队。 第19分钟，埃及队萨拉赫送出助攻，阿舒尔禁区外打出贴地斩，埃及1-0领先比利时。 第66分钟，比利时队卢卡库替补登场，第一脚触球就造成埃及队后卫哈尼乌龙球，比利时1-1埃及。H组比赛 佛得角队爆冷逼平
+发布时间：2026年04月15日 10:24 来源：中国新闻网 4月15日是全民国家安全教育日。武警贵州总队安顺支队倡导大家筑牢思想防线，严守纪律规矩，自觉抵制各类风险，以实际行动守护国家安全。（作者：倪双云、唐忠飞、孟令照） 责任编辑：【魏聪聪】
 
 ## 正文
 
-世界杯早知道丨比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队 北京时间6月16日，2026年美加墨世界杯进行G组首轮角逐，比利时队对阵埃及队。
+发布时间：2026年04月15日 10:24 来源：中国新闻网 4月15日是全民国家安全教育日。
 
-最终，比利时队1-1战平埃及队。
+武警贵州总队安顺支队倡导大家筑牢思想防线，严守纪律规矩，自觉抵制各类风险，以实际行动守护国家安全。
 
-第19分钟，埃及队萨拉赫送出助攻，阿舒尔禁区外打出贴地斩，埃及1-0领先比利时。
-
-第66分钟，比利时队卢卡库替补登场，第一脚触球就造成埃及队后卫哈尼乌龙球，比利时1-1埃及。
-
-H组比赛 佛得角队爆冷逼平西班牙队 在稍早前结束的H组比赛中，西班牙队0-0战平佛得角队。
-
-本场比赛两队均无进球，成为本届世界杯开赛以来首场0-0的比赛。
-
-佛得角门将沃西尼亚屡次救险，高接低挡，力保球门不失。
-
-比赛预告 今天，世界杯赛场还将迎来两场激烈角逐。
+（作者：倪双云、唐忠飞、孟令照） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 22:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 23:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 23:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 23:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 23:11 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:50 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 22:56 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 23:09 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 22:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 23:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 22:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 22:53 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 23:11 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 22:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 23:13 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 23:08 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 23:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 22:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 22:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 23:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:58 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:12 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 22:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 23:04 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 22:58 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/928730331.shtml)
-- 2026-06-29 22:47 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/68208.shtml)
-- 2026-06-29 23:09 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/555643099.shtml)
-- 2026-06-29 22:54 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/84565502.shtml)
-- 2026-06-29 23:09 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/754063382.shtml)
-- 2026-06-29 22:52 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/7759334.shtml)
-- 2026-06-29 23:09 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/456991001894.shtml)
-- 2026-06-29 22:42 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/977224887.shtml)
-- 2026-06-29 23:06 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/0608188.shtml)
-- 2026-06-29 23:08 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/99714.shtml)
-- 2026-06-29 22:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/2718390941.shtml)
-- 2026-06-29 22:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/78154181.shtml)
-- 2026-06-29 22:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/09439233557.shtml)
-- 2026-06-29 23:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/7351605450.shtml)
-- 2026-06-29 23:04 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/76734292.shtml)
+- 2026-06-29 23:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/406048.shtml)
+- 2026-06-29 22:51 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/51427087.shtml)
+- 2026-06-29 23:10 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/745532.shtml)
+- 2026-06-29 23:05 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/535024720897.shtml)
+- 2026-06-29 23:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/7292978.shtml)
+- 2026-06-29 23:06 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/027655073.shtml)
+- 2026-06-29 23:02 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/55009.shtml)
+- 2026-06-29 23:00 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/206449.shtml)
+- 2026-06-29 22:59 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/65269.shtml)
+- 2026-06-29 23:04 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/386529468674.shtml)
+- 2026-06-29 22:56 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/39532142.shtml)
+- 2026-06-29 22:57 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/949872.shtml)
+- 2026-06-29 22:55 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/730017.shtml)
+- 2026-06-29 23:14 - [沉睡花园](https://www.share.minike.top/Article/details/88653953859.shtml)
+- 2026-06-29 23:17 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/09263694403.shtml)

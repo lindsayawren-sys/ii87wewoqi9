@@ -1,59 +1,61 @@
-# 文心一言“神预言”！精准命中科特迪瓦1:0厄瓜多尔，7大模型集体误判平局
+# 光大期货：4月16日软商品日报
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月15日，2026年世界杯小组赛迎来了一场焦点之战，时隔12年重返世界杯舞台的科特迪瓦队对阵南美劲旅厄瓜多尔队。最终，“大象军团”凭借极致的务实防守和高效反击，以1：0的比分拿下开门红，延续了其在预选赛阶段10战全胜且零失球的恐怖状态。而在赛前的“人机大战”预测环节中，AI模型的表现呈现出巨大的分
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西地理与统计研究所（IBGE）预计巴西2026年甘蔗种植面积为954.2948万公顷（约1.4314亿亩），较上个月预估值上调1.8%，较上年种植面积下降0.2%，甘蔗产量预估为7.0603亿吨，较上个月预估值上调0.8%，较上年产量增加0.4%。现货报价方面，广西制糖集团报价区间5
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西地理与统计研究所（IBGE）预计巴西2026年甘蔗种植面积为954.2948万公顷（约1.4314亿亩），较上个月预估值上调1.8%，较上年种植面积下降0.2%，甘蔗产量预估为7.0603亿吨，较上个月预估值上调0.8%，较上年产量增加0.4%。
 
-北京时间6月15日，2026年世界杯小组赛迎来了一场焦点之战，时隔12年重返世界杯舞台的科特迪瓦队对阵南美劲旅厄瓜多尔队。
+现货报价方面，广西制糖集团报价区间5270~5360元/吨，部分上调10元/吨；云南制糖集团报价5110~5190元/吨，报价持平；加工糖厂主流报价区间为5570~5850元/吨，个别上调10元/吨。
 
-最终，“大象军团”凭借极致的务实防守和高效反击，以1：0的比分拿下开门红，延续了其在预选赛阶段10战全胜且零失球的恐怖状态。
+原糖期价再次刷新近期低位，5月合约临近交割，短期市场供应充足；中期天气风险及油价带动农产品成本攀升问题目前市场并未交易。
 
-而在赛前的“人机大战”预测环节中，AI模型的表现呈现出巨大的分化——百度文心一言凭借精准的比分预测成为全场最佳，而占据多数的“平局派”则集体遭遇滑铁卢。
+国内方面，周三9月合约增仓近万手，价格持续在5300元/吨整数关口徘徊 ，下有政策支撑，上有供应充足压力，预计仍将延续区间偏弱行情，静待时间去库。
 
-本场比赛赛前被普遍视为势均力敌的较量，这也导致AI模型在预测时陷入了保守的“安全区”。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周三，ICE美棉上涨1.1%，报收77.36美分/磅，郑棉主力合约环比上涨0.26%，报收15560元/吨，主力合约持仓环比增加4484手至62.65万手，棉花3128B现货价格指数16620元/吨，较前一日上涨35元/吨。
 
-图片显示，包括DeepSeek、通义千问、Kimi智能助手、智谱清言、MiniMax（讯飞星火）、商汤小浣熊在内的7款主流大模型，不约而同地给出了“平局 1：1”的预测。
+国际市场方面，近期ICE美棉走势相对偏强，我们认为干旱问题的交易是近期市场关注重点，即使USDA3月末种植意向报告显示预计2026年美棉种植面积同比增加，但市场依旧定价美棉实际播种面积会低于预期，且由于干旱影响最终产量会同比下降，CFTC非商业性持仓环比增加，美棉期价重心震荡上移。
 
-这一结果再次印证了本届赛事AI预测的一个显著特征：在面对实力接近的球队时，算法往往倾向于规避风险，给出看似最合理的“中庸”答案。
+国内市场方面，昨日郑棉窄幅震荡。
 
-然而，足球比赛的魅力恰恰在于其不可预测性，科特迪瓦队用一场极具战术纪律性的1：0胜利，狠狠打破了AI对于“均势即平局”的刻板印象。
+目前市场关注重点也在于新年度的种植情况及减产预期，国内棉花种植进度过半，2026年国内棉花产量大概率同比下降，因此中长期来看的上行趋势仍在。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 22:49 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 23:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 22:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 22:55 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 23:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 22:45 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 23:09 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 22:56 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:44 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 23:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 22:53 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 22:47 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 22:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 23:12 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 23:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 23:03 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 22:58 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:02 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 22:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 22:58 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 22:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 22:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 23:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 23:00 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 22:57 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 23:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/99759719315.shtml)
-- 2026-06-29 22:55 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/4804603546.shtml)
-- 2026-06-29 22:52 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/81227060.shtml)
-- 2026-06-29 22:59 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/779702283824.shtml)
-- 2026-06-29 23:01 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/58782.shtml)
-- 2026-06-29 22:44 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/6921484829.shtml)
-- 2026-06-29 22:57 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/162132.shtml)
-- 2026-06-29 22:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/34387736425.shtml)
-- 2026-06-29 22:46 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/38881.shtml)
-- 2026-06-29 22:52 - [田曦薇没招了](http://www.share.minike.top/Article/details/709742.shtml)
-- 2026-06-29 23:05 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/35207.shtml)
-- 2026-06-29 22:51 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/43372286.shtml)
-- 2026-06-29 22:42 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/8433515.shtml)
-- 2026-06-29 23:02 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/8926383234.shtml)
-- 2026-06-29 22:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7818876779.shtml)
+- 2026-06-29 22:48 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/19789786107.shtml)
+- 2026-06-29 22:49 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/6959879.shtml)
+- 2026-06-29 22:54 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/370681552.shtml)
+- 2026-06-29 22:52 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/73101829327.shtml)
+- 2026-06-29 23:04 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/75912.shtml)
+- 2026-06-29 22:53 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/939199025265.shtml)
+- 2026-06-29 22:50 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/32530115.shtml)
+- 2026-06-29 22:51 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/243753.shtml)
+- 2026-06-29 23:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/73177.shtml)
+- 2026-06-29 23:14 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/10969.shtml)
+- 2026-06-29 22:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/8349005.shtml)
+- 2026-06-29 22:49 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/3630651763.shtml)
+- 2026-06-29 23:15 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/586631.shtml)
+- 2026-06-29 23:12 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/672162943.shtml)
+- 2026-06-29 23:12 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/0309199168.shtml)

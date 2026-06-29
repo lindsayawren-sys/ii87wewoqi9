@@ -1,56 +1,57 @@
-# 20部电影定档端午 拉开暑期档竞争帷幕
+# 孟斐璇：任何文明都不应自恃优越，更不应试图支配他者
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-证券日报记者 李豪悦 灯塔专业版数据显示，在即将到来的端午档，共计20部影片定档，创下近十年来同期新高，也拉开暑期档竞争帷幕。 截至6月14日(17时)，端午档总票房(含点映及预售)已达2327.6万元。其中，《我看见两朵一样的云》《爱是愤怒》《玩具总动员5》分列票房前三，《我看见两朵一样的云》以1787万元的票房实现断层领先。 端午档竞争激烈“今年堪称‘最拥挤’端午档，上映影
+发布时间：2026年04月16日 08:31 来源：中国新闻网 4月15日，第三届兰花奖全球征集启动仪式在北京举行。首届、第二届评委代表、意大利驻华使馆原文化参赞孟斐璇在现场致辞中表示，当今世界冲突不断，世界局势的动荡不仅构成政治危机，更是对全人类发出紧迫的道德呼唤。他呼吁拥护全球文明倡议—主张所有文明平等相待、和谐合作，任何民族、任何文化都不应自恃优越，更不应试图支配他者。
 
 ## 正文
 
-证券日报记者 李豪悦 灯塔专业版数据显示，在即将到来的端午档，共计20部影片定档，创下近十年来同期新高，也拉开暑期档竞争帷幕。
+发布时间：2026年04月16日 08:31 来源：中国新闻网 4月15日，第三届兰花奖全球征集启动仪式在北京举行。
 
-截至6月14日(17时)，端午档总票房(含点映及预售)已达2327.6万元。
+首届、第二届评委代表、意大利驻华使馆原文化参赞孟斐璇在现场致辞中表示，当今世界冲突不断，世界局势的动荡不仅构成政治危机，更是对全人类发出紧迫的道德呼唤。
 
-其中，《我看见两朵一样的云》《爱是愤怒》《玩具总动员5》分列票房前三，《我看见两朵一样的云》以1787万元的票房实现断层领先。
+他呼吁拥护全球文明倡议—主张所有文明平等相待、和谐合作，任何民族、任何文化都不应自恃优越，更不应试图支配他者。
 
-端午档竞争激烈“今年堪称‘最拥挤’端午档，上映影片数量多达20部。
+孟斐璇说，兰花奖表彰致力于文明共处、文化交流与相互理解的个人和机构，有力证明了跨越国界与文化的可能。
 
-但是具备竞争力的影片其实只有5部至6部，剩余的影片基本都是小成本恐怖片和剧情片，几乎是提前确定‘陪跑’。
+其时代意义在于不变的人文主义精神：无论彼此多么不同，都能在他人身上看到一位同为人类的伙伴，是兄弟姐妹而非异类。
 
-”上海夏至良时咨询管理有限公司高级研究员杨怀玉向《证券日报》记者表示。
-
-据记者不完全统计，今年参与端午档竞争的上市公司主要有挚文集团、猫眼娱乐、光线传媒、中国电影、大麦娱乐、阅文集团6家。
-
-具体来看，《我看见两朵一样的云》主要出品公司为挚文集团和猫眼娱乐两家公司，猫眼娱乐还参投了同期上映的影片《绝密任务》；同时，端午档还有两部动画电影受到市场关注，一部是重映的《大鱼海棠》，该影片背后核心出品方为光线传媒，另一部是中国电影引进的经典IP续集《玩具总动员5》；此前被业内许多院线负责人看好的《抓特务》，也定档端午假期，该影片由大麦娱乐、中国电影、阅文集团共同参与出品。
+(记者 董泽宇 韩浩天） 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 22:43 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 22:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 22:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 22:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 23:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 22:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 22:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 23:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 23:04 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 22:49 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 23:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 23:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 23:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 22:56 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 22:57 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 23:09 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 23:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 23:08 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 22:51 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 23:04 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 23:00 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 22:54 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:06 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 23:00 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/4952239352.shtml)
-- 2026-06-29 23:05 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/172537.shtml)
-- 2026-06-29 22:49 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/32920683260.shtml)
-- 2026-06-29 22:42 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/593812744137.shtml)
-- 2026-06-29 22:53 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/3498494.shtml)
-- 2026-06-29 23:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/43017.shtml)
-- 2026-06-29 22:48 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2887067600.shtml)
-- 2026-06-29 22:47 - [我和我的家乡](http://www.share.minike.top/Article/details/6216029354.shtml)
-- 2026-06-29 22:58 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/07773399928.shtml)
-- 2026-06-29 22:56 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/911652.shtml)
-- 2026-06-29 22:58 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/192960.shtml)
-- 2026-06-29 23:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/581054.shtml)
-- 2026-06-29 23:11 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/38600272.shtml)
-- 2026-06-29 23:02 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/301417636.shtml)
-- 2026-06-29 22:46 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/88042980.shtml)
+- 2026-06-29 23:03 - [锐评T1零封KC](http://www.share.minike.top/Article/details/972784.shtml)
+- 2026-06-29 22:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/551472228.shtml)
+- 2026-06-29 23:16 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/893334.shtml)
+- 2026-06-29 22:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/028054.shtml)
+- 2026-06-29 23:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/851505841.shtml)
+- 2026-06-29 23:08 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/21747186.shtml)
+- 2026-06-29 22:59 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/426046174478.shtml)
+- 2026-06-29 22:54 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/85778045845.shtml)
+- 2026-06-29 23:07 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/5195963690.shtml)
+- 2026-06-29 23:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/63027709067.shtml)
+- 2026-06-29 23:00 - [恋与深空致歉](https://www.blog.minike.top/Article/details/847997127.shtml)
+- 2026-06-29 22:50 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/4641749184.shtml)
+- 2026-06-29 23:00 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/904514.shtml)
+- 2026-06-29 22:50 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/83764254131.shtml)
+- 2026-06-29 22:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/8973070.shtml)

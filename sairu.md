@@ -1,49 +1,57 @@
-# 林清轩认购3.7亿元结构性存款产品
+# 严打危害生态环境安全犯罪 中国公安部公布典型案例
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-林清轩（02657）发布公告，于2026年6月15日，公司与中国光大银行订立结构性存款产品协议，据此，公司同意向中国光大银行认购人民币3.70亿元的结构性存款产品。责任编辑：卢昱君
+中新社北京4月15日电 (记者 郭超凯)中国公安部15日集中公布5起打击环境资源犯罪典型案例。这5起典型案例涉及非法采矿，非法占用农用地，危害珍贵、濒危野生动物，污染环境，危害国家重点保护植物等。 近年来，公安机关会同相关部门依法严厉打击各类危害生态环境安全的犯罪活动，全力维护国家生态安全。2025年，公安部对145起破坏环境资源犯罪重大案件进行挂牌督办，全国公安机关共立案侦办
 
 ## 正文
 
-林清轩（02657）发布公告，于2026年6月15日，公司与中国光大银行订立结构性存款产品协议，据此，公司同意向中国光大银行认购人民币3.70亿元的结构性存款产品。
+中新社北京4月15日电 (记者 郭超凯)中国公安部15日集中公布5起打击环境资源犯罪典型案例。
 
-责任编辑：卢昱君
+这5起典型案例涉及非法采矿，非法占用农用地，危害珍贵、濒危野生动物，污染环境，危害国家重点保护植物等。
+
+近年来，公安机关会同相关部门依法严厉打击各类危害生态环境安全的犯罪活动，全力维护国家生态安全。
+
+2025年，公安部对145起破坏环境资源犯罪重大案件进行挂牌督办，全国公安机关共立案侦办相关案件3.7万起。
+
+工作中，公安机关围绕持续深入打好污染防治攻坚战，依法严厉打击非法倾倒处置固废危废、偷排直排超标工业废水等犯罪活动，成功侦破湖南株洲周某某等人污染环境案等一批案件。
+
+围绕维护国家粮食安全和资源安全，公安机关依法严厉打击非法占地、非法采矿等突出犯罪，成功侦破天津蓟州刘某等人非法采矿案、黑龙江绥化薛某非法占用农用地案等一批案件，守牢耕地红线和资源安全。
+
+在天津蓟州刘某等人非法采矿案中，犯罪嫌疑人非法盗采石料近4万吨，并将山体凿穿作为石料运输通道，对当地生态系统和公共安全造成严重威胁。
+
+公安机关侦破案件，并抓获犯罪嫌疑人8名。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 23:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 23:02 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:53 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 22:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 22:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 22:59 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 22:55 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 22:54 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 23:00 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 23:01 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 22:48 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 22:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 23:02 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 23:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 23:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 22:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 22:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 22:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 23:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 22:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 22:59 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/23146044.shtml)
-- 2026-06-29 22:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/11383.shtml)
-- 2026-06-29 22:53 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/31500.shtml)
-- 2026-06-29 23:01 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/80491844.shtml)
-- 2026-06-29 23:05 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/60923.shtml)
-- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/19881.shtml)
-- 2026-06-29 23:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/866794086517.shtml)
-- 2026-06-29 22:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/8555822.shtml)
-- 2026-06-29 23:09 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/264729621654.shtml)
-- 2026-06-29 22:48 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/2072847915.shtml)
-- 2026-06-29 22:56 - [周生如故](http://www.share.minike.top/Article/details/53810277465.shtml)
-- 2026-06-29 23:01 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/2599440704.shtml)
-- 2026-06-29 22:59 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/85383225.shtml)
-- 2026-06-29 23:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/367471135360.shtml)
-- 2026-06-29 23:10 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/867524446222.shtml)
+- 2026-06-29 23:01 - [女心理师](https://www.blog.kurohicncr.top/Article/details/839279001903.shtml)
+- 2026-06-29 23:03 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/7663499887.shtml)
+- 2026-06-29 22:53 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/421655725.shtml)
+- 2026-06-29 23:05 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/32682.shtml)
+- 2026-06-29 22:57 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/1164416.shtml)
+- 2026-06-29 22:53 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/7867964010.shtml)
+- 2026-06-29 23:03 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/84366120754.shtml)
+- 2026-06-29 23:10 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/806820913.shtml)
+- 2026-06-29 23:04 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/8806803.shtml)
+- 2026-06-29 23:13 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/1050934719.shtml)
+- 2026-06-29 22:48 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/621901650599.shtml)
+- 2026-06-29 23:09 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/174546753.shtml)
+- 2026-06-29 23:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/9782845306.shtml)
+- 2026-06-29 22:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/436235592034.shtml)
+- 2026-06-29 22:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/8304378333.shtml)

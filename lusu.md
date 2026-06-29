@@ -1,54 +1,60 @@
-# CPT Markets:金银波动仍待沉淀
+# 易事特索赔再次递交立案，时效告急抓紧加入
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。 从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。 这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间
+一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。一旦错过，即便曾经
 
 ## 正文
 
-6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。
+一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。
 
-从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。
+（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。
 
-这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间反复震荡。
+对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。
 
-综合来看，CPT Markets分析称后续仍需观察波动率是否继续回落，以及低位承接能否稳定下来，这将决定金银整理后的表现。
+一旦错过，即便曾经遭受损失，也将难以通过法律途径获得相应赔偿。
 
-责任编辑：陈平
+同时，投资者还需密切关注法院和证监会的公告，了解案件进展和索赔程序的具体要求。
+
+除了通过法律途径索赔外，投资者还应加强自我保护意识，提高风险识别能力。
+
+二、财务造假引发维权 回溯此案，公司曾发布公告称收到中国证监会出具的《行政处罚决定书》，因财务造假被严惩。
+
+还因财务造假行为恶劣在2024年还被证监会点名，成为从严打击资本市场财务造假的典型案例。
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 23:07 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 23:09 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 22:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 22:49 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 23:10 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 22:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 22:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 22:56 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 22:43 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 22:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 22:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 22:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 22:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 22:54 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 22:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 23:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 22:48 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 23:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 23:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:54 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 23:03 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 22:54 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 23:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 22:53 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 23:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 22:59 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 23:16 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:44 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/722149.shtml)
-- 2026-06-29 23:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/02061460.shtml)
-- 2026-06-29 23:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/596526022705.shtml)
-- 2026-06-29 22:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/520349575.shtml)
-- 2026-06-29 22:58 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/139009889922.shtml)
-- 2026-06-29 22:44 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/49860910.shtml)
-- 2026-06-29 23:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/6578404205.shtml)
-- 2026-06-29 22:52 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/620997826708.shtml)
-- 2026-06-29 22:52 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/40016.shtml)
-- 2026-06-29 23:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/793328780.shtml)
-- 2026-06-29 22:55 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/5006274648.shtml)
-- 2026-06-29 23:03 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/1731010.shtml)
-- 2026-06-29 22:59 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/623272388.shtml)
-- 2026-06-29 22:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/330078.shtml)
-- 2026-06-29 22:57 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/611752.shtml)
+- 2026-06-29 22:48 - [斗破苍穹](https://www.share.minike.top/Article/details/372203783949.shtml)
+- 2026-06-29 23:16 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/9091981436.shtml)
+- 2026-06-29 23:01 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/3559077.shtml)
+- 2026-06-29 23:04 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/376098114521.shtml)
+- 2026-06-29 23:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/06865.shtml)
+- 2026-06-29 23:05 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2402744287.shtml)
+- 2026-06-29 23:18 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/086943854038.shtml)
+- 2026-06-29 22:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/73143141.shtml)
+- 2026-06-29 22:53 - [田曦薇没招了](http://www.blog.minike.top/Article/details/9183968.shtml)
+- 2026-06-29 23:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/46405195950.shtml)
+- 2026-06-29 23:01 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/666616.shtml)
+- 2026-06-29 23:08 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/63712.shtml)
+- 2026-06-29 23:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/344522240.shtml)
+- 2026-06-29 23:06 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/52022237.shtml)
+- 2026-06-29 22:56 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/2909967.shtml)

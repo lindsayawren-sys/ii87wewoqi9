@@ -1,56 +1,49 @@
-# 加盟两年即告别！惠升基金固收副总石伟离任
+# 越共中央总书记、国家主席苏林到访清华大学
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-6月16日，惠升基金发布基金行业高级管理人员变更公告，副总经理石伟因个人原因离任，离任日期 2026-06-15。公司对石伟先生在任职期间为公司发展所做出的贡献表示衷心感谢。 石伟，学士，曾任职于中国人寿保险公司，中国人寿资产管理公司，兴业全球基金管理有限公司，国寿安保基金管理有限公司。自2024-07-09至2026-06-15担任惠升基金管理有限责任公司副总经理。Wind数
+发布时间：2026年04月15日 19:29 来源：中国新闻网 4月14日上午，越共中央总书记、国家主席苏林抵达北京，开始对中国进行为期四天的国事访问。当天下午，苏林率团来到清华大学，出席中国-越南高等教育合作与科技创新论坛并发表了约20分钟的主旨演讲。(记者 李佳悦 制作 方敏） 责任编辑：【罗攀】
 
 ## 正文
 
-6月16日，惠升基金发布基金行业高级管理人员变更公告，副总经理石伟因个人原因离任，离任日期 2026-06-15。
+发布时间：2026年04月15日 19:29 来源：中国新闻网 4月14日上午，越共中央总书记、国家主席苏林抵达北京，开始对中国进行为期四天的国事访问。
 
-公司对石伟先生在任职期间为公司发展所做出的贡献表示衷心感谢。
+当天下午，苏林率团来到清华大学，出席中国-越南高等教育合作与科技创新论坛并发表了约20分钟的主旨演讲。
 
-石伟，学士，曾任职于中国人寿保险公司，中国人寿资产管理公司，兴业全球基金管理有限公司，国寿安保基金管理有限公司。
-
-自2024-07-09至2026-06-15担任惠升基金管理有限责任公司副总经理。
-
-Wind数据显示，石伟任职期间，惠升基金资产管理从516.51亿缩水至486.25亿元，缩水30.26亿元；但基金产品数量由24只增至29只，增加5只产品。
-
-自2023年1月加入至2025年6月离任，石伟在公司前后任职约两年半，担任副总经理恰满两年。
-
-此番离任，意味着这位分管绝对收益与固定收益业务的核心高管正式告别惠升基金。
-
-惠升基金管理有限责任公司成立于2018年9月28日，注册资本1.2亿元人民币。
+(记者 李佳悦 制作 方敏） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 23:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 22:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 23:06 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 23:08 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 23:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 22:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 23:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 23:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 22:52 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 22:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 23:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 22:58 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:15 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:06 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 22:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 23:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 22:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 23:16 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 23:00 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 23:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/7237553.shtml)
-- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/81313518.shtml)
-- 2026-06-29 23:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/672639334620.shtml)
-- 2026-06-29 22:54 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/5246912.shtml)
-- 2026-06-29 22:48 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/6534106756.shtml)
-- 2026-06-29 22:50 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/409613.shtml)
-- 2026-06-29 23:09 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/389884480.shtml)
-- 2026-06-29 22:47 - [请回答王牌2019](http://www.share.minike.top/Article/details/87505.shtml)
-- 2026-06-29 23:02 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/276619651.shtml)
-- 2026-06-29 23:04 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/73165.shtml)
-- 2026-06-29 22:56 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/99027.shtml)
-- 2026-06-29 22:56 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/50788743.shtml)
-- 2026-06-29 23:07 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/66986723.shtml)
-- 2026-06-29 23:03 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/3569307381.shtml)
-- 2026-06-29 23:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/791942.shtml)
+- 2026-06-29 23:03 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/1006865.shtml)
+- 2026-06-29 22:50 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/443533944849.shtml)
+- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/311458081544.shtml)
+- 2026-06-29 23:11 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/049008254.shtml)
+- 2026-06-29 23:05 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/30857.shtml)
+- 2026-06-29 22:54 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/6637986.shtml)
+- 2026-06-29 23:15 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/2559531.shtml)
+- 2026-06-29 23:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/35434.shtml)
+- 2026-06-29 23:08 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/633319950.shtml)
+- 2026-06-29 22:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/60793.shtml)
+- 2026-06-29 23:01 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/939903.shtml)
+- 2026-06-29 23:05 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/9776530547.shtml)
+- 2026-06-29 23:12 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/761227500.shtml)
+- 2026-06-29 23:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/5413475.shtml)
+- 2026-06-29 23:02 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/81764290268.shtml)

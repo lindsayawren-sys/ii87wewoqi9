@@ -1,56 +1,57 @@
-# 美国官员称已签署对伊协议，霍尔木兹海峡通航量将显著回升
+# 房地产不允许有首富了
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-美国高级官员周一表示，美国和伊朗已签署一份谅解备忘录，以结束持续近四个月的战争，并补充称正式签署仪式将于周五举行，霍尔木兹海峡的航运量将逐步恢复。 一名美国官员表示，该谅解备忘录已由美国总统特朗普、副总统万斯以及伊朗议会议长卡利巴夫签署。 这位美国官员在向记者简报时还表示，周五还将举行正式签署仪式。 这名不愿具名的官员称：“你将看到霍尔木兹海峡的航运量显著增加，这实际上已经开始
+许家印低调受审了。他的罪名是企业家里面最长的——非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单位行贿。八项罪名占了六项，且每一项都指向同一个核心：金融。其他罪名，大家都不意外。有意思的是许家印有“单位行贿”罪，却没有个人行贿罪。这也意味着，检察院认为，许家印的行贿，没有为个人谋取不正当利益的成分。他把房地产的边界拓展到了极致
 
 ## 正文
 
-美国高级官员周一表示，美国和伊朗已签署一份谅解备忘录，以结束持续近四个月的战争，并补充称正式签署仪式将于周五举行，霍尔木兹海峡的航运量将逐步恢复。
+许家印低调受审了。
 
-一名美国官员表示，该谅解备忘录已由美国总统特朗普、副总统万斯以及伊朗议会议长卡利巴夫签署。
+他的罪名是企业家里面最长的——非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单位行贿。
 
-这位美国官员在向记者简报时还表示，周五还将举行正式签署仪式。
+八项罪名占了六项，且每一项都指向同一个核心：金融。
 
-这名不愿具名的官员称：“你将看到霍尔木兹海峡的航运量显著增加，这实际上已经开始，并会随着时间推移逐渐上升。
+其他罪名，大家都不意外。
 
-” 该官员还表示：“我们可能不会在两周内恢复到正常水平，但海峡的通航量将明显增加。
+有意思的是许家印有“单位行贿”罪，却没有个人行贿罪。
 
-” 美国和伊朗表示，双方已就结束战争并重新开放该海峡达成一致，这一消息令市场松了一口气，不过该协议可能取决于黎巴嫩敌对行动的结束，同时将推迟有关伊朗核计划的谈判。
+这也意味着，检察院认为，许家印的行贿，没有为个人谋取不正当利益的成分。
 
-尽管仍属于框架性协议，但该协议标志着解决这场冲突的最大突破。
+他把房地产的边界拓展到了极致，最终以自己的毁灭，完成了一场彻头彻尾的殉道。
 
-自2月美以联合对伊朗发动打击以来，这场冲突已造成数千人死亡，并严重扰乱了能源市场。
+恒大的崩塌，不仅是一个首富的倒掉，更是某种秩序的终结。
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 22:50 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 22:54 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:08 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 23:11 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 23:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 23:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 23:03 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 22:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 23:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 23:11 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 23:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 23:03 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 23:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 22:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 23:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 22:59 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 23:00 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 23:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:53 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 23:12 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/720110.shtml)
-- 2026-06-29 22:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/48054746.shtml)
-- 2026-06-29 23:09 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/746815.shtml)
-- 2026-06-29 22:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/71562890399.shtml)
-- 2026-06-29 23:11 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/77961391131.shtml)
-- 2026-06-29 23:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/89746.shtml)
-- 2026-06-29 22:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/00838516.shtml)
-- 2026-06-29 22:55 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/64942.shtml)
-- 2026-06-29 23:09 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/258289267812.shtml)
-- 2026-06-29 23:08 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/956173646.shtml)
-- 2026-06-29 22:51 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/2627769237.shtml)
-- 2026-06-29 22:51 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/97846079077.shtml)
-- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/4943895.shtml)
-- 2026-06-29 22:47 - [请回答王牌2019](https://www.share.minike.top/Article/details/15725.shtml)
-- 2026-06-29 22:56 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/7201197566.shtml)
+- 2026-06-29 23:16 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/28836.shtml)
+- 2026-06-29 22:56 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/09752060503.shtml)
+- 2026-06-29 23:10 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/28174653.shtml)
+- 2026-06-29 23:14 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/967961345.shtml)
+- 2026-06-29 23:14 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/05487.shtml)
+- 2026-06-29 23:01 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/74087624264.shtml)
+- 2026-06-29 23:13 - [新官上任三把火](http://www.share.minike.top/Article/details/6331263.shtml)
+- 2026-06-29 22:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/5552944.shtml)
+- 2026-06-29 23:17 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/735012874.shtml)
+- 2026-06-29 23:06 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/917124.shtml)
+- 2026-06-29 23:15 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/88059.shtml)
+- 2026-06-29 22:54 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/1932785.shtml)
+- 2026-06-29 23:11 - [周生如故](https://www.share.kurohicncr.top/Article/details/03345.shtml)
+- 2026-06-29 23:16 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/678130710543.shtml)
+- 2026-06-29 23:04 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/565851.shtml)

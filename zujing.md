@@ -1,43 +1,56 @@
-# 各地各部门举行世界献血者日主题活动
+# 文化观察：金华影视产业如何持续生长？
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 09:35 来源：央视综合 责任编辑：【王祎】
+中新网金华4月15日电(林波 孙琳茹)当前，中国影视产业正经历深刻变革。传统剧集在多重挑战下深耕内容，微短剧赛道快速进化，人工智能技术以前所未有的成熟度融入创作生产。 在这一背景下，作为浙江乃至全国影视产业重镇的金华，如何持续生长，实现高质量发展？ “本土人才是金华影视产业发展的秘籍。”近日，金华市电影电视艺术家协会常务副主席兼秘书长、一级导演陈建平受访时指出，金华影视文化产业
 
 ## 正文
 
-发布时间：2026年06月15日 09:35 来源：央视综合 责任编辑：【王祎】
+中新网金华4月15日电(林波 孙琳茹)当前，中国影视产业正经历深刻变革。
+
+传统剧集在多重挑战下深耕内容，微短剧赛道快速进化，人工智能技术以前所未有的成熟度融入创作生产。
+
+在这一背景下，作为浙江乃至全国影视产业重镇的金华，如何持续生长，实现高质量发展？
+
+“本土人才是金华影视产业发展的秘籍。
+
+”近日，金华市电影电视艺术家协会常务副主席兼秘书长、一级导演陈建平受访时指出，金华影视文化产业发展秉持全域化战略，不仅要实现影视拍摄基地的全域化，还要抓紧培养本地影视人才，加速推动影视人才的全域化。
+
+在他看来，这正是金华影视的核心竞争力所在。
+
+相比硬件和资金，真正不可替代的是那些从小浸润在横店影视氛围中、对这片土地怀有深厚情感与深刻理解的本土创作者。
+
+“他们有情怀、懂技术、更熟悉影视生产的每一个毛细血管。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 22:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 23:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 23:05 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 23:04 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 23:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 23:01 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 22:51 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 22:58 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 22:47 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 22:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 22:48 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 23:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 22:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 23:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 23:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 22:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 23:03 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 23:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/326068.shtml)
-- 2026-06-29 23:03 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/92703942173.shtml)
-- 2026-06-29 22:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/72109571343.shtml)
-- 2026-06-29 22:55 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/5532552.shtml)
-- 2026-06-29 22:45 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/6915069.shtml)
-- 2026-06-29 22:44 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/3040699.shtml)
-- 2026-06-29 23:07 - [东方风云榜](https://www.share.minike.top/Article/details/4833066.shtml)
-- 2026-06-29 22:57 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/588609855498.shtml)
-- 2026-06-29 23:10 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/613371784.shtml)
-- 2026-06-29 23:07 - [斛珠夫人](http://www.blog.minike.top/Article/details/8222205788.shtml)
-- 2026-06-29 22:46 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/19712961809.shtml)
-- 2026-06-29 22:56 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/4599251367.shtml)
-- 2026-06-29 22:42 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/41909.shtml)
-- 2026-06-29 22:56 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/8994649.shtml)
-- 2026-06-29 22:47 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/131539193.shtml)
+- 2026-06-29 23:14 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/345315.shtml)
+- 2026-06-29 23:13 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/140009347605.shtml)
+- 2026-06-29 23:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/41559381.shtml)
+- 2026-06-29 22:50 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/135881194130.shtml)
+- 2026-06-29 23:04 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/6745818.shtml)
+- 2026-06-29 23:05 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/563687162069.shtml)
+- 2026-06-29 22:55 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/546363.shtml)
+- 2026-06-29 23:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/91602916.shtml)
+- 2026-06-29 23:02 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/584061219.shtml)
+- 2026-06-29 23:04 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/773714200016.shtml)
+- 2026-06-29 22:54 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/27922009798.shtml)
+- 2026-06-29 23:05 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/492945212.shtml)
+- 2026-06-29 23:11 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/420726874.shtml)
+- 2026-06-29 23:08 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/198586.shtml)
+- 2026-06-29 23:13 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/874484777.shtml)

@@ -1,58 +1,60 @@
-# 酒价内参6月15日价格发布：习酒君品上涨5元/瓶
+# 能源价格冲击前夕英国经济增速超预期
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均
+英国经济在 2 月份实现连续第二个月增长，但这场人们期待已久的复苏，很可能因中东冲突导致能源价格大幅飙升而受阻。 英国国家统计局周四公布，一季度中期英国国内生产总值环比增长 0.5%，1 月份增幅为 0.1%；上周调查的经济学家普遍预期增幅仅为 0.1%。上一次环比增速高于此次还是 2023 年 6 月，当时为 0.6%。 2 月这份超预期数据尤为可喜，因为此前七个月中英国经济
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月15日整体显著回升。
+英国经济在 2 月份实现连续第二个月增长，但这场人们期待已久的复苏，很可能因中东冲突导致能源价格大幅飙升而受阻。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9945元，较昨日大幅上涨39元，连续两日回升后创下23天以来最高。
+英国国家统计局周四公布，一季度中期英国国内生产总值环比增长 0.5%，1 月份增幅为 0.1%；上周调查的经济学家普遍预期增幅仅为 0.1%。
 
-市场在前期低位震荡后明显修复，终端交投情绪回暖，今日除洋河梦之蓝M6+与水晶剑南春微跌外，其余品种均上涨或持平，带动总价进一步向9950元一线逼近。
+上一次环比增速高于此次还是 2023 年 6 月，当时为 0.6%。
 
-今日11大白酒单品八涨两跌一平，赢家占据绝对优势。
+2 月这份超预期数据尤为可喜，因为此前七个月中英国经济仅有四个月实现增长，延续了自全球金融危机以来长期低迷的态势。
 
-上涨方面，古井贡古20涨幅居前，上涨8元/瓶，价格升至进入六月以来次高位；青花郎上涨7元/瓶，重新登上700元关口，创进入六月以来最高；精品茅台上涨6元/瓶，且成交量明显放大；国窖1573与习酒君品均上涨5元/瓶，其中前者连续两日反弹，重返890元关口，后者连续两日修复，平近半个月最高价格纪录；五粮液普五八代与青花汾20均上涨4元/瓶；飞天茅台上涨2元/瓶，终结此前四连阴。
+不过，这一增长发生在美国和以色列对伊朗发动打击、引发能源价格暴涨之前。
 
-下跌方面，洋河梦之蓝M6+与水晶剑南春均小幅下跌1元/瓶。
+自 2 月 28 日打击行动以来，布伦特原油与欧洲基准天然气价格均上涨逾 30%。
 
-五粮液1618价格环比保持不变，仍平近一月最低价纪录。
+毕马威英国首席经济学家亚埃尔・塞尔芬在致客户报告中表示：“英国经济 2 月表现强劲，但本轮复苏恐难持续。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+” 英国央行已上调通胀预期，冲突持续时间越长、对全球能源供应影响越久，经济受到的冲击就越大。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 22:47 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 22:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 23:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 22:55 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 22:56 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 23:11 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 23:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 23:03 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 22:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 22:51 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 23:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 23:06 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 22:51 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 23:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 23:17 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 23:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 23:02 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 23:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 23:09 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 23:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 22:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 22:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/75066.shtml)
-- 2026-06-29 22:57 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/167590930.shtml)
-- 2026-06-29 22:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/4441329284.shtml)
-- 2026-06-29 23:08 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/472607.shtml)
-- 2026-06-29 22:45 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/67286.shtml)
-- 2026-06-29 22:46 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/6250539.shtml)
-- 2026-06-29 23:06 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/7691476.shtml)
-- 2026-06-29 23:11 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/07730984.shtml)
-- 2026-06-29 22:59 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/40912234.shtml)
-- 2026-06-29 22:52 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/3480884390.shtml)
-- 2026-06-29 22:53 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/400406257.shtml)
-- 2026-06-29 23:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/68740324.shtml)
-- 2026-06-29 22:43 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/312433080.shtml)
-- 2026-06-29 22:51 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/619036120473.shtml)
-- 2026-06-29 23:09 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/025606.shtml)
+- 2026-06-29 22:57 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/375172.shtml)
+- 2026-06-29 23:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/84352.shtml)
+- 2026-06-29 22:59 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/2454280.shtml)
+- 2026-06-29 22:57 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/23313523289.shtml)
+- 2026-06-29 23:04 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/5619900437.shtml)
+- 2026-06-29 22:51 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/668463.shtml)
+- 2026-06-29 22:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/844875398744.shtml)
+- 2026-06-29 22:58 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/583965546424.shtml)
+- 2026-06-29 23:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/5264649185.shtml)
+- 2026-06-29 23:10 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/31383620.shtml)
+- 2026-06-29 23:00 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/545104410119.shtml)
+- 2026-06-29 22:55 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/0687536.shtml)
+- 2026-06-29 22:52 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/835041229433.shtml)
+- 2026-06-29 23:03 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/2901989.shtml)
+- 2026-06-29 23:14 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/75095410976.shtml)

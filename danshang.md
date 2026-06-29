@@ -1,60 +1,57 @@
-# 独家｜洋河百亿大单品系列新动态：第六代海之蓝已停产，第七代向全国有序铺货
+# 少年踏浪而来 青莲高跷“踩”出国潮新生
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，新浪财经《酒业内参》独家获悉，洋河旗下百亿大单品海之蓝系列出现新动态：第六代海之蓝已正式停产，目前正处于去库存阶段。 而第七代海之蓝作为海之蓝系列的焕新迭代产品，是洋河今年省外将重点推广的新品，正在包括河南、山东等全国多个市场有序推进上市。 对于上述情况，洋河内部人士表示属实。 公开信息显示，洋
+发布时间：2026年04月15日 20:17 来源：中国新闻网 天津青莲高跷源于葛沽退海之地，由滩涂劳作工具演变而来，融合漕运庙会与戏曲艺术，形成唱念做打兼具、扮相典雅独特的民间技艺。受时代变迁影响，该技艺一度谱本散失、传承断层，陷入濒危。 青莲高跷第六代传承人韩燕鹏怀揣儿时情结，放下生意，全身心投入守护。他遍访老艺人，用十年复原失传阵法、唱腔及“架骆驼”等绝技，接续了中断的传
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月15日 20:17 来源：中国新闻网 天津青莲高跷源于葛沽退海之地，由滩涂劳作工具演变而来，融合漕运庙会与戏曲艺术，形成唱念做打兼具、扮相典雅独特的民间技艺。
 
-6月15日，新浪财经《酒业内参》独家获悉，洋河旗下百亿大单品海之蓝系列出现新动态：第六代海之蓝已正式停产，目前正处于去库存阶段。
+受时代变迁影响，该技艺一度谱本散失、传承断层，陷入濒危。
 
-而第七代海之蓝作为海之蓝系列的焕新迭代产品，是洋河今年省外将重点推广的新品，正在包括河南、山东等全国多个市场有序推进上市。
+青莲高跷第六代传承人韩燕鹏怀揣儿时情结，放下生意，全身心投入守护。
 
-对于上述情况，洋河内部人士表示属实。
+他遍访老艺人，用十年复原失传阵法、唱腔及“架骆驼”等绝技，接续了中断的传承脉络。
 
-公开信息显示，洋河海之蓝系列诞生于2003年，截至目前先后历经多次迭代。
+面对学艺艰辛、后继乏人，他主动吸纳“05”后、“10”后青少年，融合国潮创意创新表演形式，让古老高跷成功破圈。
 
-2022年，第六代海之蓝正式上市，同年海之蓝系列年销售额突破百亿，成为白酒行业百元价格带中首个迈入百亿阵营的大单品系列。
+从一人坚守到众人接力，青莲高跷重焕生机，百年绝技在当代舞台薪火相传。
 
-据悉，第七代海之蓝被洋河寄予厚望，目标推动海之蓝系列达成150亿-200亿的销售收入规模。
-
-责任编辑：宋雅芳
+(冯宏杰 汤润青 天津报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 22:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 22:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 23:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 23:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 23:03 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 22:44 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 22:58 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 23:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 23:06 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 23:04 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 23:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 22:46 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 23:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 23:01 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 23:02 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 23:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 23:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 22:56 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 22:57 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 23:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 23:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:08 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 23:16 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 23:16 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/670977274269.shtml)
-- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/153115873882.shtml)
-- 2026-06-29 22:43 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/505735420995.shtml)
-- 2026-06-29 23:03 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/84445072200.shtml)
-- 2026-06-29 22:52 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/731191.shtml)
-- 2026-06-29 22:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/818901204.shtml)
-- 2026-06-29 22:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/970851484017.shtml)
-- 2026-06-29 23:05 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/4251559561.shtml)
-- 2026-06-29 22:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/891619.shtml)
-- 2026-06-29 22:51 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/804987562.shtml)
-- 2026-06-29 23:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8539990.shtml)
-- 2026-06-29 22:52 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/026950523730.shtml)
-- 2026-06-29 23:06 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/57450.shtml)
-- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/06406437.shtml)
-- 2026-06-29 22:43 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/6096331076.shtml)
+- 2026-06-29 22:58 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/0358511433.shtml)
+- 2026-06-29 23:03 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/77826419.shtml)
+- 2026-06-29 23:14 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/85296158.shtml)
+- 2026-06-29 23:05 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/477986148.shtml)
+- 2026-06-29 23:14 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/60125.shtml)
+- 2026-06-29 23:09 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/9886347.shtml)
+- 2026-06-29 22:52 - [乔家的儿女](https://www.share.minike.top/Article/details/98396283.shtml)
+- 2026-06-29 23:13 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/29469728.shtml)
+- 2026-06-29 23:15 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/7624402018.shtml)
+- 2026-06-29 23:09 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/901505417.shtml)
+- 2026-06-29 22:54 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/64320923461.shtml)
+- 2026-06-29 22:50 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/98167.shtml)
+- 2026-06-29 22:56 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/955051654.shtml)
+- 2026-06-29 23:06 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/6290749347.shtml)
+- 2026-06-29 23:11 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/65909863401.shtml)

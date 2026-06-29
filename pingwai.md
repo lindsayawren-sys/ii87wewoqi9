@@ -1,47 +1,56 @@
-# 遇见小面于6月12日斥资165.8万港元回购45.45万股
+# 中银保险副总马兴宏调任中银三星人寿
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-遇见小面（02408）发布公告，于2026年6月12日，该公司斥资165.8万港元回购45.45万股股份，每股回购价3.51-3.73港元。责任编辑：卢昱君
+来源：保仔范儿 中银系保险机构近日又传出人事调整消息。 保险人事获悉，中银保险副总经理马兴宏，拟调任中银三星人寿副总经理。 马兴宏，1967年8月生人，1993年毕业于北京大学经济学院西方经济学专业，硕士研究生学历。曾任华安财产保险股份有限公司投资部总经理，中银保险有限公司市场业务部总经理、北京分公司总经理；自2016年8月起任中银保险副总经理。 目前，中银保险、中银集团保险、
 
 ## 正文
 
-遇见小面（02408）发布公告，于2026年6月12日，该公司斥资165.8万港元回购45.45万股股份，每股回购价3.51-3.73港元。
+来源：保仔范儿 中银系保险机构近日又传出人事调整消息。
 
-责任编辑：卢昱君
+保险人事获悉，中银保险副总经理马兴宏，拟调任中银三星人寿副总经理。
+
+马兴宏，1967年8月生人，1993年毕业于北京大学经济学院西方经济学专业，硕士研究生学历。
+
+曾任华安财产保险股份有限公司投资部总经理，中银保险有限公司市场业务部总经理、北京分公司总经理；自2016年8月起任中银保险副总经理。
+
+目前，中银保险、中银集团保险、中银三星人寿构成了中行保险版图，业务布局已形成“内地+香港”双市场、“财险+寿险”全品类的闭环格局。
+
+中银保险有限公司成立于2005年1月，总部位于北京，是中国银行100%全资控股的全国性财产保险公司，也是国内首家由国有商业银行全资控股的全国性财产保险公司。
+
+2025年实现保险服务收入64.48 亿元，净利润2.86亿元。
+
+中银集团保险有限公司1992年7月在香港注册成立，2003年底正式成为中国银行的全资附属机构，是中行布局香港及海外市场的核心保险平台。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 22:43 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 23:00 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 22:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 22:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 22:48 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 22:59 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 23:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 22:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 23:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 22:51 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 23:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 23:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 23:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 22:49 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 22:59 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 23:07 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 23:06 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 23:17 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 22:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 22:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:50 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/23141.shtml)
-- 2026-06-29 23:02 - [起风了](http://www.share.minike.top/Article/details/766479237023.shtml)
-- 2026-06-29 22:56 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/102217866.shtml)
-- 2026-06-29 22:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/60313.shtml)
-- 2026-06-29 23:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/576598988918.shtml)
-- 2026-06-29 23:04 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/4804269917.shtml)
-- 2026-06-29 22:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/831461.shtml)
-- 2026-06-29 22:43 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/23222686805.shtml)
-- 2026-06-29 22:52 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/33345.shtml)
-- 2026-06-29 23:04 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/208935753.shtml)
-- 2026-06-29 22:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/490743811446.shtml)
-- 2026-06-29 22:52 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/96666.shtml)
-- 2026-06-29 23:05 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/7139556895.shtml)
-- 2026-06-29 23:06 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/27192725.shtml)
-- 2026-06-29 23:09 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/73566332.shtml)
+- 2026-06-29 22:54 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/2080173201.shtml)
+- 2026-06-29 23:17 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/84251672.shtml)
+- 2026-06-29 23:05 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/189853428.shtml)
+- 2026-06-29 22:49 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/18766804413.shtml)
+- 2026-06-29 22:52 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/953957506.shtml)
+- 2026-06-29 22:58 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/3932094071.shtml)
+- 2026-06-29 22:59 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/016431782.shtml)
+- 2026-06-29 22:50 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/1590813834.shtml)
+- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/933594354210.shtml)
+- 2026-06-29 22:59 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/155267872.shtml)
+- 2026-06-29 22:59 - [天道](https://www.blog.minike.top/Article/details/53617862573.shtml)
+- 2026-06-29 22:56 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/741342695.shtml)
+- 2026-06-29 23:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/4947093.shtml)
+- 2026-06-29 22:59 - [明星大侦探第一季](http://www.share.minike.top/Article/details/66032780.shtml)
+- 2026-06-29 22:56 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/94672398543.shtml)

@@ -1,50 +1,59 @@
-# 中国民航信息网络获Brandes Investment Partners, L.P.增持60.9万股 每股作价8.94港元
+# 山西修订非遗条例：分类保护三晋特色项目 深化文旅融合
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月8日，Brandes Investment Partners， L.P．增持中国民航信息网络（00696）60.9万股，每股作价8.94港元，总金额约为544.45万港元。增持后最新持股数目约为6571.55万股，持股比例为7.05%。责任编辑：卢昱君
+中新网太原4月15日电 (记者 杨杰英)15日，记者从山西省人大常委会办公厅举行的新闻发布会上获悉，山西省十四届人大常委会第二十七次会议表决通过了修订后的《山西省非物质文化遗产条例》，将于今年6月1日起正式实施。山西是非物质文化遗产资源大省。原《条例》施行十余年来，全省非遗保护传承工作取得显著成效，国家级代表性项目、国家级代表性传承人数量均位居全国第三。但随着经济社会发展，原《
 
 ## 正文
 
-香港联交所最新数据显示，6月8日，Brandes Investment Partners， L.P．增持中国民航信息网络（00696）60.9万股，每股作价8.94港元，总金额约为544.45万港元。
+中新网太原4月15日电 (记者 杨杰英)15日，记者从山西省人大常委会办公厅举行的新闻发布会上获悉，山西省十四届人大常委会第二十七次会议表决通过了修订后的《山西省非物质文化遗产条例》，将于今年6月1日起正式实施。
 
-增持后最新持股数目约为6571.55万股，持股比例为7.05%。
+山西是非物质文化遗产资源大省。
 
-责任编辑：卢昱君
+原《条例》施行十余年来，全省非遗保护传承工作取得显著成效，国家级代表性项目、国家级代表性传承人数量均位居全国第三。
+
+但随着经济社会发展，原《条例》已不能适应新形势下的工作需要。
+
+山西省人大常委会教科文卫工委副主任王彪在发布会上介绍，修订后的《条例》取消了章节划分，共三十六条，突出立法针对性、精准度和实效性。
+
+《条例》增加了非遗工作原则，明确贯彻“保护为主、抢救第一、合理利用、传承发展”的工作方针。
+
+规定县级以上人民政府要建立非遗保护工作协调机制，强化部门协同配合。
+
+为彰显地方特色，《条例》要求县级以上文旅部门对戏曲、民歌、鼓乐等体现三晋文化特色的非遗代表性项目予以重点保护。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 23:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 22:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 22:56 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 22:45 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 23:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 22:44 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 22:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 22:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:08 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 22:49 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 22:55 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 22:46 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 23:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 22:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 23:04 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 22:55 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 23:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 23:08 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 22:56 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 22:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 23:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 23:10 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 23:04 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:08 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 22:55 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/28182073.shtml)
-- 2026-06-29 23:02 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/7053038.shtml)
-- 2026-06-29 22:52 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/37697723.shtml)
-- 2026-06-29 22:58 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/676227524942.shtml)
-- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/933355331.shtml)
-- 2026-06-29 23:08 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/52971.shtml)
-- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/417445.shtml)
-- 2026-06-29 23:01 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/033740.shtml)
-- 2026-06-29 23:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/1107485506.shtml)
-- 2026-06-29 22:46 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/6472099.shtml)
-- 2026-06-29 23:05 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/558960.shtml)
-- 2026-06-29 23:11 - [世界杯](https://www.share.kurohicncr.top/Article/details/43754.shtml)
-- 2026-06-29 23:10 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/9656668522.shtml)
-- 2026-06-29 23:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/9500450470.shtml)
-- 2026-06-29 23:01 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/75732519.shtml)
+- 2026-06-29 22:52 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/207507.shtml)
+- 2026-06-29 23:14 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/67524327578.shtml)
+- 2026-06-29 23:10 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/036430480593.shtml)
+- 2026-06-29 23:01 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/314611670521.shtml)
+- 2026-06-29 23:15 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/944993.shtml)
+- 2026-06-29 23:12 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/26987.shtml)
+- 2026-06-29 23:09 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/812706.shtml)
+- 2026-06-29 23:03 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/20079671123.shtml)
+- 2026-06-29 23:01 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/257001433.shtml)
+- 2026-06-29 22:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/07812538915.shtml)
+- 2026-06-29 23:04 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/88604929024.shtml)
+- 2026-06-29 23:07 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/4250944406.shtml)
+- 2026-06-29 22:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/622994.shtml)
+- 2026-06-29 22:54 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/358652638.shtml)
+- 2026-06-29 23:08 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/643594.shtml)

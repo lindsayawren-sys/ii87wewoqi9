@@ -1,46 +1,61 @@
-# 达力普控股于6月12日斥资157.95万港元回购51.8万股
+# 中国官方：对药品领域垄断行为坚持露头就打、严处重罚
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-达力普控股（01921）发布公告，于2026年6月12日斥资157.95万港元回购51.8万股。责任编辑：卢昱君
+中新社北京4月15日电 (记者 李纯)谈及如何加强药品反垄断执法，中国国家市场监管总局价格监督检查和反不正当竞争局局长姚雷15日在北京表示，该局将打击药品领域垄断行为始终作为重中之重，坚持露头就打、严处重罚。当天，中国国务院新闻办公室在北京举行政策例行吹风会，介绍健全全周期全渠道药品价格形成机制有关情况。关于严厉打击药品领域价格和垄断违法行为，姚雷介绍了两方面工作。 在加强药品
 
 ## 正文
 
-达力普控股（01921）发布公告，于2026年6月12日斥资157.95万港元回购51.8万股。
+中新社北京4月15日电 (记者 李纯)谈及如何加强药品反垄断执法，中国国家市场监管总局价格监督检查和反不正当竞争局局长姚雷15日在北京表示，该局将打击药品领域垄断行为始终作为重中之重，坚持露头就打、严处重罚。
 
-责任编辑：卢昱君
+当天，中国国务院新闻办公室在北京举行政策例行吹风会，介绍健全全周期全渠道药品价格形成机制有关情况。
+
+关于严厉打击药品领域价格和垄断违法行为，姚雷介绍了两方面工作。
+
+在加强药品价格监管方面，姚雷表示，国家市场监管总局构建了“全链条价格监管体系”，覆盖原料药流通、成品药生产销售、医疗机构和药店购销等各个环节。
+
+他进一步介绍说，在原料药流通、成品药生产销售环节，针对串通操纵市场价格行为，依法查处了一批跨省域、跨生产销售环节操纵药品价格案件。
+
+在药品购销环节，将公立医疗机构违反“药品零加成”和“中药饮片限定加价率”政策行为，纳入市场监管领域深化民众身边不正之风和腐败问题集中整治工作，并部署地方市场监管部门加大对违规加价行为的查处力度。
+
+在零售药店和网上药房药品销售环节，强化线上线下一体化监管，重点查处不按规定明码标价、价格欺诈等不正当价格行为。
+
+此外，在加强药品反垄断执法方面，姚雷表示，国家市场监管总局将打击药品领域垄断行为始终作为重中之重，保持高压态势。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 22:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 23:06 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 22:53 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 22:55 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 22:48 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 22:44 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 23:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 22:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 22:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 22:44 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 23:10 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 23:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 23:11 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 22:53 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 22:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 23:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 22:53 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 23:07 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 22:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 22:59 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 23:07 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 23:13 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 23:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 22:58 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 22:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 23:14 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5095027.shtml)
-- 2026-06-29 23:06 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/62383.shtml)
-- 2026-06-29 23:08 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/90966.shtml)
-- 2026-06-29 22:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/806935282.shtml)
-- 2026-06-29 22:54 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/345057867317.shtml)
-- 2026-06-29 23:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/736804532.shtml)
-- 2026-06-29 23:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/492383.shtml)
-- 2026-06-29 23:02 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/680441676723.shtml)
-- 2026-06-29 22:50 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/13916102.shtml)
-- 2026-06-29 23:02 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/15395778.shtml)
-- 2026-06-29 22:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/2592232.shtml)
-- 2026-06-29 22:42 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/78983704013.shtml)
-- 2026-06-29 23:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/08446.shtml)
-- 2026-06-29 23:06 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/06294.shtml)
-- 2026-06-29 22:42 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/639775658484.shtml)
+- 2026-06-29 23:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/04974781.shtml)
+- 2026-06-29 23:08 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/90209491.shtml)
+- 2026-06-29 22:49 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/914277127215.shtml)
+- 2026-06-29 23:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/421992.shtml)
+- 2026-06-29 23:12 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7704748333.shtml)
+- 2026-06-29 23:12 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/537066500.shtml)
+- 2026-06-29 23:11 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/6035176406.shtml)
+- 2026-06-29 22:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/620247508204.shtml)
+- 2026-06-29 23:08 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/62212486393.shtml)
+- 2026-06-29 22:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/23668.shtml)
+- 2026-06-29 23:14 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/739463366.shtml)
+- 2026-06-29 22:50 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/10971428.shtml)
+- 2026-06-29 23:06 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/8299064470.shtml)
+- 2026-06-29 23:04 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/18191.shtml)
+- 2026-06-29 23:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/5492098749.shtml)

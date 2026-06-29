@@ -1,59 +1,58 @@
-# 国家医保局：去年职工居民医保次均住院费用均下降
+# 黎以美三方会谈结束 同意将正式启动黎以直接谈判
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-视频丨国家医保局：去年职工居民医保次均住院费用均下降 记者今天(15日)从国家医保局获悉，2025年，全国职工医保次均住院费用11152.69元，居民医保次均住院费用7338.49元，分别较2024年下降4.73%、0.94%，群众就医负担进一步减轻，医保支付方式改革落地见效。 国家医保局介绍，参保患者个人负担减轻，得益于医保支付方式改革。传统的医保支付方式是按项目付费，药品、
+新华社华盛顿4月14日电 美国国务院14日在黎巴嫩、以色列和美国当天举行三方会谈后发表声明说，与会方一致同意，将在黎以双方商定的时间和地点正式启动两国直接谈判。 当天会谈持续两个小时，与会人员包括美国务卿鲁比奥、美驻黎大使米歇尔·伊萨以及黎以两国驻美大使。美方称，这是自1993年以来黎以政府间首次举行重要高级别接触。 声明说，美国支持黎以双方开展进一步会谈，以最终促成一项全面的
 
 ## 正文
 
-视频丨国家医保局：去年职工居民医保次均住院费用均下降 记者今天(15日)从国家医保局获悉，2025年，全国职工医保次均住院费用11152.69元，居民医保次均住院费用7338.49元，分别较2024年下降4.73%、0.94%，群众就医负担进一步减轻，医保支付方式改革落地见效。
+新华社华盛顿4月14日电 美国国务院14日在黎巴嫩、以色列和美国当天举行三方会谈后发表声明说，与会方一致同意，将在黎以双方商定的时间和地点正式启动两国直接谈判。
 
-国家医保局介绍，参保患者个人负担减轻，得益于医保支付方式改革。
+当天会谈持续两个小时，与会人员包括美国务卿鲁比奥、美驻黎大使米歇尔·伊萨以及黎以两国驻美大使。
 
-传统的医保支付方式是按项目付费，药品、耗材、服务项目，用了多少结算多少，容易滋生“大处方”“大检查”等过度医疗行为。
+美方称，这是自1993年以来黎以政府间首次举行重要高级别接触。
 
-国家医保局自2019年起推行按病种付费，医保部门把病情相似、治疗方式差不多的住院病例归成一组，通过历史数据测算出统一的费用标准，“打包”支付给医院，其目的是合理、规范使用医保基金。
+声明说，美国支持黎以双方开展进一步会谈，以最终促成一项全面的和平协议。
 
-目前，按病种付费已在全国所有医保统筹地区落地实施，2025年按病种付费结算医保基金约9155.2亿元，占符合条件医疗机构结算住院基金总额的89.3%，较2024年增长约9.3个百分点。
+美方强调，任何黎以停火协议都“必须由两国政府直接达成”，由美国居中斡旋，而不能通过任何其他渠道进行。
 
-按病种付费改的不是患者的医保待遇，而是医保基金与医院之间的结算方式，从“为过程买单”变成“为结果买单”。
+声明暗示，以方在会谈中表示支持解除黎巴嫩真主党武装，承诺与黎政府合作实现这一目标。
 
-按病种付费推动医疗机构住院费用结构更加合理，2025年，全国按病种付费病例发生的住院总费用中药耗费用占比约37.49%，同比下降约0.52个百分点，医疗服务费用占比约49.17%，同比上升约1.38个百分点，医院诊治疑难重症能力不断增强。
+以方还承诺通过直接谈判解决所有悬而未决的问题，并实现“持久和平”。
 
-按病种付费改革之初，有人担心，医疗机构为节约成本，不愿意为患者用好药、使用新技术，不利于重症患者的诊疗。
+黎巴嫩重申，当前迫切需要全面落实2024年11月达成的黎以停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 23:01 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 22:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 22:57 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 22:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 23:03 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 23:02 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 23:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 22:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 23:07 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 22:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:54 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 23:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 23:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 22:49 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 23:04 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 22:56 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:01 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 23:08 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:12 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 23:09 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 23:11 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 22:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 23:12 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/18752.shtml)
-- 2026-06-29 22:44 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/70932286824.shtml)
-- 2026-06-29 23:05 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/96708374574.shtml)
-- 2026-06-29 22:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/44764387829.shtml)
-- 2026-06-29 22:49 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/708284863903.shtml)
-- 2026-06-29 22:53 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/630908.shtml)
-- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/72348.shtml)
-- 2026-06-29 22:47 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/607884519398.shtml)
-- 2026-06-29 22:56 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/78194.shtml)
-- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/457036.shtml)
-- 2026-06-29 22:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/1948000.shtml)
-- 2026-06-29 22:43 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/251773.shtml)
-- 2026-06-29 22:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/903682068817.shtml)
-- 2026-06-29 23:04 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/702356216574.shtml)
-- 2026-06-29 23:03 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/2124147.shtml)
+- 2026-06-29 22:48 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/994538.shtml)
+- 2026-06-29 22:53 - [起风了](http://www.share.kurohicncr.top/Article/details/1826271.shtml)
+- 2026-06-29 22:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/2611032.shtml)
+- 2026-06-29 22:58 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/0521319067.shtml)
+- 2026-06-29 23:04 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/5725787802.shtml)
+- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/3019731.shtml)
+- 2026-06-29 23:04 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/87112.shtml)
+- 2026-06-29 22:58 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/950935286.shtml)
+- 2026-06-29 23:03 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/002047255.shtml)
+- 2026-06-29 23:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/0920958.shtml)
+- 2026-06-29 23:12 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/318950465259.shtml)
+- 2026-06-29 22:49 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/469418.shtml)
+- 2026-06-29 22:59 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/18631280.shtml)
+- 2026-06-29 23:11 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/23067162960.shtml)
+- 2026-06-29 23:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/0325148832.shtml)

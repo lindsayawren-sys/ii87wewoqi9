@@ -1,61 +1,59 @@
-# 史诗级造富盛宴持续！SpaceX股价再飙20% 马斯克身家升破1.3万亿美元
+# 外籍人员在中国境内违规捕蝶，被钓鱼爱好者慧眼识破
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-来源：财联社 周一，马斯克旗下火箭、卫星与AI公司SpaceX股价在其上市第二个交易日（首个完整交易日）大涨逾19.6%，收于192.5美元，延续了上周五上市首日的涨势。与此同时，马斯克旗下电动汽车公司特斯拉股价也小幅上涨了1.2%。 SpaceX股价的进一步上涨令马斯克的净资产一日之内增加了1648亿美元（约合1.11万亿元人民币），使其身价达到创纪录的1.3万亿美元。这一数
+钓鱼爱好者老张在湖边垂钓时，发现岸边有两名外籍人员正拿着捕虫网捕捉蝴蝶，十分吵闹，声音吓跑了鱼群，这让老张开始关注起两人。 老张发现两个人装备专业，动作干净利落，一人负责捕捉，另一人负责记录，配合相当默契。他们每抓到一种蝴蝶，就会小心翼翼地装进一个特殊的容器里，不像普通游客。 老张联想到曾看过类似的国家安全机关公民举报案例，随即掏出手机拨打了12339国家安全机关举报受理电话说
 
 ## 正文
 
-来源：财联社 周一，马斯克旗下火箭、卫星与AI公司SpaceX股价在其上市第二个交易日（首个完整交易日）大涨逾19.6%，收于192.5美元，延续了上周五上市首日的涨势。
+钓鱼爱好者老张在湖边垂钓时，发现岸边有两名外籍人员正拿着捕虫网捕捉蝴蝶，十分吵闹，声音吓跑了鱼群，这让老张开始关注起两人。
 
-与此同时，马斯克旗下电动汽车公司特斯拉股价也小幅上涨了1.2%。
+老张发现两个人装备专业，动作干净利落，一人负责捕捉，另一人负责记录，配合相当默契。
 
-SpaceX股价的进一步上涨令马斯克的净资产一日之内增加了1648亿美元（约合1.11万亿元人民币），使其身价达到创纪录的1.3万亿美元。
+他们每抓到一种蝴蝶，就会小心翼翼地装进一个特殊的容器里，不像普通游客。
 
-这一数字让他比在富豪榜上排名第二的谷歌联合创始人拉里·佩奇（身家为3014亿美元）高出约1万亿美元。
+老张联想到曾看过类似的国家安全机关公民举报案例，随即掏出手机拨打了12339国家安全机关举报受理电话说明情况。
 
-马斯克一天的净资产增值，超过了全球第十大富豪沃伦·巴菲特的全部身家（约为1464亿美元）。
+国家安全机关接报后，立即会同有关部门开展处置工作。
 
-马斯克持有48亿股SpaceX股票，另有3.5亿股行权价为每股8.40美元的股票期权，使其持股比例达到约38%。
+现场查验发现，两人的背包中，上百只蝴蝶标本整齐地排列，两人随身的笔记本上密密麻麻记录着详细数据。
 
-SpaceX周一宣布，承销商已行使IPO“绿鞋”超额配售权，使公司本次上市募资总额从原先的750亿美元增至857亿美元。
+经查，这两名外籍人员系境外生物研究人员，以学术交流的名义入境，未经批准擅自捕捉野生动物。
 
-此次绿鞋涉及额外约8330万股，以满足投资者的强劲需求。
+该行为已违反我国相关规定，可能导致我国特有的生物资源外流，对我国生物安全构成威胁。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 22:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 23:10 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 22:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 22:49 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 23:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 23:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 22:51 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 23:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 22:46 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 23:06 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 22:42 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 22:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 23:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 22:57 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 23:12 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 23:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:16 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 23:00 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 23:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:12 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 23:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 23:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 23:12 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 23:14 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 23:02 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/74987.shtml)
-- 2026-06-29 23:03 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/3647424622.shtml)
-- 2026-06-29 23:04 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/77730850.shtml)
-- 2026-06-29 22:53 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/841204.shtml)
-- 2026-06-29 22:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/6610662.shtml)
-- 2026-06-29 22:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/356511496.shtml)
-- 2026-06-29 23:01 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/85561.shtml)
-- 2026-06-29 22:45 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/692017068.shtml)
-- 2026-06-29 22:51 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/02073401734.shtml)
-- 2026-06-29 22:53 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/820103.shtml)
-- 2026-06-29 22:53 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/699958592547.shtml)
-- 2026-06-29 23:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/90974354.shtml)
-- 2026-06-29 23:00 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/8860344.shtml)
-- 2026-06-29 23:00 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/1208966395.shtml)
-- 2026-06-29 23:11 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/018831.shtml)
+- 2026-06-29 23:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/337081872606.shtml)
+- 2026-06-29 23:04 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/6236909.shtml)
+- 2026-06-29 23:13 - [一见倾心](http://www.share.kurohicncr.top/Article/details/6026042691.shtml)
+- 2026-06-29 23:16 - [美人鱼](http://www.share.minike.top/Article/details/86071.shtml)
+- 2026-06-29 22:57 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/2834684571.shtml)
+- 2026-06-29 23:11 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/73582029909.shtml)
+- 2026-06-29 23:09 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/30437803.shtml)
+- 2026-06-29 23:04 - [世界杯](https://www.blog.minike.top/Article/details/256573.shtml)
+- 2026-06-29 23:13 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/233125.shtml)
+- 2026-06-29 22:54 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/5903146.shtml)
+- 2026-06-29 22:55 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/268209346.shtml)
+- 2026-06-29 23:12 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/7027454291.shtml)
+- 2026-06-29 23:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/57755730089.shtml)
+- 2026-06-29 23:03 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/1181080.shtml)
+- 2026-06-29 23:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/20698.shtml)

@@ -1,57 +1,53 @@
-# 荣昌卤鹅从街头卤味“飞”向全球餐桌
+# 美民主党对防长发起弹劾 指控其犯有战争罪等不当行为
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月16日电 题：荣昌卤鹅从街头卤味“飞”向全球餐桌 作者 梁钦卿 今年1月，一批价值9万余元的荣昌卤鹅成功出口中国香港，1000多只特色卤鹅进入当地超市和餐厅。这道传承百年的重庆非遗美食首次以规模化、标准化形式走进中国香港。 融合粤菜卤制技艺与川菜麻辣风味的荣昌卤鹅，成品色泽红亮、五香味浓，已成为重庆极具代表性的地方美食名片之一，承载着浓郁的巴渝饮食文化底蕴。 记者
+中新网4月16日电 综合美媒报道，美国国会众议院民主党籍议员当地时间15日提交6项针对国防部长赫格塞思的弹劾条款，指控他犯有战争罪、鲁莽处理敏感信息等严重不当行为。 据美国哥伦比亚广播公司(CBS)报道，这项弹劾动议由亚利桑那州联邦众议员安萨里牵头，多名民主党籍联邦众议员共同发起，共列出了6项针对赫格塞思的弹劾条款。 据报道，弹劾条款分别是：对伊朗发动“未经(国会)授权的战争”
 
 ## 正文
 
-中新网重庆6月16日电 题：荣昌卤鹅从街头卤味“飞”向全球餐桌 作者 梁钦卿 今年1月，一批价值9万余元的荣昌卤鹅成功出口中国香港，1000多只特色卤鹅进入当地超市和餐厅。
+中新网4月16日电 综合美媒报道，美国国会众议院民主党籍议员当地时间15日提交6项针对国防部长赫格塞思的弹劾条款，指控他犯有战争罪、鲁莽处理敏感信息等严重不当行为。
 
-这道传承百年的重庆非遗美食首次以规模化、标准化形式走进中国香港。
+据美国哥伦比亚广播公司(CBS)报道，这项弹劾动议由亚利桑那州联邦众议员安萨里牵头，多名民主党籍联邦众议员共同发起，共列出了6项针对赫格塞思的弹劾条款。
 
-融合粤菜卤制技艺与川菜麻辣风味的荣昌卤鹅，成品色泽红亮、五香味浓，已成为重庆极具代表性的地方美食名片之一，承载着浓郁的巴渝饮食文化底蕴。
+据报道，弹劾条款分别是：对伊朗发动“未经(国会)授权的战争”并罔顾美国军人生命安全；违反武装冲突法和以平民为攻击目标；疏忽和鲁莽处理敏感军事信息；妨碍国会行使监督权；滥用权力并对军队进行政治操弄；行为有损美国及其军队声誉。
 
-记者近日在重庆荣昌街头一家卤鹅店门口看到，排队购买的顾客络绎不绝。
+美国哥伦比亚广播公司(CBS)指出，由于目前共和党在众议院占微弱多数，这一弹劾动议几乎肯定无法在众议院获得通过。
 
-“自从2025年4月荣昌卤鹅在网络走红后，门店销量持续攀升，2026年元旦期间日均销售量达六七十只。
+但如果民主党在中期选举后掌控众议院，弹劾案的民主党发起者可能会重新启动这项程序。
 
-”店主甘光均介绍。
-
-荣昌区商务委数据显示，目前荣昌卤鹅产业总产能提升至1200万只，成功培育出年销售收入超2亿元的龙头企业；截至2025年10月，辖区内获得食品生产许可证的企业增至40家，较年初增长250%，老字号企业达到54家，产业主体规模持续壮大。
-
-然而，荣昌卤鹅的出海之路并非一帆风顺。
+五角大楼新闻秘书威尔逊对此表示，民主党人试图通过弹劾“博取眼球”，并称五角大楼已在伊朗问题上取得了“决定性的压倒性胜利”，“实现了总统的目标”。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 22:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 23:01 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 23:08 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 22:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 23:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 22:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 22:49 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:07 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 23:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 22:59 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 22:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 22:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 23:13 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 22:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 22:51 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 22:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 23:06 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 23:10 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 23:04 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 23:00 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/466921416418.shtml)
-- 2026-06-29 22:46 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/020936438910.shtml)
-- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/8807974531.shtml)
-- 2026-06-29 22:54 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/8824987.shtml)
-- 2026-06-29 22:52 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/295228823637.shtml)
-- 2026-06-29 22:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/0987965.shtml)
-- 2026-06-29 22:48 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/92957698903.shtml)
-- 2026-06-29 22:44 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/922390980.shtml)
-- 2026-06-29 22:46 - [房价什么时候能涨](http://www.share.minike.top/Article/details/85119027.shtml)
-- 2026-06-29 22:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/96927064.shtml)
-- 2026-06-29 22:44 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/683845700094.shtml)
-- 2026-06-29 22:51 - [小娘惹](https://www.blog.minike.top/Article/details/642086053.shtml)
-- 2026-06-29 23:03 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/510899248.shtml)
-- 2026-06-29 23:01 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/195370603333.shtml)
-- 2026-06-29 22:48 - [周生如故](http://www.share.minike.top/Article/details/977167.shtml)
+- 2026-06-29 22:48 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/12318674.shtml)
+- 2026-06-29 23:13 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/283823.shtml)
+- 2026-06-29 23:05 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/60321.shtml)
+- 2026-06-29 23:12 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/02172.shtml)
+- 2026-06-29 22:52 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/2550674807.shtml)
+- 2026-06-29 23:10 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/350556.shtml)
+- 2026-06-29 23:14 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/74523204078.shtml)
+- 2026-06-29 22:52 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/03299505.shtml)
+- 2026-06-29 23:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/84363543.shtml)
+- 2026-06-29 23:08 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/58770361.shtml)
+- 2026-06-29 23:17 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/2635666.shtml)
+- 2026-06-29 23:05 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/97024.shtml)
+- 2026-06-29 22:57 - [周生如故](https://www.blog.kurohicncr.top/Article/details/54769228404.shtml)
+- 2026-06-29 22:58 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/2447306.shtml)
+- 2026-06-29 23:15 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/05151402.shtml)

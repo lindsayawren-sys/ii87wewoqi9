@@ -1,58 +1,61 @@
-# 港股午评：恒指涨0.45% 科指涨0.92% 黄金股普涨 芯片股强势 华虹宏力涨超11% 溜溜梅上市首日涨超189%
+# 摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-6月15日消息，港股三大指数集体上涨。截至午间收盘，恒生指数涨0.45%，报24829.11，恒生科技指数涨0.92%，国企指数涨0.08%。盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超3%，阿里巴巴跌超1%；黄金股集体上涨，紫金黄金国际涨超12%；芯片股强势，华虹宏力涨超11%；航空股大涨，东方航空涨超9%；溜溜梅今日上市，首日涨超189%。 黄金股集体上涨，紫金黄金国际
+摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。几小时前，该行公布其第一季度股票交易收入创纪录。 这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。在战争推动下，融资成本上月跃升，如今已回落。 知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分
 
 ## 正文
 
-6月15日消息，港股三大指数集体上涨。
+摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。
 
-截至午间收盘，恒生指数涨0.45%，报24829.11，恒生科技指数涨0.92%，国企指数涨0.08%。
+几小时前，该行公布其第一季度股票交易收入创纪录。
 
-盘面上，科网股涨跌不一，联想超9%，哔哩哔哩跌超3%，阿里巴巴跌超1%；黄金股集体上涨，紫金黄金国际涨超12%；芯片股强势，华虹宏力涨超11%；航空股大涨，东方航空涨超9%；溜溜梅今日上市，首日涨超189%。
+这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。
 
-黄金股集体上涨，紫金黄金国际涨超12%。
+在战争推动下，融资成本上月跃升，如今已回落。
 
-6月15日， 黄金站上4300美元/盎司。
+知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。
 
-据央视新闻，美东时间14日，美国总统特朗普在社交媒体上说，随着美伊协议19日签署，霍尔木兹海峡将重新开放，以便进行排雷作业。
+该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分点的指引。
 
-中金财富期货指出，黄金是美伊达成协议的最受益标的。
+募集资金将用于一般企业用途。
 
-后续关注霍尔木兹海峡油轮通过情况及油价走势。
+汇编数据显示，自2025年初以来，摩根士丹利在财报发布后进行的四次债券发行均分为四个部分，每次筹资80亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 23:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 22:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 23:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 22:51 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 22:57 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 23:06 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 23:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 22:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 22:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 22:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:06 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 23:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 23:16 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 23:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 23:00 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 23:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 23:05 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 22:54 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 23:07 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 23:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 23:14 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 22:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 22:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [刘宇宁 好听](http://www.share.minike.top/Article/details/6649869302.shtml)
-- 2026-06-29 23:02 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/894216692.shtml)
-- 2026-06-29 22:42 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/3804208036.shtml)
-- 2026-06-29 22:58 - [千与千寻](https://www.blog.minike.top/Article/details/283159.shtml)
-- 2026-06-29 22:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/685353607784.shtml)
-- 2026-06-29 22:53 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/098534180.shtml)
-- 2026-06-29 22:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/3420451711.shtml)
-- 2026-06-29 23:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/07065005.shtml)
-- 2026-06-29 22:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/2623701017.shtml)
-- 2026-06-29 23:09 - [扫黑风暴](http://www.share.minike.top/Article/details/86580.shtml)
-- 2026-06-29 23:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/0011208683.shtml)
-- 2026-06-29 22:59 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/2953041969.shtml)
-- 2026-06-29 22:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/074471407.shtml)
-- 2026-06-29 22:48 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/447293583735.shtml)
-- 2026-06-29 23:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/53454213.shtml)
+- 2026-06-29 23:00 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/122177352620.shtml)
+- 2026-06-29 23:02 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/68729635.shtml)
+- 2026-06-29 23:03 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/7462471.shtml)
+- 2026-06-29 22:57 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/649402949697.shtml)
+- 2026-06-29 22:48 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4819684498.shtml)
+- 2026-06-29 23:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/500164519894.shtml)
+- 2026-06-29 23:02 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/02043334.shtml)
+- 2026-06-29 23:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/138234077.shtml)
+- 2026-06-29 23:14 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/790686.shtml)
+- 2026-06-29 22:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/16284685723.shtml)
+- 2026-06-29 23:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/21626801.shtml)
+- 2026-06-29 22:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/7297090122.shtml)
+- 2026-06-29 22:59 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/712987.shtml)
+- 2026-06-29 22:53 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/1066790634.shtml)
+- 2026-06-29 23:16 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/453442673328.shtml)

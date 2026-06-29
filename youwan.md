@@ -1,57 +1,57 @@
-# 桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速
+# 4月16日热门中概股多数上涨 微牛涨11.17%，理想汽车跌3.09%
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网贺州6月15日电 题：桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速 作者 张广权 陶胜平 陈观姐 夏季，走进广西贺州市平桂区黄金珠宝产业园，车间里的黄金饰品在灯光下熠熠生辉。园区内物流车辆穿梭，操着粤语的客商往来不绝。 广东人陈合楚在珠宝行业打拼二十余年。两年前随企业从粤港澳大湾区迁至平桂时，心里并非没有疑虑：“这边能行吗？” 如今，他的顾虑已烟消云散
+4月16日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高0.75%。 上涨股（按市值从高到低）：阿里巴巴涨1.45%，网易涨2.00%，日月光半导体涨1.34%，京东涨0.70%，百度涨2.29%，携程涨2.95%，中华电信涨0.77%，联电涨3.86%，富途控股涨1.78%，中通涨0.52%，华住酒店集团涨2.46%，腾讯音乐涨1.70%，中国新城农村涨1.95%，满
 
 ## 正文
 
-中新网贺州6月15日电 题：桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速 作者 张广权 陶胜平 陈观姐 夏季，走进广西贺州市平桂区黄金珠宝产业园，车间里的黄金饰品在灯光下熠熠生辉。
+4月16日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高0.75%。
 
-园区内物流车辆穿梭，操着粤语的客商往来不绝。
+上涨股（按市值从高到低）：阿里巴巴涨1.45%，网易涨2.00%，日月光半导体涨1.34%，京东涨0.70%，百度涨2.29%，携程涨2.95%，中华电信涨0.77%，联电涨3.86%，富途控股涨1.78%，中通涨0.52%，华住酒店集团涨2.46%，腾讯音乐涨1.70%，中国新城农村涨1.95%，满帮涨2.50%，唯品会涨1.55%，WSP控股涨0.15%，BOSS直聘涨5.41%，拓臻生物涨0.06%，名创优品涨0.37%，小马智行涨7.82%，慧荣科技涨6.82%，欢聚涨1.46%，微牛涨11.17%。
 
-广东人陈合楚在珠宝行业打拼二十余年。
+下跌股（按市值从高到低）：台积电跌1.21%，拼多多跌0.13%，贝壳跌1.52%，理想汽车跌3.09%，小鹏汽车跌1.23%，蔚来跌2.43%，哔哩哔哩跌0.20%，新东方跌1.79%，万国数据跌0.74%，亚朵集团跌0.96%，金山云跌1.46%。
 
-两年前随企业从粤港澳大湾区迁至平桂时，心里并非没有疑虑：“这边能行吗？
+美股周三收盘涨跌不一。
 
-” 如今，他的顾虑已烟消云散。
+纳指连续第11个交易日收涨，标普500指数创历史最高纪录。
 
-公司生产的黄金首饰每日发往粤港澳大湾区，订单已排至下月。
+市场继续关注美伊谈判的进展及中东局势。
 
-“这里到深圳物流方便，人工成本更低，关键是政府说话算话，补贴和手续从不拖泥带水。
+美国总统特朗普称伊朗战争“非常接近结束”，暗示本周可能达成协议。
 
-”他说。
+道指跌72.27点，跌幅为0.15%，报48463.72点；纳指涨376.93点，涨幅为1.59%，报24016.02点；标普500指数涨55.57点，涨幅为0.80%，报7022.95点。
 
 ## 相关推荐
 
-- 2026-06-29 23:05 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 23:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 22:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 23:10 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 22:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 23:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 23:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 22:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 22:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 22:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 22:53 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 22:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 22:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 23:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 23:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:58 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:58 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 23:05 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:51 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 22:54 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:09 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [东方风云榜直播](http://www.blog.minike.top/Article/details/26424.shtml)
-- 2026-06-29 23:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/62515979727.shtml)
-- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/0998425.shtml)
-- 2026-06-29 23:02 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/84116.shtml)
-- 2026-06-29 23:08 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/41969820.shtml)
-- 2026-06-29 22:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/92590854.shtml)
-- 2026-06-29 22:53 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/208747.shtml)
-- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/22386.shtml)
-- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/66506.shtml)
-- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/727626452.shtml)
-- 2026-06-29 23:11 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/8394822147.shtml)
-- 2026-06-29 23:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/653506029715.shtml)
-- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/75721.shtml)
-- 2026-06-29 23:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/5638963438.shtml)
-- 2026-06-29 22:57 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/48125723809.shtml)
+- 2026-06-29 22:59 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/7605070371.shtml)
+- 2026-06-29 22:58 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/41497.shtml)
+- 2026-06-29 23:07 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/80935.shtml)
+- 2026-06-29 23:08 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/372760.shtml)
+- 2026-06-29 23:02 - [逃狱兄弟](https://www.blog.minike.top/Article/details/232637251.shtml)
+- 2026-06-29 23:01 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/53778.shtml)
+- 2026-06-29 23:09 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/158436421.shtml)
+- 2026-06-29 22:54 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/05315643.shtml)
+- 2026-06-29 22:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/85415211203.shtml)
+- 2026-06-29 22:49 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/07299164.shtml)
+- 2026-06-29 22:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/153386565.shtml)
+- 2026-06-29 22:58 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/324702.shtml)
+- 2026-06-29 22:51 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/40238801.shtml)
+- 2026-06-29 23:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/2118886.shtml)
+- 2026-06-29 22:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/92186578340.shtml)

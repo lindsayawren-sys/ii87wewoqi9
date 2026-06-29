@@ -1,60 +1,56 @@
-# 端午节假期全国口岸日均出入境人员将达220万人次
+# SEC全面改革PDT规则，Robinhood成赢家
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-端午佳节将至，预计全国口岸将迎来出入境客流高峰。 据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+美国证券交易委员会批准了FINRA的一项规则变更，以取消PDT（典型日内交易者）认定以及此前限制散户日内交易的25000美元最低资产要求。 此前，任何投资者在五个交易日内执行四笔或以上日内交易，将被标记为“典型日内交易者”，并被迫维持25000美元的账户余额，否则将面临账户冻结。在官方监管通知发布45天后，该规则将被一个动态的“日内保证金”框架所取代，在该框架下，保证金要求将基
 
 ## 正文
 
-端午佳节将至，预计全国口岸将迎来出入境客流高峰。
+美国证券交易委员会批准了FINRA的一项规则变更，以取消PDT（典型日内交易者）认定以及此前限制散户日内交易的25000美元最低资产要求。
 
-据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
+此前，任何投资者在五个交易日内执行四笔或以上日内交易，将被标记为“典型日内交易者”，并被迫维持25000美元的账户余额，否则将面临账户冻结。
 
-大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+在官方监管通知发布45天后，该规则将被一个动态的“日内保证金”框架所取代，在该框架下，保证金要求将基于日内风险敞口，而非固定的账户门槛。
 
-端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
+这一全面改革特别反映了现代日内交易活动的兴起，包括零日期权（0DTE）的兴起，而2001年制定最初的PDT规则时并未考虑到这些活动。
 
-其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
+根据新指引，经纪交易商必须实施相关系统，要么在交易超出保证金限额时实时阻止交易，要么在日终进行计算以评估风险。
 
-国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
+虽然此举降低了小额账户的门槛，但保留了严格的处罚措施：在五个工作日内屡次未能补足日内保证金缺口的账户，将面临90天内不得增加空头头寸或借方余额的限制。
 
-通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
+Robinwood（HOOD）被视为这项新规则的受益者之一。
 
-(总台央视记者 武兵)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 23:04 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 22:53 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 22:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 22:59 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 22:42 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 22:46 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 22:55 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 22:53 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 22:46 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 23:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 23:06 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 22:49 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 23:05 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 23:07 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 23:03 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 23:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 22:52 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 23:01 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:54 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 23:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 23:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 23:07 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:52 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/456060667885.shtml)
-- 2026-06-29 22:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/65221.shtml)
-- 2026-06-29 22:51 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/382947731.shtml)
-- 2026-06-29 23:02 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/699752119.shtml)
-- 2026-06-29 22:59 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/97957.shtml)
-- 2026-06-29 23:06 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/910459990.shtml)
-- 2026-06-29 23:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/42573872691.shtml)
-- 2026-06-29 23:08 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/56267.shtml)
-- 2026-06-29 22:53 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/235826.shtml)
-- 2026-06-29 22:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/326309543119.shtml)
-- 2026-06-29 22:53 - [小娘惹](https://www.share.minike.top/Article/details/4307966293.shtml)
-- 2026-06-29 22:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/346266638.shtml)
-- 2026-06-29 22:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/674318656747.shtml)
-- 2026-06-29 23:04 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/881865.shtml)
-- 2026-06-29 23:10 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/49009464.shtml)
+- 2026-06-29 23:01 - [送你一朵小红花](http://www.share.minike.top/Article/details/20726066.shtml)
+- 2026-06-29 23:08 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/5931131.shtml)
+- 2026-06-29 22:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/22838.shtml)
+- 2026-06-29 23:17 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/279663706.shtml)
+- 2026-06-29 23:06 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/201770283741.shtml)
+- 2026-06-29 23:17 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/96727095386.shtml)
+- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/26004301.shtml)
+- 2026-06-29 23:10 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/32890.shtml)
+- 2026-06-29 23:00 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/32268217.shtml)
+- 2026-06-29 22:59 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/61971.shtml)
+- 2026-06-29 23:11 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/223632887.shtml)
+- 2026-06-29 22:58 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/4972802820.shtml)
+- 2026-06-29 23:10 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/775638.shtml)
+- 2026-06-29 22:50 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/7713331193.shtml)
+- 2026-06-29 23:08 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/3071028050.shtml)

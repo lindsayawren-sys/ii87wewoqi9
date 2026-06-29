@@ -1,59 +1,58 @@
-# 新加坡将推出黄金清算系统，致力打造贵金属交易中心
+# 程野谈喜剧创新：向生活取经，用科技“上菜”
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-新加坡将于今年推出场外（OTC）黄金清算系统，并同步为各国央行提供金库托管服务，力图将自身打造为全球贵金属交易枢纽。 新加坡副总理颜金勇周一上午表示，摩根大通、德意志银行、星展银行等多家国际大行将参与该系统。 他说：“我们无意取代现有成熟的黄金交易与流动性中心。相反，新加坡可成为全球黄金生态中一个值得信赖的节点 —— 衔接区域需求与全球流动性，并在亚洲交易时段为市场提供支撑。”
+中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。 从传统二人转舞台走向更广
 
 ## 正文
 
-新加坡将于今年推出场外（OTC）黄金清算系统，并同步为各国央行提供金库托管服务，力图将自身打造为全球贵金属交易枢纽。
+中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。
 
-新加坡副总理颜金勇周一上午表示，摩根大通、德意志银行、星展银行等多家国际大行将参与该系统。
+”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。
 
-他说：“我们无意取代现有成熟的黄金交易与流动性中心。
+这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。
 
-相反，新加坡可成为全球黄金生态中一个值得信赖的节点 —— 衔接区域需求与全球流动性，并在亚洲交易时段为市场提供支撑。
+从传统二人转舞台走向更广阔的影视与网络空间，程野对喜剧艺术的“守正”与“创新”体会深刻。
 
-” 随着亚洲在全球贵金属贸易中占比提升，新加坡与竞争对手香港正竞相争做亚洲首要黄金市场。
+“时代在发展，喜剧必须要有新变化，核心就是走进人心。
 
-这两大金融中心正试图改变数十年来黄金交易集中于伦敦、纽约和瑞士的格局。
+”他表示，作品唯有多关注民众日常喜闻乐见的事，才能拥有广泛而持久的生命力。
 
-新加坡的这一规划已酝酿十余年，近两年地缘政治不确定性重新提振黄金投资需求，进一步推动了相关进程。
+谈及传统技艺与当代喜剧形式的关系，程野以二人转为例，消解了“传统即陈旧”的刻板印象。
 
-此前多项举措 —— 如推出实物黄金合约、兴建大型仓储设施 —— 主要由私营部门主导。
+“现在流行的脱口秀，其核心技巧就类似于二人转表演中的‘说口’。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 22:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 22:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 22:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 23:06 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:04 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 22:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 23:10 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 22:47 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 22:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 22:55 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 22:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 22:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 22:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 22:54 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 23:11 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 23:11 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 23:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 23:06 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 23:05 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 23:08 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 23:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/857844.shtml)
-- 2026-06-29 22:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/704628.shtml)
-- 2026-06-29 22:44 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/22131.shtml)
-- 2026-06-29 23:08 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/42370067087.shtml)
-- 2026-06-29 23:08 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/4947931.shtml)
-- 2026-06-29 23:03 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/962987.shtml)
-- 2026-06-29 23:04 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/64804112142.shtml)
-- 2026-06-29 23:08 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/667235.shtml)
-- 2026-06-29 23:11 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/73919724.shtml)
-- 2026-06-29 22:50 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/978447396.shtml)
-- 2026-06-29 23:06 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/22070656.shtml)
-- 2026-06-29 22:43 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/32158.shtml)
-- 2026-06-29 23:11 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/13972838.shtml)
-- 2026-06-29 23:03 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/476517.shtml)
-- 2026-06-29 23:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/0098182307.shtml)
+- 2026-06-29 23:10 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/0620628100.shtml)
+- 2026-06-29 23:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/89522.shtml)
+- 2026-06-29 22:52 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/6210768.shtml)
+- 2026-06-29 22:57 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/2217245.shtml)
+- 2026-06-29 22:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/54185166.shtml)
+- 2026-06-29 23:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/22332282.shtml)
+- 2026-06-29 23:14 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/5356549.shtml)
+- 2026-06-29 22:59 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/1509842626.shtml)
+- 2026-06-29 23:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/5618053216.shtml)
+- 2026-06-29 22:55 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/78056968.shtml)
+- 2026-06-29 22:48 - [爱很美味](http://www.blog.minike.top/Article/details/873535.shtml)
+- 2026-06-29 23:05 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/6241397.shtml)
+- 2026-06-29 23:13 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/7592502.shtml)
+- 2026-06-29 23:02 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/820134.shtml)
+- 2026-06-29 22:56 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/361236451456.shtml)

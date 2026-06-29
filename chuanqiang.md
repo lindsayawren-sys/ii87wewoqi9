@@ -1,60 +1,57 @@
-# 新疆卡拉麦里国家公园候选区发现虎鼬踪迹
+# 误判伊朗战局下利率走向？高盛重大“翻车”：FICC收入猛降10%
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月15日电 (史玉江 张赫凡)记者15日从新疆卡拉麦里国家公园候选区获悉，近日，当地在乔木希拜管护站附近拍摄到“有重要生态、科学、社会价值的陆生野生动物”虎鼬的珍贵影像。 作为戈壁滩上的“猎手”，虎鼬体型小巧，体长约30厘米，昼伏夜出的它们总在夜幕降临时，凭借敏锐的嗅觉穿梭于荒漠沙地之间，精准锁定沙鼠、跳鼠等啮齿类动物的踪迹。相关研究显示，单只虎鼬一年捕食量可超
+财联社4月16日讯（编辑 潇湘）最新迹象显示，由于自2月底以来的美伊战争颠覆了全球货币政策预期，高盛的固定收益交易员被打了个措手不及，该行在押注全球利率走势方面遭受了重大损失。 据知情人士表示，高盛的利率交易部门是其第一季度FICC（固定收益、外汇和大宗商品）业务表现令人失望的主要推手。 据悉，今年一季度高盛FICC业务收入意外大幅下降了10%，远低于分析师预测的增长10%，同
 
 ## 正文
 
-中新网乌鲁木齐6月15日电 (史玉江 张赫凡)记者15日从新疆卡拉麦里国家公园候选区获悉，近日，当地在乔木希拜管护站附近拍摄到“有重要生态、科学、社会价值的陆生野生动物”虎鼬的珍贵影像。
+财联社4月16日讯（编辑 潇湘）最新迹象显示，由于自2月底以来的美伊战争颠覆了全球货币政策预期，高盛的固定收益交易员被打了个措手不及，该行在押注全球利率走势方面遭受了重大损失。
 
-作为戈壁滩上的“猎手”，虎鼬体型小巧，体长约30厘米，昼伏夜出的它们总在夜幕降临时，凭借敏锐的嗅觉穿梭于荒漠沙地之间，精准锁定沙鼠、跳鼠等啮齿类动物的踪迹。
+据知情人士表示，高盛的利率交易部门是其第一季度FICC（固定收益、外汇和大宗商品）业务表现令人失望的主要推手。
 
-相关研究显示，单只虎鼬一年捕食量可超过千只啮齿类动物，因此被形象地称为“鼠害克星”。
+据悉，今年一季度高盛FICC业务收入意外大幅下降了10%，远低于分析师预测的增长10%，同时也落后于摩根大通、花旗集团和摩根士丹利等竞争对手相关业务的两位数增长。
 
-在荒漠生态链中，虎鼬堪称荒漠生态系统健康的“晴雨表”。
+鉴于高盛是华尔街固定收益交易的主要参与者之一，其远逊于预期的业绩受到了分析师和投资者的密切关注。
 
-“虎鼬作为荒漠、半荒漠生态系统的捕食者之一，对栖息地完整性要求极高。
+缘何FICC业绩表现不佳？
 
-它的出现，不仅仅是一个物种的新记录，更标志着保护区内的食物链正趋于完整，从植被、啮齿类到虎鼬、狼等捕食者之间的能量流动已恢复正常。
+分析人士指出，高盛围绕美国经济放缓时利率将如何变化的仓位布局，是其相关业务业绩疲软的关键驱动因素。
 
-这是生物多样性提升的鲜活证明。
+知情人士表示，高盛此前曾持有不少与科技和人工智能相关的头寸，这些头寸在较弱的经济环境下预计会遭受损失。
 
-”中国林科院自然保护地研究所所长金崑表示。
+作为对冲，该行也选择持有不少在美联储降息时会获得回报的头寸——降息是美联储在经济增长乏力时可能采取的举措。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 22:44 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 22:53 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 22:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 22:51 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 22:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:46 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 22:59 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 23:08 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 22:56 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 23:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 22:59 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 23:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 22:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 22:59 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 22:50 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:10 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 23:07 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 23:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 22:52 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 23:01 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/12966.shtml)
-- 2026-06-29 23:00 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/682600199.shtml)
-- 2026-06-29 22:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/0396650.shtml)
-- 2026-06-29 23:01 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/11895336151.shtml)
-- 2026-06-29 22:49 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/228842190707.shtml)
-- 2026-06-29 22:43 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/20684084427.shtml)
-- 2026-06-29 23:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/832450.shtml)
-- 2026-06-29 22:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/430991329.shtml)
-- 2026-06-29 22:45 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/428531970777.shtml)
-- 2026-06-29 23:06 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/0175425.shtml)
-- 2026-06-29 22:56 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/128906.shtml)
-- 2026-06-29 22:47 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/846940624395.shtml)
-- 2026-06-29 22:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/521246547.shtml)
-- 2026-06-29 22:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/296728883.shtml)
-- 2026-06-29 23:12 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/928771898051.shtml)
+- 2026-06-29 23:02 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/26411.shtml)
+- 2026-06-29 22:55 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/426898692.shtml)
+- 2026-06-29 23:16 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/272900.shtml)
+- 2026-06-29 22:57 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/60401.shtml)
+- 2026-06-29 23:14 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/535250115764.shtml)
+- 2026-06-29 22:49 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/819286886285.shtml)
+- 2026-06-29 23:14 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/87500.shtml)
+- 2026-06-29 23:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/6900316602.shtml)
+- 2026-06-29 22:52 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/0544262250.shtml)
+- 2026-06-29 23:01 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/67833670070.shtml)
+- 2026-06-29 23:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/623863317213.shtml)
+- 2026-06-29 22:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/6378657662.shtml)
+- 2026-06-29 22:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/6461626222.shtml)
+- 2026-06-29 23:00 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/772228209606.shtml)
+- 2026-06-29 23:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/592179308.shtml)

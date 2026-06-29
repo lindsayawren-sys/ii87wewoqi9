@@ -1,49 +1,43 @@
-# 探讨合作与未来 “2026中国与中东欧青年政治家论坛”开幕
+# 习近平举行仪式欢迎越共中央总书记、国家主席苏林访华
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。 此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。 记者 郑子颜 湖北武汉报道 责任编
+4月15日上午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎越共中央总书记、国家主席苏林对我国进行国事访问。
 
 ## 正文
 
-发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。
-
-此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。
-
-记者 郑子颜 湖北武汉报道 责任编辑：【罗攀】
+4月15日上午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎越共中央总书记、国家主席苏林对我国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 23:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 22:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 22:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 22:49 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 22:43 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 22:44 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 22:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 23:07 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 22:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 22:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 23:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 23:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 23:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 22:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 23:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 23:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 23:02 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 23:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 23:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [美人鱼](https://www.blog.minike.top/Article/details/67419.shtml)
-- 2026-06-29 22:42 - [国际清算银行警告AI投资热潮](https://www.blog.minike.top/Article/details/19807210181.shtml)
-- 2026-06-29 23:11 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/895323369.shtml)
-- 2026-06-29 22:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/052098727840.shtml)
-- 2026-06-29 22:58 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/994228908901.shtml)
-- 2026-06-29 22:56 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/49856787165.shtml)
-- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/242819.shtml)
-- 2026-06-29 23:08 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/13786.shtml)
-- 2026-06-29 23:00 - [炽夏](https://www.blog.minike.top/Article/details/268361630045.shtml)
-- 2026-06-29 22:46 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/9289760321.shtml)
-- 2026-06-29 22:51 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/26182825.shtml)
-- 2026-06-29 22:47 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/191427.shtml)
-- 2026-06-29 22:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/84764223.shtml)
-- 2026-06-29 22:56 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/413154975932.shtml)
-- 2026-06-29 23:11 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/766619.shtml)
+- 2026-06-29 23:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/28901842.shtml)
+- 2026-06-29 23:15 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/14013968.shtml)
+- 2026-06-29 22:55 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/5492740058.shtml)
+- 2026-06-29 23:06 - [《贺子珍》](https://www.blog.minike.top/Article/details/50653488446.shtml)
+- 2026-06-29 22:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/418115.shtml)
+- 2026-06-29 22:57 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/727274049.shtml)
+- 2026-06-29 23:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/24166477158.shtml)
+- 2026-06-29 23:12 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/513117.shtml)
+- 2026-06-29 23:06 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/522401.shtml)
+- 2026-06-29 22:55 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/98737730.shtml)
+- 2026-06-29 23:06 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/29328.shtml)
+- 2026-06-29 22:56 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/438133221998.shtml)
+- 2026-06-29 22:57 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/486930005464.shtml)
+- 2026-06-29 23:00 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/5302870.shtml)
+- 2026-06-29 23:06 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/09739820.shtml)

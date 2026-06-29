@@ -1,58 +1,58 @@
-# 四川成都“粽子一条街” 粽香氤氲迎端午
+# 国金证券：首次覆盖劲方医药-B给予“买入”评级 目标价为55.63港元
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周
+国金证券发布研报称，预计劲方医药-B（02595）26/27/28年销售收入为1.46/1.60/3.35亿元，同比+12.3%/+9.4%/+109.1%，归母净利润为-1.85/-1.84/-2.36亿元。基于DCF模型估值，计算合理市值为179.7亿元，对应合理目标价为55.63港元/股。首次覆盖，给予“买入”评级。 国金证券主要观点如下： 深耕“难成药”靶点，精准卡位全
 
 ## 正文
 
-年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+国金证券发布研报称，预计劲方医药-B（02595）26/27/28年销售收入为1.46/1.60/3.35亿元，同比+12.3%/+9.4%/+109.1%，归母净利润为-1.85/-1.84/-2.36亿元。
 
-“世界杯魔咒”失灵了？
+基于DCF模型估值，计算合理市值为179.7亿元，对应合理目标价为55.63港元/股。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+首次覆盖，给予“买入”评级。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+国金证券主要观点如下： 深耕“难成药”靶点，精准卡位全球关键赛道 公司打造了围绕RAS信号通路为核心的差异化管线矩阵，包括国内首款获批上市的KRASG12C抑制剂氟泽雷塞、全球研发进展领先的口服KRASG12D抑制剂GFH375、具同类最有潜力的pan RAS分子胶GFH276、以及针对肿瘤恶病质巨大未满足需求的GDF15/IL-6双抗GFS202A等。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单掷纸飞机、彩虹跑！
+全球癌症患者约30%出现RAS突变，是具有极高的成药价值的开发方向，随着其“不可成药”问题（即缺乏有效结合口袋、导致常规技术难以成药）迎来突破，近年来全球兴起研发浪潮，公司管线布局位列第一梯队；公司于2025年9月完成港股IPO，融资规模为2.68亿美元。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+GFH375全球研发进展领先，有望颠覆“癌王”胰腺癌的巨大蓝海市场 胰腺癌被冠为“癌中之王”，5年生存率仅约13%，临床亟需更加有效的靶向药物，具有巨大的临床未满足需求。
 
-再见了屏幕！
+KRASG12D突变在胰腺癌中尤为高发（43.6%），且肿瘤恶性程度更高；GFH375是全球进展最快的口服KRASG12D抑制剂，针对胰腺癌在患者基线较差、治疗线数偏后的情况下仍然展现出优于竞品的临床治疗潜力，目前已进入注册临床阶段，在海外亦在I/IIa期剂量递增试验中发现初步抗肿瘤活性和优异的安全性信号。
 
-未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创在田里支起手机 广西“村播”抱团闯出兴农路高三毕业生用“束脩之礼”答谢老师南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了2026年世界杯美国赛区揭幕战在洛杉矶举行 “太阳神鸟金饰”亮相中国国家博物馆 上影节开幕 梁朝伟领衔金爵奖评委团 北京：圆明园旁扇面湖荷花盛开 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“
+RAS管线矩阵布局全面，多维度充实研发管线 GFH276为具有同类最优潜力的pan RAS分子胶新秀，分子性能优越并抵抗多重耐药，目前处于I期临床；GFS202A为全球首款GDF15/IL-6双抗，针对肿瘤恶病质的巨大未满足临床需求，目前处于I期临床；GFS784为全球首个泛RAS抑制剂载荷ADC，处于IND阶段。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:52 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 23:07 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:00 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 22:53 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 22:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 22:48 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 23:09 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 22:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 23:01 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 23:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 22:52 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 23:16 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 23:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 23:17 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 23:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 23:13 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 23:16 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 23:00 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 23:13 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 22:49 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 22:53 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 22:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 23:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/255775.shtml)
-- 2026-06-29 22:49 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/01009.shtml)
-- 2026-06-29 22:55 - [张凌赫 客串](http://www.blog.minike.top/Article/details/4840584.shtml)
-- 2026-06-29 22:43 - [美人鱼](http://www.share.kurohicncr.top/Article/details/75933.shtml)
-- 2026-06-29 23:11 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/876152133724.shtml)
-- 2026-06-29 22:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/065596457.shtml)
-- 2026-06-29 22:56 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/58825.shtml)
-- 2026-06-29 22:59 - [时光音乐会](https://www.blog.minike.top/Article/details/47128.shtml)
-- 2026-06-29 23:06 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/413954192.shtml)
-- 2026-06-29 23:03 - [时光音乐会](http://www.share.minike.top/Article/details/55194700192.shtml)
-- 2026-06-29 22:46 - [东方风云榜](http://www.share.minike.top/Article/details/9094515.shtml)
-- 2026-06-29 22:56 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/13309.shtml)
-- 2026-06-29 22:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/36061.shtml)
-- 2026-06-29 22:51 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/753968998.shtml)
-- 2026-06-29 22:51 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/64174994131.shtml)
+- 2026-06-29 23:16 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/02391.shtml)
+- 2026-06-29 23:16 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/348165.shtml)
+- 2026-06-29 22:49 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/563273002913.shtml)
+- 2026-06-29 22:51 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/863115660.shtml)
+- 2026-06-29 23:17 - [美人鱼](https://www.blog.minike.top/Article/details/7054642.shtml)
+- 2026-06-29 22:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/46836626216.shtml)
+- 2026-06-29 23:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/26927756395.shtml)
+- 2026-06-29 23:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/8943709.shtml)
+- 2026-06-29 23:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/08300884254.shtml)
+- 2026-06-29 23:17 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/584961731792.shtml)
+- 2026-06-29 22:57 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/00742.shtml)
+- 2026-06-29 22:49 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/622700925.shtml)
+- 2026-06-29 23:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/18406.shtml)
+- 2026-06-29 23:16 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/02136.shtml)
+- 2026-06-29 23:17 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/17417854337.shtml)

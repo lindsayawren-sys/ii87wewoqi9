@@ -1,60 +1,60 @@
-# 俄称对乌克兰多地涉军设施实施大规模打击
+# 能源化肥价格大涨 美国农民面临成本冲击
 
-> 更新时间：2026-06-29 23:12:03 UTC+8
+> 更新时间：2026-06-29 23:18:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。 俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。所有既定目标均被击中。俄国防
+霍尔木兹海峡承载了全球石油运输总量的五分之一、全球海运化肥贸易约三分之一。美国约35%的化肥依赖进口，其中包括来自中东地区的磷肥和氮肥。这个播种季，受中东局势影响，美国国内能源、化肥的价格大幅上涨，令本已受特朗普政府关税政策和农产品价格低迷冲击的美国农民“雪上加霜”。 农场主 赫德里克：我认为最直接的影响就是化肥和燃料，我们使用的液态氮肥每吨涨了100到150美元，尿素、磷酸二
 
 ## 正文
 
-中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。
+霍尔木兹海峡承载了全球石油运输总量的五分之一、全球海运化肥贸易约三分之一。
 
-俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。
+美国约35%的化肥依赖进口，其中包括来自中东地区的磷肥和氮肥。
 
-所有既定目标均被击中。
+这个播种季，受中东局势影响，美国国内能源、化肥的价格大幅上涨，令本已受特朗普政府关税政策和农产品价格低迷冲击的美国农民“雪上加霜”。
 
-俄国防部强调称，俄军无意也没有对乌民用基础设施进行打击。
+农场主 赫德里克：我认为最直接的影响就是化肥和燃料，我们使用的液态氮肥每吨涨了100到150美元，尿素、磷酸二铵的价格也大幅上涨。
 
-此外，俄国防部表示，俄防空部队在过去一夜间拦截并摧毁了123架乌克兰固定翼无人机。
+在播种时节遇上这样的大幅涨价，确实让很多农民陷入了困境，我们也不例外。
 
-无人机被击落地点包括别尔哥罗德州、布良斯克州、卡卢加州、库尔斯克州、奥廖尔州、罗斯托夫州、梁赞州、斯摩棱斯克州、特维尔州、图拉州、莫斯科地区、克拉斯诺达尔边疆区，以及克里米亚、亚速海和黑海区域上空。
+多数美国农户本应提前采购本年度大部分所需化肥，但由于价格居高不下，今年许多农场主都是拖到最后一刻才下单。
 
-图拉州州长米利亚耶夫当日在社交媒体上发文称，当天凌晨图拉市多处民宅遭无人机袭击。
+但是，等来等去，农场主没有等来局势好转的消息，却要面对供应商不断涨价的困境。
 
-初步信息显示，袭击造成3人死亡、3人受伤。
+农场主 巴尔泰克：目前，我认为我们面临的最大难题是成本，化肥、种子、农药、农机配件价格都大幅飙升，感觉我们农民已经被逼到了墙角。
 
 ## 相关推荐
 
-- 2026-06-29 23:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 22:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 22:52 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 22:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 22:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 23:00 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 23:01 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 22:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:49 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 23:03 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 23:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 22:47 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 22:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 23:12 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 23:11 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 23:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 23:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 22:56 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 23:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 22:48 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 23:11 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 22:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 23:06 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 23:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 23:05 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 22:56 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/4510679045.shtml)
-- 2026-06-29 23:10 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/5366974.shtml)
-- 2026-06-29 22:54 - [沙丘](http://www.blog.minike.top/Article/details/58183978088.shtml)
-- 2026-06-29 23:06 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/02669479.shtml)
-- 2026-06-29 23:11 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/88530537.shtml)
-- 2026-06-29 22:45 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/475962951.shtml)
-- 2026-06-29 22:59 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/951927843.shtml)
-- 2026-06-29 22:45 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/14550.shtml)
-- 2026-06-29 23:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7521279548.shtml)
-- 2026-06-29 22:43 - [乔家的儿女](http://www.share.minike.top/Article/details/55182397441.shtml)
-- 2026-06-29 23:06 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/517876941.shtml)
-- 2026-06-29 22:49 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/55232059145.shtml)
-- 2026-06-29 22:58 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/699721012.shtml)
-- 2026-06-29 22:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/07992776488.shtml)
-- 2026-06-29 22:52 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/1498152.shtml)
+- 2026-06-29 23:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/23129689303.shtml)
+- 2026-06-29 23:11 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/3456182.shtml)
+- 2026-06-29 22:52 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/291542441442.shtml)
+- 2026-06-29 22:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/6997933925.shtml)
+- 2026-06-29 22:52 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/30850849.shtml)
+- 2026-06-29 23:17 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/3352217.shtml)
+- 2026-06-29 23:11 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/663614245.shtml)
+- 2026-06-29 23:07 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/06834.shtml)
+- 2026-06-29 23:08 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/5629767.shtml)
+- 2026-06-29 23:14 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/35524.shtml)
+- 2026-06-29 22:50 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/941889759052.shtml)
+- 2026-06-29 23:12 - [斗破苍穹](https://www.share.minike.top/Article/details/483707788910.shtml)
+- 2026-06-29 22:57 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/982901.shtml)
+- 2026-06-29 22:55 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/412631183.shtml)
+- 2026-06-29 22:59 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/84778.shtml)
