@@ -1,47 +1,51 @@
-# 黎巴嫩总统与特朗普通电话
+# 上汽集团拟向JSW进一步出售印度合资车企10%股权
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-黎巴嫩总统府16日发表声明说，黎巴嫩总统奥恩与美国总统特朗普通电话。奥恩希望特朗普尽快继续推动停火努力。 另据卡塔尔方面消息，黎巴嫩已获悉停火决定将在数小时内生效。
+据媒体引两位知情人士报道，上汽集团将进一步把其印度汽车合资企业JSW MG Motor的10%股权出售给当地合作伙伴JSW。 交易完成后，JSW的持股比例将升至45%，成为第一大股东。 报道称，上汽集团将把这笔交易约60亿卢比的所得重新投入JSW MG Motor，用于推出新车型。 上汽集团、JSW和JSW MG Motor均未回应媒体的置评请求。责任编辑：江学思
 
 ## 正文
 
-黎巴嫩总统府16日发表声明说，黎巴嫩总统奥恩与美国总统特朗普通电话。
+据媒体引两位知情人士报道，上汽集团将进一步把其印度汽车合资企业JSW MG Motor的10%股权出售给当地合作伙伴JSW。
 
-奥恩希望特朗普尽快继续推动停火努力。
+交易完成后，JSW的持股比例将升至45%，成为第一大股东。
 
-另据卡塔尔方面消息，黎巴嫩已获悉停火决定将在数小时内生效。
+报道称，上汽集团将把这笔交易约60亿卢比的所得重新投入JSW MG Motor，用于推出新车型。
+
+上汽集团、JSW和JSW MG Motor均未回应媒体的置评请求。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 21:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 20:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 21:04 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 20:50 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 20:58 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 20:52 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 20:54 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 21:06 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 20:54 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 21:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 21:06 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 21:06 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 21:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 20:58 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 21:17 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 21:12 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 21:17 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 21:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 21:16 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 21:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/282472448.shtml)
-- 2026-06-29 21:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/13551469996.shtml)
-- 2026-06-29 20:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/732496642.shtml)
-- 2026-06-29 20:52 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/06583270555.shtml)
-- 2026-06-29 21:00 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/74202962.shtml)
-- 2026-06-29 20:52 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/46644.shtml)
-- 2026-06-29 20:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6842048.shtml)
-- 2026-06-29 20:57 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/22332.shtml)
-- 2026-06-29 21:12 - [沙丘](https://www.blog.kurohicncr.top/Article/details/46734384000.shtml)
-- 2026-06-29 21:09 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/77322693.shtml)
-- 2026-06-29 21:16 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/240846933055.shtml)
-- 2026-06-29 21:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/9781647.shtml)
-- 2026-06-29 21:13 - [周生如故](https://www.blog.kurohicncr.top/Article/details/794373530.shtml)
-- 2026-06-29 21:02 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/004035958.shtml)
-- 2026-06-29 21:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/147151.shtml)
+- 2026-06-29 21:09 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/4066670161.shtml)
+- 2026-06-29 21:16 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/8022856.shtml)
+- 2026-06-29 21:05 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/495166026302.shtml)
+- 2026-06-29 21:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/108982.shtml)
+- 2026-06-29 20:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/182428.shtml)
+- 2026-06-29 21:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/8313311.shtml)
+- 2026-06-29 21:04 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/7393420014.shtml)
+- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/9463849932.shtml)
+- 2026-06-29 21:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/57222070.shtml)
+- 2026-06-29 20:57 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/57049606.shtml)
+- 2026-06-29 21:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/560843673.shtml)
+- 2026-06-29 21:16 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/689160952.shtml)
+- 2026-06-29 20:56 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/671331.shtml)
+- 2026-06-29 20:59 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/096234563244.shtml)
+- 2026-06-29 21:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/57603.shtml)

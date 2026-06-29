@@ -1,47 +1,59 @@
-# 金徽酒：一季度净利润2.05亿元 同比下降12.51%
+# “高枕”并非“无忧” 医生提醒选枕不当可能损伤脑血管
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-转自：证券时报人民财讯4月16日电，金徽酒(603919)4月16日披露一季报，公司2026年一季度实现营业收入10.92亿元，同比下降1.46%；净利润2.05亿元，同比下降12.51%。
+中新网成都5月31日电(何美锟)睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。近日，针对“高枕无忧”的传统说法，成都市第四人民医院心血管内科主治医师毕娟娟在接受采访时提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。 “枕头过高时，颈部会长期处于过度屈曲状态。夜间翻身时，颈部椎动脉易像‘拧麻花
 
 ## 正文
 
-转自：证券时报人民财讯4月16日电，金徽酒(603919)4月16日披露一季报，公司2026年一季度实现营业收入10.92亿元，同比下降1.46%；净利润2.05亿元，同比下降12.51%。
+中新网成都5月31日电(何美锟)睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。
+
+近日，针对“高枕无忧”的传统说法，成都市第四人民医院心血管内科主治医师毕娟娟在接受采访时提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。
+
+“枕头过高时，颈部会长期处于过度屈曲状态。
+
+夜间翻身时，颈部椎动脉易像‘拧麻花’般发生扭曲，可能造成血管内膜撕裂，引发自发性椎动脉夹层。
+
+”毕娟娟解释道，血液渗入血管壁后，会造成血管管腔狭窄、闭塞，形成血栓，最终诱发后循环脑梗死。
+
+而枕头过低同样也有弊端。
+
+毕娟娟指出，头部过度后仰易使人张口呼吸，进而出现口干、打鼾等问题，还会造成头部、鼻咽部充血，加重鼻炎患者不适。
+
+此外，若侧卧时不使用枕头，头颈部悬空下垂，颈部肌肉受牵拉易发生痉挛，这也是落枕的主要诱因之一。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 21:14 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 21:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 20:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 21:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 20:56 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 21:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 20:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 20:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 21:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 20:59 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 20:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 20:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 21:00 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 21:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 21:15 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 21:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 20:57 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 21:07 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 21:02 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 21:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 21:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 21:12 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 21:00 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 20:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/420683139.shtml)
-- 2026-06-29 20:51 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/61270.shtml)
-- 2026-06-29 20:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/594981155444.shtml)
-- 2026-06-29 21:12 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/789017456.shtml)
-- 2026-06-29 20:48 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/611668953.shtml)
-- 2026-06-29 20:49 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/31251339385.shtml)
-- 2026-06-29 21:04 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/696879451.shtml)
-- 2026-06-29 21:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/4172640687.shtml)
-- 2026-06-29 20:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/91184.shtml)
-- 2026-06-29 21:04 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/46963022.shtml)
-- 2026-06-29 20:54 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/87438.shtml)
-- 2026-06-29 21:07 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/855721.shtml)
-- 2026-06-29 21:09 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/0845039451.shtml)
-- 2026-06-29 21:16 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/11595635549.shtml)
-- 2026-06-29 21:06 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/68517059.shtml)
+- 2026-06-29 20:57 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/69638976.shtml)
+- 2026-06-29 20:59 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/6988764020.shtml)
+- 2026-06-29 20:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/817634728845.shtml)
+- 2026-06-29 21:02 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/96010039025.shtml)
+- 2026-06-29 21:10 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/6374391635.shtml)
+- 2026-06-29 21:06 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/39739790.shtml)
+- 2026-06-29 20:58 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/6086010085.shtml)
+- 2026-06-29 21:06 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/95524.shtml)
+- 2026-06-29 21:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/81541.shtml)
+- 2026-06-29 21:16 - [急先锋](http://www.blog.kurohicncr.top/Article/details/193398.shtml)
+- 2026-06-29 21:03 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/820540534.shtml)
+- 2026-06-29 21:20 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/64358.shtml)
+- 2026-06-29 21:16 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/21961412539.shtml)
+- 2026-06-29 21:16 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/93138745128.shtml)
+- 2026-06-29 21:06 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/46556405701.shtml)

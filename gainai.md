@@ -1,58 +1,58 @@
-# 原油：油价上涨 霍尔木兹海峡航运继续受阻
+# 坚持“当下改”与“长久立”相结合（树立和践行正确政绩观）
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-油价小幅走高，交易员在美伊可能延长停火的迹象与霍尔木兹海峡“双重封锁”持续阻碍运输之间进行权衡。 WTI上涨3.7%，收于每桶95美元下方，布伦特收于每桶99美元附近。 知情人士称，美国和伊朗考虑将停火延长两周，以争取更多时间推进和平协议谈判。 美国总统唐纳德·特朗普表示，与伊朗达成协议的前景“看起来非常好”。 但这一表态与部分海湾国家和欧洲领导人的判断不同，他们预计美伊达成和
+各地区各部门各单位深入开展学习教育—— 坚持“当下改”与“长久立”相结合(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位坚持“当下改”与“长久立”相结合，认真查摆问题、推进整改整治，切实把制度规矩补齐立好，确保学习教育取得实效。 下沉一线察实情在黑龙江省牡丹江市，当地干部不打招呼、直奔基层，收集群众意见建议：“查医保政策还得跑街道”“居民下班，
 
 ## 正文
 
-油价小幅走高，交易员在美伊可能延长停火的迹象与霍尔木兹海峡“双重封锁”持续阻碍运输之间进行权衡。
+各地区各部门各单位深入开展学习教育—— 坚持“当下改”与“长久立”相结合(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位坚持“当下改”与“长久立”相结合，认真查摆问题、推进整改整治，切实把制度规矩补齐立好，确保学习教育取得实效。
 
-WTI上涨3.7%，收于每桶95美元下方，布伦特收于每桶99美元附近。
+下沉一线察实情在黑龙江省牡丹江市，当地干部不打招呼、直奔基层，收集群众意见建议：“查医保政策还得跑街道”“居民下班，社区工作人员也下班，办事对不上时间”……很快，牡丹江市党群服务中心全面推行一站式窗口服务，错峰办公、延时服务，集中办理社保、医保、民政、人才流转等高频民生业务。
 
-知情人士称，美国和伊朗考虑将停火延长两周，以争取更多时间推进和平协议谈判。
+学习教育开展以来，黑龙江省推动领导干部带头落实包联指导学习教育工作机制，深入分管地区、分管领域、分管部门及基层党建联系点、包联企业等调研，有效传导压力、督促责任落实。
 
-美国总统唐纳德·特朗普表示，与伊朗达成协议的前景“看起来非常好”。
+四川省成都市简阳市推动各职能部门领导干部走进“窗口”，在亲历“材料关、流程关、服务关”中发现隐形梗阻，持续优化群众办事体验。
 
-但这一表态与部分海湾国家和欧洲领导人的判断不同，他们预计美伊达成和平协议可能需要约六个月。
+针对企业反映的服务费支付滞后问题，简阳市商务局推动服务费1个工作日内完成支付；宏缘镇建立窗口动态调配机制，便利群众办事。
 
-霍尔木兹海峡的航运仍基本瘫痪，美国设立了封锁以切断伊朗运输，而德黑兰限制大部分其他船只通行。
+山东省烟台市栖霞市坚持多渠道收集企业、群众的意见建议，领导干部下沉调研、公开接访，倾听群众诉求，梳理基层亟待解决的突出问题。
 
-美国防长海格塞斯表示，美军准备好在特朗普下令时随时恢复作战，并敦促伊朗领导人做出明智选择。
+其中，针对果品企业反映集中的审批环节多、部门协同难等问题，推动行政审批中心优化办事流程，开展“跨域通办”绿色通道服务。
 
-特朗普早些时候在社交媒体上表示黎巴嫩和以色列同意停火10天，这一消息令油价回吐部分涨幅，但随后迅速反弹。
+海南省海口市坚持开门教育，领导干部深入群众开展走访座谈，通过12345政务服务便民热线等多种渠道，广泛征集意见建议；建立健全市级领导包案机制，选派37名处级干部深入一线，每人包联3至4件信访难题，推动问题解决。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 21:16 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 20:51 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 21:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 21:03 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 20:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:56 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 20:55 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 21:07 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 20:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 21:07 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 21:03 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:22 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 21:20 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 21:07 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 21:22 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 21:09 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 21:17 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 21:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 21:04 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 21:03 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 21:22 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 21:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 20:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/75088903193.shtml)
-- 2026-06-29 20:58 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/76072588333.shtml)
-- 2026-06-29 20:50 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/534364243967.shtml)
-- 2026-06-29 21:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/701279819449.shtml)
-- 2026-06-29 20:52 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/20697864.shtml)
-- 2026-06-29 21:04 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/86859.shtml)
-- 2026-06-29 21:01 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/07203.shtml)
-- 2026-06-29 20:58 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/98179315447.shtml)
-- 2026-06-29 20:56 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/705237712248.shtml)
-- 2026-06-29 20:49 - [沉睡花园](http://www.share.minike.top/Article/details/536866.shtml)
-- 2026-06-29 21:09 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/495574408.shtml)
-- 2026-06-29 20:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/248966770.shtml)
-- 2026-06-29 20:55 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/5224107917.shtml)
-- 2026-06-29 21:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/9423822291.shtml)
-- 2026-06-29 21:05 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/68363.shtml)
+- 2026-06-29 21:16 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/618165.shtml)
+- 2026-06-29 20:59 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/7720700570.shtml)
+- 2026-06-29 20:55 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/487790.shtml)
+- 2026-06-29 20:55 - [周生如故](https://www.blog.kurohicncr.top/Article/details/054486488.shtml)
+- 2026-06-29 20:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/4069329123.shtml)
+- 2026-06-29 21:01 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/8899630897.shtml)
+- 2026-06-29 21:09 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/823759.shtml)
+- 2026-06-29 21:10 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/92507.shtml)
+- 2026-06-29 21:20 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/686955.shtml)
+- 2026-06-29 21:08 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/334223852.shtml)
+- 2026-06-29 21:05 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/7228859.shtml)
+- 2026-06-29 21:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/418679597852.shtml)
+- 2026-06-29 21:01 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/6419018744.shtml)
+- 2026-06-29 21:14 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/045081507.shtml)
+- 2026-06-29 20:54 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/137548612730.shtml)

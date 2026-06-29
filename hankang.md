@@ -1,57 +1,55 @@
-# 贸易局势紧张 欧元区两年期国债收益率料周线下跌
+# 快讯：恒指高开0.62% 科指涨1.05% 科网股普涨 黄金股回暖 联想涨超14%
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-欧元区短期国债收益率周五小幅走高，但仍有望连续第三周下跌，因投资者愈发乐观地认为，伊朗战事及后续引发的能源冲击可能很快结束。 美国总统特朗普对很快能达成协议结束冲突表示有信心，他称美伊下一轮会谈可能于本周末举行，为期两周的停火协议也有望延长。 本周油价走强，有望上涨 3%，拖累周五债券价格走低并推高收益率。在美国封锁下，霍尔木兹海峡实际上已关闭，导致海湾地区以外现货市场大量原油
+美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。 今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%
 
 ## 正文
 
-欧元区短期国债收益率周五小幅走高，但仍有望连续第三周下跌，因投资者愈发乐观地认为，伊朗战事及后续引发的能源冲击可能很快结束。
+美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。
 
-美国总统特朗普对很快能达成协议结束冲突表示有信心，他称美伊下一轮会谈可能于本周末举行，为期两周的停火协议也有望延长。
+美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。
 
-本周油价走强，有望上涨 3%，拖累周五债券价格走低并推高收益率。
+今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。
 
-在美国封锁下，霍尔木兹海峡实际上已关闭，导致海湾地区以外现货市场大量原油供应消失。
+盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%；黄金股回暖，紫金黄金国际涨超5%；锂电池股普遍上涨，比亚迪电子涨超2%；今日创想三维上市，首日涨超80%。
 
-对短期利率决议及通胀预期更为敏感的德国两年期国债收益率早盘上涨 1.4 个基点，报 2.547%。
-
-该收益率本周料下跌 6 个基点，但仍较战前水平高出约 50 个基点。
-
-货币市场数据显示，交易员目前认为欧洲央行 4 月会议加息的概率仅为 15%，远低于最近几周一度接近 80% 的水平，不过市场仍充分计价 2026 年加息两次的预期。
-
-包括行长拉加德在内的欧洲央行官员本周密集发声，下调连续加息的可能性，这有助于平复部分基于市场的加息预期。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 21:04 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 20:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 20:54 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 21:12 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 20:54 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 21:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 21:16 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 21:00 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 20:58 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 20:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 20:57 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 21:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 20:58 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 21:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 21:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 21:03 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 21:03 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 21:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 21:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 21:15 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 21:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 21:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 21:14 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 21:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 20:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/14704.shtml)
-- 2026-06-29 20:58 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/89896.shtml)
-- 2026-06-29 20:56 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/490642.shtml)
-- 2026-06-29 20:53 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/5465643150.shtml)
-- 2026-06-29 20:49 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/19369183.shtml)
-- 2026-06-29 21:11 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/43035970.shtml)
-- 2026-06-29 21:02 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/9734632.shtml)
-- 2026-06-29 21:02 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/79721.shtml)
-- 2026-06-29 20:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/27306775.shtml)
-- 2026-06-29 21:13 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/62123212.shtml)
-- 2026-06-29 21:03 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/133325359.shtml)
-- 2026-06-29 21:11 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/46161.shtml)
-- 2026-06-29 21:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/9292301.shtml)
-- 2026-06-29 20:52 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/004669116784.shtml)
-- 2026-06-29 20:58 - [毒液2](https://www.share.minike.top/Article/details/999980.shtml)
+- 2026-06-29 21:17 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/62195434451.shtml)
+- 2026-06-29 20:58 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/25997025000.shtml)
+- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/561575594036.shtml)
+- 2026-06-29 21:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/405817.shtml)
+- 2026-06-29 20:59 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/376629680905.shtml)
+- 2026-06-29 21:20 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/753483.shtml)
+- 2026-06-29 21:06 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/74991823281.shtml)
+- 2026-06-29 21:12 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/193492747.shtml)
+- 2026-06-29 21:03 - [天道](http://www.blog.kurohicncr.top/Article/details/472995632613.shtml)
+- 2026-06-29 21:00 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/91699.shtml)
+- 2026-06-29 21:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/863931.shtml)
+- 2026-06-29 20:58 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/7567326414.shtml)
+- 2026-06-29 20:54 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/631749.shtml)
+- 2026-06-29 21:21 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/688859889.shtml)
+- 2026-06-29 21:03 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/3677952760.shtml)

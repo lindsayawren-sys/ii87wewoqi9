@@ -1,60 +1,61 @@
-# “成为中国人”风潮助推“中文热”升温 外交部：欢迎更多外国朋友学中文
+# 北京互联网法院：涉未成年人网络纠纷向社交互动等新业态延伸
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆16日主持例行记者会。 有记者提问：第17个联合国中文日(4月20日)即将到来，今年的主题是“翰墨和鸣，华章同赋”，联合国总部和全球各国文化机构纷纷举办形式多样的庆祝活动，社交媒体上“成为中国人”风潮助推“中文热”持续升温。发言人对此有何评论？ 郭嘉昆：今年是中文列为联合国官方语言80周年。中国驻外机构与联合
+中新网北京5月29日电 (陈杭 罗维佳)2021年5月至2026年5月，北京互联网法院共受理涉未成年人网络纠纷案件2581件，年收案从2021年的50件升至2025年的997件，收案数量增长近20倍，年均增幅111.3%，反映出未成年人网络活动日趋频繁，利用法律手段维权意识逐步增强，司法保护需求愈发迫切。这是记者28日从北京互联网法院未成年人网络司法保护新闻发布会上获悉的。 据
 
 ## 正文
 
-中新网北京4月16日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆16日主持例行记者会。
+中新网北京5月29日电 (陈杭 罗维佳)2021年5月至2026年5月，北京互联网法院共受理涉未成年人网络纠纷案件2581件，年收案从2021年的50件升至2025年的997件，收案数量增长近20倍，年均增幅111.3%，反映出未成年人网络活动日趋频繁，利用法律手段维权意识逐步增强，司法保护需求愈发迫切。
 
-有记者提问：第17个联合国中文日(4月20日)即将到来，今年的主题是“翰墨和鸣，华章同赋”，联合国总部和全球各国文化机构纷纷举办形式多样的庆祝活动，社交媒体上“成为中国人”风潮助推“中文热”持续升温。
+这是记者28日从北京互联网法院未成年人网络司法保护新闻发布会上获悉的。
 
-发言人对此有何评论？
+据介绍，相关案件反映出四大突出特征与问题：一是上网场景持续丰富，新型风险不断涌现。
 
-郭嘉昆：今年是中文列为联合国官方语言80周年。
+涉未成年人网络纠纷已从传统游戏充值、直播打赏向社交互动、盲盒消费、连麦交友等新业态延伸，部分产品设计诱导性消费模式，纠纷形态更趋复杂。
 
-中国驻外机构与联合国秘书处在纽约、日内瓦、维也纳等地，举办了一系列精彩纷呈的庆祝活动。
+二是多方主体深度参与，法律关系日趋复杂。
 
-作为世界上最古老的语言之一，中文绵延古今、跨越山海，传承着“和而不同”“和谐共生”的东方智慧，见证了联合国80多年来承载的和平梦想。
+游戏开发商、平台运营方、主播、渠道商等多主体责任边界模糊，未成年人维权难度加大，也对协同治理提出更高要求。
 
-文字是文明的载体。
+三是消费纠纷占据首位，平台与家庭履责不力，既反映出家庭监护不到位，也暴露出部分平台在防沉迷机制、消费限额、内容审核等方面的短板。
 
-每一种文明都是人类社会的共同财富，不可或缺，值得珍惜和共同保护。
+四是侵权纠纷成因多元，网络法治意识薄弱。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 21:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 20:56 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 21:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 21:10 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 20:52 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 20:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 20:49 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 20:50 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 21:01 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 20:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 21:10 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 21:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 21:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 21:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 21:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 21:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 21:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 21:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 21:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 21:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 21:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 21:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 20:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 21:06 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 21:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/84147257559.shtml)
-- 2026-06-29 20:50 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/86058889.shtml)
-- 2026-06-29 20:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/9959933649.shtml)
-- 2026-06-29 21:01 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/44176.shtml)
-- 2026-06-29 21:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/30486946110.shtml)
-- 2026-06-29 21:14 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/912186202.shtml)
-- 2026-06-29 20:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/14975737.shtml)
-- 2026-06-29 21:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/13286007.shtml)
-- 2026-06-29 20:48 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/14021008.shtml)
-- 2026-06-29 21:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/90803401.shtml)
-- 2026-06-29 20:57 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/128245660.shtml)
-- 2026-06-29 20:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/399679708.shtml)
-- 2026-06-29 20:49 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/98817118.shtml)
-- 2026-06-29 21:11 - [乔家的儿女](http://www.share.minike.top/Article/details/92621896.shtml)
-- 2026-06-29 20:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/90579851.shtml)
+- 2026-06-29 21:20 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/51568.shtml)
+- 2026-06-29 21:18 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/246272.shtml)
+- 2026-06-29 21:09 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/38911675.shtml)
+- 2026-06-29 21:07 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/39503347058.shtml)
+- 2026-06-29 21:01 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/5558614788.shtml)
+- 2026-06-29 21:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/475395.shtml)
+- 2026-06-29 21:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/278176422.shtml)
+- 2026-06-29 21:02 - [乔家的儿女](https://www.blog.minike.top/Article/details/60577.shtml)
+- 2026-06-29 20:56 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/9726502329.shtml)
+- 2026-06-29 21:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/05808535.shtml)
+- 2026-06-29 21:15 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/6735239528.shtml)
+- 2026-06-29 20:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/0710743541.shtml)
+- 2026-06-29 21:17 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/747329847056.shtml)
+- 2026-06-29 21:20 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/72827.shtml)
+- 2026-06-29 21:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/26600431.shtml)

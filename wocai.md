@@ -1,56 +1,61 @@
-# 以教育纽带联通东西 第三届全球文明互鉴论坛在渝举办
+# 印尼强化自然资源出口管控 6月起由指定国企统一出口
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月17日电 (记者 钟旖)在中希建立全面战略伙伴关系20周年、西南大学迎120周年校庆之际，第三届全球文明互鉴论坛16日在中希文明互鉴中心召开。 论坛以“教育与文明互鉴：通往相互理解与共同发展的新路径”为主题，来自中国、希腊、新西兰等国的教育管理者、学者，以及中希各界青年代表共聚一堂，共同探索人工智能时代中希高等教育的合作路径，研讨古典智慧与全球教育的未来发展。 西
+中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。 印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。 根据规定，自2026年6月1
 
 ## 正文
 
-中新网重庆4月17日电 (记者 钟旖)在中希建立全面战略伙伴关系20周年、西南大学迎120周年校庆之际，第三届全球文明互鉴论坛16日在中希文明互鉴中心召开。
+中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。
 
-论坛以“教育与文明互鉴：通往相互理解与共同发展的新路径”为主题，来自中国、希腊、新西兰等国的教育管理者、学者，以及中希各界青年代表共聚一堂，共同探索人工智能时代中希高等教育的合作路径，研讨古典智慧与全球教育的未来发展。
+印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。
 
-西南大学党委常委、副校长邹芙都在致辞时说，本次论坛既是学校国际交流成果的重要体现，也是对全球文明倡议的积极践行。
+根据规定，自2026年6月1日起，首批纳入政策范围的棕榈油、煤炭及铁合金三类商品的出口须通过上述国企统一进行。
 
-中希文明互鉴中心中方主任崔延强表示，中心始终致力于通过教育合作不断深化双边合作基础，以教育为纽带促进文明互鉴。
+该政策将设置至2026年12月31日的过渡期，并于2027年1月1日起全面实施。
 
-论坛设主旨分享、圆桌论坛、倡议发布等环节。
+艾尔朗加表示，新政策有望提升印尼自然资源出口数据的透明度与真实性，防止低报发票金额、转移定价以及出口外汇流失等问题。
 
-与会嘉宾围绕“中希高等教育合作实践路径”与“文明互鉴与全球教育未来”两大议题展开深入研讨。
+2025年，上述三类商品出口总额达661.3亿美元，占印尼全国出口总额的23.4%。
 
-中国和希腊高校相关负责人系统分享了在合作办学、航运教育、工程教育及环境治理等领域的实践经验，展现中希教育合作的多元路径与广阔发展潜力；同时，围绕人工智能时代教育变革、大学使命转型、师范教育合作及文明传承创新等议题开展深度交流，凝聚广泛共识。
+印尼总统普拉博沃日前宣布，为加强自然资源管理并优化国家税收，印尼将集中管理棕榈油、煤炭及铁合金等关键资源的出口，要求此类出口必须通过政府指定的国有企业进行。
 
-圆桌论坛以“留学中国与留学希腊：机遇、挑战与未来”为主题，邀请曾在华留学的希腊各界专业人士，以及在希腊留学的中国专业人士代表参与对话。
+这并非印尼首次对资源类产品实施出口管制。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 21:15 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 20:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 20:58 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 21:07 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 20:54 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 20:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 21:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 21:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 21:18 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 20:55 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 21:15 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 21:19 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 21:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 21:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 21:15 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 21:06 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 21:22 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 20:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 21:18 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 21:04 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 21:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/5421128945.shtml)
-- 2026-06-29 21:02 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/209758004359.shtml)
-- 2026-06-29 20:59 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/323569.shtml)
-- 2026-06-29 21:06 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/41283.shtml)
-- 2026-06-29 21:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/129572.shtml)
-- 2026-06-29 20:59 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/65243443.shtml)
-- 2026-06-29 21:07 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/244201526.shtml)
-- 2026-06-29 20:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/46820.shtml)
-- 2026-06-29 21:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/8582712.shtml)
-- 2026-06-29 21:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/75598.shtml)
-- 2026-06-29 20:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/449001031.shtml)
-- 2026-06-29 21:16 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/279082404.shtml)
-- 2026-06-29 20:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/8880423176.shtml)
-- 2026-06-29 20:48 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/06160155.shtml)
-- 2026-06-29 20:51 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/436851458.shtml)
+- 2026-06-29 21:09 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/55680814.shtml)
+- 2026-06-29 21:20 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/896063294137.shtml)
+- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/31303503810.shtml)
+- 2026-06-29 21:05 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/63587759535.shtml)
+- 2026-06-29 20:58 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/293863679.shtml)
+- 2026-06-29 21:09 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/97533614.shtml)
+- 2026-06-29 20:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/288491.shtml)
+- 2026-06-29 21:03 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/26168211479.shtml)
+- 2026-06-29 20:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/135406559948.shtml)
+- 2026-06-29 20:54 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/01376.shtml)
+- 2026-06-29 20:56 - [我们的少年时代2](http://www.blog.minike.top/Article/details/986915.shtml)
+- 2026-06-29 20:54 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/3629358.shtml)
+- 2026-06-29 20:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/245534911751.shtml)
+- 2026-06-29 20:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/83771363591.shtml)
+- 2026-06-29 21:01 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/750722479269.shtml)

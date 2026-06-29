@@ -1,60 +1,59 @@
-# 早盘：美股继续上扬 道指涨逾800点
+# 东西问｜习罡华：中国禅何以成为东亚共同的精神“语法”？
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-北京时间4月17日晚，美股周五早盘继续上扬。道指涨逾800点，纳指与标普500指数再创新高。以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。原油价格暴跌。 道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。 伊朗外交部长赛义德-阿
+中新社南昌5月30日电 题：中国禅何以成为东亚共同的精神“语法”？ ——专访江西宗教工作智库专家、江西科技师范大学旅游与历史文化学院院长习罡华 中新社记者 姜涛 当人们谈论“东方智慧”对世界的影响时，作为佛教重要流派之一，禅宗是一个无法绕开的高峰。它起源于印度，成形于中国。禅宗是汉传佛教八大派别之一，也是佛教中国化最彻底的派别。它在历史上曾经有很多派系，但最后只有青原禅系曹洞宗
 
 ## 正文
 
-北京时间4月17日晚，美股周五早盘继续上扬。
+中新社南昌5月30日电 题：中国禅何以成为东亚共同的精神“语法”？
 
-道指涨逾800点，纳指与标普500指数再创新高。
+——专访江西宗教工作智库专家、江西科技师范大学旅游与历史文化学院院长习罡华 中新社记者 姜涛 当人们谈论“东方智慧”对世界的影响时，作为佛教重要流派之一，禅宗是一个无法绕开的高峰。
 
-以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。
+它起源于印度，成形于中国。
 
-原油价格暴跌。
+禅宗是汉传佛教八大派别之一，也是佛教中国化最彻底的派别。
 
-道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。
+它在历史上曾经有很多派系，但最后只有青原禅系曹洞宗和南岳禅系临济宗两大宗派流传下来，并跨山越境，漂洋过海，深刻影响东亚多国文化基因与精神底色。
 
-伊朗外交部长赛义德-阿巴斯-阿拉格奇周五在X平台上发文称：“为配合黎巴嫩停火，现宣布在停火剩余期间，所有商船可按伊朗伊斯兰共和国港口与海事组织已公布的协调航线，完全开放通行霍尔木兹海峡。
+近日，江西宗教工作智库专家、江西科技师范大学旅游与历史文化学院院长习罡华接受中新社“东西问”专访，探讨中国禅何以成为东亚共同的精神“语法”。
 
-” 作为回应，美国总统特朗普17日说，感谢伊朗开放霍尔木兹海峡。
+现将访谈实录摘要如下： 中新社记者：您认为禅宗中的青原禅系在推动佛教从“外来移植”转向“本土生根”的过程中，发挥了怎样不可替代的枢纽作用？
 
-特朗普在社交媒体上写道：“伊朗刚刚宣布，伊朗海峡已完全开放，可全面通行。
+其思想内核中又有哪些独特的“中国基因”？
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 21:05 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 21:15 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 21:08 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 20:50 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 20:56 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 21:00 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 21:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 21:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 21:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 20:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 21:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 20:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 21:05 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 21:07 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 21:10 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:19 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 21:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 21:00 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 21:11 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 21:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:54 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 21:19 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 20:58 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 21:17 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/82450011.shtml)
-- 2026-06-29 21:07 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/04445494417.shtml)
-- 2026-06-29 21:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/44191768704.shtml)
-- 2026-06-29 20:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/413318940141.shtml)
-- 2026-06-29 21:00 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/7537517.shtml)
-- 2026-06-29 21:13 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/83250.shtml)
-- 2026-06-29 20:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/9795038.shtml)
-- 2026-06-29 21:11 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/91138269.shtml)
-- 2026-06-29 21:00 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/3816783752.shtml)
-- 2026-06-29 21:06 - [青春环游记第三季](http://www.blog.minike.top/Article/details/80097972.shtml)
-- 2026-06-29 20:57 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/626387.shtml)
-- 2026-06-29 20:58 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/951978.shtml)
-- 2026-06-29 21:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/2384116458.shtml)
-- 2026-06-29 21:04 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/2795285425.shtml)
-- 2026-06-29 20:48 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/38960814353.shtml)
+- 2026-06-29 21:04 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/914809503220.shtml)
+- 2026-06-29 20:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/7033565.shtml)
+- 2026-06-29 21:16 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/181484.shtml)
+- 2026-06-29 21:05 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/99753906.shtml)
+- 2026-06-29 21:19 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/32818595.shtml)
+- 2026-06-29 21:14 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/93887838.shtml)
+- 2026-06-29 21:10 - [斛珠夫人](https://www.share.minike.top/Article/details/2901200467.shtml)
+- 2026-06-29 21:01 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/74785.shtml)
+- 2026-06-29 21:14 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/2675253898.shtml)
+- 2026-06-29 21:19 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/3978716.shtml)
+- 2026-06-29 21:06 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/062539838803.shtml)
+- 2026-06-29 21:22 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/336926.shtml)
+- 2026-06-29 21:09 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/475987931906.shtml)
+- 2026-06-29 21:17 - [请回答王牌2019](http://www.blog.minike.top/Article/details/605620517814.shtml)
+- 2026-06-29 21:13 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/5746475.shtml)

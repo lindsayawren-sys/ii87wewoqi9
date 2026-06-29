@@ -1,50 +1,59 @@
-# 教育部发布《中国青少年阅读素养框架》教育行业标准
+# 神州数码63岁董事长天价离婚案进展：离婚案维持原判，财产分割事宜将继续审理
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-为助推今年二月起施行的《全民阅读促进条例》科学实施，教育部今天发布《中国青少年阅读素养框架》教育行业标准，助力青少年阅读素养提升。 标准创建了“知识—能力—价值”三维阅读素养模型，将阅读素养划分为奠基、拓展、深化、融通四个阶段并细化为十二个梯级，为不同学段、不同阅读水平的青少年提供了清晰的成长路径，助力增强阅读素养发展的连续性、进阶性与适配性。 依托该标准，相关部门将结合人工智
+登录新浪财经APP 搜索【信披】查看更多考评等级 神州数码（000034.SZ）63岁实际控制人、董事长郭为的天价离婚案有了新进展。 5月29日，神州数码披露了关于公司控股股东、实际控制人涉及诉讼的进展公告。 根据公告内容，近日公司收到控股股东、实际控制人郭为通知，北京市第一中级人民法院已就上诉人郭郑俐不服北京市海淀区人民法院一审判决提起的上诉事宜作出《民事判决书》（（2026
 
 ## 正文
 
-为助推今年二月起施行的《全民阅读促进条例》科学实施，教育部今天发布《中国青少年阅读素养框架》教育行业标准，助力青少年阅读素养提升。
+登录新浪财经APP 搜索【信披】查看更多考评等级 神州数码（000034.SZ）63岁实际控制人、董事长郭为的天价离婚案有了新进展。
 
-标准创建了“知识—能力—价值”三维阅读素养模型，将阅读素养划分为奠基、拓展、深化、融通四个阶段并细化为十二个梯级，为不同学段、不同阅读水平的青少年提供了清晰的成长路径，助力增强阅读素养发展的连续性、进阶性与适配性。
+5月29日，神州数码披露了关于公司控股股东、实际控制人涉及诉讼的进展公告。
 
-依托该标准，相关部门将结合人工智能技术，打造“评估—诊断—提升”的智慧教育闭环，服务阅读课程建设、阅读素养评价、教师阅读指导、阶梯读物出版以及校家社协同育人等。
+根据公告内容，近日公司收到控股股东、实际控制人郭为通知，北京市第一中级人民法院已就上诉人郭郑俐不服北京市海淀区人民法院一审判决提起的上诉事宜作出《民事判决书》（（2026）京01民终446号），判决如下：驳回上诉，维持原判。
 
-《中国青少年阅读素养框架》的发布实施，对于引导阅读优质内容、助力全民阅读推广和推进书香社会建设具有重要意义与应用价值。
+本判决为终审判决。
 
-(总台央视记者 周培培)
+该离婚案可追溯至2025年年初。
+
+2025年1月27日，神州数码公告称，因郭为婚姻家庭纠纷案件，其持有的神州数码7738.89万股股票被北京市海淀区法院冻结；冻结股份占其所持公司股份总数的比例为50%，占公司总股本比例为11.56%，到期日为2028年1月21日。
+
+按照当日的股价43.86元/股来计算，该部分冻结的股份对应市值约为33.94亿元。
+
+当时公告显示，郭为持有神州数码股份15477.7803万股，其中限售股（高管锁定股）11608.3352万股，无限售流通股3869.4451万股。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 21:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:07 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 20:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 21:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 21:04 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 21:15 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 20:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 21:16 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 20:50 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 21:01 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 20:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 21:15 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 21:22 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 21:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 21:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 21:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 21:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 20:59 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 21:05 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 21:23 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 21:16 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 20:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/806619006565.shtml)
-- 2026-06-29 20:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/7684373563.shtml)
-- 2026-06-29 21:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/5162410941.shtml)
-- 2026-06-29 21:15 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/655042706501.shtml)
-- 2026-06-29 21:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/36002954.shtml)
-- 2026-06-29 20:56 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/690020.shtml)
-- 2026-06-29 20:48 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/544874.shtml)
-- 2026-06-29 21:02 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/914864164605.shtml)
-- 2026-06-29 20:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/9972095842.shtml)
-- 2026-06-29 21:04 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/68683.shtml)
-- 2026-06-29 20:53 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/478156642.shtml)
-- 2026-06-29 21:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/45755492404.shtml)
-- 2026-06-29 21:04 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/70652.shtml)
-- 2026-06-29 20:49 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/5685161.shtml)
-- 2026-06-29 21:08 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/2649022.shtml)
+- 2026-06-29 20:54 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/292708991.shtml)
+- 2026-06-29 21:19 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/89295657.shtml)
+- 2026-06-29 21:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/2236868087.shtml)
+- 2026-06-29 21:20 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4518227.shtml)
+- 2026-06-29 21:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/82267772435.shtml)
+- 2026-06-29 21:05 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/00691907.shtml)
+- 2026-06-29 21:13 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/4645717496.shtml)
+- 2026-06-29 21:04 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/71459187.shtml)
+- 2026-06-29 21:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/12346.shtml)
+- 2026-06-29 21:11 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/18403.shtml)
+- 2026-06-29 21:10 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/232362749.shtml)
+- 2026-06-29 21:17 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/6785174.shtml)
+- 2026-06-29 20:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/4587892.shtml)
+- 2026-06-29 21:18 - [周生如故](http://www.blog.kurohicncr.top/Article/details/23482.shtml)
+- 2026-06-29 21:10 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/398081708219.shtml)

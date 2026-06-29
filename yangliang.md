@@ -1,59 +1,50 @@
-# Anthropic公司推出更新版Opus模型 网安用途方面逊色Mythos
+# 以军向黎巴嫩南部纵深推进，扩大地面军事行动
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-Anthropic PBC在限制更先进模型Mythos发布仅一周后，推出了其最强大且使用广泛的人工智能（AI）模型更新版本。 Anthropic周四表示，Opus 4.7旨在提升软件工程能力，包括处理一些此前需要更多人工监督的高难度编码任务。不过，该公司称，这一新模型在整体能力上仍不及Mythos，包括网络安全相关用途方面。 根据公司博客，在Opus 4.7的训练过程中，Ant
+以色列国防军表示，数日前已在黎巴嫩南部发起地面行动，大批地面部队展开攻势，推进前沿防线。 以军部队越过利塔尼河，对河北岸的真主党目标开展行动，目前正将作战范围进一步延伸至更多区域。 此次行动旨在夺取部分地区的作战控制权，打击真主党武装，并拆除由伊朗协助修建的相关设施。 以军现已在纳巴蒂耶周边开展行动，并做好了按需扩大攻势的准备。责任编辑：何云
 
 ## 正文
 
-Anthropic PBC在限制更先进模型Mythos发布仅一周后，推出了其最强大且使用广泛的人工智能（AI）模型更新版本。
+以色列国防军表示，数日前已在黎巴嫩南部发起地面行动，大批地面部队展开攻势，推进前沿防线。
 
-Anthropic周四表示，Opus 4.7旨在提升软件工程能力，包括处理一些此前需要更多人工监督的高难度编码任务。
+以军部队越过利塔尼河，对河北岸的真主党目标开展行动，目前正将作战范围进一步延伸至更多区域。
 
-不过，该公司称，这一新模型在整体能力上仍不及Mythos，包括网络安全相关用途方面。
+此次行动旨在夺取部分地区的作战控制权，打击真主党武装，并拆除由伊朗协助修建的相关设施。
 
-根据公司博客，在Opus 4.7的训练过程中，Anthropic甚至尝试通过“差异化削弱”的方式降低模型的网络攻防能力。
+以军现已在纳巴蒂耶周边开展行动，并做好了按需扩大攻势的准备。
 
-上周，Anthropic曾警告称，其Mythos系统在用户指令下能够识别并利用“所有主流操作系统和主要网页浏览器中的漏洞”。
-
-因此，公司决定仅向部分企业开放该模型的一个版本，以帮助它们加固自身软件。
-
-公司在博客中表示：“我们发布的Opus 4.7加入了安全防护措施，能够自动检测并阻止显示出被禁止或高风险网络安全用途的请求。
-
-我们将通过这些防护措施在真实环境中的应用经验，最终实现广泛发布Mythos级模型的目标。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 20:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 21:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 20:56 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 20:52 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 20:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 21:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 21:03 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 21:13 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 20:59 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 21:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 21:19 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 21:16 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 20:54 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 21:21 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 21:06 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 20:55 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 21:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 20:58 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 21:14 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 21:13 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/27459984.shtml)
-- 2026-06-29 20:54 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/88431118696.shtml)
-- 2026-06-29 20:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/7071475393.shtml)
-- 2026-06-29 20:49 - [锐评T1零封KC](http://www.share.minike.top/Article/details/042372.shtml)
-- 2026-06-29 20:53 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/213309.shtml)
-- 2026-06-29 21:02 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/816184070.shtml)
-- 2026-06-29 21:01 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/1108093.shtml)
-- 2026-06-29 21:03 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/4873448.shtml)
-- 2026-06-29 21:10 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/67635470689.shtml)
-- 2026-06-29 20:50 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/6548311524.shtml)
-- 2026-06-29 21:05 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/922767174.shtml)
-- 2026-06-29 20:54 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/28383.shtml)
-- 2026-06-29 20:58 - [东方风云榜直播](https://www.share.minike.top/Article/details/46795965922.shtml)
-- 2026-06-29 20:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/802302397629.shtml)
-- 2026-06-29 20:57 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/365072.shtml)
+- 2026-06-29 21:24 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/79223.shtml)
+- 2026-06-29 20:58 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/95637.shtml)
+- 2026-06-29 21:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/186500739.shtml)
+- 2026-06-29 21:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/67796.shtml)
+- 2026-06-29 21:03 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/7262255.shtml)
+- 2026-06-29 21:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/57475688292.shtml)
+- 2026-06-29 21:08 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/77227.shtml)
+- 2026-06-29 21:18 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/61254219.shtml)
+- 2026-06-29 21:12 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/83322.shtml)
+- 2026-06-29 21:17 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/879408317.shtml)
+- 2026-06-29 20:59 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/57546415272.shtml)
+- 2026-06-29 21:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/92892655.shtml)
+- 2026-06-29 21:18 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/975186849359.shtml)
+- 2026-06-29 21:16 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/61229498633.shtml)
+- 2026-06-29 20:58 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/0453607026.shtml)

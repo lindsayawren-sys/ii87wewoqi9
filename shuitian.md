@@ -1,57 +1,61 @@
-# ATFX:黄金周线三连涨在望 周末美伊会谈成胜负手
+# 长线资金，密集加仓红利股！
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 4月17日，ATFX：周五亚洲早盘，金价持稳在每盎司4795美元附近，目前本周累计上涨近1%，周线有望录得三连涨。美国总统特朗普周四宣布，黎巴嫩和以色列已就为期10天的停火达成一致，并表示美国与伊朗的第二轮会谈可能于本周末举行，这进一步增强了人们对伊朗战争可能即将结束的乐观预期。 ▲ATFX图 连接波斯湾和全球市场的关键水道霍尔木兹海峡的控制权仍然悬
+今年以来，红利股迎来险资集中增持窗口。通过增配红利资产提升股息贡献，成为险资提升净投资收益、对冲利率风险和稳固财务表现的重要路径。 券商中国记者近期在采访中了解到，随着权益配置进入历史高位，险资依然看好中国股市前景，“高股息底仓+成长弹性赛道” 的哑铃型配置策略仍将是保险行业较为有效的配置思路。 密集加仓红利股 5月28日，平安人寿发布公告称，平安资管受托该公司资金，投资于中国
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 4月17日，ATFX：周五亚洲早盘，金价持稳在每盎司4795美元附近，目前本周累计上涨近1%，周线有望录得三连涨。
+今年以来，红利股迎来险资集中增持窗口。
 
-美国总统特朗普周四宣布，黎巴嫩和以色列已就为期10天的停火达成一致，并表示美国与伊朗的第二轮会谈可能于本周末举行，这进一步增强了人们对伊朗战争可能即将结束的乐观预期。
+通过增配红利资产提升股息贡献，成为险资提升净投资收益、对冲利率风险和稳固财务表现的重要路径。
 
-▲ATFX图 连接波斯湾和全球市场的关键水道霍尔木兹海峡的控制权仍然悬而未决，美国海军封锁仍在继续，而伊朗则坚持推进即使在战争结束后也对过境船只收费的计划。
+券商中国记者近期在采访中了解到，随着权益配置进入历史高位，险资依然看好中国股市前景，“高股息底仓+成长弹性赛道” 的哑铃型配置策略仍将是保险行业较为有效的配置思路。
 
-一些欧洲和海湾阿拉伯国家的领导人预测，美伊和平协议可能需要大约六个月的时间才能达成。
+密集加仓红利股 5月28日，平安人寿发布公告称，平安资管受托该公司资金，投资于中国人寿H股股票，于5月20日达到中国人寿H股股本的15%，根据香港市场规则，触发举牌。
 
-中东冲突初期流动性紧缩导致投资者抛售黄金，转而投资其他资产以弥补损失。
+截至5月20日，平安人寿持有中国人寿H股股票的账面余额为293.57亿元，占上季度末总资产的比例为0.51%。
 
-能源供应中断的情况也可能持续到战争结束后，由于袭击破坏了中东地区的关键石油和天然气基础设施，通胀风险依然居高不下。
+这是以中国平安为代表的保险资金持续买入红利股票的一个缩影。
 
-对消费者物价上涨的担忧促使交易员押注各国央行将维持利率不变甚至加息——这对不产生收益的黄金构成不利影响。
+5月18日，中国平安还在场内增持了6376.7万股农业银行H股股份。
 
-近期国际能源价格的回落缓解了自战争开始以来一直压在黄金价格上的通胀压力，不过自2月下旬冲突爆发以来，黄金价格仍下跌了约9%，能源供应中断的情况可能会持续到战争结束后。
+增持完成后，中国平安通过平安人寿、平安产险、平安健康险合计持有的农业银行H股数量增至77.4亿股，占该行H股总数的25.17%。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:07 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 21:00 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 20:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 21:03 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 20:48 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 21:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 21:05 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:15 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 21:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 20:58 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 21:04 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 20:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 21:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 21:16 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 20:54 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 20:54 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:23 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 21:23 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 21:05 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 20:58 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 21:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 20:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 21:17 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/259686058041.shtml)
-- 2026-06-29 21:16 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/9499431.shtml)
-- 2026-06-29 20:48 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/87166.shtml)
-- 2026-06-29 21:12 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/97814670.shtml)
-- 2026-06-29 20:59 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/860553.shtml)
-- 2026-06-29 21:01 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/032619797783.shtml)
-- 2026-06-29 20:52 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/578554.shtml)
-- 2026-06-29 20:55 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/241133210.shtml)
-- 2026-06-29 21:07 - [毒液2](https://www.share.kurohicncr.top/Article/details/80704414551.shtml)
-- 2026-06-29 20:59 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/276478956242.shtml)
-- 2026-06-29 21:04 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/828732501718.shtml)
-- 2026-06-29 21:09 - [TOP Prada](http://www.blog.minike.top/Article/details/27914756.shtml)
-- 2026-06-29 20:52 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/35326808700.shtml)
-- 2026-06-29 21:01 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/3347104.shtml)
-- 2026-06-29 20:50 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/5426326.shtml)
+- 2026-06-29 21:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/19206597.shtml)
+- 2026-06-29 21:23 - [TOP Prada](https://www.share.minike.top/Article/details/674593827361.shtml)
+- 2026-06-29 21:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/03832384292.shtml)
+- 2026-06-29 20:58 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/92184297.shtml)
+- 2026-06-29 21:14 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/10342424.shtml)
+- 2026-06-29 21:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/8763835.shtml)
+- 2026-06-29 21:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/54190.shtml)
+- 2026-06-29 21:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/49695099.shtml)
+- 2026-06-29 21:12 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/697082.shtml)
+- 2026-06-29 21:20 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/02064197963.shtml)
+- 2026-06-29 21:22 - [海清4次陪跑白玉兰](http://www.share.minike.top/Article/details/13711.shtml)
+- 2026-06-29 21:06 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/496499.shtml)
+- 2026-06-29 20:54 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/010715.shtml)
+- 2026-06-29 20:58 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/8024954047.shtml)
+- 2026-06-29 20:57 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/7270759.shtml)

@@ -1,57 +1,61 @@
-# 远景动力据悉考虑通过香港IPO筹资至多20亿美元
+# “聚力西部产业集群·链接全球出海新机遇交流会”在西安举办
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，全球主要的电动汽车锂电池和储能系统制造商远景动力正考虑最早于今年在香港进行首次公开募股。 消息人士称，该公司正与银行就潜在的股票发行事宜进行合作。 其中两位知情人士表示，此次发行可能筹资10亿至20亿美元。该公司拥有新加坡主权财富基金GIC Pte以及私募股权公司红衫的支持。 知情人士称，相关讨论仍在进行中，具体时间安排和规模等细节可能会有变动。责任编辑：于健
+中新网西安5月29日电 (李一璠)29日，“聚力西部产业集群·链接全球出海新机遇交流会”在西安举办。活动吸引超百家中国西部优质企业代表参与。 据悉，本次活动立足西部产业发展根基，联动香港国际金融枢纽与东南亚优质商业资源，聚焦企业出海、跨境合规、赴港上市、资本对接等核心发展痛点，为西部企业搭建专业化、国际化、高端化的对接平台，推动产业升级与资本赋能双向融合。 陕西省科学技术厅二级
 
 ## 正文
 
-据知情人士透露，全球主要的电动汽车锂电池和储能系统制造商远景动力正考虑最早于今年在香港进行首次公开募股。
+中新网西安5月29日电 (李一璠)29日，“聚力西部产业集群·链接全球出海新机遇交流会”在西安举办。
 
-消息人士称，该公司正与银行就潜在的股票发行事宜进行合作。
+活动吸引超百家中国西部优质企业代表参与。
 
-其中两位知情人士表示，此次发行可能筹资10亿至20亿美元。
+据悉，本次活动立足西部产业发展根基，联动香港国际金融枢纽与东南亚优质商业资源，聚焦企业出海、跨境合规、赴港上市、资本对接等核心发展痛点，为西部企业搭建专业化、国际化、高端化的对接平台，推动产业升级与资本赋能双向融合。
 
-该公司拥有新加坡主权财富基金GIC Pte以及私募股权公司红衫的支持。
+陕西省科学技术厅二级巡视员马玲表示，陕西作为西部科技创新高地，集聚了半导体、生物医药、新能源、航空航天等一批硬核科技产业集群，科技创新已成为驱动西部企业出海的核心动力。
 
-知情人士称，相关讨论仍在进行中，具体时间安排和规模等细节可能会有变动。
+“出海与全球化布局已成为中国企业拓展新增量的关键路径，陕西硬科技产业集群的蓬勃发展，让我们深切感受到西部科技创新的澎湃活力，而跨境合规、国际资本对接等问题，正是西部企业走向全球需要破解的核心难题。
 
-责任编辑：于健 SF069
+”香港中国金融协会主席孟羽表示，香港构建了涵盖银行、证券、保险、资管、创投的全方位国际化金融生态，能够为内地企业出海提供全周期金融服务支撑。
+
+“香港中小上市公司协会以‘系统级放大器’为定位，通过全生命周期培育链路，构建优质上市公司、资产方与长期资本的生态闭环，持续为西部企业赋能，助力企业把握AI与全球化机遇，培育具备穿越周期能力的百亿市值标杆企业。
+
+”香港中小上市公司协会主席席春迎表示。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 21:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 21:12 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 21:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 20:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 20:51 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 21:04 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 20:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 21:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 20:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 20:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 21:06 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 21:14 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 20:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 21:00 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 21:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 21:17 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 21:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:56 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 20:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 21:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 21:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 20:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 21:13 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 20:55 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 21:04 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 20:56 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 21:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/20909474.shtml)
-- 2026-06-29 21:13 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/43021789930.shtml)
-- 2026-06-29 20:56 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/262199737959.shtml)
-- 2026-06-29 21:17 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/30671016.shtml)
-- 2026-06-29 21:17 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/640413020482.shtml)
-- 2026-06-29 20:50 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/3073944985.shtml)
-- 2026-06-29 21:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/21382850.shtml)
-- 2026-06-29 21:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/00174772.shtml)
-- 2026-06-29 20:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/16071299.shtml)
-- 2026-06-29 21:02 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/2460899.shtml)
-- 2026-06-29 21:05 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/9805229526.shtml)
-- 2026-06-29 21:07 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/10343.shtml)
-- 2026-06-29 21:11 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/6276556488.shtml)
-- 2026-06-29 21:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/503488631.shtml)
-- 2026-06-29 20:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2130440235.shtml)
+- 2026-06-29 21:11 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/9135016923.shtml)
+- 2026-06-29 21:23 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/16731.shtml)
+- 2026-06-29 21:06 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/09322715.shtml)
+- 2026-06-29 21:09 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/001635387.shtml)
+- 2026-06-29 20:56 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/31207743469.shtml)
+- 2026-06-29 21:10 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/727514.shtml)
+- 2026-06-29 21:02 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/429799305641.shtml)
+- 2026-06-29 21:14 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/534794530707.shtml)
+- 2026-06-29 21:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/5407606.shtml)
+- 2026-06-29 21:00 - [勇敢的心第二部](https://www.share.minike.top/Article/details/803040010.shtml)
+- 2026-06-29 21:22 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/252981.shtml)
+- 2026-06-29 21:12 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/687760652.shtml)
+- 2026-06-29 21:16 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/583255.shtml)
+- 2026-06-29 21:06 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/348832.shtml)
+- 2026-06-29 21:22 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/85281732.shtml)

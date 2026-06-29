@@ -1,49 +1,57 @@
-# 东艳：一季度外贸数据反映多个“增强”
+# 一季度旅行服务出口同比增长32.3% 三个视角看入境游新变化
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。既反映中国产业国际竞
+一季度旅行服务出口同比增长32.3% 三个视角看入境游新变化(大数据观察·中国服务) 我国持续优化外国人免签入境政策，外国人来华便利性持续提升，为各地文旅市场带来新活力。从海外粉丝众多的网红博主、旅居中国多年的外国教师、热门景点的旅游从业者三个视角，可以观察外国游客入境游的新变化。 “中国游”“最中国”“成为中国人”……在海外社交平台，类似词条持续火爆，越来越多的外国人分享来中
 
 ## 正文
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。
+一季度旅行服务出口同比增长32.3% 三个视角看入境游新变化(大数据观察·中国服务) 我国持续优化外国人免签入境政策，外国人来华便利性持续提升，为各地文旅市场带来新活力。
 
-中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。
+从海外粉丝众多的网红博主、旅居中国多年的外国教师、热门景点的旅游从业者三个视角，可以观察外国游客入境游的新变化。
 
-既反映中国产业国际竞争力的持续增强，也从消费等领域反映了国内市场吸引力的增强以及要素汇集能力的增强。
+“中国游”“最中国”“成为中国人”……在海外社交平台，类似词条持续火爆，越来越多的外国人分享来中国旅行的经历，记录对中国文化的感受，以各种方式讲述着他们眼中的中国。
 
-(段修健 曹旭帆 制作 侯诗蕊） 责任编辑：【罗攀】
+这些生动表达，不仅体现了来华旅游便利性的持续提升，也在塑造着中外文化交流的新形态。
+
+数据显示，今年一季度，我国旅行服务出口1053.5亿元，同比增长32.3%，位居服务出口各领域增速首位。
+
+短视频博主陈睿： “现在外国游客更想看看重庆的‘里子’” 短视频博主陈睿(网名“瑞哥英语”)的工作室就在重庆著名网红打卡点“李子坝单轨穿楼”不远处。
+
+他的工作室窗外，这几年常常有拎着相机、举着手机、满脸好奇惊喜的外国面孔。
+
+“以前偶尔才能见的外国人，这两年是扎堆来。
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 21:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 21:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 21:10 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 21:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 21:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 21:02 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 21:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 20:51 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 21:10 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 21:18 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 21:06 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 21:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 21:20 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 21:15 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 20:56 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 21:04 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 21:23 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 20:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 21:22 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 21:21 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/77277.shtml)
-- 2026-06-29 20:52 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/7286654.shtml)
-- 2026-06-29 20:48 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/08089.shtml)
-- 2026-06-29 21:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/2251362.shtml)
-- 2026-06-29 21:06 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/58163.shtml)
-- 2026-06-29 21:02 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/277377291459.shtml)
-- 2026-06-29 20:57 - [这一刀 会很帅](http://www.share.minike.top/Article/details/911680.shtml)
-- 2026-06-29 20:56 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/995742616723.shtml)
-- 2026-06-29 20:55 - [沙丘](https://www.share.kurohicncr.top/Article/details/99802308089.shtml)
-- 2026-06-29 21:16 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/77781714599.shtml)
-- 2026-06-29 21:16 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/9017104.shtml)
-- 2026-06-29 21:09 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/75009969241.shtml)
-- 2026-06-29 21:06 - [绘画区你赢了](https://www.share.minike.top/Article/details/075639643881.shtml)
-- 2026-06-29 21:13 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/899784.shtml)
-- 2026-06-29 21:16 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/3392062.shtml)
+- 2026-06-29 21:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/943812916159.shtml)
+- 2026-06-29 21:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/04254924607.shtml)
+- 2026-06-29 20:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/768703622.shtml)
+- 2026-06-29 21:21 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/112626453.shtml)
+- 2026-06-29 21:15 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/358175972758.shtml)
+- 2026-06-29 21:11 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/06988106.shtml)
+- 2026-06-29 21:06 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/48824.shtml)
+- 2026-06-29 21:21 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/901501627925.shtml)
+- 2026-06-29 21:04 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/26274320379.shtml)
+- 2026-06-29 21:09 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/041488603.shtml)
+- 2026-06-29 21:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/8023255.shtml)
+- 2026-06-29 21:17 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/1991600.shtml)
+- 2026-06-29 21:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/98408277.shtml)
+- 2026-06-29 20:57 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/16464.shtml)
+- 2026-06-29 20:57 - [爱很美味](http://www.blog.minike.top/Article/details/63441589.shtml)

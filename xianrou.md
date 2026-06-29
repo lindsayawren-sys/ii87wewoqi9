@@ -1,57 +1,52 @@
-# 人民日报：从优秀传统文化中汲取正确政绩观的丰厚滋养
+# 全国首个罕见病药品保障先行区落地 实现用药从“人等药”到“药等人”
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-从优秀传统文化中汲取正确政绩观的丰厚滋养 “政绩”一词，古已有之，文脉悠长，《后汉书·虞延传》中就有“历位二府，十余年无异政绩”的记载。这一理念深植于中华优秀传统文化沃土，薪火赓续、历久弥新，积淀升华为中华政治文明中独具特质的精神标识与文化基因。习近平总书记指出：“中国优秀传统文化的丰富哲学思想、人文精神、教化思想、道德理念等，可以为人们认识和改造世界提供有益启迪，可以为治国理
+发布时间：2026年05月29日 13:53 来源：中国新闻网 北京市人民政府新闻办公室于5月29日上午10时举行“开局起步‘十五五’”北京专场新闻发布会。会上，北京市委常委、副市长靳伟介绍，为了让群众用好药、好用药，北京设立了全国首个罕见病药品保障先行区，开通临床急需药品进口绿色通道，累计进口急需药品27个，惠及患者9500余人次，实现了罕见病用药从“人等药”向“药等人”的转
 
 ## 正文
 
-从优秀传统文化中汲取正确政绩观的丰厚滋养 “政绩”一词，古已有之，文脉悠长，《后汉书·虞延传》中就有“历位二府，十余年无异政绩”的记载。
+发布时间：2026年05月29日 13:53 来源：中国新闻网 北京市人民政府新闻办公室于5月29日上午10时举行“开局起步‘十五五’”北京专场新闻发布会。
 
-这一理念深植于中华优秀传统文化沃土，薪火赓续、历久弥新，积淀升华为中华政治文明中独具特质的精神标识与文化基因。
+会上，北京市委常委、副市长靳伟介绍，为了让群众用好药、好用药，北京设立了全国首个罕见病药品保障先行区，开通临床急需药品进口绿色通道，累计进口急需药品27个，惠及患者9500余人次，实现了罕见病用药从“人等药”向“药等人”的转变。
 
-习近平总书记指出：“中国优秀传统文化的丰富哲学思想、人文精神、教化思想、道德理念等，可以为人们认识和改造世界提供有益启迪，可以为治国理政提供有益启示”。
+接下来，北京将为新药上市进一步开辟快车道，不断扩大罕见病临时进口药品的范围和品种，持续提升药品可及性与用药保障水平。
 
-我们要坚持古为今用、推陈出新，结合实际，不断从中华优秀传统文化中汲取正确政绩观的丰厚滋养。
-
-中华传统文化蕴含着“为政以德”“民心惟本”的治理智慧，留下了诸多烛照古今的政绩理念与执政箴言：《管子》倡导“不作无补之功，不为无益之事”的务实精神，力戒虚浮之风；贾谊提出“以富乐民为功，以贫苦民为罪”的价值标尺，将民生福祉置于评判中心；范仲淹抒发“先天下之忧而忧，后天下之乐而乐”的家国担当，彰显为官从政者的胸怀；司马光主张“为政之道，莫若至公”的为官准则，恪守用权之本；海瑞、于成龙等清官廉吏不慕虚名、赤诚勤俭的道德追求……中华优秀传统政治文化始终把百姓福祉、民生实效作为施政的首要之务。
-
-这些跨越千年时空的为政智慧与品行操守，不是尘封于典籍的陈旧格言，而是鲜活的文化资源，为党员干部树立和践行正确政绩观提供了不竭的政德滋养，注入了厚重的文化底蕴。
-
-同时要清醒认识到，中华传统文化中的政绩理念虽有合理成分和积极一面，但受制于历史条件，不可避免地打上了时代烙印，存在历史局限。
-
-对待这样一份思想文化遗产，决不能照搬照抄、食古不化，必须坚持历史眼光，批判继承、古为今用，坚决剔除落后糟粕，汲取修身立德、勤政为民、求真务实等优秀养分，在扬弃中坚守正道，使其在转化中焕发新生。
+(记者 卢晓娜 制作 刘鹏） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 20:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 20:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 20:53 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 21:11 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 20:57 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 21:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 20:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 21:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 21:10 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 21:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 21:08 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 21:15 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 21:02 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 20:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 21:06 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:54 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 21:07 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 20:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 21:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 21:05 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 21:18 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 20:57 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 20:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/77790123.shtml)
-- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/93492.shtml)
-- 2026-06-29 21:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/7188217.shtml)
-- 2026-06-29 20:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/93773232.shtml)
-- 2026-06-29 20:50 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/2698651633.shtml)
-- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/27700739699.shtml)
-- 2026-06-29 21:06 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/920209.shtml)
-- 2026-06-29 20:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/518488.shtml)
-- 2026-06-29 20:57 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/210682020528.shtml)
-- 2026-06-29 20:48 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/2482692803.shtml)
-- 2026-06-29 20:53 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/13603492765.shtml)
-- 2026-06-29 21:07 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/047015528830.shtml)
-- 2026-06-29 20:57 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/248222780875.shtml)
-- 2026-06-29 21:00 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/534599.shtml)
-- 2026-06-29 21:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/394177541.shtml)
+- 2026-06-29 21:00 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/72470493.shtml)
+- 2026-06-29 21:20 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/249387800176.shtml)
+- 2026-06-29 21:12 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/10694.shtml)
+- 2026-06-29 20:58 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/54085306240.shtml)
+- 2026-06-29 21:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/3293570.shtml)
+- 2026-06-29 20:56 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/29230273.shtml)
+- 2026-06-29 21:07 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/9318652187.shtml)
+- 2026-06-29 21:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/33898652202.shtml)
+- 2026-06-29 21:07 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/8961945264.shtml)
+- 2026-06-29 21:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/315477482261.shtml)
+- 2026-06-29 21:07 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/64820025.shtml)
+- 2026-06-29 21:19 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/3141571.shtml)
+- 2026-06-29 21:05 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/98322132.shtml)
+- 2026-06-29 21:16 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/69718833080.shtml)
+- 2026-06-29 20:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/501731295026.shtml)

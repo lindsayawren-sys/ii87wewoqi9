@@ -1,59 +1,60 @@
-# 嘉信理财交易量跃升39%、资产超预期，但营收未达目标
+# 消息人士：Meta计划于明年启动一款AI吊坠测试
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-嘉信理财（SCHW）公布的第一季度业绩显示，其运营状况喜忧参半，但仍具韧性。该公司正持续应对更加波动的宏观环境。净营收为64.8亿美元，略低于分析师预期的65.1亿美元，而净息差为2.88%，低于预期的2.94%。尽管核心银行盈利能力承压，净利润仍达到24.8亿美元，略高于预期的24.6亿美元，表明盈利状况相对稳健。 管理层指出，客户参与度的持续强劲是一个关键的抵消因素。净新增
+Meta公司计划于明年启动一款人工智能吊坠的测试工作。这份可穿戴设备发展蓝图目标宏大，旨在扭转其硬件部门持续巨额亏损的局面。 内部规划备忘录显示，公司计划大幅扩充智能AI眼镜产品线，并推出面向企业的服务项目——“办公可穿戴设备”。该备忘录由Meta可穿戴设备副总裁亚历克斯·希梅尔撰写。他表示，此番战略布局，部分目的是推动旗下人工智能模型与相关产品的普及，包括应用订阅服务，以及公
 
 ## 正文
 
-嘉信理财（SCHW）公布的第一季度业绩显示，其运营状况喜忧参半，但仍具韧性。
+Meta公司计划于明年启动一款人工智能吊坠的测试工作。
 
-该公司正持续应对更加波动的宏观环境。
+这份可穿戴设备发展蓝图目标宏大，旨在扭转其硬件部门持续巨额亏损的局面。
 
-净营收为64.8亿美元，略低于分析师预期的65.1亿美元，而净息差为2.88%，低于预期的2.94%。
+内部规划备忘录显示，公司计划大幅扩充智能AI眼镜产品线，并推出面向企业的服务项目——“办公可穿戴设备”。
 
-尽管核心银行盈利能力承压，净利润仍达到24.8亿美元，略高于预期的24.6亿美元，表明盈利状况相对稳健。
+该备忘录由Meta可穿戴设备副总裁亚历克斯·希梅尔撰写。
 
-管理层指出，客户参与度的持续强劲是一个关键的抵消因素。
+他表示，此番战略布局，部分目的是推动旗下人工智能模型与相关产品的普及，包括应用订阅服务，以及公司正在研发的消费级智能助手Hatch。
 
-净新增资产总额达到1399亿美元，超过分析师预期的1235亿美元，同比增长5.7%，这可能表明嘉信理财仍在从零售资金流中获取可观的份额。
+目前，Meta正与OpenAI、谷歌等科技巨头角逐，各家都争相推出新型智能硬件，希望借此带动自身AI服务的使用量。
 
-这一趋势似乎至少部分与地缘政治不确定性的加剧（包括伊朗战争）有关，这导致3月份的日均交易量同比增长39%。
+除自有团队研发外，Meta也展开相关收购，去年就收购了人工智能吊坠初创企业极限智能。
 
-首席执行官Rick Wurster表示，客户交易频率提高，通常交易金额较小、持仓时间较短，表明市场参与方式更具策略性。
+长期以来，投资者不断施压，要求Meta改善现实实验室部门的经营状况。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 21:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 20:59 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 21:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 20:57 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 20:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 21:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 20:50 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 21:08 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 21:09 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 21:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 21:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 21:07 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 20:56 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 21:16 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 21:06 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 21:06 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 21:24 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 20:59 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 20:58 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 21:09 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 21:04 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 21:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 21:05 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 21:01 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/8733662.shtml)
-- 2026-06-29 21:16 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/172080264639.shtml)
-- 2026-06-29 21:01 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/886546827.shtml)
-- 2026-06-29 21:03 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/8258143424.shtml)
-- 2026-06-29 21:11 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/54606144920.shtml)
-- 2026-06-29 21:14 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/51499798.shtml)
-- 2026-06-29 21:07 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/55879429.shtml)
-- 2026-06-29 20:52 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/97911449869.shtml)
-- 2026-06-29 20:53 - [田曦薇没招了](http://www.blog.minike.top/Article/details/21523.shtml)
-- 2026-06-29 21:10 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/20565670.shtml)
-- 2026-06-29 20:53 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/0907722956.shtml)
-- 2026-06-29 21:16 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/382682571592.shtml)
-- 2026-06-29 21:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/172252989.shtml)
-- 2026-06-29 20:55 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/58782.shtml)
-- 2026-06-29 21:07 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/2328703.shtml)
+- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/39527820410.shtml)
+- 2026-06-29 21:09 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/113275277204.shtml)
+- 2026-06-29 20:58 - [田曦薇没招了](https://www.share.minike.top/Article/details/0892044437.shtml)
+- 2026-06-29 21:15 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/98990680549.shtml)
+- 2026-06-29 21:13 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/508556.shtml)
+- 2026-06-29 20:55 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/0719682.shtml)
+- 2026-06-29 21:15 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/11766473904.shtml)
+- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/797583492409.shtml)
+- 2026-06-29 20:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/0620254340.shtml)
+- 2026-06-29 21:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/583841.shtml)
+- 2026-06-29 21:13 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/138695.shtml)
+- 2026-06-29 21:12 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/3536980.shtml)
+- 2026-06-29 21:20 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/299539765.shtml)
+- 2026-06-29 21:20 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/917586548728.shtml)
+- 2026-06-29 21:01 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/8263183.shtml)

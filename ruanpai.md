@@ -1,56 +1,57 @@
-# 奥特曼成为OpenAI超级IPO的风险因素
+# 5月全球债券市场剧烈震荡 美以伊战争冲击市场
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-《纽约客》杂志刊登了一篇兼具人物特写与调查报道的文章，深入剖析了OpenAI首席执行官萨姆·奥特曼的性格弱点（姑且用这个委婉的说法），而他正在推动这家人工智能公司进行IPO，届时公司估值可能超过1万亿美元。这篇文章得出的结论是：尽管IPO相关文件可能不会提及这一点，但该公司面临的最大所谓“风险因素”之一，正是奥特曼本人。 从本质上说，此次IPO相当于承认，这家刚以8520亿美元
+5月，美以伊战争再次撼动全球债券市场，随着交易员将央行加息预期计入价格，收益率一度攀升至数十年高位——但和平谈判取得进展的迹象以及疲软的经济数据又令收益率急剧回落。 尽管冲突的明确结束将带来即时的缓解并降低全球各国政府的借贷成本，但5月份的走势凸显了投资者对通胀和不断增长的公共债务的敏感。 国债市场动荡 5月20日，随着伊朗战争搅动规模达28万亿美元的美国国债市场，30年期美国
 
 ## 正文
 
-《纽约客》杂志刊登了一篇兼具人物特写与调查报道的文章，深入剖析了OpenAI首席执行官萨姆·奥特曼的性格弱点（姑且用这个委婉的说法），而他正在推动这家人工智能公司进行IPO，届时公司估值可能超过1万亿美元。
+5月，美以伊战争再次撼动全球债券市场，随着交易员将央行加息预期计入价格，收益率一度攀升至数十年高位——但和平谈判取得进展的迹象以及疲软的经济数据又令收益率急剧回落。
 
-这篇文章得出的结论是：尽管IPO相关文件可能不会提及这一点，但该公司面临的最大所谓“风险因素”之一，正是奥特曼本人。
+尽管冲突的明确结束将带来即时的缓解并降低全球各国政府的借贷成本，但5月份的走势凸显了投资者对通胀和不断增长的公共债务的敏感。
 
-从本质上说，此次IPO相当于承认，这家刚以8520亿美元的估值从投资者处筹集了1220亿美元的ChatGPT开发商，似乎需要源源不断的资金来支持其实现通用人工智能的竞赛。
+国债市场动荡 5月20日，随着伊朗战争搅动规模达28万亿美元的美国国债市场，30年期美国国债收益率飙升至约5.2%，创下2007年以来新高。
 
-仅这一目标本身就足以引发审慎的尽职调查——通用人工智能是否真的可能实现？
+和平谈判陷入僵局的迹象推动油价重回110美元以上，加上美国通胀数据走强，这些都是引发全球债务抛售的诱因。
 
-——更不用说，还要担心这位首席执行官极难预测、易于发表不实言论的因素。
+英国国债收益率创下二三十年来新高，部分日本国债收益率创下历史新高，德国10年期国债收益率则创下2011年以来的最高水平。
 
-奥特曼强势激进的作风，与一项可能带来巨大颠覆的技术显得格格不入。
+富兰克林坦普顿欧洲固定收益主管赞恩（David Zahn）表示：“市场担心通胀可能比我们预期的持续时间更长。
 
-批评者的核心指控在于，奥特曼的竞争冲动已经把安全问题挤到了次要位置。
+” 成长的阵痛 随后，随着美国和伊朗宣布谈判取得进展，借贷成本随油价回落；此外，疲软的经济数据——尤其是欧洲的数据——削弱了大幅加息的理由。
 
-他曾承诺慷慨支持“超级对齐”团队——这些团队的任务是确保人工智能行为有助于人类目标——最终却被证明是空话。
+上周数据显示，随着欧元区各国应对不断上涨的能源成本，5月份该区的经济活动萎缩幅度达到两年半以来的最高水平。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 20:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 20:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 20:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 21:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 20:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 21:05 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 21:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 21:16 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 21:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 21:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 20:55 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 20:55 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 21:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 21:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 21:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 21:00 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 21:20 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/6578313256.shtml)
-- 2026-06-29 21:04 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/428868.shtml)
-- 2026-06-29 21:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/92250.shtml)
-- 2026-06-29 20:51 - [恋与深空 巧合](http://www.share.minike.top/Article/details/623645070.shtml)
-- 2026-06-29 21:08 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/214694873.shtml)
-- 2026-06-29 21:03 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/55302990.shtml)
-- 2026-06-29 21:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/478400.shtml)
-- 2026-06-29 20:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/554832701233.shtml)
-- 2026-06-29 21:01 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/6996165249.shtml)
-- 2026-06-29 20:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/5775730.shtml)
-- 2026-06-29 21:08 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/5223562124.shtml)
-- 2026-06-29 21:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/36889815217.shtml)
-- 2026-06-29 21:01 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/89154.shtml)
-- 2026-06-29 20:52 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/01869.shtml)
-- 2026-06-29 21:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/8836534.shtml)
+- 2026-06-29 21:15 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/55271966.shtml)
+- 2026-06-29 21:02 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/41408298518.shtml)
+- 2026-06-29 20:55 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/250203748371.shtml)
+- 2026-06-29 21:08 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/299156822.shtml)
+- 2026-06-29 21:05 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/094439399508.shtml)
+- 2026-06-29 21:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/73214346.shtml)
+- 2026-06-29 21:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/55799486.shtml)
+- 2026-06-29 21:06 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/957496919237.shtml)
+- 2026-06-29 21:02 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/39034088496.shtml)
+- 2026-06-29 21:12 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/16063228.shtml)
+- 2026-06-29 21:20 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/42577.shtml)
+- 2026-06-29 21:10 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/5873109.shtml)
+- 2026-06-29 21:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/313732612362.shtml)
+- 2026-06-29 21:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/7497928250.shtml)
+- 2026-06-29 21:19 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/197882.shtml)

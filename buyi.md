@@ -1,59 +1,60 @@
-# 关税风暴中的水上摩托制造商：美国制造业回流的现实困境
+# 2家A股公司，被证监会立案调查
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-一艘水上摩托艇的关税之旅，揭示了美国制造业回流政策面临的深层悖论。当庞巴迪休闲产品公司旗下的Sea-Doo水上摩托从加拿大工厂运往美国时，它不再只是承载着夏日乐趣的休闲产品，更成为了解构当代贸易政策复杂性的绝佳样本。 关税规则的戏剧性转变 二零二六年四月六日，美国对钢铝铜制品关税征收细则的一项技术性修订正式生效。新规要求对“实质性”包含这些金属的进口成品按整车全值征收百分之二十
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 *ST天宜（维权）与鼎际得今日先后发布公告，因涉嫌信息披露违法违规，被证监会立案调查。 *ST天宜公告称，公司收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，中国证监会决定对公司立案。 公开资料显示，*ST天宜主营业务是高铁粉末冶金
 
 ## 正文
 
-一艘水上摩托艇的关税之旅，揭示了美国制造业回流政策面临的深层悖论。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当庞巴迪休闲产品公司旗下的Sea-Doo水上摩托从加拿大工厂运往美国时，它不再只是承载着夏日乐趣的休闲产品，更成为了解构当代贸易政策复杂性的绝佳样本。
+来源：财联社 *ST天宜（维权）与鼎际得今日先后发布公告，因涉嫌信息披露违法违规，被证监会立案调查。
 
-关税规则的戏剧性转变 二零二六年四月六日，美国对钢铝铜制品关税征收细则的一项技术性修订正式生效。
+*ST天宜公告称，公司收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，中国证监会决定对公司立案。
 
-新规要求对“实质性”包含这些金属的进口成品按整车全值征收百分之二十五关税，取代了此前仅针对所含金属部分征收百分之五十关税的做法。
+公开资料显示，*ST天宜主营业务是高铁粉末冶金闸片业务、光伏新能源、汽车及航空航天等四大业务板块。
 
-这一看似微小的计算方式调整，对加拿大动力运动设备制造商BRP造成了毁灭性冲击。
+公司的主要产品是粉末冶金闸片、有机合成闸片、闸瓦、光伏单晶辅材部件、树脂基碳纤维复合材料制品、航空大型结构件精密制造。
 
-该公司旗下Ski-Doo雪地摩托和Can-Am越野车以及Sea-Doo水上摩托均被纳入新规范围。
+*ST天宜股价今日报收7.79元/股，总市值为43.8亿元。
 
-BRP随即宣布暂停全年财务预测，公司股价单日暴跌百分之三十五。
+同日，鼎际得公告称，公司及实际控制人张再明于2026年5月29日分别收到证监会下发的《立案告知书》。
 
-其新增关税成本预计将超过五亿美元，远高于此前预估的约九千万美元。
+因涉嫌信息披露违法违规，证监会决定对公司及张再明立案。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 21:08 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 21:09 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 20:50 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:17 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 21:04 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 21:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 20:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 21:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 21:02 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 21:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 21:05 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 21:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 21:12 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 21:07 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 21:19 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 21:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 21:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 21:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 21:03 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 21:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 21:08 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 21:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 21:14 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 21:10 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1989501.shtml)
-- 2026-06-29 20:59 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/448820615495.shtml)
-- 2026-06-29 21:16 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/95069008.shtml)
-- 2026-06-29 20:59 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/83507858.shtml)
-- 2026-06-29 21:17 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8611694.shtml)
-- 2026-06-29 20:57 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/18501281.shtml)
-- 2026-06-29 21:04 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/5600301020.shtml)
-- 2026-06-29 21:06 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/001283.shtml)
-- 2026-06-29 21:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/597120.shtml)
-- 2026-06-29 21:04 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/8248741077.shtml)
-- 2026-06-29 21:13 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/588525360738.shtml)
-- 2026-06-29 21:02 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/20084300.shtml)
-- 2026-06-29 21:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/97222.shtml)
-- 2026-06-29 20:53 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/857897.shtml)
-- 2026-06-29 20:57 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/520429.shtml)
+- 2026-06-29 21:18 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/35822923.shtml)
+- 2026-06-29 20:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/223091748.shtml)
+- 2026-06-29 21:21 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/49288.shtml)
+- 2026-06-29 21:21 - [流金岁月](https://www.share.minike.top/Article/details/38849.shtml)
+- 2026-06-29 21:01 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/887960402946.shtml)
+- 2026-06-29 20:58 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/676409.shtml)
+- 2026-06-29 20:59 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/78020885406.shtml)
+- 2026-06-29 20:57 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/14316.shtml)
+- 2026-06-29 21:16 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/091852.shtml)
+- 2026-06-29 20:57 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/806198.shtml)
+- 2026-06-29 21:23 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/91755799.shtml)
+- 2026-06-29 21:16 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/32211407.shtml)
+- 2026-06-29 20:54 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/6144199193.shtml)
+- 2026-06-29 21:04 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/298328699154.shtml)
+- 2026-06-29 20:55 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/89820.shtml)

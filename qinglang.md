@@ -1,55 +1,56 @@
-# 涉及环境监测、食品检验、机动车检验等 28家机构涉嫌违法违规
+# 百余名中外爱心人士在沪献血 为患儿送上珍贵的节日礼物
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-记者今天了解到，市场监管总局近日联合公安部、自然资源部、生态环境部、交通运输部、水利部、海关总署、国家药监局等部门，通报了2025年度检验检测机构国家监督抽查结果。 本次监督抽查覆盖生态环境监测、机动车检验、食品检验、消防产品及建筑保温材料等13个重点领域。共发现河南零碳技术研究院有限公司、合肥青宏长顺机动车辆检测有限公司、石油和化学工业节能产品质量监督检验中心、中国日用五金技
+中新网上海5月30日电 (陈静 诸广宇)六一国际儿童节即将来临，由上海市人民对外友好协会指导，上海市血液中心、上海市血液管理办公室与上海市儿童医院联合主办的“热血助患儿——中外爱心人士献血活动”于30日在上海市儿童医院举行。百余名中外爱心人士齐聚一堂，用捐献热血的方式为需要血液救治的患儿送上最珍贵的节日礼物。 据悉，在临床上，大量罹患血液病、肿瘤或遭遇意外创伤、烧伤烫伤的伤员患
 
 ## 正文
 
-记者今天了解到，市场监管总局近日联合公安部、自然资源部、生态环境部、交通运输部、水利部、海关总署、国家药监局等部门，通报了2025年度检验检测机构国家监督抽查结果。
+中新网上海5月30日电 (陈静 诸广宇)六一国际儿童节即将来临，由上海市人民对外友好协会指导，上海市血液中心、上海市血液管理办公室与上海市儿童医院联合主办的“热血助患儿——中外爱心人士献血活动”于30日在上海市儿童医院举行。
 
-本次监督抽查覆盖生态环境监测、机动车检验、食品检验、消防产品及建筑保温材料等13个重点领域。
+百余名中外爱心人士齐聚一堂，用捐献热血的方式为需要血液救治的患儿送上最珍贵的节日礼物。
 
-共发现河南零碳技术研究院有限公司、合肥青宏长顺机动车辆检测有限公司、石油和化学工业节能产品质量监督检验中心、中国日用五金技术开发中心、宁夏泽瑞隆环保技术有限公司、深圳天祥质量技术服务有限公司、中国机械总院集团武汉材料保护研究所有限公司、农业农村部食品质量检验测试中心（杨凌）等28家机构存在涉嫌违法违规问题。
+据悉，在临床上，大量罹患血液病、肿瘤或遭遇意外创伤、烧伤烫伤的伤员患者都需要血液救治，其中就不乏儿童，而血液无法人工制造，只能来自健康爱心人士的自愿捐献。
 
-相关问题已移交属地市场监管部门依法调查处置。
+为了呼吁更多爱心人士聚焦需要血液救治的患儿，上海市血液中心外籍志愿者服务队Bloodline血缘从2021年起推出了“热血助患儿”献血活动，并持续举办至今。
 
-（总台央视记者 李晶晶）责任编辑：刘万里 SF014
+当天，早上八点刚过，高女士就带着两个孩子前来参与无偿献血。
+
+几天前，高女士通过社交媒体得知了本次活动的信息，便特意带着孩子一同前来，让孩子们亲身感受无偿献血的意义，以实际行动诠释助人为乐的公益行为。
+
+张女士是一名心理咨询师，多次参与了Bloodline血缘举办的献血活动。
+
+在她看来，无偿献血既能帮助他人，也是对自己的心理疗愈。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 20:48 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 20:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 21:17 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 21:05 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 21:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 21:00 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 21:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 20:52 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 21:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 20:49 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 21:15 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 21:01 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 20:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 20:53 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 21:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 21:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:59 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 21:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 21:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 21:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 21:05 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:11 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 21:17 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 21:20 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/875258.shtml)
-- 2026-06-29 21:04 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/01305999.shtml)
-- 2026-06-29 20:48 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/16059390.shtml)
-- 2026-06-29 20:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/714705512.shtml)
-- 2026-06-29 20:59 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/14932494816.shtml)
-- 2026-06-29 21:11 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/77286562923.shtml)
-- 2026-06-29 21:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/780195997.shtml)
-- 2026-06-29 20:51 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/68108897662.shtml)
-- 2026-06-29 21:04 - [逃狱兄弟](http://www.share.minike.top/Article/details/186154318791.shtml)
-- 2026-06-29 20:49 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/92933.shtml)
-- 2026-06-29 20:58 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/50062606486.shtml)
-- 2026-06-29 21:01 - [周生如故](https://www.share.kurohicncr.top/Article/details/775369544.shtml)
-- 2026-06-29 21:17 - [斛珠夫人](https://www.share.minike.top/Article/details/663063.shtml)
-- 2026-06-29 21:16 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/864751.shtml)
-- 2026-06-29 21:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/97703174379.shtml)
+- 2026-06-29 21:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/16935.shtml)
+- 2026-06-29 21:04 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/860269595800.shtml)
+- 2026-06-29 21:06 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/43427922970.shtml)
+- 2026-06-29 20:56 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/765875808006.shtml)
+- 2026-06-29 21:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/553387.shtml)
+- 2026-06-29 20:58 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/6011491390.shtml)
+- 2026-06-29 21:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/0498446.shtml)
+- 2026-06-29 21:13 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/1051706522.shtml)
+- 2026-06-29 21:17 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/3700380.shtml)
+- 2026-06-29 21:09 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/1601416219.shtml)
+- 2026-06-29 21:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/19519606851.shtml)
+- 2026-06-29 20:55 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/7966966.shtml)
+- 2026-06-29 21:02 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/15950.shtml)
+- 2026-06-29 21:21 - [扬名立万](https://www.blog.minike.top/Article/details/0764370517.shtml)
+- 2026-06-29 21:11 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/752819.shtml)

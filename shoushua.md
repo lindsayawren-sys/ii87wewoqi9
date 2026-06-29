@@ -1,59 +1,57 @@
-# 香港中医医院与河北省中医院和深圳市中医院签署合作协议
+# 吐鲁番市外办开展“我和亲戚游家乡”活动
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网香港4月16日电 香港中医医院于15日及16日分别与深圳市中医院和河北省中医院在香港签署战略合作协议，为香港中医医院与深圳和河北两地中医院的多方面合作奠定基础。 两份战略合作协议涵盖多个领域，包括中医药人才交流、跨境远程病例研讨、建立药物相互作用提示资料库共享平台、举办中医药学术研讨会、建立科研网络，以及其他有利于港深和港冀中医药发展的教学、科研及医疗服务相关项目。 香港
+古尔邦节前夕，吐鲁番市人民政府外事办公室(以下简称市外办)联合鄯善县鲁克沁镇赛尔克甫夏村开展“我和亲戚游家乡”活动，通过走访慰问、同游交心、共话团圆等形式，在密切党群干群关系的同时，推动交往交流交融走深走实。活动中，市外办党员干部来到结亲群众家中，与群众拉家常、问冷暖，详细了解生产生活、子女教育、健康保障等情况，宣传党的民族政策和惠民举措，送上节日祝福及米、面、油等慰问品，用心
 
 ## 正文
 
-中新网香港4月16日电 香港中医医院于15日及16日分别与深圳市中医院和河北省中医院在香港签署战略合作协议，为香港中医医院与深圳和河北两地中医院的多方面合作奠定基础。
+古尔邦节前夕，吐鲁番市人民政府外事办公室(以下简称市外办)联合鄯善县鲁克沁镇赛尔克甫夏村开展“我和亲戚游家乡”活动，通过走访慰问、同游交心、共话团圆等形式，在密切党群干群关系的同时，推动交往交流交融走深走实。
 
-两份战略合作协议涵盖多个领域，包括中医药人才交流、跨境远程病例研讨、建立药物相互作用提示资料库共享平台、举办中医药学术研讨会、建立科研网络，以及其他有利于港深和港冀中医药发展的教学、科研及医疗服务相关项目。
+活动中，市外办党员干部来到结亲群众家中，与群众拉家常、问冷暖，详细了解生产生活、子女教育、健康保障等情况，宣传党的民族政策和惠民举措，送上节日祝福及米、面、油等慰问品，用心用情解决实际困难，把党的关怀送到群众身边。
 
-香港特区政府医务卫生局局长卢宠茂在现场见证两份协议的签署。
+随后，干部与群众代表一同开展联谊活动。
 
-他表示，香港与深冀两地的中医院建立战略合作伙伴关系，是在助力香港更好地融入国家发展大局，推进中医药传承创新。
+大家结伴游览、畅谈家乡发展变化，现场设置团圆家宴、合拍全家福等环节，干部群众围坐一桌、同食一餐、同拍一照，在欢声笑语中增进感情，生动展现守望相助、亲如一家的良好风貌。
 
-香港会继续善用“一国两制”的制度优势，持续推动香港与内地在医疗领域的合作，同时发挥香港在中西文明交流互鉴中的重要窗口作用，让香港成为中医药走向世界的桥头堡。
+该村群众纷纷表示，这样的活动让大家感受到了党的关怀和温暖，今后要像石榴籽一样紧紧抱在一起，共同维护民族团结、建设美好家园。
 
-据了解，香港中医医院是香港首家中医医院，于2025年12月正式投入运营。
+下一步，市外办将持续深化“民族团结一家亲”活动形式，常态化开展结对帮扶、联谊共建，巩固和发展各族群众和睦相处、和衷共济、和谐发展的良好局面。
 
-此前香港中医医院已与广东、江苏、山东、北京等地的重点医院，以及德国魁茨汀医院和澳大利亚西悉尼大学签署战略合作协议。
-
-(完)
+(文/图 通讯员 仰暖央）
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 20:54 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 21:09 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 20:56 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 20:54 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 21:11 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 21:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 20:49 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 20:48 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 21:13 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:58 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 21:06 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 21:09 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 21:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 21:02 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 21:05 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 21:06 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 21:18 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 21:16 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 21:19 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 21:20 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 21:10 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 21:13 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 21:03 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 21:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 21:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/6504074.shtml)
-- 2026-06-29 20:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/60972142484.shtml)
-- 2026-06-29 20:58 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/615786083.shtml)
-- 2026-06-29 21:10 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/37678.shtml)
-- 2026-06-29 20:56 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/695065360398.shtml)
-- 2026-06-29 21:07 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/143172337099.shtml)
-- 2026-06-29 21:14 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/63336374.shtml)
-- 2026-06-29 20:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/4633175.shtml)
-- 2026-06-29 21:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/6983805201.shtml)
-- 2026-06-29 21:14 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5390794.shtml)
-- 2026-06-29 20:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/6674930.shtml)
-- 2026-06-29 21:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/4871204830.shtml)
-- 2026-06-29 20:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/79058243.shtml)
-- 2026-06-29 20:57 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/755205097008.shtml)
-- 2026-06-29 21:09 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/995105028768.shtml)
+- 2026-06-29 21:04 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/729623296.shtml)
+- 2026-06-29 21:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/3075271.shtml)
+- 2026-06-29 21:24 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/395881939.shtml)
+- 2026-06-29 21:19 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/92532591.shtml)
+- 2026-06-29 21:14 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/962302004739.shtml)
+- 2026-06-29 21:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/50119990738.shtml)
+- 2026-06-29 20:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/091480.shtml)
+- 2026-06-29 21:13 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/63732.shtml)
+- 2026-06-29 21:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/69743411951.shtml)
+- 2026-06-29 21:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/5065576140.shtml)
+- 2026-06-29 21:14 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/19654280.shtml)
+- 2026-06-29 21:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/38844.shtml)
+- 2026-06-29 21:15 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/136870.shtml)
+- 2026-06-29 21:19 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/69258769.shtml)
+- 2026-06-29 21:20 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/257203906.shtml)

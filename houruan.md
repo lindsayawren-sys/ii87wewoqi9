@@ -1,60 +1,58 @@
-# 数字医保跑出“便民加速度”，美团合肥线上医保买药累计服务超百万人
+# 诗韵柳琴戏《燕子楼》江苏新沂试首演 千年风雅唱响彭城
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-近日，合肥市民王女士因过敏性结膜炎复发，通过美团APP选购了眼药水及口服药。与以往不同的是，她直接调用个人医保账户完成了在线支付，下单不到半小时，药品便配送上门。“以前买药得专门请假跑医院或药店，现在手机下单就能刷医保，确实省心了不少。”王女士感叹道。 随着“互联网+医保”服务的持续深化，线上医保买药正加速嵌入合肥市民的日常生活。据从美团买药获悉，自2024年12月正式上线以来
+中新网徐州5月30日电(刘林 谷华)2026年5月29日晚，江苏新沂大剧院内灯光璀璨、座无虚席，由徐州演艺集团出品、江苏省柳琴剧院精心创排的诗韵柳琴戏《燕子楼》试首演落幕。婉转唱腔绕梁不绝，唯美舞台如梦似幻，现场观众沉浸在唐宋风雅与非遗韵味交织的艺术盛宴中，掌声与赞叹声此起彼伏。 演出以“燕子楼空，佳人何在”的主题旋律拉开帷幕，瞬间将观众带入北宋彭城的诗意时空。剧情围绕苏轼赴任
 
 ## 正文
 
-近日，合肥市民王女士因过敏性结膜炎复发，通过美团APP选购了眼药水及口服药。
+中新网徐州5月30日电(刘林 谷华)2026年5月29日晚，江苏新沂大剧院内灯光璀璨、座无虚席，由徐州演艺集团出品、江苏省柳琴剧院精心创排的诗韵柳琴戏《燕子楼》试首演落幕。
 
-与以往不同的是，她直接调用个人医保账户完成了在线支付，下单不到半小时，药品便配送上门。
+婉转唱腔绕梁不绝，唯美舞台如梦似幻，现场观众沉浸在唐宋风雅与非遗韵味交织的艺术盛宴中，掌声与赞叹声此起彼伏。
 
-“以前买药得专门请假跑医院或药店，现在手机下单就能刷医保，确实省心了不少。
+演出以“燕子楼空，佳人何在”的主题旋律拉开帷幕，瞬间将观众带入北宋彭城的诗意时空。
 
-”王女士感叹道。
+剧情围绕苏轼赴任湖州、与王朝云惜别，夜宿燕子楼梦遇关盼盼、梦醒悟真情展开，旋转舞台灵动流转，楼阁、庭院、舟楫、夜雨等场景无缝切换，实现唐宋两世虚实对话。
 
-随着“互联网+医保”服务的持续深化，线上医保买药正加速嵌入合肥市民的日常生活。
+灯光随情绪层层变幻，暖黄映温情、冷蓝绘孤寂、柔光托梦境、强光定觉醒，精准勾勒人物内心波澜。
 
-据从美团买药获悉，自2024年12月正式上线以来，合肥线上医保买药服务规模持续扩容。
+当苏轼《永遇乐·彭城夜宿燕子楼》化作柳琴唱腔流淌，“若非死别，断不生离”的誓言直击人心，引发全场强烈共鸣。
 
-截至目前，该服务已覆盖全市1000余家药店，累计服务参保人突破100万大关。
+本剧由国家一级导演翁国生倾力执导，著名剧作家罗周编剧，集结业内顶尖主创。
 
-正值春季过敏高发期，线上医保购药需求随之上涨。
+舞台上，柳琴戏“拉魂腔”婉转牵魂，板式多变层次饱满。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 20:52 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 20:57 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 21:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 21:09 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 21:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 21:06 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 20:55 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 21:01 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 21:03 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 20:55 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 21:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 20:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 21:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 20:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 21:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 21:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 21:17 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 21:09 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 21:14 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 21:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 21:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 21:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 20:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/56825641.shtml)
-- 2026-06-29 21:15 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/0474118419.shtml)
-- 2026-06-29 21:12 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/351776307885.shtml)
-- 2026-06-29 20:48 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/479119.shtml)
-- 2026-06-29 20:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/8736885811.shtml)
-- 2026-06-29 20:53 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/7026352236.shtml)
-- 2026-06-29 21:12 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/68520193423.shtml)
-- 2026-06-29 21:10 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/4857309782.shtml)
-- 2026-06-29 21:17 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/2499635.shtml)
-- 2026-06-29 20:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/7031507.shtml)
-- 2026-06-29 21:12 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/942673684.shtml)
-- 2026-06-29 21:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/807488.shtml)
-- 2026-06-29 21:02 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/740852883356.shtml)
-- 2026-06-29 21:03 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/59736491.shtml)
-- 2026-06-29 21:08 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/09740708115.shtml)
+- 2026-06-29 21:09 - [啊啊啊](http://www.blog.minike.top/Article/details/081418673977.shtml)
+- 2026-06-29 21:20 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/887234.shtml)
+- 2026-06-29 21:16 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/9208156952.shtml)
+- 2026-06-29 21:02 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/10289.shtml)
+- 2026-06-29 20:56 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/38448.shtml)
+- 2026-06-29 20:56 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/392478385366.shtml)
+- 2026-06-29 21:14 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/7947936.shtml)
+- 2026-06-29 21:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/9436843972.shtml)
+- 2026-06-29 21:22 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/5255393.shtml)
+- 2026-06-29 21:02 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/382577309.shtml)
+- 2026-06-29 21:14 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/868973.shtml)
+- 2026-06-29 21:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/51100881.shtml)
+- 2026-06-29 21:15 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/185496336.shtml)
+- 2026-06-29 21:04 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/147181.shtml)
+- 2026-06-29 21:12 - [啊啊啊](https://www.blog.minike.top/Article/details/67538.shtml)

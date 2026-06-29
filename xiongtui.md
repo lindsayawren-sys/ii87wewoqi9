@@ -1,59 +1,57 @@
-# 报告称中国在建核电机组装机容量连续19年保持全球第一
+# 野心昭然！日本安保情报军备多线推进“再军事化”招致国内外反对
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月17日电 (记者 张素)17日在北京发布的一份报告显示，截至2025年底，中国在建核电机组35台，总装机容量4190万千瓦，在建机组装机容量连续19年保持全球第一。 《中国核能发展报告(2026)》蓝皮书由中国核能行业协会联合中核战略规划研究总院、中智科学技术评价研究中心共同主编。17日，报告在2026春季核能可持续发展论坛上公布。 报告显示，截至2025年底，中
+原标题：【世界说】野心昭然！日本安保情报军备多线推进“再军事化”招致国内外反对 中国日报网5月31日电 在日本政府解禁武器出口之外，日本近期在安保战略、作战体系、情报机制、区域军事布局等领域密集出台举措，推动从“专守防卫”向主动进攻、全域监控、海外“辐射”的全面转型，随着全新情报机构设立，其多线推进军事化升级的动向，引发国内外持续反对与担忧。 安保战略层面，日本自民党已在5月2
 
 ## 正文
 
-中新社北京4月17日电 (记者 张素)17日在北京发布的一份报告显示，截至2025年底，中国在建核电机组35台，总装机容量4190万千瓦，在建机组装机容量连续19年保持全球第一。
+原标题：【世界说】野心昭然！
 
-《中国核能发展报告(2026)》蓝皮书由中国核能行业协会联合中核战略规划研究总院、中智科学技术评价研究中心共同主编。
+日本安保情报军备多线推进“再军事化”招致国内外反对 中国日报网5月31日电 在日本政府解禁武器出口之外，日本近期在安保战略、作战体系、情报机制、区域军事布局等领域密集出台举措，推动从“专守防卫”向主动进攻、全域监控、海外“辐射”的全面转型，随着全新情报机构设立，其多线推进军事化升级的动向，引发国内外持续反对与担忧。
 
-17日，报告在2026春季核能可持续发展论坛上公布。
+安保战略层面，日本自民党已在5月25日总体通过安保三文件修订提议草案，计划6月上旬正式提交政府审议。
 
-报告显示，截至2025年底，中国商运核电机组59台，总装机容量6252万千瓦。
+草案明确提出“强化防卫力量并确保相应预算，在五年内实现防卫力量的转型”。
 
-2025年全年核电设备平均利用小时数为7870小时，全年累计发电量4677亿千瓦时。
+根据Kantenna网站及日本共同社披露的草案细节，明确要求：部署拦截无人机、高功率定向能武器，强化防空体系、具备“至少以年为单位”持续作战与对敌基地攻击能力，同时加速远海军事布局，在太平洋部署无人预警机，在小笠原群岛、硫磺岛等部署机动雷达，将日本“监控”覆盖范围向东延伸至第二岛链方向。
 
-“综合协会及相关机构研究成果，预计到2040年我国核电装机规模将达2亿千瓦。
+Kantenna网站报道截图 事实上，日本早已启动进攻性军事装备布局，此前引进与自研远程导弹、改装“出云”级驱逐舰搭载F-35B使其实质具备航母功能等举措，意味着日本正致力于打造一支具有正规作战能力的武装力量。
 
-”中国核能行业协会轮值理事长杨长利在论坛上说。
+东京大学学者高桥大辅在《外交事务》杂志撰文指出，过去十年日本已摆脱和平主义形象，现政权更致力于彻底转变整体防务态势，一些政界人士的争论焦点已从“是否要加强安全”变为“以多快速度进行”。
 
-报告显示，在核电装备制造方面，中国实现核电主设备100%国产化以及关键零部件技术自主可控。
+《外交事务》网站报道截图 为扩大区域军事影响力，日本首相高市早苗近期出访多国，抛出新版“自由开放印太”构想。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 21:04 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 20:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 21:14 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 21:14 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 20:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 21:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 20:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 21:16 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 21:06 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 21:15 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 20:56 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 20:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 21:04 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 21:19 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 21:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 21:04 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 20:57 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 20:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 20:58 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 21:20 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/896090.shtml)
-- 2026-06-29 21:16 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/628710.shtml)
-- 2026-06-29 21:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/04453603.shtml)
-- 2026-06-29 21:13 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/31796.shtml)
-- 2026-06-29 21:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/3247260559.shtml)
-- 2026-06-29 21:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/68420879.shtml)
-- 2026-06-29 20:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/29159599.shtml)
-- 2026-06-29 20:56 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/707280.shtml)
-- 2026-06-29 21:00 - [起风了](https://www.blog.minike.top/Article/details/038027.shtml)
-- 2026-06-29 21:06 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/4521760738.shtml)
-- 2026-06-29 20:51 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/173886408.shtml)
-- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/5047559940.shtml)
-- 2026-06-29 21:00 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/369638304.shtml)
-- 2026-06-29 20:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/70678.shtml)
-- 2026-06-29 21:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/2649762.shtml)
+- 2026-06-29 21:09 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/440960578780.shtml)
+- 2026-06-29 21:14 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/291043451.shtml)
+- 2026-06-29 20:58 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/86240.shtml)
+- 2026-06-29 21:10 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/195230171.shtml)
+- 2026-06-29 21:21 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/590637.shtml)
+- 2026-06-29 20:58 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/9342896784.shtml)
+- 2026-06-29 21:06 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/810440.shtml)
+- 2026-06-29 21:05 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/95285951.shtml)
+- 2026-06-29 21:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/30515.shtml)
+- 2026-06-29 21:13 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/44753270.shtml)
+- 2026-06-29 21:02 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/023171513.shtml)
+- 2026-06-29 20:58 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/5712073.shtml)
+- 2026-06-29 21:04 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/230814230490.shtml)
+- 2026-06-29 20:55 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/600835547.shtml)
+- 2026-06-29 21:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4093751.shtml)

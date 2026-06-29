@@ -1,47 +1,58 @@
-# 恩华药业：一季度归母净利润3.17亿元，同比增加5.56%
+# 日本学者：希望每位日本人至少来一次侵华日军南京大屠杀遇难同胞纪念馆
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-恩华药业4月17日公告，2026年第一季度实现营业收入16.1亿元，同比增长6.58%；归属于上市公司股东的净利润3.17亿元，同比增长5.56%；基本每股收益0.31元。
+中新网南京5月29日电(记者 张素 周昕 泱波 葛勇)29日，来华出席东京审判开庭80周年国际研讨会的多位日本学者，走进侵华日军南京大屠杀遇难同胞纪念馆参观。其间，有学者关注到有关南京大屠杀的报道细节。馆内珍藏有一份报纸。1937年12月14日，《东京日日新闻》刊载关于日军侵占南京光华门、水西门、紫金山、中山陵等地区和进行“百人斩”的报道。 日本学者表示，当年12月13日出版的
 
 ## 正文
 
-恩华药业4月17日公告，2026年第一季度实现营业收入16.1亿元，同比增长6.58%；归属于上市公司股东的净利润3.17亿元，同比增长5.56%；基本每股收益0.31元。
+中新网南京5月29日电(记者 张素 周昕 泱波 葛勇)29日，来华出席东京审判开庭80周年国际研讨会的多位日本学者，走进侵华日军南京大屠杀遇难同胞纪念馆参观。
+
+其间，有学者关注到有关南京大屠杀的报道细节。
+
+馆内珍藏有一份报纸。
+
+1937年12月14日，《东京日日新闻》刊载关于日军侵占南京光华门、水西门、紫金山、中山陵等地区和进行“百人斩”的报道。
+
+日本学者表示，当年12月13日出版的《东京日日新闻》也刊载了相同的报道，可见罪行恶劣，而当时一些人竟以此为“荣”。
+
+来自上海交通大学的战犯审判、国际和平研究者石田隆至在参观结束后接受中新社记者采访时说，希望每位日本人至少来一次侵华日军南京大屠杀遇难同胞纪念馆。
+
+这既是为了解历史真相，也是为更好理解中国人民。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 21:11 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:53 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 21:16 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 21:16 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 20:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 20:50 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 20:51 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 21:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 21:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 21:07 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:51 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 20:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 21:16 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 20:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 21:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 21:10 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 21:05 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 20:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 20:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 21:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 20:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 21:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 21:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 21:01 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 20:54 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/42924.shtml)
-- 2026-06-29 21:03 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/218264149.shtml)
-- 2026-06-29 21:01 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/98297.shtml)
-- 2026-06-29 21:09 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/9606027.shtml)
-- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/130355912653.shtml)
-- 2026-06-29 20:59 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/15312716.shtml)
-- 2026-06-29 20:49 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/312733150.shtml)
-- 2026-06-29 21:11 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/06987.shtml)
-- 2026-06-29 21:03 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/456529547601.shtml)
-- 2026-06-29 21:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/12154.shtml)
-- 2026-06-29 20:48 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/190771.shtml)
-- 2026-06-29 21:07 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/8295811.shtml)
-- 2026-06-29 21:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/708082.shtml)
-- 2026-06-29 21:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/455014968.shtml)
-- 2026-06-29 21:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/034708.shtml)
+- 2026-06-29 21:16 - [新官上任三把火](http://www.share.minike.top/Article/details/086668286570.shtml)
+- 2026-06-29 21:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/073430.shtml)
+- 2026-06-29 20:57 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/9512555.shtml)
+- 2026-06-29 20:55 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/6568373.shtml)
+- 2026-06-29 21:19 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/4448607.shtml)
+- 2026-06-29 21:08 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/27815710715.shtml)
+- 2026-06-29 20:58 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/29020326349.shtml)
+- 2026-06-29 20:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/603969029968.shtml)
+- 2026-06-29 21:22 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/417993.shtml)
+- 2026-06-29 21:10 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/56563730.shtml)
+- 2026-06-29 21:11 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/09052.shtml)
+- 2026-06-29 20:56 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/93142277500.shtml)
+- 2026-06-29 21:20 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/546785.shtml)
+- 2026-06-29 21:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/5342146.shtml)
+- 2026-06-29 20:58 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/9204796952.shtml)

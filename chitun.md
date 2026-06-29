@@ -1,61 +1,58 @@
-# 编排股市“小作文”关号就可以了？“杰克船长”领罚80万传递新信号
+# 深夜！全线爆发！科技巨头，集体暴涨
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。证监会强调：“资本市场具有很强的信息敏感性，编造、传播资本市场虚假信息以及其他违法违规言论，扰乱信息传播秩序，影响市场稳定运行，将受到法律惩处。” 在被国家网信办通报、关号近一年后，“杰克船长”胡博领到了证监会开出的80万元罚单。 4月17日，证监会公布了
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美股科技股继续高歌猛进。 当地时间5月29日，美股三大指数集体高开，盘中持续走高，截至发稿，道指涨0.37%，纳指涨0.57%，标普500指数涨0.42%。 科技股表现强势。美股半导体、存储芯片、服务器、应用软件全线爆发，费城半导体指数盘中涨超2%，再刷新历史高点纪录。 具体个股方面，戴尔科技涨超33%。消
 
 ## 正文
 
-监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-证监会强调：“资本市场具有很强的信息敏感性，编造、传播资本市场虚假信息以及其他违法违规言论，扰乱信息传播秩序，影响市场稳定运行，将受到法律惩处。
+美股科技股继续高歌猛进。
 
-” 在被国家网信办通报、关号近一年后，“杰克船长”胡博领到了证监会开出的80万元罚单。
+当地时间5月29日，美股三大指数集体高开，盘中持续走高，截至发稿，道指涨0.37%，纳指涨0.57%，标普500指数涨0.42%。
 
-4月17日，证监会公布了对胡博的行政处罚决定，经查明，2023年8月以来，胡博控制使用新浪微博“杰克船长宏观策略”“杰克船长宏观策略八卦”等账号编造、传播涉资本市场监管动态、监管政策的虚假信息或误导性信息，扰乱证券市场。
+科技股表现强势。
 
-证监会认定胡博的违法行为情节严重，对其采取3年证券市场禁入措施，在禁入期间内，除不得继续在原机构从事证券业务、证券服务业务或者担任原证券发行人的董事、监事、高级管理人员职务外，也不得在其他任何机构中从事证券业务、证券服务业务或者担任其他证券发行人的董事、监事、高级管理人员职务。
+美股半导体、存储芯片、服务器、应用软件全线爆发，费城半导体指数盘中涨超2%，再刷新历史高点纪录。
 
-关于胡博的具体身份，市场人士猜测其为甬兴证券的投资顾问，中国证券业协会也能查到“胡博”的从业信息，但第一财经从有关渠道了解到，“杰克船长”胡博并不在券商任职。
+具体个股方面，戴尔科技涨超33%。
 
-去年以来，监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。
+消息面上，戴尔科技预计，截至2027年1月的财年营收将达到约1670亿美元，其中来自AI服务器的销售额为600亿美元。
 
-第一财经记者注意到，胡博控制的账号在去年上半年已经被国家网信办关闭。
+这一数字高于此前约1400亿美元的营收展望，也超过了彭博社汇编的分析师平均预期的1421亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 21:08 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:11 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 21:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 20:50 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 21:09 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 20:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 21:01 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 21:00 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 20:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 20:56 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 20:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 20:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 20:57 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 21:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 21:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 21:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 21:13 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 21:13 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 21:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 20:56 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 21:05 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 21:11 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 21:04 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 21:13 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 21:06 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/124499230611.shtml)
-- 2026-06-29 20:56 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/634894737.shtml)
-- 2026-06-29 21:06 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/06342638.shtml)
-- 2026-06-29 20:55 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/65833955843.shtml)
-- 2026-06-29 20:56 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/982559715022.shtml)
-- 2026-06-29 21:12 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/7512472756.shtml)
-- 2026-06-29 20:54 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/81763.shtml)
-- 2026-06-29 20:59 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/1483136067.shtml)
-- 2026-06-29 21:08 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/984181.shtml)
-- 2026-06-29 20:58 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/76775697448.shtml)
-- 2026-06-29 21:13 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/20515249848.shtml)
-- 2026-06-29 21:10 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/66607399.shtml)
-- 2026-06-29 21:16 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/88910794.shtml)
-- 2026-06-29 21:08 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/950940315.shtml)
-- 2026-06-29 20:58 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/43343.shtml)
+- 2026-06-29 21:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/53763237.shtml)
+- 2026-06-29 21:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/361580071.shtml)
+- 2026-06-29 21:23 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/8438571.shtml)
+- 2026-06-29 21:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/901880273.shtml)
+- 2026-06-29 21:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/65953067.shtml)
+- 2026-06-29 21:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/835319104503.shtml)
+- 2026-06-29 21:08 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/66674.shtml)
+- 2026-06-29 21:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/3841526.shtml)
+- 2026-06-29 20:55 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/752179565.shtml)
+- 2026-06-29 21:06 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/994710964900.shtml)
+- 2026-06-29 21:14 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/365353715.shtml)
+- 2026-06-29 21:13 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/976275864473.shtml)
+- 2026-06-29 21:07 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9174223.shtml)
+- 2026-06-29 21:00 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/26991845771.shtml)
+- 2026-06-29 20:56 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/907322.shtml)

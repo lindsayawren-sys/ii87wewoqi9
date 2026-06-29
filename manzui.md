@@ -1,59 +1,59 @@
-# 道富银行：全球投资者将美元对冲比率提升至两年来最高水平
+# 给3亿人捏脚捏出一个IPO！
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-随着美伊停火削弱此前支撑美元的避险需求，国际投资者正在加大对冲美元下跌的力度。 道富银行策略师Lee Ferridge表示，截至4月10日，全球投资者对美元的对冲比率升至63%，为2024年同期以来的最高水平。 彭博美元指数周四一度下跌0.2%，目前已接近2月27日 —— 即战争爆发前一天 —— 的水平。该指数势将连续第九个交易日下跌，创自2006年以来的最长连跌纪录。 美元作
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 作者 | 孙梦圆 港交所 “史家父女”的足疗帝国。 作者|刘俊群 编辑|刘钦文 周末走进一家华夏良子，换上浴服，点上艾灸，90分钟的足疗SPA下来，账单轻松过千。这种消费方式，正在吸引越来越多的年轻人。 你可能没想过，这家足疗店正在冲刺资本市场。近日，山东华夏良子健康管理有限公司（下称“华夏良子”）与中泰国际正
 
 ## 正文
 
-随着美伊停火削弱此前支撑美元的避险需求，国际投资者正在加大对冲美元下跌的力度。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 作者 | 孙梦圆 港交所 “史家父女”的足疗帝国。
 
-道富银行策略师Lee Ferridge表示，截至4月10日，全球投资者对美元的对冲比率升至63%，为2024年同期以来的最高水平。
+作者|刘俊群 编辑|刘钦文 周末走进一家华夏良子，换上浴服，点上艾灸，90分钟的足疗SPA下来，账单轻松过千。
 
-彭博美元指数周四一度下跌0.2%，目前已接近2月27日 —— 即战争爆发前一天 —— 的水平。
+这种消费方式，正在吸引越来越多的年轻人。
 
-该指数势将连续第九个交易日下跌，创自2006年以来的最长连跌纪录。
+你可能没想过，这家足疗店正在冲刺资本市场。
 
-美元作为动荡时期传统的避险货币，在中东冲突期间成为主要受益者，3月创下自7月以来的最大单月涨幅。
+近日，山东华夏良子健康管理有限公司（下称“华夏良子”）与中泰国际正式签署上市保荐协议，拟冲刺IPO。
 
-但随着停火谈判推进，对冲活动也随之加剧，该银行的数据显示，这表明投资者正重新转向战前盛行的看跌美元观点。
+消息一出，不少网友的第一反应是：足疗店也能上市？
 
-Ferridge表示，“那些错过了2025年对冲美元机会的人不想再次错失良机。
+这并非没有先例。
 
-现在是开始建立中期美元空头头寸的好时机。
+9年前，“中国头部足浴养生连锁品牌”重庆富侨在澳大利亚上市，仅3年后便摘牌退市。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 21:04 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 20:52 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 20:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 21:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 21:07 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 21:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 20:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 21:09 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 21:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 21:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 20:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 20:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 21:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 20:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 21:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 20:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 21:04 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 21:06 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 21:18 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 21:18 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 21:07 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 21:21 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 21:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 21:13 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/120813230774.shtml)
-- 2026-06-29 20:53 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/90109642919.shtml)
-- 2026-06-29 20:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/6951957.shtml)
-- 2026-06-29 20:57 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/7227591.shtml)
-- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/833075644725.shtml)
-- 2026-06-29 21:02 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/208902692.shtml)
-- 2026-06-29 21:17 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/04211.shtml)
-- 2026-06-29 21:14 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/246503.shtml)
-- 2026-06-29 21:05 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/862351138.shtml)
-- 2026-06-29 20:50 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/67382427805.shtml)
-- 2026-06-29 20:52 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/32483932328.shtml)
-- 2026-06-29 20:50 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/78438899531.shtml)
-- 2026-06-29 21:09 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/63136882403.shtml)
-- 2026-06-29 21:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/534256133.shtml)
-- 2026-06-29 21:09 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/72068558.shtml)
+- 2026-06-29 21:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/428764.shtml)
+- 2026-06-29 21:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/821299721.shtml)
+- 2026-06-29 21:12 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/81111.shtml)
+- 2026-06-29 21:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/1802715.shtml)
+- 2026-06-29 21:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/610931354934.shtml)
+- 2026-06-29 21:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/384287106.shtml)
+- 2026-06-29 21:04 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/57811199961.shtml)
+- 2026-06-29 21:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/97605.shtml)
+- 2026-06-29 21:22 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/2581461651.shtml)
+- 2026-06-29 21:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/39586386.shtml)
+- 2026-06-29 21:12 - [王楚钦开门红](http://www.blog.minike.top/Article/details/611328.shtml)
+- 2026-06-29 21:03 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/9260170.shtml)
+- 2026-06-29 20:56 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/274671291765.shtml)
+- 2026-06-29 21:15 - [流金岁月](https://www.share.kurohicncr.top/Article/details/099126280.shtml)
+- 2026-06-29 21:07 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/25059.shtml)

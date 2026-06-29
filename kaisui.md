@@ -1,52 +1,61 @@
-# 黑熊摔跤小麂饮水 神农架给野生动物办“AI摄影展”
+# 全国春播粮食过九成 夏粮收获过两成
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 19:35 来源：中国新闻网 近日，神农架国家公园公布了一批红外相机监测画面：两只黑熊正上演“摔跤友谊赛”，你推我搡，“打”完了还相互“问好”，友好散场；一只通体雪白的小麂幼崽紧紧跟在妈妈身边喝水；一只雄性红腹角雉展开羽毛，围着雌鸟翩翩起舞…… 这些珍贵的画面，都来自神农架AI红外相机智能监测系统，以往人工处理上千张照片需耗时一周，现在AI技术
+记者29日从农业农村部了解到，全国春播粮食过九成，进度同比略快；全国夏粮收获过两成。 农业农村部有关负责人表示，5月以来，春播区光温水较为匹配，土壤墒情适宜，东北等地抢抓有利条件加快播种进度。 据农情调度显示，全国春播粮食过九成，进度同比略快，其中东北过九成、黄淮海近九成、西南过八成、其余地区接近尾声。黑龙江、内蒙古春播作物超六成已出苗，辽宁、吉林过九成，已出苗作物长势良好、一
 
 ## 正文
 
-发布时间：2026年04月16日 19:35 来源：中国新闻网 近日，神农架国家公园公布了一批红外相机监测画面：两只黑熊正上演“摔跤友谊赛”，你推我搡，“打”完了还相互“问好”，友好散场；一只通体雪白的小麂幼崽紧紧跟在妈妈身边喝水；一只雄性红腹角雉展开羽毛，围着雌鸟翩翩起舞…… 这些珍贵的画面，都来自神农架AI红外相机智能监测系统，以往人工处理上千张照片需耗时一周，现在AI技术实现千张照片秒级识别。
+记者29日从农业农村部了解到，全国春播粮食过九成，进度同比略快；全国夏粮收获过两成。
 
-自2025年7月上线以来，拍到的有效影像超过25万个，比过去翻了一倍半。
+农业农村部有关负责人表示，5月以来，春播区光温水较为匹配，土壤墒情适宜，东北等地抢抓有利条件加快播种进度。
 
-目前，神农架已在重点区域布设了50台AI红外相机，今后还要加密到每平方公里一台，让更多野生动物“主动出镜”。
+据农情调度显示，全国春播粮食过九成，进度同比略快，其中东北过九成、黄淮海近九成、西南过八成、其余地区接近尾声。
 
-(李潇 黎波 制作 董晓斌） 责任编辑：【罗攀】
+黑龙江、内蒙古春播作物超六成已出苗，辽宁、吉林过九成，已出苗作物长势良好、一二类苗比例95%左右。
+
+全国夏粮收获过两成农业农村部有关负责人表示，去年各地千方百计应对罕见秋季连阴雨影响，稳住了冬小麦面积，追回了苗情。
+
+据农业农村部农情调度显示，截至5月28日，全国夏粮收获过两成，冬小麦收获已近两成，其中西南接近尾声、长江中下游过八成，黄淮海即将开始大面积收获。
+
+全国冬油菜收获过九成，进入扫尾阶段。
+
+夏粮包括夏收的谷物、豆类和薯类。
 
 ## 相关推荐
 
-- 2026-06-29 21:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 20:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 21:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 20:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 20:53 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 20:54 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 20:56 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 20:49 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 20:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 21:05 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 20:57 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 21:05 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 21:06 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 21:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 21:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 21:04 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:03 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 21:00 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 21:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 21:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 21:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 21:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 21:13 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 21:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 21:24 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 21:06 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 21:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/938070592440.shtml)
-- 2026-06-29 20:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/89458370185.shtml)
-- 2026-06-29 21:06 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/8664509.shtml)
-- 2026-06-29 20:59 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/25811.shtml)
-- 2026-06-29 21:06 - [时光音乐会](http://www.blog.minike.top/Article/details/19309315.shtml)
-- 2026-06-29 21:13 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/33846947.shtml)
-- 2026-06-29 21:10 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/66494557817.shtml)
-- 2026-06-29 20:57 - [温网](https://www.blog.minike.top/Article/details/904839331481.shtml)
-- 2026-06-29 21:13 - [沙丘](http://www.blog.kurohicncr.top/Article/details/511729892.shtml)
-- 2026-06-29 20:56 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/719304814793.shtml)
-- 2026-06-29 21:15 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/4624261.shtml)
-- 2026-06-29 21:03 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/059295478103.shtml)
-- 2026-06-29 21:00 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/02191873073.shtml)
-- 2026-06-29 20:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/7828689.shtml)
-- 2026-06-29 21:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2630080.shtml)
+- 2026-06-29 21:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/988418123843.shtml)
+- 2026-06-29 21:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/282093054.shtml)
+- 2026-06-29 21:11 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/2532374514.shtml)
+- 2026-06-29 21:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/74109.shtml)
+- 2026-06-29 21:21 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/122798157526.shtml)
+- 2026-06-29 21:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/05064029217.shtml)
+- 2026-06-29 20:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/2900098.shtml)
+- 2026-06-29 20:59 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/2450662593.shtml)
+- 2026-06-29 21:03 - [绘画区你赢了](https://www.blog.minike.top/Article/details/329743054943.shtml)
+- 2026-06-29 21:08 - [青春环游记第三季](http://www.share.minike.top/Article/details/486377.shtml)
+- 2026-06-29 21:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/225502.shtml)
+- 2026-06-29 21:19 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/09689.shtml)
+- 2026-06-29 20:56 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/142914.shtml)
+- 2026-06-29 21:06 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/236140.shtml)
+- 2026-06-29 21:07 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/98771692206.shtml)

@@ -1,58 +1,48 @@
-# 易事特索赔再次递交立案，时效告急抓紧加入
+# “智”在天津！智博会见证天津的“科技未来”
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。一旦错过，即便曾经
+发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证
 
 ## 正文
 
-一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。
+发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。
 
-（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。
+本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。
 
-对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。
+从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证。
 
-一旦错过，即便曾经遭受损失，也将难以通过法律途径获得相应赔偿。
-
-同时，投资者还需密切关注法院和证监会的公告，了解案件进展和索赔程序的具体要求。
-
-除了通过法律途径索赔外，投资者还应加强自我保护意识，提高风险识别能力。
-
-二、财务造假引发维权 回溯此案，公司曾发布公告称收到中国证监会出具的《行政处罚决定书》，因财务造假被严惩。
-
-还因财务造假行为恶劣在2024年还被证监会点名，成为从严打击资本市场财务造假的典型案例。
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 20:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:52 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 21:11 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 21:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 21:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 20:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 21:06 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 21:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 20:59 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 21:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 21:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 21:14 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 21:13 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 20:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 20:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 21:21 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 21:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 21:11 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 20:55 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/179530429.shtml)
-- 2026-06-29 21:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/792581457.shtml)
-- 2026-06-29 21:13 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/10769.shtml)
-- 2026-06-29 21:17 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/5847315263.shtml)
-- 2026-06-29 21:13 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/78509.shtml)
-- 2026-06-29 20:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/23452696690.shtml)
-- 2026-06-29 21:10 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/916430.shtml)
-- 2026-06-29 21:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/16797326646.shtml)
-- 2026-06-29 21:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/267576.shtml)
-- 2026-06-29 21:17 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/781128615.shtml)
-- 2026-06-29 21:01 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/349750643.shtml)
-- 2026-06-29 20:57 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/554436.shtml)
-- 2026-06-29 20:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/283393275632.shtml)
-- 2026-06-29 21:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7183497077.shtml)
-- 2026-06-29 20:50 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/719007956.shtml)
+- 2026-06-29 20:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/42948.shtml)
+- 2026-06-29 21:05 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/8212929067.shtml)
+- 2026-06-29 20:55 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/474640.shtml)
+- 2026-06-29 21:11 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/70884122135.shtml)
+- 2026-06-29 21:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/594116253046.shtml)
+- 2026-06-29 21:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/17486.shtml)
+- 2026-06-29 20:57 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/11807.shtml)
+- 2026-06-29 20:55 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/5320525532.shtml)
+- 2026-06-29 21:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/203245028.shtml)
+- 2026-06-29 20:58 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/105414134533.shtml)
+- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/331243031076.shtml)
+- 2026-06-29 21:16 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2573245.shtml)
+- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/2425805206.shtml)
+- 2026-06-29 21:16 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/6148568786.shtml)
+- 2026-06-29 21:18 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/347337.shtml)

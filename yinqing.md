@@ -1,61 +1,53 @@
-# 10小时、2400公里！苏林再坐中国高铁，背后深意耐人寻味
+# 澳大利亚国民银行：美国经济增长韧性或可限制美元下行空间
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-越共中央总书记、国家主席苏林又一次坐上了中国高铁。 继14日乘“复兴号”参访雄安新区后，16日上午，苏林再度选择乘坐高铁从北京前往广西南宁，继续其为期四天的访华之行。这趟高铁途经中国中西部多个省份，里程超2400公里，车程约10小时。 据了解，苏林此次访华期间乘坐中国高铁总时长预计近12小时。外界认为，苏林在紧凑的国事访问行程中抽出十多个小时乘坐高铁，背后有诸多深意。 这是对中
+根据澳大利亚国民银行，即使美国和伊朗达成和平协议，美国经济展现出的韧性也可能会限制美元的下跌空间。 “如果达成可信且更持久的和平协议，美元可能会有所下跌，因为全球局势将由此好转，能源价格走低将是一大重要利好，”澳大利亚国民银行高级外汇策略师Rodrigo Catril表示。 “但我们认为，市场初期情绪提振过后，相对增长态势的影响力将会增强”。 “事实证明，美国比其他经济体更具韧
 
 ## 正文
 
-越共中央总书记、国家主席苏林又一次坐上了中国高铁。
+根据澳大利亚国民银行，即使美国和伊朗达成和平协议，美国经济展现出的韧性也可能会限制美元的下跌空间。
 
-继14日乘“复兴号”参访雄安新区后，16日上午，苏林再度选择乘坐高铁从北京前往广西南宁，继续其为期四天的访华之行。
+“如果达成可信且更持久的和平协议，美元可能会有所下跌，因为全球局势将由此好转，能源价格走低将是一大重要利好，”澳大利亚国民银行高级外汇策略师Rodrigo Catril表示。
 
-这趟高铁途经中国中西部多个省份，里程超2400公里，车程约10小时。
+“但我们认为，市场初期情绪提振过后，相对增长态势的影响力将会增强”。
 
-据了解，苏林此次访华期间乘坐中国高铁总时长预计近12小时。
+“事实证明，美国比其他经济体更具韧性，如果这种情况持续下去，市场预期中的美元下跌幅度将会有限”。
 
-外界认为，苏林在紧凑的国事访问行程中抽出十多个小时乘坐高铁，背后有诸多深意。
+Catril补充道，新西兰元周五表现优异，主要受新西兰央行延续鹰派立场、当天公布的调查数据较好，以及澳元/新西兰元多头头寸解除的影响。
 
-这是对中国高铁建设发展成果的直观体验。
-
-作为自主创新的成功范例，高铁是中国一张亮丽的名片。
-
-中国高铁运营里程已突破5万公里，居全球首位，也是世界上高铁运营时速最高的国家。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 20:56 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 20:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 21:06 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 21:11 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 20:52 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:10 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 20:57 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 21:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 21:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:10 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 20:59 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 21:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 20:59 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 21:08 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 20:56 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 21:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 21:18 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 21:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 20:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 21:09 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 21:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 21:01 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 21:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 20:54 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/04556681535.shtml)
-- 2026-06-29 20:54 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/53879.shtml)
-- 2026-06-29 21:04 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/175739.shtml)
-- 2026-06-29 21:10 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/36409.shtml)
-- 2026-06-29 21:15 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/94531737.shtml)
-- 2026-06-29 21:17 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/837929.shtml)
-- 2026-06-29 21:01 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/77185006.shtml)
-- 2026-06-29 21:01 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/7530447.shtml)
-- 2026-06-29 20:52 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/153113.shtml)
-- 2026-06-29 21:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/33248092668.shtml)
-- 2026-06-29 20:54 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/5209545596.shtml)
-- 2026-06-29 20:58 - [男子40度高温下骑行严重晒伤](http://www.share.kurohicncr.top/Article/details/20103188011.shtml)
-- 2026-06-29 20:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/536997.shtml)
-- 2026-06-29 21:06 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/00863.shtml)
-- 2026-06-29 21:12 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/64536.shtml)
+- 2026-06-29 21:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/289062004463.shtml)
+- 2026-06-29 21:05 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5795578.shtml)
+- 2026-06-29 21:17 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/50606054231.shtml)
+- 2026-06-29 21:16 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/388361402226.shtml)
+- 2026-06-29 21:13 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/4902094428.shtml)
+- 2026-06-29 21:04 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/18595237.shtml)
+- 2026-06-29 21:01 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/136602531.shtml)
+- 2026-06-29 20:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/64624.shtml)
+- 2026-06-29 21:00 - [美人鱼](http://www.share.minike.top/Article/details/710388.shtml)
+- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/800708001562.shtml)
+- 2026-06-29 21:14 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/47806.shtml)
+- 2026-06-29 20:56 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/51649659875.shtml)
+- 2026-06-29 21:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/39709.shtml)
+- 2026-06-29 21:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/39491360297.shtml)
+- 2026-06-29 20:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/861486002241.shtml)

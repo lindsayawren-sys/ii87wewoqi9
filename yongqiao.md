@@ -1,55 +1,57 @@
-# 云南省2026年跨境电商政策解读和“跨境电商+产业带”推进活动楚雄专场成功举办
+# 新加坡科技公司冬海集团寻找人工智能投资机会 开拓新的增长来源
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-近期，云南省商务厅在楚雄州开展以“政策入企”为主题的2026年度跨境电商、市场开拓政策解读，跨境电商雏鹰行动计划和“跨境电商+产业带”推进活动，楚雄州商务局、楚雄州各县(市)商务主管部门、外贸企业、电商企业和商协会等单位代表70余人参加。政策解读会上，省商务厅系统解读了2026年跨境电商支持政策、“云企出海联盟”国际市场开拓政策、“跨境电商+产业带”项目运营政策，通过问题答疑、
+冬海集团（Sea Ltd．）已组建专门团队，负责在全球范围内寻找人工智能（AI）领域的投资机会，帮助公司在电商业务之外培育下一个增长引擎。 知情人士透露，该投资部门直接隶属于总裁办公室，是冬海集团为内部和外部AI项目配置资金而设立的数个举措之一。由于涉及未公开信息，知情人士要求匿名。 知情人士表示，该团队由资深高管Endong Zhang领导，负责评估全球初创企业的潜在投资机会
 
 ## 正文
 
-近期，云南省商务厅在楚雄州开展以“政策入企”为主题的2026年度跨境电商、市场开拓政策解读，跨境电商雏鹰行动计划和“跨境电商+产业带”推进活动，楚雄州商务局、楚雄州各县(市)商务主管部门、外贸企业、电商企业和商协会等单位代表70余人参加。
+冬海集团（Sea Ltd．）已组建专门团队，负责在全球范围内寻找人工智能（AI）领域的投资机会，帮助公司在电商业务之外培育下一个增长引擎。
 
-政策解读会上，省商务厅系统解读了2026年跨境电商支持政策、“云企出海联盟”国际市场开拓政策、“跨境电商+产业带”项目运营政策，通过问题答疑、互动交流、举例论证等方式解答企业政策疑虑和困难问题。
+知情人士透露，该投资部门直接隶属于总裁办公室，是冬海集团为内部和外部AI项目配置资金而设立的数个举措之一。
 
-同时，政策宣讲人员深入云南世纪华宝医药产业开发有限公司、楚雄彝绣智链科技有限公司、姚安县晟锦智慧农业发展有限公司、大姚中诺商贸有限公司等7家企业进行政策和雏鹰行动计划宣讲。
+由于涉及未公开信息，知情人士要求匿名。
 
-楚雄州彝绣、生物医药、魔芋、冻干果脯、花卉等产业的6家企业初步达成建设独立站、共拓国际市场合作意向。
+知情人士表示，该团队由资深高管Endong Zhang领导，负责评估全球初创企业的潜在投资机会。
 
-下一步，省商务厅将结合扎实开展树立和践行正确政绩观学习教育，继续到各州(市)开展“政策入企”和“跨境电商+产业带”推进活动，从跨境电商产业园区建设、品牌营销、产业带培育、人才培养和海外仓建设等方面全链条助力云南外贸稳进提质。
+知情人士补充称，Zhang目前还领导着其他几个新成立的团队，专门负责分析公司内部的AI应用落地情况。
+
+冬海集团旗下运营电商平台Shopee和游戏平台Garena，正在进行架构上的重大转型。
+
+首席执行官李小冬去年宣称“如果公司加倍投入AI并做出正确决策，市值可能达到1万亿美元”。
+
+冬海集团的发言人拒绝就这一举措发表评论。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 20:51 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 20:52 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 21:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 21:13 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 21:04 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 20:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 21:02 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 21:10 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 21:05 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 20:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 20:55 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 20:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 21:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 21:12 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 21:13 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 21:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 21:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 21:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 21:20 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 20:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 20:57 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 21:00 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 21:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 20:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/6617632383.shtml)
-- 2026-06-29 20:53 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/607190915851.shtml)
-- 2026-06-29 21:16 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/664238.shtml)
-- 2026-06-29 21:16 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/8977295.shtml)
-- 2026-06-29 20:48 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/337878734684.shtml)
-- 2026-06-29 21:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/388197935104.shtml)
-- 2026-06-29 20:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/6797106.shtml)
-- 2026-06-29 20:49 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/917167.shtml)
-- 2026-06-29 21:03 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/16138696767.shtml)
-- 2026-06-29 20:58 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/272588445.shtml)
-- 2026-06-29 21:16 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/200245.shtml)
-- 2026-06-29 20:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/9448302820.shtml)
-- 2026-06-29 21:12 - [爱很美味](https://www.blog.minike.top/Article/details/913819577.shtml)
-- 2026-06-29 20:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/47842.shtml)
-- 2026-06-29 21:12 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/1649059408.shtml)
+- 2026-06-29 21:21 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/8662637084.shtml)
+- 2026-06-29 20:55 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/5484089.shtml)
+- 2026-06-29 21:03 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/46513731378.shtml)
+- 2026-06-29 21:21 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/887019.shtml)
+- 2026-06-29 21:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/62476.shtml)
+- 2026-06-29 21:09 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/51871582060.shtml)
+- 2026-06-29 21:16 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/8199227.shtml)
+- 2026-06-29 21:21 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/21589122519.shtml)
+- 2026-06-29 21:14 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/126444072029.shtml)
+- 2026-06-29 21:11 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/4944785826.shtml)
+- 2026-06-29 21:11 - [炽夏](http://www.share.kurohicncr.top/Article/details/555237340302.shtml)
+- 2026-06-29 21:06 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/38709392.shtml)
+- 2026-06-29 21:17 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/014846079.shtml)
+- 2026-06-29 21:13 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/59621764281.shtml)
+- 2026-06-29 20:59 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/49180486.shtml)

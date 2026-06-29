@@ -1,59 +1,46 @@
-# 天猫因“幽灵外卖”被罚，法定代表人刘博被处143.46万元罚款
+# 世界无烟日｜重度吸烟老年男性是小细胞肺癌高发人群
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+发布时间：2026年05月31日 10:06 来源：中国新闻网 肺癌主要分为非小细胞肺癌和小细胞肺癌，其中小细胞肺癌占比约15%。它恶性程度高、进展速度快，极易转移、复发，耐药后治疗效果差，患者整体生存期较短，超90%病例与吸烟密切相关，多见于老年重度吸烟男性。(张静） 责任编辑：【岳川】
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
+发布时间：2026年05月31日 10:06 来源：中国新闻网 肺癌主要分为非小细胞肺癌和小细胞肺癌，其中小细胞肺癌占比约15%。
 
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
+它恶性程度高、进展速度快，极易转移、复发，耐药后治疗效果差，患者整体生存期较短，超90%病例与吸烟密切相关，多见于老年重度吸烟男性。
 
-经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
-
-上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
-
-案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
-
-国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕20号 当事人：刘博 身份证件类型：居民身份证 身份证件号码：略 住址：略 浙江天猫网络有限公司存在未依法履行资质审查义务的违法行为，本局于2025年12月16日依法立案调查，当事人系该公司法定代表人。
-
-本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
-
-浙江天猫网络有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对浙江天猫网络有限公司给予行政处罚。
+(张静） 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 20:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 20:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 20:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 21:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 21:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 20:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 20:58 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 20:52 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 21:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 21:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 21:03 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 20:57 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 21:18 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 20:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 21:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 21:12 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 21:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 21:05 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 21:20 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 21:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 20:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 21:14 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/29518332.shtml)
-- 2026-06-29 20:54 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/6906920.shtml)
-- 2026-06-29 20:56 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/546361901130.shtml)
-- 2026-06-29 20:52 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/89191.shtml)
-- 2026-06-29 21:12 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/723988.shtml)
-- 2026-06-29 21:06 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/492557648.shtml)
-- 2026-06-29 21:08 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/77035933318.shtml)
-- 2026-06-29 21:01 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/58927804300.shtml)
-- 2026-06-29 21:17 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/5010027180.shtml)
-- 2026-06-29 21:01 - [明星大侦探第四季](http://www.share.minike.top/Article/details/360538595.shtml)
-- 2026-06-29 20:58 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/1761727.shtml)
-- 2026-06-29 21:08 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/03160511418.shtml)
-- 2026-06-29 20:56 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/70803.shtml)
-- 2026-06-29 21:16 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/20811.shtml)
-- 2026-06-29 20:54 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/36560301.shtml)
+- 2026-06-29 20:56 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/307862930720.shtml)
+- 2026-06-29 21:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/680615.shtml)
+- 2026-06-29 21:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/39753.shtml)
+- 2026-06-29 21:04 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/735527.shtml)
+- 2026-06-29 21:00 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/028747210294.shtml)
+- 2026-06-29 20:54 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/56975490802.shtml)
+- 2026-06-29 21:13 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/107609.shtml)
+- 2026-06-29 21:23 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/460985343.shtml)
+- 2026-06-29 21:20 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/3197539072.shtml)
+- 2026-06-29 21:13 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/74985752120.shtml)
+- 2026-06-29 21:12 - [送你一朵小红花](http://www.share.minike.top/Article/details/82659906030.shtml)
+- 2026-06-29 21:22 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/5710824.shtml)
+- 2026-06-29 21:10 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/8877377395.shtml)
+- 2026-06-29 21:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/13369189.shtml)
+- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/220383193.shtml)

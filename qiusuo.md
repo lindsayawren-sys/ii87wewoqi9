@@ -1,59 +1,45 @@
-# 美国联邦航空管理局限制航空公司在奥黑尔机场的航班计划
+# 华昱高速拟400万港元收购Sunmand Limited100%股权
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-美联航与美航均计划增班，在这一中西部枢纽争夺客源 简要摘要 美国联邦航空管理局（FAA）将在即将到来的夏季航季，把芝加哥奥黑尔国际机场的航班数量较原计划削减 372 架次。 美国联邦航空管理局正出手限制大型航空公司在芝加哥奥黑尔国际机场增开航班的计划。 该机构周四宣布，将允许奥黑尔机场在今年夏季的航班数量，较此前各航司申报的计划削减 372 架次。此次对航司申报班次 12% 的
+华昱高速（01823）发布公告，于2026年5月29日（交易时段后），本公司全资附属公司Top Talent Holdings Limited（作为买方）与 Sunmand Limited（一间于英属处女群岛注册成立的公司）（作为卖方）订立有条件股份销售协议，据此，卖方同意出售，而买方同意购买Sunmand Limited（一间于香港注册成立的公司）（目标公司）的 1万股普通股
 
 ## 正文
 
-美联航与美航均计划增班，在这一中西部枢纽争夺客源 简要摘要 美国联邦航空管理局（FAA）将在即将到来的夏季航季，把芝加哥奥黑尔国际机场的航班数量较原计划削减 372 架次。
+华昱高速（01823）发布公告，于2026年5月29日（交易时段后），本公司全资附属公司Top Talent Holdings Limited（作为买方）与 Sunmand Limited（一间于英属处女群岛注册成立的公司）（作为卖方）订立有条件股份销售协议，据此，卖方同意出售，而买方同意购买Sunmand Limited（一间于香港注册成立的公司）（目标公司）的 1万股普通股，占目标公司全部已发行股本的 100%，总代价为400万港元，须待股份销售协议的条款及条件达成后方可作实（建议收购事项）。
 
-美国联邦航空管理局正出手限制大型航空公司在芝加哥奥黑尔国际机场增开航班的计划。
-
-该机构周四宣布，将允许奥黑尔机场在今年夏季的航班数量，较此前各航司申报的计划削减 372 架次。
-
-此次对航司申报班次 12% 的削减，直接打断了美联航控股与美国航空集团在这座繁忙的芝加哥枢纽机场争抢更多客源的竞争。
-
-美国联邦航空管理局今年早些时候表示，航班量激增可能影响奥黑尔机场的运行安全；按起降架次计算，该机场是美国最繁忙的机场。
-
-目前该机场每小时约有 100 架次起飞、100 架次降落，日均总起降量约 2800 架次。
-
-该机构称，按照原计划，今年夏季高峰日起降量将增至近 3100 架次，较去年夏季增长约 15%。
-
-“我们的首要任务是保障航空旅客的安全，这意味着要确保航空公司的航班计划符合空管系统的安全承载能力，” 美国联邦航空管理局局长布莱恩・贝德福德表示。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:14 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 20:59 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 20:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 21:16 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 21:05 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 20:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 21:02 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 21:11 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 20:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 21:08 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 21:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 20:55 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:16 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 20:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 21:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 21:14 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:18 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 20:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 21:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 21:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 21:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 21:01 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/19881.shtml)
-- 2026-06-29 21:12 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/714734.shtml)
-- 2026-06-29 21:16 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/476168081.shtml)
-- 2026-06-29 20:58 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/363581634.shtml)
-- 2026-06-29 20:58 - [这一刀 会很帅](https://www.share.minike.top/Article/details/902451302.shtml)
-- 2026-06-29 20:53 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/229553747913.shtml)
-- 2026-06-29 21:03 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/14125462623.shtml)
-- 2026-06-29 21:06 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/075403450.shtml)
-- 2026-06-29 21:00 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/164191874.shtml)
-- 2026-06-29 21:14 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/604879214.shtml)
-- 2026-06-29 20:59 - [温网](http://www.share.kurohicncr.top/Article/details/890163.shtml)
-- 2026-06-29 21:11 - [请回答王牌2019](https://www.share.minike.top/Article/details/740243.shtml)
-- 2026-06-29 21:08 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/257015375.shtml)
-- 2026-06-29 21:09 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/954741869305.shtml)
-- 2026-06-29 20:52 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/204451.shtml)
+- 2026-06-29 21:01 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/315668.shtml)
+- 2026-06-29 21:02 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/12540276.shtml)
+- 2026-06-29 20:54 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/3922304.shtml)
+- 2026-06-29 21:18 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/04706.shtml)
+- 2026-06-29 20:58 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/49017153437.shtml)
+- 2026-06-29 21:20 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/5979611267.shtml)
+- 2026-06-29 21:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/30326504.shtml)
+- 2026-06-29 21:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/35881011267.shtml)
+- 2026-06-29 21:14 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/165711111.shtml)
+- 2026-06-29 21:07 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/71064769805.shtml)
+- 2026-06-29 20:57 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/222932099226.shtml)
+- 2026-06-29 20:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/887229.shtml)
+- 2026-06-29 21:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/391741095.shtml)
+- 2026-06-29 21:07 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/155473.shtml)
+- 2026-06-29 20:58 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/116223.shtml)

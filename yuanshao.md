@@ -1,61 +1,57 @@
-# 多国青年江西“田野调查” 感知发展脉动
+# 存储器产品出口量稳价升 超级周期助力产业链升级
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社南昌4月17日电 (朱莹 刘力鑫)“在中国很多地方，例如江西省，生态优先并没有牺牲经济的增长，反而倒逼出绿色、低碳的新产业。”来自英国的青年代表陶志诚(TERRULI,ROCKY DONATO COLIN)17日在江西省南昌市接受中新社采访时说。 连日来，来自中国、英国、澳大利亚、韩国、马来西亚、越南等国家的青年代表，在江西开展为期四天的参访活动。作为此次活动的最后一程，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年一季度，我国集成电路出口724.7亿美元，同比增长77.5%，其中存储器产品出口459.9亿美元，同比增长174.2%。存储器产品出口高速增长的原因有哪些？ 深圳一家企业专注于存储器产品出口18年，其80%的产品销往海外。海外销售总监龙智圣告诉记者，当前存储器市场已进入“卖方市场”，原来海外一线代理商或
 
 ## 正文
 
-中新社南昌4月17日电 (朱莹 刘力鑫)“在中国很多地方，例如江西省，生态优先并没有牺牲经济的增长，反而倒逼出绿色、低碳的新产业。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”来自英国的青年代表陶志诚(TERRULI,ROCKY DONATO COLIN)17日在江西省南昌市接受中新社采访时说。
+今年一季度，我国集成电路出口724.7亿美元，同比增长77.5%，其中存储器产品出口459.9亿美元，同比增长174.2%。
 
-连日来，来自中国、英国、澳大利亚、韩国、马来西亚、越南等国家的青年代表，在江西开展为期四天的参访活动。
+存储器产品出口高速增长的原因有哪些？
 
-作为此次活动的最后一程，在南昌市的江铃集团新能源汽车有限公司车间内，多国青年竞相试乘新能源汽车。
+深圳一家企业专注于存储器产品出口18年，其80%的产品销往海外。
 
-陶志诚认为，“在燃油价格攀升的背景下，中国新能源汽车会越来越受欢迎”。
+海外销售总监龙智圣告诉记者，当前存储器市场已进入“卖方市场”，原来海外一线代理商或系统集成商，商务成交门槛很高，现在他们都是主动上门寻求合作，并且下单数量和金额相当可观，公司一季度出口额也大涨至去年同期的3倍。
 
-来自英国的青年黄大卫(BURNS,DANIEL DAVID GANDERTON)不时与工程师进行交流。
+存储器产品出口激增也传导至供应链服务环节。
 
-他认为，从传统制造到智能制造，此行“刷新”了他对中国内陆省份经济活力的既有认知，也直观了解到中国新能源汽车产业发展与科技创新成果。
+一家物流企业负责人告诉记者，今年以来公司内存出口相关的业务订单量翻了一倍，单笔货值过亿元的大单明显增多。
 
-此次行程，多国青年还前往江西的乡村、老城街区、文化遗址“田野调查”。
+深圳南冠物流有限公司副总经理 陈家和：从一月份至今，整体的货运订单量增长超20%，其中内存（出口）订单增长100%，单笔大订单货值过亿元的有五六单。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 20:55 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 21:10 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 21:06 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 21:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 21:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 20:50 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 21:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 21:01 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 20:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 21:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 20:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 20:59 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 20:55 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 21:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:58 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 20:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 21:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 21:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 21:03 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 20:55 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 20:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9771264857.shtml)
-- 2026-06-29 21:05 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/191171543.shtml)
-- 2026-06-29 21:17 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/5574844916.shtml)
-- 2026-06-29 21:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/86878249374.shtml)
-- 2026-06-29 21:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/827440825215.shtml)
-- 2026-06-29 21:16 - [沙丘](https://www.share.minike.top/Article/details/10405.shtml)
-- 2026-06-29 21:12 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/78110477.shtml)
-- 2026-06-29 21:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/35766879487.shtml)
-- 2026-06-29 20:59 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/275800675.shtml)
-- 2026-06-29 21:12 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/8078095.shtml)
-- 2026-06-29 21:11 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/00259.shtml)
-- 2026-06-29 21:15 - [一生一世](https://www.blog.kurohicncr.top/Article/details/905744913374.shtml)
-- 2026-06-29 20:57 - [锐评T1零封KC](https://www.share.minike.top/Article/details/41085569.shtml)
-- 2026-06-29 20:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/7998258850.shtml)
-- 2026-06-29 21:06 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/125540055.shtml)
+- 2026-06-29 21:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/9538907662.shtml)
+- 2026-06-29 21:17 - [周生如故](https://www.share.kurohicncr.top/Article/details/95382621854.shtml)
+- 2026-06-29 21:22 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/15984156.shtml)
+- 2026-06-29 20:56 - [请回答王牌2019](http://www.blog.minike.top/Article/details/06246525.shtml)
+- 2026-06-29 21:22 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/0257617720.shtml)
+- 2026-06-29 21:14 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/83419.shtml)
+- 2026-06-29 20:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/6682764.shtml)
+- 2026-06-29 20:58 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/136213736360.shtml)
+- 2026-06-29 21:11 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/15560350721.shtml)
+- 2026-06-29 20:59 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/760611559.shtml)
+- 2026-06-29 21:12 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/0613028.shtml)
+- 2026-06-29 21:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/454508111.shtml)
+- 2026-06-29 21:13 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/28364877.shtml)
+- 2026-06-29 20:54 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/91561376.shtml)
+- 2026-06-29 20:55 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/6630418365.shtml)

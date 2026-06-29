@@ -1,58 +1,55 @@
-# 华宝基金：AI投资的风险偏好回归，美股软件大涨或因空头平仓
+# 关志鸥任湖北省委书记，王忠林另有任用
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-创业板人工智能ETF华宝（159363）基金经理 曹旭辰 自美伊战争谈判预期以来，纳斯达克指数开启了11连阳，主要美股指数回归高位。除了AI算力板块的再创新高，近期我们注意到两个新变化：（1）以亚马逊为代表的云/算力租赁公司大涨；（2）昨晚美股软件公司集体反弹，下跌了5个多月的IGV ETF （扩展科技软件行业ETF）有了筑底的迹象。 到目前为止，2026年科技板块交易的关键点
+新华社5月30日消息，日前，中共中央决定：关志鸥同志任湖北省委委员、常委、书记；王忠林同志不再担任湖北省委书记、常委、委员职务，另有任用。 公开简历显示，关志鸥，男，满族，1969年12月生，研究生学历，理学博士学位，中共党员，二十届中央候补委员。 关志鸥曾任辽宁省委常委、省总工会主席，山东省委常委、宣传部部长，自然资源部党组成员，国家林业和草原局（国家公园管理局）党组书记、局
 
 ## 正文
 
-创业板人工智能ETF华宝（159363）基金经理 曹旭辰 自美伊战争谈判预期以来，纳斯达克指数开启了11连阳，主要美股指数回归高位。
+新华社5月30日消息，日前，中共中央决定：关志鸥同志任湖北省委委员、常委、书记；王忠林同志不再担任湖北省委书记、常委、委员职务，另有任用。
 
-除了AI算力板块的再创新高，近期我们注意到两个新变化：（1）以亚马逊为代表的云/算力租赁公司大涨；（2）昨晚美股软件公司集体反弹，下跌了5个多月的IGV ETF （扩展科技软件行业ETF）有了筑底的迹象。
+公开简历显示，关志鸥，男，满族，1969年12月生，研究生学历，理学博士学位，中共党员，二十届中央候补委员。
 
-到目前为止，2026年科技板块交易的关键点在于Anthropic ARR（年化收入）的大幅提升，已经超越OpenAI。
+关志鸥曾任辽宁省委常委、省总工会主席，山东省委常委、宣传部部长，自然资源部党组成员，国家林业和草原局（国家公园管理局）党组书记、局长等职，2024年12月任自然资源部党组书记、部长，国家自然资源总督察，至此番履新。
 
-从表面上看是OpenClaw（小龙虾）促成了ARR增长速度的变化，但本质是思维链路较长、重视生产力革命的coding/Agent需求增速，显著高于相对单一的信息检索、多模态需求增速。
+公开简历显示，王忠林，男，汉族，1962年8月出生，山东费县人，在职研究生、管理学博士，1984年6月加入中国共产党，1984年7月参加工作。
 
-所以结果是，Anthropic份额越来越高，而OpenAI无奈关闭了SORA。
+二十届中央委员。
 
-由此我们对于AI投资的思考有所更新： 首先，从接下来一个季度看，OpenAI、xAI、DeepSeek、腾讯等国内外厂商都将陆续更新模型，各方都预期有惊艳之处，因此，我们的前提假设是AI时代大模型的胜出者远未明确，当前仍处于竞争的初期阶段。
+王忠林曾任山东省济南市市长，山东省委常委、济南市委书记，湖北省委常委、武汉市委书记，2021年5月任湖北省省长，2024年12月任湖北省委书记，至此番调整。
 
-Anthropic不一定是最后胜者。
-
-今年以来，在Anthropic快速增长的带动下，AI硬件板块呈现出高估值或强预期，软件和互联网厂商被无限杀估值。
+来源 新京报政事儿责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 21:14 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 21:04 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 21:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 21:11 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 20:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 21:05 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 21:01 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 20:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 20:55 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 21:06 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 21:08 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 21:12 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:10 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 21:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 21:14 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 21:21 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 20:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 21:06 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 20:58 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 21:05 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 20:54 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/247658400.shtml)
-- 2026-06-29 21:07 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/629663124.shtml)
-- 2026-06-29 20:49 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/9708570.shtml)
-- 2026-06-29 21:13 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/51493.shtml)
-- 2026-06-29 21:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/791384041146.shtml)
-- 2026-06-29 20:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/8596051.shtml)
-- 2026-06-29 21:08 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/0235856.shtml)
-- 2026-06-29 21:13 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/68762145615.shtml)
-- 2026-06-29 20:49 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/40339732.shtml)
-- 2026-06-29 21:12 - [金刚川](https://www.share.kurohicncr.top/Article/details/5367434923.shtml)
-- 2026-06-29 21:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/64017791874.shtml)
-- 2026-06-29 21:06 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/815558257525.shtml)
-- 2026-06-29 20:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/991275969.shtml)
-- 2026-06-29 21:11 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/047537709.shtml)
-- 2026-06-29 21:11 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/65233680770.shtml)
+- 2026-06-29 21:11 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/91862.shtml)
+- 2026-06-29 21:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/49114.shtml)
+- 2026-06-29 21:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/675571325.shtml)
+- 2026-06-29 21:10 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/198487347792.shtml)
+- 2026-06-29 21:03 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/331859756.shtml)
+- 2026-06-29 21:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/363397018.shtml)
+- 2026-06-29 21:22 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/14631630700.shtml)
+- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/0704962.shtml)
+- 2026-06-29 21:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/335440354.shtml)
+- 2026-06-29 21:17 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/22809241361.shtml)
+- 2026-06-29 21:23 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/57185816.shtml)
+- 2026-06-29 21:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/7548538.shtml)
+- 2026-06-29 20:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/5203703077.shtml)
+- 2026-06-29 21:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/258337.shtml)
+- 2026-06-29 21:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/13111784314.shtml)

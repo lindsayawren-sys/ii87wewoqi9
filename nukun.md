@@ -1,56 +1,48 @@
-# 伊朗称霍尔木兹海峡现对商船全面开放
+# 塔斯尼姆通讯社：伊朗声称击落一架美国-以色列无人机
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-伊朗宣布，霍尔木兹海峡现已对商业航运“完全开放”，这标志着结束与美国和以色列战争的进程迈出重要一步。战争已推动能源价格大涨。 伊朗外长阿巴斯·阿拉格齐在X平台表示：“按照黎巴嫩停火安排，霍尔木兹海峡现宣布在停火剩余期间对所有商业船只通行全面开放。”他说，船只可按照伊朗当局“已经公布的协调路线”航行。 美国总统唐纳德·特朗普周四晚间宣布，黎巴嫩和以色列将停火10天。这一关键举措缓
+据伊朗半官方的塔斯尼姆通讯社援引伊朗军方消息报道，伊朗声称在伊朗格什姆岛击落了一架美国-以色列无人机。 塔斯尼姆通讯社称，无人机立即被摧毁。责任编辑：丁文武
 
 ## 正文
 
-伊朗宣布，霍尔木兹海峡现已对商业航运“完全开放”，这标志着结束与美国和以色列战争的进程迈出重要一步。
+据伊朗半官方的塔斯尼姆通讯社援引伊朗军方消息报道，伊朗声称在伊朗格什姆岛击落了一架美国-以色列无人机。
 
-战争已推动能源价格大涨。
+塔斯尼姆通讯社称，无人机立即被摧毁。
 
-伊朗外长阿巴斯·阿拉格齐在X平台表示：“按照黎巴嫩停火安排，霍尔木兹海峡现宣布在停火剩余期间对所有商业船只通行全面开放。
-
-”他说，船只可按照伊朗当局“已经公布的协调路线”航行。
-
-美国总统唐纳德·特朗普周四晚间宣布，黎巴嫩和以色列将停火10天。
-
-这一关键举措缓解了与伊朗之间的紧张局势。
-
-责任编辑：江学思
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 21:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 21:00 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 20:48 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 20:49 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 20:56 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 21:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 20:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 21:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 20:52 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 21:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 20:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 21:15 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 21:18 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 21:16 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:21 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 21:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 21:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 21:07 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 21:06 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 21:17 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 20:57 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 21:19 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 20:59 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/670569483972.shtml)
-- 2026-06-29 21:05 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/83283197411.shtml)
-- 2026-06-29 21:00 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/774239.shtml)
-- 2026-06-29 20:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/81188659426.shtml)
-- 2026-06-29 21:02 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/769592432.shtml)
-- 2026-06-29 21:12 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/249911065.shtml)
-- 2026-06-29 21:12 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/902171914892.shtml)
-- 2026-06-29 21:15 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/6863993277.shtml)
-- 2026-06-29 21:12 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/8410300132.shtml)
-- 2026-06-29 21:15 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/307136.shtml)
-- 2026-06-29 21:16 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/41109270.shtml)
-- 2026-06-29 21:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/116230.shtml)
-- 2026-06-29 20:49 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/27985.shtml)
-- 2026-06-29 21:04 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/651408777660.shtml)
-- 2026-06-29 20:55 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/6566965562.shtml)
+- 2026-06-29 21:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/594955279.shtml)
+- 2026-06-29 21:03 - [沙丘](http://www.share.minike.top/Article/details/200416046.shtml)
+- 2026-06-29 20:58 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/5141883577.shtml)
+- 2026-06-29 21:20 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/175545276.shtml)
+- 2026-06-29 21:15 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/336403738733.shtml)
+- 2026-06-29 21:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/5452746582.shtml)
+- 2026-06-29 20:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/831976159.shtml)
+- 2026-06-29 21:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/63718331.shtml)
+- 2026-06-29 21:08 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/83750105069.shtml)
+- 2026-06-29 21:09 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/071735544.shtml)
+- 2026-06-29 21:15 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/500543.shtml)
+- 2026-06-29 20:54 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/3432060452.shtml)
+- 2026-06-29 21:22 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/71156069.shtml)
+- 2026-06-29 21:11 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/62929.shtml)
+- 2026-06-29 21:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/0408594.shtml)

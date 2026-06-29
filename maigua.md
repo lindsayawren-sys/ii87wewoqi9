@@ -1,50 +1,57 @@
-# “海洋二十六号”海洋综合调查船将参加国际海道测量组织第四届大会
+# “小而美”消费新空间变身文旅消费前沿 “新项目+新场景”丰富消费体验
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网4月17日电 据“国防部发布”微信公众号消息，4月17日下午，国防部新闻发言人张晓刚大校就近期涉军问题发布消息。 4月中下旬，中国海军“海洋二十六号”海洋综合调查船将赴摩纳哥参加国际海道测量组织第四届大会，并举行舰艇开放等活动。该船由我国自主设计建造，执行除极地外全球海洋高精度调查测量任务，还可开展海上联合搜救等行动。
+央视网消息：城市的边角空间、老旧商圈和闲置建筑也能变身文旅消费前沿，我们去各地看看新探索。 热辣的桑巴舞、滋滋作响的巴西烤肉，风格多元化的特色美食市集最近频繁亮相上海商业街区。 闵行虹桥街道的“老外街”，这个运营20年的老牌国际街区曾因靠近虹桥机场成为外籍人士聚集地，最多的时候一度有20多个外国餐厅扎堆。但随着设施老旧、业态单一，逐渐与年轻消费者渐行渐远。 老厂房改造为艺术家工
 
 ## 正文
 
-中新网4月17日电 据“国防部发布”微信公众号消息，4月17日下午，国防部新闻发言人张晓刚大校就近期涉军问题发布消息。
+央视网消息：城市的边角空间、老旧商圈和闲置建筑也能变身文旅消费前沿，我们去各地看看新探索。
 
-4月中下旬，中国海军“海洋二十六号”海洋综合调查船将赴摩纳哥参加国际海道测量组织第四届大会，并举行舰艇开放等活动。
+热辣的桑巴舞、滋滋作响的巴西烤肉，风格多元化的特色美食市集最近频繁亮相上海商业街区。
 
-该船由我国自主设计建造，执行除极地外全球海洋高精度调查测量任务，还可开展海上联合搜救等行动。
+闵行虹桥街道的“老外街”，这个运营20年的老牌国际街区曾因靠近虹桥机场成为外籍人士聚集地，最多的时候一度有20多个外国餐厅扎堆。
+
+但随着设施老旧、业态单一，逐渐与年轻消费者渐行渐远。
+
+老厂房改造为艺术家工作室和非遗体验工坊，剧场、宠物乐园、艺术画廊等多元业态也被引入，昔日的餐饮一条街变身为活力街区。
+
+“微更新”的背后是属地政府管理思路的转变——不搞大拆大建，而是因地制宜、精准施策。
+
+不仅是上海，很多地方今年都加强了对边角空间和闲置建筑的巧妙利用。
+
+四川成都对桥下、街旁、屋顶、滨河、低效绿地等7类城市剩余空间进行合理利用改造，变成运动休闲场所和消费空间。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 20:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 20:58 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 21:03 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 21:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 21:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 21:11 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 20:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 21:06 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 21:17 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 20:49 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 21:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:48 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 21:05 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 20:56 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 21:22 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 21:17 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 21:21 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 20:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 21:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 21:14 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 20:57 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 21:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 20:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 20:58 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/44709912943.shtml)
-- 2026-06-29 21:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/03304630.shtml)
-- 2026-06-29 21:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/1543626935.shtml)
-- 2026-06-29 21:10 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/359440.shtml)
-- 2026-06-29 20:58 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/22073778.shtml)
-- 2026-06-29 21:14 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/71471091816.shtml)
-- 2026-06-29 21:11 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/8414429880.shtml)
-- 2026-06-29 20:48 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/351296266161.shtml)
-- 2026-06-29 21:02 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/75270178.shtml)
-- 2026-06-29 20:49 - [天道](http://www.share.kurohicncr.top/Article/details/44078874.shtml)
-- 2026-06-29 20:53 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/953636625727.shtml)
-- 2026-06-29 21:08 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/59788.shtml)
-- 2026-06-29 21:12 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/094427251612.shtml)
-- 2026-06-29 20:51 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/02458.shtml)
-- 2026-06-29 20:53 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/262975192.shtml)
+- 2026-06-29 21:07 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/79296771675.shtml)
+- 2026-06-29 20:56 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/12909.shtml)
+- 2026-06-29 21:21 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/14015992908.shtml)
+- 2026-06-29 20:59 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/20823.shtml)
+- 2026-06-29 21:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/1261896.shtml)
+- 2026-06-29 21:20 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/014942.shtml)
+- 2026-06-29 20:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/90186.shtml)
+- 2026-06-29 21:01 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/19619079.shtml)
+- 2026-06-29 21:01 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/412408.shtml)
+- 2026-06-29 21:22 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/355368882.shtml)
+- 2026-06-29 21:09 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/70420990175.shtml)
+- 2026-06-29 20:59 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/4726490512.shtml)
+- 2026-06-29 21:17 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/707583544232.shtml)
+- 2026-06-29 21:04 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/44079.shtml)
+- 2026-06-29 21:16 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/99445.shtml)

@@ -1,58 +1,60 @@
-# 东西问丨全球能源咽喉遭“双锁”，中国为何“不着急”？
+# 报告显示法国连续第七年蝉联欧洲外商投资首选目的地
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电 题：全球能源咽喉遭“双锁”，中国为何“不着急”？ 作者 贺劭清 李嘉茵 伊美谈判无果而终后，美国总统特朗普一边说着不在意是否重回谈判桌，一边下令给原本就受阻的霍尔木兹海峡再加“一把大锁”。 霍尔木兹海峡素有“世界油阀”之称。全球四分之一以上的海运石油、约五分之一的液化天然气，经由这里运往世界各地。 彭博社报道称，包括日本和韩国等美国盟友在内的亚洲国家，所
+中新网巴黎5月29日电 《2026年欧洲投资吸引力调查报告》近日发布，该报告对欧洲的外商投资决策进行跟踪与分析，同时评估国际企业家对法国的认知。报告显示，法国连续第七年蝉联欧洲外商投资首选目的地，2025年共吸引852个投资项目。本月底发布的这份报告显示，法国在工业投资领域的吸引力得到巩固。2025年，法国吸引了354个外资的工业投资项目，占全部投资项目的42%，持续保持其在欧
 
 ## 正文
 
-中新网北京4月16日电 题：全球能源咽喉遭“双锁”，中国为何“不着急”？
+中新网巴黎5月29日电 《2026年欧洲投资吸引力调查报告》近日发布，该报告对欧洲的外商投资决策进行跟踪与分析，同时评估国际企业家对法国的认知。
 
-作者 贺劭清 李嘉茵 伊美谈判无果而终后，美国总统特朗普一边说着不在意是否重回谈判桌，一边下令给原本就受阻的霍尔木兹海峡再加“一把大锁”。
+报告显示，法国连续第七年蝉联欧洲外商投资首选目的地，2025年共吸引852个投资项目。
 
-霍尔木兹海峡素有“世界油阀”之称。
+本月底发布的这份报告显示，法国在工业投资领域的吸引力得到巩固。
 
-全球四分之一以上的海运石油、约五分之一的液化天然气，经由这里运往世界各地。
+2025年，法国吸引了354个外资的工业投资项目，占全部投资项目的42%，持续保持其在欧洲制造业投资领域的首要地位。
 
-彭博社报道称，包括日本和韩国等美国盟友在内的亚洲国家，所使用的能源中，超过80%通常经由霍尔木兹海峡运输。
+法国在吸引企业成立区域总部方面亦取得进展，相关项目数量同比增长17%，在欧洲排名第二。
 
-最新事态发展，意味着油价上涨，经济增长将受到更大冲击，通胀也将进一步上升。
+同时，法国继续巩固其在科技及战略主权相关领域的重要枢纽地位。
 
-全球能源咽喉遭“双锁”，外媒普遍预期中国会高度紧张、急于外交斡旋，甚至被迫在冲突中选边。
+报告认为，法国仍是欧洲吸引人工智能领域外资项目的首要目的地，相关项目数量同比增长26%；软件及信息技术服务、国防及低碳能源等行业，是推动其吸引力回升的主要动力。
 
-彭博经济研究分析师也预测，受到影响的中国可能会向美国施压，促使其解除封锁。
+报告说，法国的核心优势仍在于庞大的市场规模、突出的创新能力、高质量的基础设施、充足的低碳能源供应以及高素质的人才队伍。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 21:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 20:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 21:04 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 21:06 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 21:16 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 21:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 20:59 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 21:09 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 21:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 20:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 21:16 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 21:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 21:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 20:59 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 21:06 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 21:01 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 21:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 21:00 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 20:56 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 21:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 20:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/493217313141.shtml)
-- 2026-06-29 21:00 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/380829378.shtml)
-- 2026-06-29 21:11 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/52892198.shtml)
-- 2026-06-29 20:53 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/489279.shtml)
-- 2026-06-29 20:56 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/20464.shtml)
-- 2026-06-29 21:05 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/68413.shtml)
-- 2026-06-29 21:05 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/987679765627.shtml)
-- 2026-06-29 21:02 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/75721.shtml)
-- 2026-06-29 21:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/31326900810.shtml)
-- 2026-06-29 21:10 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/19456109.shtml)
-- 2026-06-29 21:02 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/3271998.shtml)
-- 2026-06-29 20:51 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/63629136683.shtml)
-- 2026-06-29 21:00 - [极限挑战第一季](http://www.blog.minike.top/Article/details/45980.shtml)
-- 2026-06-29 20:48 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/87884379779.shtml)
-- 2026-06-29 20:59 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/6043861969.shtml)
+- 2026-06-29 21:05 - [女心理师](http://www.share.kurohicncr.top/Article/details/382820.shtml)
+- 2026-06-29 21:23 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/84047476121.shtml)
+- 2026-06-29 21:23 - [周生如故](https://www.share.kurohicncr.top/Article/details/971488700835.shtml)
+- 2026-06-29 21:22 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/169385329501.shtml)
+- 2026-06-29 21:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/35493386.shtml)
+- 2026-06-29 21:03 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/374534540.shtml)
+- 2026-06-29 21:13 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/2446557519.shtml)
+- 2026-06-29 21:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/836915.shtml)
+- 2026-06-29 21:15 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/2970247.shtml)
+- 2026-06-29 21:22 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/74004146760.shtml)
+- 2026-06-29 21:07 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/67776776.shtml)
+- 2026-06-29 20:59 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/623189.shtml)
+- 2026-06-29 21:08 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/572261856.shtml)
+- 2026-06-29 21:13 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/55500057750.shtml)
+- 2026-06-29 21:13 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/52885797556.shtml)

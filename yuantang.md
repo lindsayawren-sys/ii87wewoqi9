@@ -1,61 +1,57 @@
-# 中方回应黎以停火：欢迎一切有助于停火止战的努力
+# 英国首相斯塔默的热门继任者呼吁对产业及人工智能实施强有力的公共管控
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月17日电 (记者 张蔚然)中国外交部发言人郭嘉昆17日在例行记者会上就黎以停火表示，中方欢迎一切有助于停火止战的努力。 有记者提问，据报道，黎巴嫩和以色列于当地时间17日正式开始停火，为期10天，但黎巴嫩军方警告称停火协议遭到违反。请问中方有何评论？ 郭嘉昆表示，中方欢迎一切有助于停火止战的努力，希望相关方以负责任态度保持停火和谈判势头，通过政治外交途径化解争端。
+有望撼动英国首相基尔・斯塔默执政地位的政界人士安迪・伯纳姆表示，一旦重返中央政府，他将推动对人工智能、大型科技企业及重点行业实施更严格的监管。 这位工党政客、大曼彻斯特市市长周四晚间在英国媒体发文章称：“我们不能忘记，2008 年金融危机爆发的主要原因就是监管缺位。” “那么，如今再掀起一轮放松监管的浪潮，又怎能解决我们此后遭遇的种种问题？这种思路只会让我们重蹈覆辙。倘若疏于对
 
 ## 正文
 
-中新社北京4月17日电 (记者 张蔚然)中国外交部发言人郭嘉昆17日在例行记者会上就黎以停火表示，中方欢迎一切有助于停火止战的努力。
+有望撼动英国首相基尔・斯塔默执政地位的政界人士安迪・伯纳姆表示，一旦重返中央政府，他将推动对人工智能、大型科技企业及重点行业实施更严格的监管。
 
-有记者提问，据报道，黎巴嫩和以色列于当地时间17日正式开始停火，为期10天，但黎巴嫩军方警告称停火协议遭到违反。
+这位工党政客、大曼彻斯特市市长周四晚间在英国媒体发文章称：“我们不能忘记，2008 年金融危机爆发的主要原因就是监管缺位。
 
-请问中方有何评论？
+” “那么，如今再掀起一轮放松监管的浪潮，又怎能解决我们此后遭遇的种种问题？
 
-郭嘉昆表示，中方欢迎一切有助于停火止战的努力，希望相关方以负责任态度保持停火和谈判势头，通过政治外交途径化解争端。
+这种思路只会让我们重蹈覆辙。
 
-当日还有记者提问，世界各国将庆祝古巴在“猪湾事件”中取得的胜利，并谴责美国不断强化对古巴的封锁。
+倘若疏于对社交媒体、人工智能和大型科技企业进行监管，我们甚至连保护未成年人都无从谈起。
 
-中国不仅在口头上声援古巴，还为古巴提供了诸多支持。
-
-据美国媒体报道，本周美国国防部正准备针对古巴采取可能的军事行动。
-
-请问中方有何评论？
+”责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 21:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 20:49 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 21:05 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 21:17 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 21:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 21:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 21:07 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:13 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 21:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 21:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 20:56 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 20:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 20:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 20:50 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 20:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 21:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:09 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 20:58 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 20:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 21:03 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 21:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 21:04 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 21:04 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 21:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 20:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 21:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 21:12 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 21:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 21:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/8402619.shtml)
-- 2026-06-29 20:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/894393.shtml)
-- 2026-06-29 21:06 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/903111.shtml)
-- 2026-06-29 20:53 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/8843633650.shtml)
-- 2026-06-29 21:12 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/2442869.shtml)
-- 2026-06-29 21:05 - [速度与激情9](https://www.blog.minike.top/Article/details/127809171030.shtml)
-- 2026-06-29 21:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/2034297.shtml)
-- 2026-06-29 21:00 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/85778.shtml)
-- 2026-06-29 21:08 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/70593.shtml)
-- 2026-06-29 20:58 - [请回答王牌2019](https://www.blog.minike.top/Article/details/57916318.shtml)
-- 2026-06-29 21:14 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/72504349440.shtml)
-- 2026-06-29 20:56 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/395093.shtml)
-- 2026-06-29 21:01 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/6795607.shtml)
-- 2026-06-29 21:07 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/655870.shtml)
-- 2026-06-29 21:03 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/024892.shtml)
+- 2026-06-29 20:54 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/69488.shtml)
+- 2026-06-29 21:21 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/462104623.shtml)
+- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/4996889703.shtml)
+- 2026-06-29 21:17 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/69521.shtml)
+- 2026-06-29 20:57 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/617864619.shtml)
+- 2026-06-29 21:01 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/98805039476.shtml)
+- 2026-06-29 21:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/4840141127.shtml)
+- 2026-06-29 21:02 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/2493775.shtml)
+- 2026-06-29 21:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/122283.shtml)
+- 2026-06-29 20:55 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/80433414685.shtml)
+- 2026-06-29 20:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/319037.shtml)
+- 2026-06-29 20:56 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/66576675.shtml)
+- 2026-06-29 21:15 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/758160.shtml)
+- 2026-06-29 21:00 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/807019518422.shtml)
+- 2026-06-29 21:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/38317651209.shtml)

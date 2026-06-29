@@ -1,60 +1,56 @@
-# 陆军某旅着力培养过硬兵棋骨干队伍
+# 支点筑新科创赋能 广发银行持续深化科技支行建设
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-陆军某旅着力培养过硬兵棋骨干队伍 “指尖博弈”练兵又练脑 本报讯 李芊逸报道：键盘声声，厮杀无形。暮春时节，陆军某旅组织一场电子兵棋强化训练，指挥员紧盯屏幕，密切关注瞬息万变的战场态势，沉着冷静地在方寸屏幕上“调兵遣将”。 “迅速对‘敌’前沿左翼障碍实施间瞄打击。”随着炮兵火力席刘参谋指令下达，操作手迅速找到相应棋子，选中预定打击目标区域。电子大屏很快显示，火箭弹精准命中目标，
+科技支行是金融赋能科技创新最具活力、最具延展性和持续性的市场触角、前沿阵地，是做好科技金融大文章的重要支点。2025年，广东金融监管局制定出台关于全面加强科技支行建设的专项通知，提出以做专、做优、做强一批产品特色化、制度差异化、管理体系化、服务多元化的科技支行为着力点，推动广东科技金融服务实现“量”与“质”的全面提升。 作为总部位于粤港澳大湾区的全国性股份制商业银行，广发银行深
 
 ## 正文
 
-陆军某旅着力培养过硬兵棋骨干队伍 “指尖博弈”练兵又练脑 本报讯 李芊逸报道：键盘声声，厮杀无形。
+科技支行是金融赋能科技创新最具活力、最具延展性和持续性的市场触角、前沿阵地，是做好科技金融大文章的重要支点。
 
-暮春时节，陆军某旅组织一场电子兵棋强化训练，指挥员紧盯屏幕，密切关注瞬息万变的战场态势，沉着冷静地在方寸屏幕上“调兵遣将”。
+2025年，广东金融监管局制定出台关于全面加强科技支行建设的专项通知，提出以做专、做优、做强一批产品特色化、制度差异化、管理体系化、服务多元化的科技支行为着力点，推动广东科技金融服务实现“量”与“质”的全面提升。
 
-“迅速对‘敌’前沿左翼障碍实施间瞄打击。
+作为总部位于粤港澳大湾区的全国性股份制商业银行，广发银行深度融入广东省科技金融生态布局，多家支行入选国家金融监督管理总局广东监管局首批科技支行试点。
 
-”随着炮兵火力席刘参谋指令下达，操作手迅速找到相应棋子，选中预定打击目标区域。
+广发银行聚焦机制创新、产品适配、服务提效多点发力，持续擦亮科技支行“专业化”招牌，助力广东科技金融高质量发展。
 
-电子大屏很快显示，火箭弹精准命中目标，“敌”前沿左翼障碍被精准摧毁。
+从“纸面”到“地面”，让专业服务扎根产业沃土 广发银行立足科技支行专营定位，将专属机制优势、特色产品体系转化为高效的落地服务，精准滴灌不同发展阶段的科创企业，让金融赋能真正扎根产业、惠及实体。
 
-据介绍，为充分发挥电子兵棋系统对培育打仗人才的“催化剂”作用，他们从各营连遴选训练基础扎实的干部和军士担任兵棋操作手，并选派机关参谋担任战术指挥员，集中组织兵棋骨干强化训练，着力培养一支综合素质过硬的兵棋骨干队伍。
+广州分行增城开发区支行牢牢抓住广州增城区打造“广州东部先进制造业核心承载区”的契机，依托区域良好的科技产业基础及完善的政策支持，为科技企业提供定制化综合金融服务，推出“益企启航-科创贷”“益企扬帆-投联贷”“益企远航-新质贷”等产品专案，打造全生命周期产品体系，覆盖科技企业初创期、成长期及成熟期需求，全力支持制造业科技转型、新能源、物流科技、生物医药等重点领域。
 
-“我们将战术运用贯穿强化训练全过程，极大增强了训练内容的实战性、实用性、实效性。
+广州某科技公司作为广州增城属地国家级专精特新中小企业、高新技术企业，业务涵盖人工智能、大数据分析、云计算及物联网等领域，致力于提供智能化、数字化的系统集成与软件开发服务。
 
-”该旅领导介绍，以往组织兵棋训练多以技术操作为主，不少官兵出现会操作却不懂战法的现象。
+自2011年以来，支行持续优化企业专属服务方案，精准对接其技术研发、产能扩张及产业链布局的多元化资金需求，2026年累计向该企业投放贷款超1700万元，助力企业显著提升研发能力与市场竞争力。
 
 ## 相关推荐
 
-- 2026-06-29 20:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 20:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 21:15 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 21:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 20:56 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:57 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 20:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 20:48 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 21:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 20:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 21:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 20:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 20:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 20:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 21:17 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 21:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 20:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 21:05 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 21:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 21:06 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 21:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 21:14 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/437353736.shtml)
-- 2026-06-29 21:00 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/77598910842.shtml)
-- 2026-06-29 20:48 - [速度与激情9](https://www.share.minike.top/Article/details/377413.shtml)
-- 2026-06-29 21:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/118821.shtml)
-- 2026-06-29 21:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/2984287.shtml)
-- 2026-06-29 21:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/77461.shtml)
-- 2026-06-29 20:58 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/424869170771.shtml)
-- 2026-06-29 21:06 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/66532922.shtml)
-- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/837464569751.shtml)
-- 2026-06-29 21:11 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/6617263.shtml)
-- 2026-06-29 21:06 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/398798094.shtml)
-- 2026-06-29 20:50 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/418995581.shtml)
-- 2026-06-29 21:07 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/237536252335.shtml)
-- 2026-06-29 21:14 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/132932.shtml)
-- 2026-06-29 20:53 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/689852.shtml)
+- 2026-06-29 21:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/392178824583.shtml)
+- 2026-06-29 21:10 - [爱很美味](http://www.share.kurohicncr.top/Article/details/1111618725.shtml)
+- 2026-06-29 21:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/5398762672.shtml)
+- 2026-06-29 21:06 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/09770967.shtml)
+- 2026-06-29 21:12 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/265078.shtml)
+- 2026-06-29 21:11 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/80610.shtml)
+- 2026-06-29 21:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/10531368.shtml)
+- 2026-06-29 21:02 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/5297269045.shtml)
+- 2026-06-29 21:09 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/0250638.shtml)
+- 2026-06-29 21:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/028106.shtml)
+- 2026-06-29 20:58 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/52485632180.shtml)
+- 2026-06-29 21:13 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/78662024603.shtml)
+- 2026-06-29 21:11 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/253108841.shtml)
+- 2026-06-29 21:16 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/5473319040.shtml)
+- 2026-06-29 20:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/6502858.shtml)

@@ -1,50 +1,61 @@
-# 浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车
+# 世界名校儒学辩论邀请赛（乌什赛区）落幕
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-【欧洲专线】浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车 中新社浙江义乌4月17日电 (董易鑫)浙江义乌至俄罗斯莫斯科双枢纽互联班列4月17日从义乌西站正式发车，全程运输时效压缩至15天。 据悉，此次班列依托金华(义乌)中欧班列集结中心、中铁集装箱俄罗斯(莫斯科)中欧班列集结中心两大核心枢纽，由中铁集装箱公司与浙江中欧班列运营平台联合组织开行，旨在打造双向枢纽互联、境内外协同高
+中新网新疆乌什5月29日电 29日，为期三天的世界名校儒学辩论邀请赛(乌什赛区)在新疆阿克苏地区乌什县落下帷幕。 本次赛事汇聚北京大学、中国人民大学等12所国内外名校辩手同台竞技，在唇枪舌战中传承儒学经典，在思想交锋中讲述乌什故事。参赛学子各展所长、妙语连珠，既深挖乌什千年人文底蕴，又展望县域发展崭新蓝图。古老的儒家智慧与新时代的发展命题相融共生，不仅为这场辩论盛会赋予深厚内涵
 
 ## 正文
 
-【欧洲专线】浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车 中新社浙江义乌4月17日电 (董易鑫)浙江义乌至俄罗斯莫斯科双枢纽互联班列4月17日从义乌西站正式发车，全程运输时效压缩至15天。
+中新网新疆乌什5月29日电 29日，为期三天的世界名校儒学辩论邀请赛(乌什赛区)在新疆阿克苏地区乌什县落下帷幕。
 
-据悉，此次班列依托金华(义乌)中欧班列集结中心、中铁集装箱俄罗斯(莫斯科)中欧班列集结中心两大核心枢纽，由中铁集装箱公司与浙江中欧班列运营平台联合组织开行，旨在打造双向枢纽互联、境内外协同高效的班列运营新模式。
+本次赛事汇聚北京大学、中国人民大学等12所国内外名校辩手同台竞技，在唇枪舌战中传承儒学经典，在思想交锋中讲述乌什故事。
 
-浙江中欧班列(义乌—俄罗斯)自2016年首发以来，通道运行持续稳定、运输时效稳步提升，综合服务水平与跨境物流成本竞争力不断增强，更好满足了市场对高效跨境运输的需求。
+参赛学子各展所长、妙语连珠，既深挖乌什千年人文底蕴，又展望县域发展崭新蓝图。
 
-近年来，浙江中欧班列持续完善运行网络，在俄罗斯莫斯科、德国杜伊斯堡、哈萨克斯坦阿拉木图、乌兹别克斯坦塔什干等地建设海外集散中心，并与27条国际铁路货运线路实现高效联动，逐步形成覆盖50多个国家、160多个城市的国际物流网络，构建起“境内集结、海外分拨”的运行体系。
+古老的儒家智慧与新时代的发展命题相融共生，不仅为这场辩论盛会赋予深厚内涵，更让更多人看见乌什山水之美、文脉之盛、发展之势，为当地文化传承与文旅发展注入了青春活力。
 
-(完)
+经过激烈角逐，湖南大学和北京大学成功挺进决赛。
+
+决赛辩论中，双方辩手以“当代修身，应以仁养心/以礼立行”为题展开激烈辩论，决赛邀请到西安交通大学普通话辩论队教练、中国逻辑学会批判性思维专业委员会常务委员张爱萍，塑说教育创始人刘烜赫，四川大学辩论队教练、中高考语文教学名师、青年作家仇文佳担任评委。
+
+经过专业裁定，最终北京大学战胜湖南大学，夺得世界名校儒学辩论邀请赛(乌什赛区)冠军。
+
+湖南大学的夏潇航同学摘得本次乌什赛区的全程最佳辩手殊荣。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 21:14 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 20:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 20:53 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 21:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 20:57 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:01 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 21:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 21:13 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 20:48 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 21:07 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 21:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 20:59 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 21:09 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 21:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 21:17 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 21:00 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 21:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 21:18 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 21:01 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 21:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 21:17 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 21:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 20:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/070165.shtml)
-- 2026-06-29 21:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/74654260130.shtml)
-- 2026-06-29 21:05 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/74611116013.shtml)
-- 2026-06-29 21:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/3226660.shtml)
-- 2026-06-29 21:00 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/331470307687.shtml)
-- 2026-06-29 20:48 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/873340488765.shtml)
-- 2026-06-29 20:57 - [美人鱼](http://www.share.kurohicncr.top/Article/details/76565.shtml)
-- 2026-06-29 20:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/784403.shtml)
-- 2026-06-29 21:01 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/2608760711.shtml)
-- 2026-06-29 21:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/636897.shtml)
-- 2026-06-29 20:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/37891.shtml)
-- 2026-06-29 20:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/299166.shtml)
-- 2026-06-29 21:07 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/262486589826.shtml)
-- 2026-06-29 21:16 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/0775086.shtml)
-- 2026-06-29 21:06 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/653342319657.shtml)
+- 2026-06-29 21:06 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/83697290.shtml)
+- 2026-06-29 20:57 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/715242.shtml)
+- 2026-06-29 21:21 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/32932.shtml)
+- 2026-06-29 21:20 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/273183829117.shtml)
+- 2026-06-29 21:00 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/8880554558.shtml)
+- 2026-06-29 20:56 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/2328775.shtml)
+- 2026-06-29 21:09 - [逃狱兄弟](http://www.blog.minike.top/Article/details/9576609.shtml)
+- 2026-06-29 21:02 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/5176027.shtml)
+- 2026-06-29 20:59 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/212768.shtml)
+- 2026-06-29 21:01 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/9823194.shtml)
+- 2026-06-29 21:12 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/44734108.shtml)
+- 2026-06-29 21:05 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/58158498.shtml)
+- 2026-06-29 21:15 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/83458.shtml)
+- 2026-06-29 21:19 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/137203315.shtml)
+- 2026-06-29 21:06 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/74010791361.shtml)

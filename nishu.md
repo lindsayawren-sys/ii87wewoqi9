@@ -1,57 +1,56 @@
-# 中国智造亮相广交会 从“单品竞争”走向“生态串联”
+# 前4月新能源汽车出口激增1.2倍 业界呼吁推动中国标准“出海”
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网广州4月17日电 (记者 王坚)第139届中国进出口商品交易会(广交会)正在广州举行。本届广交会聚焦“新、优、专、实”四大特点，汇聚全球客商，搭建中外企业双向奔赴的贸易桥梁。无人机(消费级)、智能穿戴、显示技术、农用无人机等中国智造产品亮相广交会，展现中国智造从“单品竞争”走向“生态串联”的全新发展路径。 广东晔生航空科技有限公司的展位上，两款造型新颖的eVTOL(电动垂
+中新网天津5月29日电 (记者 杨子炀)中国新能源汽车全球化布局正跑出“加速度”。最新数据显示，今年前4个月，中国新能源汽车出口达到138.4万辆，同比增长1.2倍。 近日于天津召开的"智造跃升·价值共创，新能源汽车新引擎新生态”主题的“现代新国企”研讨会上，多位业内人士表示，在中国汽车产品加速走向世界的同时，更需推动中国技术标准“出海”，为全球用户提供高质量服务。 会议指出，
 
 ## 正文
 
-中新网广州4月17日电 (记者 王坚)第139届中国进出口商品交易会(广交会)正在广州举行。
+中新网天津5月29日电 (记者 杨子炀)中国新能源汽车全球化布局正跑出“加速度”。
 
-本届广交会聚焦“新、优、专、实”四大特点，汇聚全球客商，搭建中外企业双向奔赴的贸易桥梁。
+最新数据显示，今年前4个月，中国新能源汽车出口达到138.4万辆，同比增长1.2倍。
 
-无人机(消费级)、智能穿戴、显示技术、农用无人机等中国智造产品亮相广交会，展现中国智造从“单品竞争”走向“生态串联”的全新发展路径。
+近日于天津召开的"智造跃升·价值共创，新能源汽车新引擎新生态”主题的“现代新国企”研讨会上，多位业内人士表示，在中国汽车产品加速走向世界的同时，更需推动中国技术标准“出海”，为全球用户提供高质量服务。
 
-广东晔生航空科技有限公司的展位上，两款造型新颖的eVTOL(电动垂直起降飞行器)吸引了众多采购商的注意。
+会议指出，2025年我国新能源汽车产销分别完成1662.6万辆和1649万辆，已连续11年位居全球第一。
 
-来自非洲的采购商马努菲坐上一款水陆双栖eVTOL体验，连连称赞：“这款飞行器非常好，尤其是在一些道路设施不完善的地方。
+亮眼成绩的背后，全产业链的智能化跃升与生态共建成为关键驱动力。
 
-” 在智能穿戴产品专区，深圳时空壶技术有限公司带来了全新的翻译设备。
+面对海外市场的广阔前景，中国长安汽车阿维塔科技副总裁雍军在会上呼吁，中国智能电动汽车已具备引领全球的实力，行业应摒弃低水平竞争，积极构建并推动国家标准走向世界。
 
-据介绍，该设备优化多语种实时翻译，由原来的43语种正式更新为52语种、106种口音。
+“我们要继续向上迈进，提升行业标准、提高准入门槛，让中国的标准服务全世界的汽车用户。
 
-同时，搭载行业术语库、离线翻译等核心功能，专门适配跨境商务洽谈的高频需求。
+”标准“出海”离不开扎实的技术积累。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 21:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 21:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 21:07 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 21:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 21:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 20:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 21:09 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 21:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 21:11 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 20:58 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 20:54 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 21:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 21:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 21:08 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 21:11 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 21:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 21:06 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 21:20 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 21:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/43734.shtml)
-- 2026-06-29 21:16 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/59994.shtml)
-- 2026-06-29 21:04 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/109187288.shtml)
-- 2026-06-29 21:04 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/424865242.shtml)
-- 2026-06-29 20:49 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/9102612.shtml)
-- 2026-06-29 20:56 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/3270597.shtml)
-- 2026-06-29 21:01 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/84753.shtml)
-- 2026-06-29 21:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/50696.shtml)
-- 2026-06-29 21:13 - [王楚钦开门红](http://www.blog.minike.top/Article/details/92016.shtml)
-- 2026-06-29 20:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/8001678620.shtml)
-- 2026-06-29 20:56 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/206124839.shtml)
-- 2026-06-29 21:03 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/0267045297.shtml)
-- 2026-06-29 21:16 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/357416.shtml)
-- 2026-06-29 21:17 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/617398550499.shtml)
-- 2026-06-29 21:10 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/91720.shtml)
+- 2026-06-29 20:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/06561.shtml)
+- 2026-06-29 20:54 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/595425629.shtml)
+- 2026-06-29 21:06 - [东方风云榜](http://www.blog.minike.top/Article/details/360942.shtml)
+- 2026-06-29 20:56 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/8000224788.shtml)
+- 2026-06-29 21:18 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/9931475710.shtml)
+- 2026-06-29 21:19 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/6287106.shtml)
+- 2026-06-29 21:16 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/8594009.shtml)
+- 2026-06-29 20:57 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/79646.shtml)
+- 2026-06-29 21:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/8957796.shtml)
+- 2026-06-29 20:58 - [第一炉香](https://www.share.minike.top/Article/details/222489672902.shtml)
+- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/67490.shtml)
+- 2026-06-29 21:00 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/699773.shtml)
+- 2026-06-29 21:19 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/23427901667.shtml)
+- 2026-06-29 21:20 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/862986652250.shtml)
+- 2026-06-29 20:59 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/304359391956.shtml)

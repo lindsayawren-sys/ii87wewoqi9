@@ -1,57 +1,59 @@
-# （经济观察）开局“季考”中国经济交稳健答卷
+# 周五美油收跌1.7% 特朗普称将对伊朗协议做出最终决定
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 (记者 刘亮)中国国家统计局16日公布，一季度中国国内生产总值同比增长5%，比上年四季度加快0.5个百分点。“十五五”开局之年首场“季考”，中国经济在复杂环境下交出稳健答卷。 稳健，源自内生动力继续改善修复。 今年以来，中国深入实施提振消费专项行动，推动消费市场运行向好。一季度，全国社会消费品零售总额接近13万亿元(人民币，下同)，同比增长2.4%，增速
+在美国总统唐纳德·特朗普表示他可能即将就与伊朗的协议做出决定后，油价周五下跌。 本月，由于市场对美国与伊朗可能达成某种协议抱有希望，美国原油价格已暴跌约17%。但特朗普周五提出了一系列伊朗过去不愿同意的要求。 美国西得克萨斯中质原油价格下跌1.73%，收于每桶87.36美元。国际基准布伦特原油价格下跌1.77%，收于每桶92.05美元。 特朗普在社交媒体上发文称：“我现在将在战
 
 ## 正文
 
-中新社北京4月16日电 (记者 刘亮)中国国家统计局16日公布，一季度中国国内生产总值同比增长5%，比上年四季度加快0.5个百分点。
+在美国总统唐纳德·特朗普表示他可能即将就与伊朗的协议做出决定后，油价周五下跌。
 
-“十五五”开局之年首场“季考”，中国经济在复杂环境下交出稳健答卷。
+本月，由于市场对美国与伊朗可能达成某种协议抱有希望，美国原油价格已暴跌约17%。
 
-稳健，源自内生动力继续改善修复。
+但特朗普周五提出了一系列伊朗过去不愿同意的要求。
 
-今年以来，中国深入实施提振消费专项行动，推动消费市场运行向好。
+美国西得克萨斯中质原油价格下跌1.73%，收于每桶87.36美元。
 
-一季度，全国社会消费品零售总额接近13万亿元(人民币，下同)，同比增长2.4%，增速比上年四季度加快0.7个百分点；服务零售额同比增速更达到5.5%。
+国际基准布伦特原油价格下跌1.77%，收于每桶92.05美元。
 
-投资领域亦出现积极信号。
+特朗普在社交媒体上发文称：“我现在将在战情室开会，做出最终决定。
 
-一季度，全国固定资产投资同比增长1.7%，实现由负转正，上年全年为下降3.8%。
+” 特朗普对伊朗提出要求，这位美国总统表示，德黑兰必须同意永远不会拥有核武器。
 
-在国家发改委经济研究所副所长郭丽岩看来，这些积极迹象与政策靠前发力、聚焦用力、应对有力有关。
+他说，伊朗必须立即允许霍尔木兹海峡双向无限制通行且不收取通行费。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 21:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 21:13 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 20:51 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 21:08 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 21:10 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 21:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 20:52 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 21:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 20:48 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:11 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:57 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 21:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 21:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 21:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 20:58 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:21 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:16 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 21:16 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 21:22 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 21:16 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 21:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 21:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 21:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/151947262248.shtml)
-- 2026-06-29 21:11 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/2858108737.shtml)
-- 2026-06-29 21:16 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/732845.shtml)
-- 2026-06-29 20:58 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/593681666.shtml)
-- 2026-06-29 21:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/901300527443.shtml)
-- 2026-06-29 21:17 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/301340380626.shtml)
-- 2026-06-29 21:05 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/8621385101.shtml)
-- 2026-06-29 21:05 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/541187931.shtml)
-- 2026-06-29 21:01 - [炽夏](https://www.blog.minike.top/Article/details/361454.shtml)
-- 2026-06-29 21:01 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/19090.shtml)
-- 2026-06-29 20:58 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/03675016871.shtml)
-- 2026-06-29 21:12 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/5065186172.shtml)
-- 2026-06-29 20:51 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/05975470546.shtml)
-- 2026-06-29 21:07 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/512629.shtml)
-- 2026-06-29 21:15 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/0917809.shtml)
+- 2026-06-29 21:21 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/70294.shtml)
+- 2026-06-29 20:58 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/5752586.shtml)
+- 2026-06-29 21:21 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/197391034399.shtml)
+- 2026-06-29 21:13 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/480443229052.shtml)
+- 2026-06-29 21:21 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/81297.shtml)
+- 2026-06-29 21:15 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/59764.shtml)
+- 2026-06-29 21:15 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/9663373.shtml)
+- 2026-06-29 21:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/92374950655.shtml)
+- 2026-06-29 20:57 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/17018513430.shtml)
+- 2026-06-29 21:06 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/61373557.shtml)
+- 2026-06-29 21:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/184685.shtml)
+- 2026-06-29 21:03 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/0213372.shtml)
+- 2026-06-29 20:57 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/118690532.shtml)
+- 2026-06-29 21:16 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/99953.shtml)
+- 2026-06-29 20:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/7268410647.shtml)

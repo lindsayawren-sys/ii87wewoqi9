@@ -1,61 +1,50 @@
-# 禾望电气精彩亮相长垣起重展
+# 重庆市政府原参事曹清尧严重违纪违法被开除党籍和公职
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-4月16日，第十一届中国.长垣国际起重装备博览交易会正式拉开帷幕。禾望电气携HV610系列起重专用变频器及最新推出的HD2000-Plus系列低压工程型变频器亮相DT02号展位，围绕起重行业的安全、稳定、效率等核心痛点，面向全球客户提供起重行业全场景变频驱动解决方案。起重行业在起升、运行、变幅、回转等典型工况中，面临安全防护要求高、运行稳定性不足、工况复杂多样等痛点，既影响作业
+中新网5月29日电 据重庆市纪委监委消息，经重庆市委批准，重庆市纪委监委对重庆市政府原参事曹清尧严重违纪违法问题进行了立案审查调查。 经查，曹清尧丧失理想信念，背弃初心使命，对党不忠诚不老实，结交政治骗子，对抗组织审查；罔顾中央八项规定精神，违规收受礼金，接受可能影响公正执行公务的宴请；无视组织原则，在组织函询时不如实说明问题；廉洁底线失守，利用职权为亲属承揽业务谋利；违规干预
 
 ## 正文
 
-4月16日，第十一届中国.长垣国际起重装备博览交易会正式拉开帷幕。
+中新网5月29日电 据重庆市纪委监委消息，经重庆市委批准，重庆市纪委监委对重庆市政府原参事曹清尧严重违纪违法问题进行了立案审查调查。
 
-禾望电气携HV610系列起重专用变频器及最新推出的HD2000-Plus系列低压工程型变频器亮相DT02号展位，围绕起重行业的安全、稳定、效率等核心痛点，面向全球客户提供起重行业全场景变频驱动解决方案。
+经查，曹清尧丧失理想信念，背弃初心使命，对党不忠诚不老实，结交政治骗子，对抗组织审查；罔顾中央八项规定精神，违规收受礼金，接受可能影响公正执行公务的宴请；无视组织原则，在组织函询时不如实说明问题；廉洁底线失守，利用职权为亲属承揽业务谋利；违规干预和插手工程项目承发包；贪欲膨胀，公器私用，大搞权钱交易，利用职务上的便利为他人在工程承揽、企业经营等方面谋利，并非法收受巨额财物。
 
-起重行业在起升、运行、变幅、回转等典型工况中，面临安全防护要求高、运行稳定性不足、工况复杂多样等痛点，既影响作业安全及生产效率，也对设备的可靠性和使用寿命提出了更高要求。
+曹清尧严重违反党的政治纪律、组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-禾望电气深耕工业传动领域，针对起重场景专项研发，形成了成熟完整的产品矩阵，产品已广泛覆盖冶金起重、矿井提升、有色冶炼、油气开发、水利水电、垃圾焚烧、港口码头等诸多场景。
-
-禾望HV610系列起重专用变频器，可广泛应用于机械加工、装备制造、工件转运、冶金车间、装配车间等提升类负载。
-
-产品具备溜钩保护、抱闸保护、松绳保护、限位保护、操作杆归零保护等功能，可有效提升作业安全性；产品内置防摇控制、随载随速等，全系列内置制动，在安全稳定的前提下兼顾效率。
-
-同时，该产品支持多电机切换，内部配置4套电机参数，通过指令切换，可实现对4种不同机构电机的驱动。
-
-支持起重宏参数预设，快速适配起升、平移等不同机构，提升设备通用性与投产效率。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经重庆市纪委常委会会议研究并报重庆市委批准，决定给予曹清尧开除党籍处分；由重庆市监委给予其开除公职处分；终止其重庆市第六次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 20:59 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 20:49 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 20:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 20:55 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 20:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:53 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 21:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 20:52 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 21:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 21:11 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 20:56 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 21:12 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 21:00 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 21:12 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 21:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 21:16 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 21:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 21:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 21:15 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:10 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/13144104193.shtml)
-- 2026-06-29 21:15 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/576077.shtml)
-- 2026-06-29 21:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/844074119402.shtml)
-- 2026-06-29 20:55 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/99884247.shtml)
-- 2026-06-29 20:49 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/6411808.shtml)
-- 2026-06-29 20:51 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/8055599065.shtml)
-- 2026-06-29 20:59 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/5802848.shtml)
-- 2026-06-29 21:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/786566.shtml)
-- 2026-06-29 21:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/221250466653.shtml)
-- 2026-06-29 21:01 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/5322878.shtml)
-- 2026-06-29 21:03 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/415009423171.shtml)
-- 2026-06-29 20:57 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/45269225306.shtml)
-- 2026-06-29 21:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/508485.shtml)
-- 2026-06-29 20:48 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/11616852.shtml)
-- 2026-06-29 21:00 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/834692.shtml)
+- 2026-06-29 20:57 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/6558457.shtml)
+- 2026-06-29 20:57 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/983330045084.shtml)
+- 2026-06-29 21:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/63763.shtml)
+- 2026-06-29 21:05 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/775135182770.shtml)
+- 2026-06-29 21:21 - [我们的少年时代2](https://www.share.minike.top/Article/details/609349768919.shtml)
+- 2026-06-29 21:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/90493203640.shtml)
+- 2026-06-29 21:17 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/64472931.shtml)
+- 2026-06-29 21:03 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1135332453.shtml)
+- 2026-06-29 21:16 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/8716193774.shtml)
+- 2026-06-29 21:22 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/2191173.shtml)
+- 2026-06-29 21:05 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/396738276129.shtml)
+- 2026-06-29 21:19 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/25193601991.shtml)
+- 2026-06-29 20:57 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/79501205.shtml)
+- 2026-06-29 20:58 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/57870.shtml)
+- 2026-06-29 20:55 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/17038.shtml)

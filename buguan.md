@@ -1,60 +1,49 @@
-# QVC计划申请第11章破产，目标90天内完成重组
+# 视频|再次加仓泡泡玛特后 段永平发表对王宁的看法: 他对产品的理解和乔布斯同一级别对商业的理解比乔布斯强
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-电视购物零售商QVC集团（QVCGB）正准备申请第11章破产保护。这家电视购物网络在收视率下滑和沉重债务负担的压力下，正迈出关键一步。该公司表示，计划与其部分直接和间接子公司一同向美国德克萨斯南区破产法院提交申请，同时预计将与部分债权人签订重组支持协议。管理层表示，其目标是在约90天内完成第11章破产重组，但也指出，这一过程已产生大量专业服务费用，并可能继续产生可观的额外成本。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 再次加仓泡泡玛特后，段永平发表对王宁的看法：他对产品的理解和乔布斯同一级别，对商业的理解比乔布斯还要强责任编辑：孙同怀
 
 ## 正文
 
-电视购物零售商QVC集团（QVCGB）正准备申请第11章破产保护。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家电视购物网络在收视率下滑和沉重债务负担的压力下，正迈出关键一步。
-
-该公司表示，计划与其部分直接和间接子公司一同向美国德克萨斯南区破产法院提交申请，同时预计将与部分债权人签订重组支持协议。
-
-管理层表示，其目标是在约90天内完成第11章破产重组，但也指出，这一过程已产生大量专业服务费用，并可能继续产生可观的额外成本。
-
-此次破产申请之前已有财务紧张的迹象。
-
-QVC在11月公布第三季度业绩时，曾对其持续经营能力提出质疑，指出不确定手头现金和运营现金流是否足以资助运营并履行与第11章案件相关的义务。
-
-当时，该公司还表示，正在探索解决其资产负债表问题的财务和战略选项，其中包括一项将于10月到期的信贷安排，这可能对其当前的时间表构成压力。
-
-运营挑战也一直困扰着该公司。
+来源：中国基金报 再次加仓泡泡玛特后，段永平发表对王宁的看法：他对产品的理解和乔布斯同一级别，对商业的理解比乔布斯还要强责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:49 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 21:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 20:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:04 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 21:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 20:48 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 21:15 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 20:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 20:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 21:17 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 21:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 21:11 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 21:05 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 21:00 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 21:20 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 21:02 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 21:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 21:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 21:20 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 21:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 21:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 20:59 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 21:00 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 21:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/9277298509.shtml)
-- 2026-06-29 20:58 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/15766.shtml)
-- 2026-06-29 21:00 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/33588749.shtml)
-- 2026-06-29 21:09 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/618776173726.shtml)
-- 2026-06-29 20:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/0264456851.shtml)
-- 2026-06-29 21:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/8869950379.shtml)
-- 2026-06-29 20:56 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/2568154.shtml)
-- 2026-06-29 21:01 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/9566526404.shtml)
-- 2026-06-29 21:02 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/008102951411.shtml)
-- 2026-06-29 21:16 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/635931832520.shtml)
-- 2026-06-29 21:03 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/5687076193.shtml)
-- 2026-06-29 20:55 - [请回答王牌2019](https://www.blog.minike.top/Article/details/23152213130.shtml)
-- 2026-06-29 20:51 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/085544236.shtml)
-- 2026-06-29 20:59 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/37136315.shtml)
-- 2026-06-29 20:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/810838.shtml)
+- 2026-06-29 21:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/395892999.shtml)
+- 2026-06-29 21:15 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/453934010731.shtml)
+- 2026-06-29 20:56 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/4294948690.shtml)
+- 2026-06-29 21:01 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/591050.shtml)
+- 2026-06-29 21:08 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/2975237.shtml)
+- 2026-06-29 20:56 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/2526925442.shtml)
+- 2026-06-29 20:57 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/230570951.shtml)
+- 2026-06-29 21:03 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/19810238667.shtml)
+- 2026-06-29 21:05 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/8882383847.shtml)
+- 2026-06-29 21:12 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/61654976337.shtml)
+- 2026-06-29 21:23 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/715675.shtml)
+- 2026-06-29 21:05 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/95612.shtml)
+- 2026-06-29 21:14 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/1425159771.shtml)
+- 2026-06-29 21:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/7766192073.shtml)
+- 2026-06-29 21:04 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/181955.shtml)

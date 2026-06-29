@@ -1,59 +1,48 @@
-# 钧达股份早盘涨逾4% 公司第一季度盈利转正超预期
+# 6月1日起102项国家标准开始实施
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-钧达股份（02865）早盘涨逾4%，截至发稿，股价上涨3.90%，现报33.02港元，成交额1.58亿港元。 近日，钧达股份发布2026年一季度业绩，东吴证券指出，公司26Q1业绩扭亏为盈，超预期，据测算公司26Q1电池销量约5GW，同降约30%/环降约30%；受益Q1行业电池环节供需改善+海外需求旺盛，公司出口占比高，测算整体单瓦微利。该行预计公司土耳其基地Q2出片，可直供美
+新华社权威快报｜6月1日起102项国家标准开始实施 6月1日起，102项国家标准开始实施。其中包括独立式感烟火灾探测报警器、危险货物运输包装、燃气燃烧器具用电安全、人造板甲醛释放限量、制冷器具、老龄化社会认知症包容性社群、动力蓄电池缺陷监测与分析、中小微企业融资服务等重要国家标准，将为保障公共安全、保护消费者权益和百姓健康安全、助力国民经济高质量发展等提供标准支撑。 记者：赵怡
 
 ## 正文
 
-钧达股份（02865）早盘涨逾4%，截至发稿，股价上涨3.90%，现报33.02港元，成交额1.58亿港元。
+新华社权威快报｜6月1日起102项国家标准开始实施 6月1日起，102项国家标准开始实施。
 
-近日，钧达股份发布2026年一季度业绩，东吴证券指出，公司26Q1业绩扭亏为盈，超预期，据测算公司26Q1电池销量约5GW，同降约30%/环降约30%；受益Q1行业电池环节供需改善+海外需求旺盛，公司出口占比高，测算整体单瓦微利。
+其中包括独立式感烟火灾探测报警器、危险货物运输包装、燃气燃烧器具用电安全、人造板甲醛释放限量、制冷器具、老龄化社会认知症包容性社群、动力蓄电池缺陷监测与分析、中小微企业融资服务等重要国家标准，将为保障公共安全、保护消费者权益和百姓健康安全、助力国民经济高质量发展等提供标准支撑。
 
-该行预计公司土耳其基地Q2出片，可直供美国市场，预计今年可贡献利润。
-
-后续国内需求有望复苏、海外需求韧性强，预计Q2电池出货约7-8GW，随供需关系优化+美国市场出货，盈利有望不断改善。
-
-东吴证券续指，钧达股份积极布局商业航天+太空光伏，打造新增长点。
-
-公司参股星翼芯能、合作钙钛矿及CPI膜。
-
-以子公司捷泰航天为载体，加快推进CPI 膜及钙钛矿晶硅叠层结合产品的技术研发和中试线建设，推进国内外客户的技术交流、样品测试等工作；公司现金收购上海复遥星河航天科技60%股权，间接控股上海巡天千河；在手订单充裕，覆盖遥感、通讯、算力多类型卫星，同时可为太空光伏提供在轨验证资源。
-
-责任编辑：卢昱君
+记者：赵怡宁 海报制作：赵怡宁 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 21:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:09 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 20:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 21:08 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 21:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 20:50 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 21:17 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 21:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 21:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 21:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 21:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 21:12 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 21:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 21:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 21:07 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 21:09 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 21:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 21:21 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 21:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 21:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 21:09 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/71918.shtml)
-- 2026-06-29 20:58 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/29752.shtml)
-- 2026-06-29 20:52 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/22999579582.shtml)
-- 2026-06-29 21:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/193474275898.shtml)
-- 2026-06-29 20:56 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/594240058.shtml)
-- 2026-06-29 21:13 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/6099165177.shtml)
-- 2026-06-29 21:08 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/76774.shtml)
-- 2026-06-29 21:02 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/2923170900.shtml)
-- 2026-06-29 21:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/564469743930.shtml)
-- 2026-06-29 20:52 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/19906.shtml)
-- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/769295031113.shtml)
-- 2026-06-29 21:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/932736.shtml)
-- 2026-06-29 21:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/080616935.shtml)
-- 2026-06-29 20:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/260205387.shtml)
-- 2026-06-29 20:59 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/1996996882.shtml)
+- 2026-06-29 21:00 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/30460543245.shtml)
+- 2026-06-29 20:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/8051288.shtml)
+- 2026-06-29 20:56 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/7273719.shtml)
+- 2026-06-29 20:57 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/04376850924.shtml)
+- 2026-06-29 20:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/08601186.shtml)
+- 2026-06-29 21:08 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/173912616921.shtml)
+- 2026-06-29 21:03 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/37073575.shtml)
+- 2026-06-29 20:58 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/258981.shtml)
+- 2026-06-29 21:19 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/6485096029.shtml)
+- 2026-06-29 20:56 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/099895969.shtml)
+- 2026-06-29 21:18 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/6715606.shtml)
+- 2026-06-29 21:22 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/330155.shtml)
+- 2026-06-29 21:21 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/868535985.shtml)
+- 2026-06-29 21:08 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/745999990250.shtml)
+- 2026-06-29 21:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/9501459.shtml)

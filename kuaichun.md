@@ -1,58 +1,54 @@
-# 它石智航完成4.55亿美元Pre-A轮融资，高瓴红杉美团联合领投
+# 致敬科技楷模 “最美科技工作者”发布
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 4月16日晚间消息，它石智航宣布完成超4.5亿美元Pre-A轮融资，创中国具身智能最高单轮融资纪录，本轮融资由高瓴创投、红杉中国联合领投，美团龙珠、中金资本、凯联资本、东方富海、钧山投资等知名财务基金跟投。 在产业投资者层面，TCL创投、孚腾资本、首程控股、建发新兴投资、恒旭资本、国汽投资进一步
+5月29日，在第十个全国科技工作者日前夕，中央宣传部、中国科协向全社会发布“最美科技工作者”。 于宗仁、孔海南、苏权科、宋仁德、陈蕾、金海族、赵洋、桂海潮、徐洪杰(已逝)、黄桂云等10位同志光荣入选。 他们自觉胸怀“国之大者”，面向世界科技前沿、面向经济主战场、面向国家重大需求、面向人民生命健康，积极投身高水平科技自立自强。他们爱党爱国、自强不息，敬业乐群、执着朴实，生动展现了
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月29日，在第十个全国科技工作者日前夕，中央宣传部、中国科协向全社会发布“最美科技工作者”。
 
-新浪科技讯 4月16日晚间消息，它石智航宣布完成超4.5亿美元Pre-A轮融资，创中国具身智能最高单轮融资纪录，本轮融资由高瓴创投、红杉中国联合领投，美团龙珠、中金资本、凯联资本、东方富海、钧山投资等知名财务基金跟投。
+于宗仁、孔海南、苏权科、宋仁德、陈蕾、金海族、赵洋、桂海潮、徐洪杰(已逝)、黄桂云等10位同志光荣入选。
 
-在产业投资者层面，TCL创投、孚腾资本、首程控股、建发新兴投资、恒旭资本、国汽投资进一步投资入局。
+他们自觉胸怀“国之大者”，面向世界科技前沿、面向经济主战场、面向国家重大需求、面向人民生命健康，积极投身高水平科技自立自强。
 
-此外，北京机器人产业发展投资基金、上海国投先导等国有资本也首次联合出资。
+他们爱党爱国、自强不息，敬业乐群、执着朴实，生动展现了新时代科技工作者的良好风貌。
 
-值得注意的是，这已经是它石智航第二次刷新行业融资纪录。
-
-在2025年第二季度，它石智航完成中国具身智能有史以来最大天使轮融资——2.42亿美金。
-
-时隔一年，它石智航以4.55亿美金，进一步打破了中国具身智能有史以来最大Pre-A轮融资纪录及行业最大单轮融资纪录。
-
-它石智航董事长李震宇表示，“本轮融资将用于加速打造通用具身大模型AWE和持续吸引行业顶尖人才，下一轮融资将重点用于打造真干活、真量产的机器人。
+记者：刘祯、温竞华 海报制作：刘祯 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 20:58 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 21:09 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 20:59 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 21:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 21:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 20:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 21:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 21:10 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 20:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 20:58 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 20:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 21:07 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 21:06 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 21:18 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 20:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 20:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 21:14 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 21:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 21:08 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 21:16 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 21:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 21:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 21:02 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 21:21 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/8948057.shtml)
-- 2026-06-29 21:06 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/655192.shtml)
-- 2026-06-29 21:03 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/97859046682.shtml)
-- 2026-06-29 21:15 - [天道](http://www.blog.kurohicncr.top/Article/details/30001207.shtml)
-- 2026-06-29 21:10 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/854800345.shtml)
-- 2026-06-29 20:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/666248896.shtml)
-- 2026-06-29 20:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/877736.shtml)
-- 2026-06-29 20:50 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/210565761040.shtml)
-- 2026-06-29 20:48 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/01504209972.shtml)
-- 2026-06-29 21:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/20020170.shtml)
-- 2026-06-29 21:15 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/431870.shtml)
-- 2026-06-29 21:02 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/457967085.shtml)
-- 2026-06-29 20:57 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/820847.shtml)
-- 2026-06-29 21:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/4281804514.shtml)
-- 2026-06-29 21:05 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/8097216.shtml)
+- 2026-06-29 21:03 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/26589.shtml)
+- 2026-06-29 20:57 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/134918.shtml)
+- 2026-06-29 21:19 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/349825401761.shtml)
+- 2026-06-29 21:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/1444908.shtml)
+- 2026-06-29 21:01 - [斗破苍穹](https://www.share.minike.top/Article/details/36966.shtml)
+- 2026-06-29 21:09 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/942585530480.shtml)
+- 2026-06-29 21:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/734225.shtml)
+- 2026-06-29 20:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/46504.shtml)
+- 2026-06-29 21:22 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/6365483.shtml)
+- 2026-06-29 21:23 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/55602013277.shtml)
+- 2026-06-29 21:19 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/2754790.shtml)
+- 2026-06-29 20:58 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/10981196.shtml)
+- 2026-06-29 21:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/40530558.shtml)
+- 2026-06-29 21:18 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/404474.shtml)
+- 2026-06-29 21:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/64694.shtml)

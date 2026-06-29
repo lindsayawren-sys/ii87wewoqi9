@@ -1,61 +1,60 @@
-# 网飞联合创始人兼董事长将于6月卸任董事职务
+# 记者手记：摩托车大叔载我一起去追“星”
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-网飞周四宣布，公司联合创始人、执行董事长里德・哈斯廷斯任期将于 6 月届满，届时将不再寻求连任公司董事。 哈斯廷斯此番决定随网飞一季度财报一同公布。距他卸任联合首席执行官、转任董事会执行董事长至今尚不足三年。此后，他的联席首席执行官特德・萨兰多斯与格雷格・彼得斯共同执掌公司管理工作。 哈斯廷斯称，他为网飞所做的贡献始终聚焦于 “提升用户体验、打造可供后人传承与完善的企业文化，以
+中新网额济纳5月30日电 题：摩托车大叔载我一起去追“星” 中新网记者 李爱平 “噗”的一声闷响，采访车骤然爆胎。5月29日20时11分，神舟二十二号载人飞船返回舱稳稳着陆额济纳东风着陆场，我正赶赴现场准备第一时间记录归航瞬间，却半路遇困。 司机迅速取出备用胎抢修，却发现随车扳手尺寸不符，一时束手无策。苍茫戈壁夜色渐浓，正当我们进退两难时，当地牧民巴图骑着摩托车匆匆赶来。简单沟
 
 ## 正文
 
-网飞周四宣布，公司联合创始人、执行董事长里德・哈斯廷斯任期将于 6 月届满，届时将不再寻求连任公司董事。
+中新网额济纳5月30日电 题：摩托车大叔载我一起去追“星” 中新网记者 李爱平 “噗”的一声闷响，采访车骤然爆胎。
 
-哈斯廷斯此番决定随网飞一季度财报一同公布。
+5月29日20时11分，神舟二十二号载人飞船返回舱稳稳着陆额济纳东风着陆场，我正赶赴现场准备第一时间记录归航瞬间，却半路遇困。
 
-距他卸任联合首席执行官、转任董事会执行董事长至今尚不足三年。
+司机迅速取出备用胎抢修，却发现随车扳手尺寸不符，一时束手无策。
 
-此后，他的联席首席执行官特德・萨兰多斯与格雷格・彼得斯共同执掌公司管理工作。
+苍茫戈壁夜色渐浓，正当我们进退两难时，当地牧民巴图骑着摩托车匆匆赶来。
 
-哈斯廷斯称，他为网飞所做的贡献始终聚焦于 “提升用户体验、打造可供后人传承与完善的企业文化，以及打造一家既受用户喜爱、又能实现长久卓越发展的公司”。
+简单沟通后，他主动提出载着记者前往着陆场，同时帮忙联系前方救援队前来修车。
 
-据网飞公告，这位联合创始人未来将 “专注于慈善事业及其他个人事务”。
+“呜、呜、呜——”摩托车的引擎声划破戈壁寂静，在旷野间回荡。
 
-萨兰多斯与彼得斯均在声明中对哈斯廷斯予以赞誉。
+今年53岁的巴图说着质朴的方言，当晚，他无意间听到飞船开伞的声响，便立刻骑上摩托奔赴着陆场，一心赶来见证神舟凯旋，恰巧遇上受困的我们。
 
-彼得斯表示：“里德永远是网飞的创始人和最坚定的支持者 —— 他早已融入我们的基因。
+“遇上了，哪有不帮的道理。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 21:06 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 21:02 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 21:16 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 20:51 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 20:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 20:50 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 21:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 21:17 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 21:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 21:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 20:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 21:17 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 20:58 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 21:13 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 21:06 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 21:24 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 21:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 21:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 21:15 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 21:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 21:14 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 21:08 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 21:05 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 20:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 21:20 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 21:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 21:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/291459310480.shtml)
-- 2026-06-29 21:05 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/817236222657.shtml)
-- 2026-06-29 21:13 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/246870704167.shtml)
-- 2026-06-29 20:49 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/496013.shtml)
-- 2026-06-29 20:57 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/358330.shtml)
-- 2026-06-29 20:50 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/198820053.shtml)
-- 2026-06-29 21:12 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/1506158482.shtml)
-- 2026-06-29 21:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/06509690.shtml)
-- 2026-06-29 21:05 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/58612.shtml)
-- 2026-06-29 20:58 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/95447969.shtml)
-- 2026-06-29 21:03 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/670360511.shtml)
-- 2026-06-29 20:54 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/24075.shtml)
-- 2026-06-29 21:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/708264933867.shtml)
-- 2026-06-29 20:57 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/184772.shtml)
-- 2026-06-29 21:08 - [急先锋](http://www.blog.kurohicncr.top/Article/details/59197642204.shtml)
+- 2026-06-29 21:00 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/679833491.shtml)
+- 2026-06-29 21:19 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/790210439198.shtml)
+- 2026-06-29 21:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/157211.shtml)
+- 2026-06-29 21:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/13586433390.shtml)
+- 2026-06-29 21:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/78776303417.shtml)
+- 2026-06-29 21:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/40407.shtml)
+- 2026-06-29 21:22 - [沙丘](http://www.share.kurohicncr.top/Article/details/264498.shtml)
+- 2026-06-29 21:18 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/97127.shtml)
+- 2026-06-29 21:19 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/27562747945.shtml)
+- 2026-06-29 21:16 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/46382.shtml)
+- 2026-06-29 20:59 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/1482382.shtml)
+- 2026-06-29 21:03 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/61702959648.shtml)
+- 2026-06-29 21:15 - [毒液2](http://www.blog.minike.top/Article/details/08838448.shtml)
+- 2026-06-29 21:03 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/2776224.shtml)
+- 2026-06-29 20:58 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/154038.shtml)

@@ -1,57 +1,58 @@
-# 4月17日外盘头条：特朗普称以黎同意停火10天 以方同意停火但不撤军 美伊谈判前景不明 布油价格逼近100美元
+# 生态环境部：国家级自然保护区重点问题基本完成整改
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普看好与伊朗达成协议的前景 称以黎同意停火10天 2、海湾国家和欧洲官员认为美伊和谈需六个月 呼吁延长停火 3、奈飞一季度利润超预期，二季度指引疲软盘后大跌 8% 4、OpenAI全面升级Codex对标Claude Code，AI编程工具竞争升温 5、布伦特原油价格逼近100美元，美伊谈判前景不明且霍尔木兹海峡仍遭封锁 6
+中新网5月29日电 生态环境部29日召开5月份例行新闻发布会。生态环境部自然生态保护司司长张玉军表示，十年来，通过“绿盾”行动在国家级自然保护区发现的4664个重点问题已有4662个完成整改，同时新增问题的数量和面积也在双下降，基本实现了重点区域重点问题的动态清零。会上有记者提问：今年是生态环境部等部门连续第十年开展“绿盾”行动，请问行动的重点方向是什么？当前自然保护地监管方面
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普看好与伊朗达成协议的前景 称以黎同意停火10天 2、海湾国家和欧洲官员认为美伊和谈需六个月 呼吁延长停火 3、奈飞一季度利润超预期，二季度指引疲软盘后大跌 8% 4、OpenAI全面升级Codex对标Claude Code，AI编程工具竞争升温 5、布伦特原油价格逼近100美元，美伊谈判前景不明且霍尔木兹海峡仍遭封锁 6、美国称对伊封锁行动以来已有14艘船只掉头 而非尝试闯关 特朗普看好与伊朗达成协议的前景 称以黎同意停火10天 美国总统唐纳德·特朗普表示，与伊朗达成协议的前景“看起来非常好”。
+中新网5月29日电 生态环境部29日召开5月份例行新闻发布会。
 
-美伊双方正在讨论延长休战协议。
+生态环境部自然生态保护司司长张玉军表示，十年来，通过“绿盾”行动在国家级自然保护区发现的4664个重点问题已有4662个完成整改，同时新增问题的数量和面积也在双下降，基本实现了重点区域重点问题的动态清零。
 
-特朗普周四在白宫对记者表示，“我们很有可能与伊朗达成协议，而且将是一项好协议。
+会上有记者提问：今年是生态环境部等部门连续第十年开展“绿盾”行动，请问行动的重点方向是什么？
 
-”他称华盛顿与德黑兰之间的谈判可能会在本周末重启。
+当前自然保护地监管方面还有哪些短板？
 
-特朗普声称伊朗已经同意了一些其长期以来拒绝接受的条件，包括放弃发展核武器的雄心，并移交核材料。
+如何补齐？
 
-但他并未提供证据。
+张玉军介绍，作为一项在生态保护与修复监管领域具有品牌效应的专项工作，“绿盾”行动已经成为常态化监管的一项重要手段，持续守护着我国的重要生态空间。
 
-他还补充说，该协议还将包括“自由石油”以及开放霍尔木兹海峡。
+十年来，通过“绿盾”行动在国家级自然保护区发现的4664个重点问题当中，已经有4662个完成整改，同时新增问题的数量和面积也在双下降，基本实现了重点区域重点问题的动态清零。
 
-德黑兰方面尚未公开确认已作出这些让步。
+张玉军表示，对于侵占破坏自然保护地和生态保护红线的违法违规行为，始终保持着零容忍的高压态势，对于“绿盾2026”的重点方向，将聚焦自然保护地和生态保护红线内可能造成较大生态破坏的非法矿产、工业、能源、旅游、交通等违法违规人为活动，特别是那些未批先占、未批先建以及违反规划和环评制度的建设项目。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 20:55 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 21:02 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 21:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 21:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 21:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 20:50 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 20:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 21:16 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 21:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 20:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 21:23 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 21:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 21:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:11 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 21:01 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:05 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 21:19 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 21:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:05 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 21:05 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 21:13 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 21:10 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/477607521253.shtml)
-- 2026-06-29 21:03 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/050297180.shtml)
-- 2026-06-29 21:00 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/85436293586.shtml)
-- 2026-06-29 21:03 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/3483282267.shtml)
-- 2026-06-29 21:11 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/841076181109.shtml)
-- 2026-06-29 21:06 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/85471305.shtml)
-- 2026-06-29 21:12 - [急先锋](http://www.blog.minike.top/Article/details/86597695.shtml)
-- 2026-06-29 20:53 - [毒液2](https://www.share.kurohicncr.top/Article/details/19614.shtml)
-- 2026-06-29 21:11 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/216491905.shtml)
-- 2026-06-29 21:13 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/3044086009.shtml)
-- 2026-06-29 21:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/510656938.shtml)
-- 2026-06-29 21:11 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/88362891888.shtml)
-- 2026-06-29 21:08 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/72532.shtml)
-- 2026-06-29 21:01 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/29859.shtml)
-- 2026-06-29 21:03 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/923206094741.shtml)
+- 2026-06-29 21:20 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/1036851092.shtml)
+- 2026-06-29 21:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/3179201.shtml)
+- 2026-06-29 20:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/62381683.shtml)
+- 2026-06-29 21:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/492260.shtml)
+- 2026-06-29 20:58 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/55874078442.shtml)
+- 2026-06-29 21:13 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/0021442.shtml)
+- 2026-06-29 21:04 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/432639.shtml)
+- 2026-06-29 21:19 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/543125980523.shtml)
+- 2026-06-29 21:08 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/50681075.shtml)
+- 2026-06-29 21:03 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/42726810.shtml)
+- 2026-06-29 21:03 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/1686850352.shtml)
+- 2026-06-29 21:10 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/6664502083.shtml)
+- 2026-06-29 21:22 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/199993835.shtml)
+- 2026-06-29 21:02 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/48160773163.shtml)
+- 2026-06-29 21:06 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/589427384.shtml)

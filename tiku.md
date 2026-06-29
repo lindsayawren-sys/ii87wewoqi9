@@ -1,61 +1,56 @@
-# 市场监管总局对天猫“幽灵外卖”案罚没3174.28万元，暂停新增蛋糕店铺6个月
+# 华北东北等地有高温天气 东北地区强对流天气出没
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+中新网5月31日电 据中央气象台网站消息，昨日，新疆、河北、北京、天津、河南、广东、海南等地部分地区出现35℃以上高温天气，局地最高气温超过37℃。预计今天，新疆、内蒙古东部、黑龙江南部、吉林西部、辽宁西部、河北中南部、天津、山东北部、海南岛北部等地有35℃以上的高温天气，局地最高气温将超过37℃。 专家提醒，北方地区高温天气多以干热为主，白天晴晒气温升高，夜间气温回落明显，昼
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
+中新网5月31日电 据中央气象台网站消息，昨日，新疆、河北、北京、天津、河南、广东、海南等地部分地区出现35℃以上高温天气，局地最高气温超过37℃。
 
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
+预计今天，新疆、内蒙古东部、黑龙江南部、吉林西部、辽宁西部、河北中南部、天津、山东北部、海南岛北部等地有35℃以上的高温天气，局地最高气温将超过37℃。
 
-经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
+专家提醒，北方地区高温天气多以干热为主，白天晴晒气温升高，夜间气温回落明显，昼夜温差较大，公众需根据气温变化适时调整穿着，避免长时间室外暴晒。
 
-上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
+华南等地高温天气则以湿热为主，公众要及时补充水分，防范高温天气对人体健康的不利影响。
 
-案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
+此外，受西风槽系统影响，未来三天，内蒙古东部、东北地区、华北北部等地部分地区有小到中雨或雷阵雨，局地伴有雷暴大风或冰雹等强对流天气。
 
-国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕19号 当事人：浙江天猫网络有限公司 主体资格证照名称：营业执照 统一社会信用代码：91330110571460916M 住所：浙江省杭州市余杭区五常街道文一路西969号3幢5层506室 法定代表人：刘博 依据对当事人初步核查所发现的违法线索，本局于2025年12月16日依法对当事人立案调查。
+中央气象台今晨发布强对流天气蓝色预警：今天，内蒙古东部、东北地区中西部、华北东北部、华南中南部、西南地区东南部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中内蒙古东南部、吉林中部、辽宁中西部等地部分地区将有10级以上雷暴大风，最大风力可达11~12级；内蒙古东北部、东北地区中西部、华南中北部、西南地区东部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中广东中部局地小时雨量大于50毫米，最大可达60毫米以上。
 
-本局通过现场检查、询问当事人、电子取证、数据分析等方式，确定其违法事实。
-
-当事人系“天猫”平台的经营主体，已取得增值电信业务经营许可证、ICP备案及网络食品销售第三方平台提供者备案。
+气象专家提醒，东北地区、华北北部等地将有雷暴大风或冰雹等强对流天气，局地风力较大，公众要及时关注最新预报、预警信息，提前做好相关防范措施，警惕强对流天气对交通出行的不利影响。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 21:07 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 20:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 21:01 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 21:04 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 20:55 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 20:53 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 21:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 21:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 20:57 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 20:53 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 21:01 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 20:54 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 20:49 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 21:16 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 21:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 21:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 21:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 21:21 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 21:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 21:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 21:21 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 21:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 20:54 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 21:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 21:12 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 21:12 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/110187263.shtml)
-- 2026-06-29 20:54 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/09251275.shtml)
-- 2026-06-29 20:51 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/21768.shtml)
-- 2026-06-29 21:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/56846681.shtml)
-- 2026-06-29 21:11 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/1007088437.shtml)
-- 2026-06-29 21:12 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/56952984.shtml)
-- 2026-06-29 20:56 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/289506.shtml)
-- 2026-06-29 20:51 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/17153.shtml)
-- 2026-06-29 20:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/33842935.shtml)
-- 2026-06-29 21:05 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/23656442.shtml)
-- 2026-06-29 21:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/05472.shtml)
-- 2026-06-29 21:08 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/748171792932.shtml)
-- 2026-06-29 20:49 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/058258595.shtml)
-- 2026-06-29 21:01 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/8046958.shtml)
-- 2026-06-29 21:16 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/12335.shtml)
+- 2026-06-29 21:04 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/9003027237.shtml)
+- 2026-06-29 21:04 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/27607.shtml)
+- 2026-06-29 21:08 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/101049.shtml)
+- 2026-06-29 21:22 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/62312924550.shtml)
+- 2026-06-29 21:20 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/52020.shtml)
+- 2026-06-29 21:01 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/23106317.shtml)
+- 2026-06-29 20:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/3027379108.shtml)
+- 2026-06-29 21:21 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/033756295266.shtml)
+- 2026-06-29 21:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/412105.shtml)
+- 2026-06-29 21:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/2487292.shtml)
+- 2026-06-29 21:01 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/234189719.shtml)
+- 2026-06-29 21:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/0047128453.shtml)
+- 2026-06-29 21:01 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/89261870.shtml)
+- 2026-06-29 21:20 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/406497274.shtml)
+- 2026-06-29 21:12 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/531730114321.shtml)

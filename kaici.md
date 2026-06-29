@@ -1,60 +1,54 @@
-# 呼和浩特23家羊绒企业组团亮相深圳 对接大湾区市场
+# 达力普控股公布启动回购计划
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月17日电 (记者 程景伟)第32届FASHION SOURCE时尚之源深圳展(以下简称“FS深圳展”)15日至17日在深圳会展中心(福田)举行。一股来自内蒙古草原的“绒”尚力量引人注目，由呼和浩特市工业和信息化局组织的23家优质羊绒企业，组成展团亮相本届展会，积极对接粤港澳大湾区市场。 呼和浩特羊绒产业闻名海内外。在FS深圳展的聚光灯下，呼和浩特展团汇聚羊绒围巾、
+达力普控股（01921）发布公告，公司于2026年5月22日举行的股东周年大会上，股东以普通决议案通过授予公司董事会一般授权，回购公司不超过2026年股东周年大会当日已发行股份总数10%的股份（即不超过1.58亿股）。董事会认为，公司当前股价未能充分反映集团的内在价值与发展潜力，故决定启动回购计划。回购计划旨在向市场传递董事会对集团未来前景的信心，并通过优化股本结构提升每股盈利
 
 ## 正文
 
-中新网深圳4月17日电 (记者 程景伟)第32届FASHION SOURCE时尚之源深圳展(以下简称“FS深圳展”)15日至17日在深圳会展中心(福田)举行。
+达力普控股（01921）发布公告，公司于2026年5月22日举行的股东周年大会上，股东以普通决议案通过授予公司董事会一般授权，回购公司不超过2026年股东周年大会当日已发行股份总数10%的股份（即不超过1.58亿股）。
 
-一股来自内蒙古草原的“绒”尚力量引人注目，由呼和浩特市工业和信息化局组织的23家优质羊绒企业，组成展团亮相本届展会，积极对接粤港澳大湾区市场。
+董事会认为，公司当前股价未能充分反映集团的内在价值与发展潜力，故决定启动回购计划。
 
-呼和浩特羊绒产业闻名海内外。
+回购计划旨在向市场传递董事会对集团未来前景的信心，并通过优化股本结构提升每股盈利及每股资产净值，从而增加股东的长期回报。
 
-在FS深圳展的聚光灯下，呼和浩特展团汇聚羊绒围巾、服饰、羊绒衫等细分领域的领军企业。
+此外，所回购股份将作为库存股份持有，未来可按需要以注销、出售或用于激励中东发展贡献突出的员工。
 
-“呼和浩特羊绒”与“呼和浩特羊绒围巾”两大地理标志证明商标产品成为全场焦点之一。
+本次股份回购所需资金将来自集团的内部资金（包括现金储备及经营现金流）。
 
-呼和浩特展团相关负责人表示，该展团依托优质的羊绒资源，通过地理标志规范运营，将“呼和浩特羊绒”与“更细、更软、更高端”特点深度绑定。
+董事会已审慎评估集团的财务状况，确保集团具备充裕的资金及现金流以支持回购活动，且回购计划不会对集团的日常经营、业务发展或资本开支安排造成负面影响。
 
-据悉，目前，呼和浩特羊绒基地企业已累计持有国内外自主品牌商标164个、专利95项，产业集群的规模效应与品牌效应日益凸显。
-
-此次展会现场，呼和浩特羊绒产业数字化转型成果引发关注。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 20:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 21:12 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 21:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 20:58 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 20:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:09 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 20:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 21:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 20:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 21:02 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 21:15 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 21:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 21:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 20:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 21:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 21:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 20:57 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 21:19 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 21:07 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 21:18 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 21:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/280447499.shtml)
-- 2026-06-29 21:08 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/630554577693.shtml)
-- 2026-06-29 21:04 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/909380113223.shtml)
-- 2026-06-29 20:56 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/81502050.shtml)
-- 2026-06-29 20:48 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/463145570.shtml)
-- 2026-06-29 20:53 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/52146.shtml)
-- 2026-06-29 20:49 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/151429.shtml)
-- 2026-06-29 21:05 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/19242268.shtml)
-- 2026-06-29 21:04 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/179830260557.shtml)
-- 2026-06-29 20:58 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/64387878.shtml)
-- 2026-06-29 20:56 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/39190.shtml)
-- 2026-06-29 20:49 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/8409837121.shtml)
-- 2026-06-29 21:12 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/0444663.shtml)
-- 2026-06-29 20:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/45721586121.shtml)
-- 2026-06-29 21:00 - [存储三巨头被告了](http://www.share.minike.top/Article/details/451428.shtml)
+- 2026-06-29 21:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/56100013.shtml)
+- 2026-06-29 20:55 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/923842958.shtml)
+- 2026-06-29 20:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9207652895.shtml)
+- 2026-06-29 20:57 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/482576634168.shtml)
+- 2026-06-29 21:21 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/02934695216.shtml)
+- 2026-06-29 21:00 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/39773578795.shtml)
+- 2026-06-29 21:12 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/44643103.shtml)
+- 2026-06-29 21:00 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/95838651297.shtml)
+- 2026-06-29 20:56 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/5585003.shtml)
+- 2026-06-29 21:20 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/30194.shtml)
+- 2026-06-29 20:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/601427795163.shtml)
+- 2026-06-29 21:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/825055038780.shtml)
+- 2026-06-29 21:15 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/833157.shtml)
+- 2026-06-29 20:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/876389719128.shtml)
+- 2026-06-29 21:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/68967.shtml)

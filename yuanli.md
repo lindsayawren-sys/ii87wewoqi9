@@ -1,61 +1,56 @@
-# （近观中国）与苏林长时间深入交流，习近平谈到三点“突出感受”
+# 以文物为桥讲述中国故事联通世界文明
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 题：与苏林长时间深入交流，习近平谈到三点“突出感受” 中新社记者 谢雁冰 春日里，风和日暖。越共中央总书记、国家主席苏林当选国家主席后仅一周，即来华进行国事访问。2024年，苏林就任越共中央总书记后，首次出访就选择了中国。 中共中央总书记、国家主席习近平15日上午在人民大会堂同苏林举行会谈，双方进行了长时间深入交流，达成许多新的重要共识。 同苏林夫妇话别
+中新社北京5月30日电 (记者 应妮)“泥人张”的彩塑仕女、中国最早的可吹奏乐器骨笛、凝聚东方之美的丝织品……当这些展品在哈萨克斯坦、沙特阿拉伯、巴西亮相时，如同架起文明联通之桥，推动不同文化背景的人们之间产生共情和共鸣。 中国国家文物局于2025年启动“文明桥梁计划——文物出境展览精品项目”。作为首批海外落地项目，“文明印记——中国古代工艺文物精华展”于当年10月在哈萨克斯坦
 
 ## 正文
 
-中新社北京4月16日电 题：与苏林长时间深入交流，习近平谈到三点“突出感受” 中新社记者 谢雁冰 春日里，风和日暖。
+中新社北京5月30日电 (记者 应妮)“泥人张”的彩塑仕女、中国最早的可吹奏乐器骨笛、凝聚东方之美的丝织品……当这些展品在哈萨克斯坦、沙特阿拉伯、巴西亮相时，如同架起文明联通之桥，推动不同文化背景的人们之间产生共情和共鸣。
 
-越共中央总书记、国家主席苏林当选国家主席后仅一周，即来华进行国事访问。
+中国国家文物局于2025年启动“文明桥梁计划——文物出境展览精品项目”。
 
-2024年，苏林就任越共中央总书记后，首次出访就选择了中国。
+作为首批海外落地项目，“文明印记——中国古代工艺文物精华展”于当年10月在哈萨克斯坦国家博物馆开幕。
 
-中共中央总书记、国家主席习近平15日上午在人民大会堂同苏林举行会谈，双方进行了长时间深入交流，达成许多新的重要共识。
+该展依托天津博物馆馆藏，集中呈现瓷器、雕刻、织绣工艺、津门非遗等62件(套)文物，通过展现文物背后的技艺传承与文化内涵传递中华民族对美好生活的千年追求，帮助海外观众读懂中华文明的精神内核。
 
-同苏林夫妇话别时，习近平特别谈到：“我突出感受到，中越都是社会主义国家，我们要继续沿着这条道路确定的方向坚定前行，做社会主义事业的命运共同体；我们是休戚与共的好邻居，正在共同奔向现代化，要做实现现代化的命运共同体；我们都主张天下大同，在世界百年变局下，要做推动构建人类命运共同体的伙伴。
+中国国家博物馆2025年在沙特阿拉伯国家博物馆举办“天地同和——中国古代乐器展”，以包括骨笛、编钟、古琴、十二律管等在内的100余件(套)中国古代乐器珍品生动反映出古代中国音乐与礼制、文化认同之间的深刻联系。
 
-” 这三点感受三次提到“命运共同体”，凝聚着中越的理想信念、共同利益与发展共识，也体现责任担当。
+沙特文化部顾问慕娜·哈辛达尔在参观时表示，希望这样的展览可以在两国民众之间架起沟通心灵、增进友谊的文化桥梁。
 
-——做社会主义事业的命运共同体。
+“丝系山海：从中国到巴西”展览携百余件(组)实物展品与互动影像、艺术装置亮相巴西圣保罗移民博物馆，系统梳理丝绸从桑园到织机，再从东方港口出发，一路向西抵达巴西高地的完整旅程。
 
-历史上，在争取国家独立和民族解放事业中，中越两党和两国人民结下了深厚的传统友谊。
+据中国丝绸博物馆社教部主任楼航燕介绍，在工作坊现场，当地孩子们尝试用平纹、附加纬线及多线材混合技法织出独一无二的创意面料。
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 20:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 21:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 21:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 21:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 21:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 20:56 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 21:11 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 20:54 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 21:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 21:15 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 21:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 20:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 20:54 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 21:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:56 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 20:54 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 21:03 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 21:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:00 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 20:54 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 21:09 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 21:15 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/666363872126.shtml)
-- 2026-06-29 21:00 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/97693.shtml)
-- 2026-06-29 21:07 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/39034.shtml)
-- 2026-06-29 20:56 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/886904658.shtml)
-- 2026-06-29 20:58 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/68171.shtml)
-- 2026-06-29 20:56 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/939317618.shtml)
-- 2026-06-29 21:07 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/10863784890.shtml)
-- 2026-06-29 20:58 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/66071341.shtml)
-- 2026-06-29 20:55 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/60981.shtml)
-- 2026-06-29 21:10 - [斗破苍穹](https://www.share.minike.top/Article/details/981622.shtml)
-- 2026-06-29 21:01 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/21292700909.shtml)
-- 2026-06-29 21:02 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/732900.shtml)
-- 2026-06-29 21:02 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/017708.shtml)
-- 2026-06-29 21:12 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/91768219297.shtml)
-- 2026-06-29 21:09 - [绘画区你赢了](https://www.blog.minike.top/Article/details/794174237999.shtml)
+- 2026-06-29 21:19 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/922927641.shtml)
+- 2026-06-29 21:05 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/0644520.shtml)
+- 2026-06-29 21:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/7681835.shtml)
+- 2026-06-29 21:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/24761123424.shtml)
+- 2026-06-29 21:15 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/2266475.shtml)
+- 2026-06-29 21:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/32459246705.shtml)
+- 2026-06-29 21:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/932809866.shtml)
+- 2026-06-29 21:16 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/159964.shtml)
+- 2026-06-29 21:01 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/85347092.shtml)
+- 2026-06-29 21:17 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/501982.shtml)
+- 2026-06-29 21:07 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/10942730593.shtml)
+- 2026-06-29 21:21 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/41816197.shtml)
+- 2026-06-29 21:23 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/051615024.shtml)
+- 2026-06-29 21:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/3684473.shtml)
+- 2026-06-29 21:15 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/7836580577.shtml)

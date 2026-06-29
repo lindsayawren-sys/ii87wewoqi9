@@ -1,60 +1,56 @@
-# 中越青年相聚广西南宁分享友好故事
+# 崔东树：未来超豪华车必然崩溃
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月17日电(陈秋霞)4月17日，2026年中国(广西)—越南青年手拉手活动在广西大学举行。中越青年代表800余人齐聚一堂，交流分享、共叙友谊。 活动上，主办方为2026年新聘任的“中国(广西)—越南友好故事青年讲述官”颁发证书。来自中越两国的10名优秀青年代表获聘为新一任讲述官，他们分别是广西百色市乐业县百坭村驻村第一书记陈竑任、广西崇左市融媒体中心主持人陈佳乐、广
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行，全国乘用车市场信息联席分会秘书长崔东树出席并演讲。 他指出，在AI与新能源的双重驱动下，中国汽车产业正迎来前所未有的历史性机遇，未来有望突破年销5000万辆大关，占据全球市场的半壁江山。 然而，随着中国力量的崛起，全球汽车产业格局正呈现“东升西落”的态势。丰田、起亚等传统巨头面
 
 ## 正文
 
-中新网南宁4月17日电(陈秋霞)4月17日，2026年中国(广西)—越南青年手拉手活动在广西大学举行。
+专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行，全国乘用车市场信息联席分会秘书长崔东树出席并演讲。
 
-中越青年代表800余人齐聚一堂，交流分享、共叙友谊。
+他指出，在AI与新能源的双重驱动下，中国汽车产业正迎来前所未有的历史性机遇，未来有望突破年销5000万辆大关，占据全球市场的半壁江山。
 
-活动上，主办方为2026年新聘任的“中国(广西)—越南友好故事青年讲述官”颁发证书。
+然而，随着中国力量的崛起，全球汽车产业格局正呈现“东升西落”的态势。
 
-来自中越两国的10名优秀青年代表获聘为新一任讲述官，他们分别是广西百色市乐业县百坭村驻村第一书记陈竑任、广西崇左市融媒体中心主持人陈佳乐、广西壮族自治区南溪山医院院史展览馆讲解员黄清瑕、广西大学计算机与电子信息学院人工智能系主任白琳、广西自然资源职业技术学院教师贺鹏飞5名中方青年，以及广西大学越南留学生陈氏芳草、广西民族大学越南留学生会主席黎道重、广西艺术学院越南籍教师武明英、广西艺术学院越南留学生裴香银、广西师范大学越南留学生阮官尚5名越方青年。
+丰田、起亚等传统巨头面临下行压力，而比亚迪、吉利、奇瑞等中国车企正加速崛起，尽管在国际市场仍有巨大提升空间，但中国已成为推动行业变革的核心力量。
 
-故事分享环节，4名讲述官结合自身在乡村振兴、留学逐梦、青年工作、艺术交流等领域的亲身经历，生动讲述了中越青年守望相助、互学互鉴的感人故事。
+他认为，AI正在重塑汽车的产品定义，使其从传统的机械产品彻底转变为“耐用电子消费品”。
 
-陈竑任讲述了以乐业县百坭村原驻村第一书记黄文秀为代表的中国青年，如何将个人发展融入国家发展大局，扎根土地、建设家乡。
+在研发端，AI驱动使得新车推出周期从过去的四年缩短至一年，产品迭代速度堪比智能手机。
 
-陈氏芳草分享了自己留学期间跨越语言与文化差异、收获友谊与成长的温暖故事。
+在体验端，智能座舱正从“感知智能”迈向“认知智能”，未来的汽车将成为集智驾、座舱、底盘于一体的多智能体融合终端。
 
-黄清瑕讲述了自治区南溪山医院救治越南伤员的历史故事，激励新时代青年医务工作者用实际行动书写中越友谊的新篇章。
+“未来的超豪华车必然崩溃。
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 21:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 21:06 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 20:53 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 21:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 21:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 20:58 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 21:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 21:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 21:01 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 20:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 20:59 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 20:50 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 21:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 20:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 21:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 21:16 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 21:05 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 21:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 21:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 21:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/8761239.shtml)
-- 2026-06-29 20:50 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/482424128181.shtml)
-- 2026-06-29 21:10 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/6234818.shtml)
-- 2026-06-29 20:51 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/4845071907.shtml)
-- 2026-06-29 20:53 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/4234907561.shtml)
-- 2026-06-29 21:03 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/8017555.shtml)
-- 2026-06-29 20:52 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/171635383.shtml)
-- 2026-06-29 21:06 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/71450079.shtml)
-- 2026-06-29 21:09 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/34119424262.shtml)
-- 2026-06-29 21:06 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/197933.shtml)
-- 2026-06-29 20:53 - [起风了](http://www.share.minike.top/Article/details/448060185476.shtml)
-- 2026-06-29 20:59 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/066920.shtml)
-- 2026-06-29 21:01 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/799525103.shtml)
-- 2026-06-29 21:15 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/8816456.shtml)
-- 2026-06-29 20:52 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/79130.shtml)
+- 2026-06-29 21:11 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/580132031631.shtml)
+- 2026-06-29 21:12 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/77771914606.shtml)
+- 2026-06-29 20:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/82249687172.shtml)
+- 2026-06-29 21:21 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/2221837838.shtml)
+- 2026-06-29 21:18 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/17122724753.shtml)
+- 2026-06-29 21:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/029531918438.shtml)
+- 2026-06-29 21:11 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/24140.shtml)
+- 2026-06-29 21:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/452725722093.shtml)
+- 2026-06-29 21:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/8823821844.shtml)
+- 2026-06-29 20:56 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/01197.shtml)
+- 2026-06-29 21:05 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/58830858.shtml)
+- 2026-06-29 21:11 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/78973.shtml)
+- 2026-06-29 21:13 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/45756044.shtml)
+- 2026-06-29 21:04 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/747608386776.shtml)
+- 2026-06-29 21:16 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/58316.shtml)

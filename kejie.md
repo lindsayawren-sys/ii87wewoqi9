@@ -1,54 +1,56 @@
-# 软银集团发行10年期美元债券 票面利率达到创纪录的8.5%
+# 钱进：AI在很多不同领域提供了平等的机会
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-软银集团同意为美元债券支付自己历来最高的利率，这凸显了人们对这家日本企业集团在人工智能AI领域大规模投资的担忧。 据公司声明，软银集团周三发行了15亿美元和17.5亿欧元（21亿美元）债券，部分资金将用于偿还与其投资美国科技公司OpenAI相关的过桥贷款。其中发行的10年期美元债券票面利率为8.5%，数据显示，这创下该公司以美元发行债券的最高纪录，超过了去年10月创下的前期高点
+专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行，艺见未来artilectum 艺术俱乐部创始人，苏富比前中国区董事总经理钱进表示，AI在很多不同领域提供了平等的机会。 钱进坦言，虽然在一定程度上，女性在AI基础技能上的占比确实存在客观事实，这可能与兴趣爱好及教育背景有关。但在这一过程中，AI恰恰能
 
 ## 正文
 
-软银集团同意为美元债券支付自己历来最高的利率，这凸显了人们对这家日本企业集团在人工智能AI领域大规模投资的担忧。
+专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行，艺见未来artilectum 艺术俱乐部创始人，苏富比前中国区董事总经理钱进表示，AI在很多不同领域提供了平等的机会。
 
-据公司声明，软银集团周三发行了15亿美元和17.5亿欧元（21亿美元）债券，部分资金将用于偿还与其投资美国科技公司OpenAI相关的过桥贷款。
+钱进坦言，虽然在一定程度上，女性在AI基础技能上的占比确实存在客观事实，这可能与兴趣爱好及教育背景有关。
 
-其中发行的10年期美元债券票面利率为8.5%，数据显示，这创下该公司以美元发行债券的最高纪录，超过了去年10月创下的前期高点。
+但在这一过程中，AI恰恰能够让人们迅速补齐知识层面的差异。
 
-去年软银在AI领域进行了大规模投资，其中包括向OpenAI追加300亿美元的股权投资，软银为此举债。
+此外，尽管AI可以代替人类做很多事情，但“很human的那部分，情感的那个部分”，AI在很大程度上没有办法代替人类。
 
-该公司不利的债务指标正日益在债券市场中得到反映。
+钱进认为，女性在这一点上会更敏感，更能够懂得情感的沟通，“这个其实是刚好又凸显了我们的一个优势”。
 
-周三发行债券的利率更接近于更低垃圾级公司所支付的利率。
+钱进表示，在与周围大量AI领域创业者的沟通中，发现在硬件及更多前沿开发层面上，确实仍以男性为主。
 
-责任编辑：江学思
+但是，在应用层面，会越来越多地看到女性正在起到领导作用。
+
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 21:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 20:53 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 20:50 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 20:55 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 21:04 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 21:06 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 21:03 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 20:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 20:59 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 21:15 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 20:55 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 21:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 21:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 20:59 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 21:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 21:05 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 20:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 21:20 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/52113.shtml)
-- 2026-06-29 21:16 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/9561770.shtml)
-- 2026-06-29 21:02 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/24194.shtml)
-- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/2776970513.shtml)
-- 2026-06-29 20:50 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/727646.shtml)
-- 2026-06-29 20:50 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/36347618.shtml)
-- 2026-06-29 21:02 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/19586646.shtml)
-- 2026-06-29 21:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/629998264.shtml)
-- 2026-06-29 20:54 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/25079290.shtml)
-- 2026-06-29 21:03 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/7549036.shtml)
-- 2026-06-29 21:03 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/0784767288.shtml)
-- 2026-06-29 20:52 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/60658590.shtml)
-- 2026-06-29 20:59 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/6774232848.shtml)
-- 2026-06-29 21:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/49938.shtml)
-- 2026-06-29 20:48 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/00667.shtml)
+- 2026-06-29 20:58 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/1664226.shtml)
+- 2026-06-29 21:12 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/02141005086.shtml)
+- 2026-06-29 21:13 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/3297897.shtml)
+- 2026-06-29 21:08 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/5716441.shtml)
+- 2026-06-29 21:18 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/841164851561.shtml)
+- 2026-06-29 21:23 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/691127.shtml)
+- 2026-06-29 21:03 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/41256.shtml)
+- 2026-06-29 21:21 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/0061837.shtml)
+- 2026-06-29 21:19 - [急先锋](https://www.share.minike.top/Article/details/86511793127.shtml)
+- 2026-06-29 20:54 - [田曦薇没招了](https://www.blog.minike.top/Article/details/028219096.shtml)
+- 2026-06-29 21:11 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/0600983922.shtml)
+- 2026-06-29 21:05 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/11477622175.shtml)
+- 2026-06-29 21:16 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/72799.shtml)
+- 2026-06-29 21:04 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/669509224.shtml)
+- 2026-06-29 21:08 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/57862766.shtml)

@@ -1,58 +1,60 @@
-# 西南大学袁隆平纪念馆开馆 近百张师生缅怀卡片展出
+# 第二十届深圳金博会科创产业投资大会举办
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 4月15日，西南大学校史文博系列场馆对外亮相。其中，全新建成的袁隆平纪念馆备受关注。 1949年，袁隆平考入位于重庆北碚夏坝的相辉学院农学系，该校后来并入新成立的西南农学院，系现西南大学前身之一。 袁隆平纪念馆设于西南大学校史馆二楼，总面积400余平方米，全景呈现其生平历程、杂交水稻科研攻关成果与卓越贡献，同时完整
+中新网深圳5月29日电 (记者 索有为)第二十届深圳国际金融博览会(简称“金博会”)27日至29日在深圳举办，与金博会同期举办的科创产业投资大会以“AI时代：制造业与服务业协同发展”为主题，打造“政策解读+资本对接+产业落地”的全链条交流平台，汇聚行业精英、金融机构与科创企业，共探科技与产业、资本深度融合新路径。 鲲智投资合伙人谭小平在题为《硬科技产业并购资本赋能技术整合》的主
 
 ## 正文
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 4月15日，西南大学校史文博系列场馆对外亮相。
+中新网深圳5月29日电 (记者 索有为)第二十届深圳国际金融博览会(简称“金博会”)27日至29日在深圳举办，与金博会同期举办的科创产业投资大会以“AI时代：制造业与服务业协同发展”为主题，打造“政策解读+资本对接+产业落地”的全链条交流平台，汇聚行业精英、金融机构与科创企业，共探科技与产业、资本深度融合新路径。
 
-其中，全新建成的袁隆平纪念馆备受关注。
+鲲智投资合伙人谭小平在题为《硬科技产业并购资本赋能技术整合》的主旨演讲中，剖析当前一级市场存量博弈格局与退出渠道结构性变化。
 
-1949年，袁隆平考入位于重庆北碚夏坝的相辉学院农学系，该校后来并入新成立的西南农学院，系现西南大学前身之一。
+他表示，IPO退出热度回落、并购退出逆势崛起，“924新规”与“十五五”规划为并购重组提供制度红利，粤港澳大湾区凭借产业生态与资本规模优势，成为硬科技并购核心阵地。
 
-袁隆平纪念馆设于西南大学校史馆二楼，总面积400余平方米，全景呈现其生平历程、杂交水稻科研攻关成果与卓越贡献，同时完整展现他与西南大学的深厚渊源。
+他从投决考量、投后赋能、生态构建等维度，为投资机构与科创企业布局并购赛道提供实操指引。
 
-馆内展陈大量珍贵资料与实物，不少展品是首次公开。
+中国民生银行深圳分行中小企业金融部负责人杨其海现场推介科创金融服务方案，以“科技金融民生相伴”为理念，推出全周期产品矩阵，覆盖企业初创、成长期、成熟期各阶段，提供股权融资、知识产权贷、厂房贷、并购贷等多元金融服务，并联动1400+战略客户与200+产业联盟资源，助力科创企业对接资本、链接产业。
 
-袁隆平生前穿过的格子衬衫，以及带有志愿军英雄签名的学生证均在列。
+圆桌论坛环节，毕马威、德勤、鹏盛、安永、普华永道五家会计师事务所专家围绕2026年A股、港股IPO市场趋势、A股生态变革、AI与半导体赛道机遇、科创板“1+6”改革申报策略、港股18A与18C上市规则差异等议题展开深度对话。
 
-西南大学校史馆副馆长郑劲松介绍，纪念馆筹备期间，团队系统梳理袁隆平求学、科研、回馈母校的完整脉络，重点突出实物叙事与情感共鸣。
+他们认为，当前资本市场已进入科技成长驱动新阶段，A股科创板、港股18A/18C等板块精准赋能硬科技企业。
 
-据悉，袁隆平逝世后，师生在校内袁隆平塑像前敬献的4000余张缅怀卡片被永久收藏，本次展出近百张。
+会计师事务所将持续以专业能力护航科创企业合规化、资本化发展，助力企业实现A+H股双向布局，推动科技与资本共生共进。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 21:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 21:13 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 21:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 20:57 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 21:03 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 20:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 21:09 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 21:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 21:15 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 20:51 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 21:02 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 21:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 21:19 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 21:07 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:07 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:09 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:57 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 20:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 20:56 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 21:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 21:12 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 21:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 21:19 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 21:15 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 21:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/06785346975.shtml)
-- 2026-06-29 21:16 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/7424780.shtml)
-- 2026-06-29 20:49 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/8265115992.shtml)
-- 2026-06-29 21:11 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/442428715.shtml)
-- 2026-06-29 20:52 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/7507358245.shtml)
-- 2026-06-29 20:59 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/612541536800.shtml)
-- 2026-06-29 21:15 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/996220.shtml)
-- 2026-06-29 21:02 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/370614123088.shtml)
-- 2026-06-29 20:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/6093741.shtml)
-- 2026-06-29 21:01 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/0026476.shtml)
-- 2026-06-29 21:02 - [沉睡花园](http://www.blog.minike.top/Article/details/7085701847.shtml)
-- 2026-06-29 20:50 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/587081.shtml)
-- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/756100906356.shtml)
-- 2026-06-29 21:01 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/94354946574.shtml)
-- 2026-06-29 20:57 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/00231.shtml)
+- 2026-06-29 20:57 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/4192055.shtml)
+- 2026-06-29 21:04 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/1320116.shtml)
+- 2026-06-29 21:03 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/62952666738.shtml)
+- 2026-06-29 21:20 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/38432730077.shtml)
+- 2026-06-29 20:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/021841.shtml)
+- 2026-06-29 21:22 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/6595761066.shtml)
+- 2026-06-29 21:14 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/156101496057.shtml)
+- 2026-06-29 21:15 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/98257.shtml)
+- 2026-06-29 20:54 - [急先锋](http://www.share.minike.top/Article/details/492432.shtml)
+- 2026-06-29 21:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6327966851.shtml)
+- 2026-06-29 21:07 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/44378678.shtml)
+- 2026-06-29 21:15 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/276182757293.shtml)
+- 2026-06-29 21:10 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/9883263128.shtml)
+- 2026-06-29 21:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/677755443851.shtml)
+- 2026-06-29 21:11 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/82404898.shtml)

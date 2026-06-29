@@ -1,57 +1,56 @@
-# 中老铁路一季度进出口货值达68.1亿元
+# 浙江今年通过省间电力现货市场购电量突破50亿千瓦时
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-据昆明海关所属勐腊海关统计，截至四月七号，中老铁路通车以来，进出口货值超800亿元，进出口商品品类从500多种增至3800多种运输服务，覆盖全国超6000家企业，辐射老挝、泰国等19个国家和地区。今年一季度中，中老铁路进出口货值达68.1亿元，同比增长百分之62.7%，创历年同期新高。进口方面，干鲜瓜果增长一倍，榴莲成亮点，磨憨铁路口岸跃居全国最大榴莲进口铁路口岸。出口新三样产
+中新网杭州5月29日电(鲍梦妮 王倩莹)据国网浙江电力5月29日消息，截至5月27日，浙江通过省间电力现货市场购电量突破50亿千瓦时，达51亿千瓦时，同比增长约20%。 5月中下旬，受天气影响，浙江空调负荷快速增长，用电需求大幅攀升，全省最高用电负荷达1.098亿千瓦，同比增长14.5%。国网浙江电力提前研判供需形势，充分利用省间输电通道剩余能力，通过省间电力现货市场灵活增购外
 
 ## 正文
 
-据昆明海关所属勐腊海关统计，截至四月七号，中老铁路通车以来，进出口货值超800亿元，进出口商品品类从500多种增至3800多种运输服务，覆盖全国超6000家企业，辐射老挝、泰国等19个国家和地区。
+中新网杭州5月29日电(鲍梦妮 王倩莹)据国网浙江电力5月29日消息，截至5月27日，浙江通过省间电力现货市场购电量突破50亿千瓦时，达51亿千瓦时，同比增长约20%。
 
-今年一季度中，中老铁路进出口货值达68.1亿元，同比增长百分之62.7%，创历年同期新高。
+5月中下旬，受天气影响，浙江空调负荷快速增长，用电需求大幅攀升，全省最高用电负荷达1.098亿千瓦，同比增长14.5%。
 
-进口方面，干鲜瓜果增长一倍，榴莲成亮点，磨憨铁路口岸跃居全国最大榴莲进口铁路口岸。
+国网浙江电力提前研判供需形势，充分利用省间输电通道剩余能力，通过省间电力现货市场灵活增购外来电。
 
-出口新三样产品激增10.4倍，其中光伏产品增长43.2倍。
+截至目前，省间现货购入最大电力达709万千瓦，为高温天气下电力可靠供应提供了坚实支撑。
 
-依托中老铁路开展跨境贸易的企业中，民营企业占比超八成，越来越多市场主体共享中老铁路对外开放红利。
+省间电力现货市场自2022年启动以来，已成为浙江统筹调配跨区电力资源、优化能源配置格局的关键平台。
 
-今年以来，昆明海关推出优化口岸营商环境，促进跨境贸易便利化十六条具体措施，推动实施畅通丝绸之路等服务高水平对外开放，推动云南外贸高质量发展八大行动，深入实施“铁路快通”“先放后检”等监管模式改革，全力保障澜湄快线、“中老铁路+中欧班列”、国际货运班列高效运行。
+浙江作为典型电力受端省份，外来电占比超三分之一，省间现货交易成交量连年稳步攀升，并连续两年突破百亿千瓦时，呈现量增价稳的良性态势，为该省经济社会高质量发展、民生用电安稳提供可靠充足的电力保障。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 20:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 20:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 20:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 20:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 21:09 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 20:59 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 21:05 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 20:57 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 21:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 21:17 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 21:06 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 20:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 21:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:00 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 21:01 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 21:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 21:04 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 21:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 21:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 21:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 21:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 21:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 21:03 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 21:08 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 21:22 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/20116794581.shtml)
-- 2026-06-29 20:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/0121084201.shtml)
-- 2026-06-29 20:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/47441112464.shtml)
-- 2026-06-29 20:56 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/56527.shtml)
-- 2026-06-29 21:15 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/75642.shtml)
-- 2026-06-29 21:02 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/779184.shtml)
-- 2026-06-29 21:06 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/160509.shtml)
-- 2026-06-29 20:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/24372.shtml)
-- 2026-06-29 21:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/869436341867.shtml)
-- 2026-06-29 20:59 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/1096195.shtml)
-- 2026-06-29 20:58 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/328571222847.shtml)
-- 2026-06-29 21:10 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/5777201600.shtml)
-- 2026-06-29 20:49 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/33337.shtml)
-- 2026-06-29 21:11 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/64892.shtml)
-- 2026-06-29 21:08 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/730952901.shtml)
+- 2026-06-29 21:02 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/5101833172.shtml)
+- 2026-06-29 20:56 - [网红小徐直播时突遇地震](https://www.share.minike.top/Article/details/3457804.shtml)
+- 2026-06-29 21:22 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/5702438.shtml)
+- 2026-06-29 20:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/10811256651.shtml)
+- 2026-06-29 21:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/586406751693.shtml)
+- 2026-06-29 21:16 - [沙丘](http://www.share.minike.top/Article/details/354621182748.shtml)
+- 2026-06-29 21:09 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/388809366.shtml)
+- 2026-06-29 21:08 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/21509334.shtml)
+- 2026-06-29 21:06 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/429363139023.shtml)
+- 2026-06-29 21:19 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/009426396.shtml)
+- 2026-06-29 21:23 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/303886.shtml)
+- 2026-06-29 21:08 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/47362424257.shtml)
+- 2026-06-29 21:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/74111582818.shtml)
+- 2026-06-29 21:07 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/6376913067.shtml)
+- 2026-06-29 21:10 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/5795725.shtml)

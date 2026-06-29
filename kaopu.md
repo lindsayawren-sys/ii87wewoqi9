@@ -1,56 +1,61 @@
-# 岂能让“山寨院士”沦为牟利工具？
+# 公募量化“出圈”：新发爆款频出，存量产品走红
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-交1200元工本费就能买到“院士”证书，花1000元便可戴上“专家”头衔。近日，网友曝光的一起“卖证”闹剧引发舆论哗然。据报道，内蒙古自治区北方文化研究院违规向社会人员发送发证通知，以收取工本费为名售卖院士、专家证书，事发后还要求爆料人删帖，企图掩盖违规事实。该行为被指严重损害国家级学术荣誉的严肃性。经初步核实，该院已发出1个“北方文化研究院院士”证书、实际收取费用1000元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年以来，公募量化基金站上风口，热度持续攀升。新发产品密集上线、爆款频现；存量产品业绩“出圈”、规模暴增。公募积极布局与投资者热情进场的双向奔赴，让这一曾经小众的产品赛道迎来快速增长期。 Wind数据显示，按照基金全称含有“量化”二字为统计口径（全文同），今年前5个月，公募量化产品新发规模已超过去年全年总量
 
 ## 正文
 
-交1200元工本费就能买到“院士”证书，花1000元便可戴上“专家”头衔。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近日，网友曝光的一起“卖证”闹剧引发舆论哗然。
+今年以来，公募量化基金站上风口，热度持续攀升。
 
-据报道，内蒙古自治区北方文化研究院违规向社会人员发送发证通知，以收取工本费为名售卖院士、专家证书，事发后还要求爆料人删帖，企图掩盖违规事实。
+新发产品密集上线、爆款频现；存量产品业绩“出圈”、规模暴增。
 
-该行为被指严重损害国家级学术荣誉的严肃性。
+公募积极布局与投资者热情进场的双向奔赴，让这一曾经小众的产品赛道迎来快速增长期。
 
-经初步核实，该院已发出1个“北方文化研究院院士”证书、实际收取费用1000元。
+Wind数据显示，按照基金全称含有“量化”二字为统计口径（全文同），今年前5个月，公募量化产品新发规模已超过去年全年总量，扩容态势显著。
 
-目前主管部门已紧急叫停相关行为、启动退费收证与调查工作，及时遏制乱象蔓延。
+业内人士预判，随着投资者对量化策略产品的接受度不断提高，公募量化规模有望持续走高。
 
-但事件暴露的监管短板与价值扭曲，值得全社会深刻反思。
+量化与主观投资、AI的深度融合，或将成为该品种的核心竞争壁垒。
 
-“北方文化研究院院士”的称号含金量是多少？
+新发、存量双爆发 本轮公募量化的火热行情，是新发市场扩容与存量产品走红的双重结果。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 21:15 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:05 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 20:54 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 20:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 20:50 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 20:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 20:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 21:17 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 21:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 21:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 21:10 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 21:15 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 21:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 21:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 20:59 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 21:09 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 20:56 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 21:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 21:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 21:05 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 21:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 21:02 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 21:01 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/262844198.shtml)
-- 2026-06-29 21:09 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/5491912431.shtml)
-- 2026-06-29 20:51 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/07668455528.shtml)
-- 2026-06-29 20:51 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/00960778.shtml)
-- 2026-06-29 20:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/604721142939.shtml)
-- 2026-06-29 21:14 - [TTG KSG](https://www.blog.minike.top/Article/details/32919207.shtml)
-- 2026-06-29 21:01 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/58157766356.shtml)
-- 2026-06-29 21:16 - [炽夏](https://www.blog.minike.top/Article/details/38072197.shtml)
-- 2026-06-29 21:15 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/081332049.shtml)
-- 2026-06-29 20:54 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/3047209.shtml)
-- 2026-06-29 21:06 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/5773004905.shtml)
-- 2026-06-29 21:17 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/15907269.shtml)
-- 2026-06-29 21:07 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/97398338758.shtml)
-- 2026-06-29 20:53 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/56840891714.shtml)
-- 2026-06-29 21:07 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/40477251577.shtml)
+- 2026-06-29 21:19 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/6138823407.shtml)
+- 2026-06-29 20:54 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/682147482075.shtml)
+- 2026-06-29 21:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8873685408.shtml)
+- 2026-06-29 21:15 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/49740222.shtml)
+- 2026-06-29 20:57 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/936351095144.shtml)
+- 2026-06-29 21:19 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/14604.shtml)
+- 2026-06-29 21:06 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/099883830746.shtml)
+- 2026-06-29 20:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/36669.shtml)
+- 2026-06-29 21:00 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/477551514.shtml)
+- 2026-06-29 21:01 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/73247529045.shtml)
+- 2026-06-29 20:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/516850367182.shtml)
+- 2026-06-29 21:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/894574.shtml)
+- 2026-06-29 20:59 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/0899915126.shtml)
+- 2026-06-29 20:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/12072766008.shtml)
+- 2026-06-29 21:13 - [女心理师](http://www.blog.minike.top/Article/details/626835892.shtml)

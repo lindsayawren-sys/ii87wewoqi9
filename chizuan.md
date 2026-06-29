@@ -1,59 +1,57 @@
-# 列车紧急寻医广播响起 河南一医学生冲上去救人
+# 用时仅23个工作日，这类再融资项目跑出加速度！
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网洛阳4月17日电 (记者 韩章云)“当列车广播紧急寻医的声音响起时，是吴子轩第一时间挺身而出……”4月16日，一封来自中国铁路北京局集团有限公司石家庄客运段的感谢信送达河南省洛阳职业技术学院，以感谢该校基础医学院学生吴子轩在列车上紧急救人的善举。 4月15日6时40分左右，从襄阳至北京西的K474次列车上，一段紧急寻医广播响起。刚刚结束实习、前往北京求职的洛阳职业技术学院
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。 同日，科创板公司特宝生物的可转债再融资项目也提交注册。据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。 中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”
 
 ## 正文
 
-中新网洛阳4月17日电 (记者 韩章云)“当列车广播紧急寻医的声音响起时，是吴子轩第一时间挺身而出……”4月16日，一封来自中国铁路北京局集团有限公司石家庄客运段的感谢信送达河南省洛阳职业技术学院，以感谢该校基础医学院学生吴子轩在列车上紧急救人的善举。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。
 
-4月15日6时40分左右，从襄阳至北京西的K474次列车上，一段紧急寻医广播响起。
+同日，科创板公司特宝生物的可转债再融资项目也提交注册。
 
-刚刚结束实习、前往北京求职的洛阳职业技术学院基础医学院2023级中医专业学生吴子轩，毫不犹豫地冲到12号车厢。
+据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。
 
-据他回忆，现场一名中年男性坐在座位上，面色通红、神志不清，情况十分危急。
+中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”落地项目。
 
-凭借所学医学知识，吴子轩迅速对男子进行初步检查，发现其收缩压已高达180mmHg以上，属于高危状态。
+公开资料显示，中科曙光成立于2006年3月，2014年11月在上交所主板上市，是国内高端计算领域和算力基础设施解决方案的领军企业，主营业务为高端计算机、存储、安全、数据中心产品的研发及制造。
 
-因病情影响，男子始终无法清晰表达自身情况。
+根据募集说明书，公司“轻资产、高研发投入”特质突出，截至2025年末，公司实物资产占比仅11.85%，2023年至2025年平均研发投入占营业收入比例为12.56%，且最近三年累计研发投入合计53.34亿元，符合沪市主板“轻资产、高研发投入”认定标准。
 
-“结合当时他的症状，我初步推断他可能有‘三高’病史，为突发高血压急症，急需降压处理。
+本次发行可转债拟募集资金80亿元，将用于“面向人工智能的先进算力集群系统项目”“下一代高性能AI训推一体机项目”和“国产化先进存储系统项目”等项目，是响应国家战略部署、打造智能算力技术体系护城河的重要举措，通过本次募投项目实施，可以使先进算力集群系统整体技术水平与国际主流产品对齐，提升产业链的自主可控能力，推动人工智能与实体经济加速融合。
 
-”吴子轩介绍，紧急时刻一名热心乘客提供了降压药。
+2025年，中科曙光营业收入同比增长13.81%，扣非归母净利润同比增长33.97%；2026年第一季度，公司业绩进一步增长，营业收入同比增长23.71%，扣非归母净利润同比增长53.30%。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 20:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 21:00 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 21:03 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 21:03 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 21:16 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 21:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 21:07 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 21:10 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 20:53 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 21:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 21:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 20:53 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 21:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 21:20 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 21:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 21:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 21:18 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 21:08 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:10 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 21:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:09 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 21:09 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/48582.shtml)
-- 2026-06-29 21:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/5056474456.shtml)
-- 2026-06-29 20:54 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/896860.shtml)
-- 2026-06-29 20:57 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/4284400182.shtml)
-- 2026-06-29 20:52 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/2586286.shtml)
-- 2026-06-29 20:58 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/853448.shtml)
-- 2026-06-29 21:05 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/03721798.shtml)
-- 2026-06-29 21:03 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/003936.shtml)
-- 2026-06-29 21:02 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/41999154385.shtml)
-- 2026-06-29 21:15 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/82660031.shtml)
-- 2026-06-29 21:07 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/616321326300.shtml)
-- 2026-06-29 21:10 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/84537751.shtml)
-- 2026-06-29 20:54 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/4952766282.shtml)
-- 2026-06-29 21:11 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/6709830.shtml)
-- 2026-06-29 21:01 - [一见倾心](https://www.blog.minike.top/Article/details/420421158.shtml)
+- 2026-06-29 21:01 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/52028.shtml)
+- 2026-06-29 20:58 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/85623828.shtml)
+- 2026-06-29 21:08 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/003320.shtml)
+- 2026-06-29 21:10 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/3479388722.shtml)
+- 2026-06-29 21:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8323734837.shtml)
+- 2026-06-29 21:18 - [乌克兰发广告全球征兵](http://www.share.kurohicncr.top/Article/details/46128311523.shtml)
+- 2026-06-29 21:08 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/93340480836.shtml)
+- 2026-06-29 21:02 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/50431675.shtml)
+- 2026-06-29 21:22 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/9425450087.shtml)
+- 2026-06-29 21:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/5914527.shtml)
+- 2026-06-29 20:55 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/17043727.shtml)
+- 2026-06-29 21:10 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/157465433729.shtml)
+- 2026-06-29 21:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/24879152449.shtml)
+- 2026-06-29 21:23 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/2921723764.shtml)
+- 2026-06-29 21:17 - [美人鱼](http://www.blog.minike.top/Article/details/638130.shtml)

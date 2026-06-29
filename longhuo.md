@@ -1,60 +1,60 @@
-# 创业慧康控股权落定：葛航退到台后，杭州更好拿下12.64%表决权，近30年老牌杭企易主 | 长三角资本局
+# 第十四届国际警务论坛举行 多国代表共商网络犯罪治理
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 创业近30年后，创业慧康还是走到了控股股东易主这一步。 4月10日，创业慧康公告称，公司控股股东变更为杭州更好智投管理咨询合伙企业（有限合伙），公司仍处于无实际控制人状态。根据公告，杭州更好直接持有公司6.23%股份，并通过表决权委托、一致行动安排等方式，合计控制12.64%股份对应的表决权。随着其提名的6名董事在董事会换届中全部当选，创业慧康控制权正
+中新网北京5月30日电 (记者 郭超凯)第十四届国际警务论坛5月30日至31日在中国人民公安大学举办。公安部相关业务局领导出席并致辞。来自联合国、国际刑警组织及14个国家和地区的境外高级执法官员、警察院校负责人及警务专家，以及国内14所公安院校、9所综合类院校的120余名代表共聚一堂，共谋网络空间安全治理与合作。 本届论坛以“网络犯罪治理能力建设与人才培养”为主题，紧扣全球网络
 
 ## 正文
 
-文|新浪财经上海站 十里 创业近30年后，创业慧康还是走到了控股股东易主这一步。
+中新网北京5月30日电 (记者 郭超凯)第十四届国际警务论坛5月30日至31日在中国人民公安大学举办。
 
-4月10日，创业慧康公告称，公司控股股东变更为杭州更好智投管理咨询合伙企业（有限合伙），公司仍处于无实际控制人状态。
+公安部相关业务局领导出席并致辞。
 
-根据公告，杭州更好直接持有公司6.23%股份，并通过表决权委托、一致行动安排等方式，合计控制12.64%股份对应的表决权。
+来自联合国、国际刑警组织及14个国家和地区的境外高级执法官员、警察院校负责人及警务专家，以及国内14所公安院校、9所综合类院校的120余名代表共聚一堂，共谋网络空间安全治理与合作。
 
-随着其提名的6名董事在董事会换届中全部当选，创业慧康控制权正式完成切换。
+本届论坛以“网络犯罪治理能力建设与人才培养”为主题，紧扣全球网络安全治理新形势新要求，积极回应当前网络犯罪治理中的痛点难点问题，聚焦数据安全、个人信息保护、电子证据取证、加密货币犯罪、人工智能滥用等前沿热点领域，就深化全球网络警务务实合作、推动网络犯罪治理技术创新发展、加强高素质专业化网络安全人才培养等方面进行了深入交流研讨。
 
-对创业慧康来说，这不是一次突然发生的易主。
+论坛发布了中国人民公安大学指数系列蓝皮书——《国际网络安全与治理报告(2025)》。
 
-公司前身为创业软件，1997年由葛航创办，2015年登陆创业板，2019年更名为创业慧康。
+该蓝皮书聚焦网络犯罪全球化、智能化演变新趋势和全球网络安全治理现实需求，以全球5大洲数十个典型国家为研究对象，构建指标体系，系统评估了全球网络安全态势、治理效能与能力短板，为各国加强网络犯罪治理、完善网络安全政策、提升公共安全治理能力提供了有益参考。
 
-很长一段时间里，葛航既是创始人，也是这家杭州老牌医疗信息化企业最鲜明的个人标签。
+论坛同步举办境内网安学院院长(系主任)分论坛和世界网络安全形势与评估分论坛。
 
-如今控股股东变更，真正值得追问的，不只是杭州更好如何上位，而是葛航为何会一步步退到台后。
+与会代表围绕网络安全相关学科建设、网络犯罪治理人才培养、网络安全指数研究、全球网络安全风险评估等内容开展研讨，进一步推动论坛成果向学科建设、人才培养和警务实战转化。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 21:08 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 21:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 20:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 21:10 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 20:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 21:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 20:57 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 21:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 20:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 20:57 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 21:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 21:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 21:03 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 21:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 20:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 21:21 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 21:06 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 21:01 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 21:07 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 21:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 21:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 21:01 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 21:11 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 21:06 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 21:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 21:08 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/624115388861.shtml)
-- 2026-06-29 20:54 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/21918561001.shtml)
-- 2026-06-29 20:50 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/6927654.shtml)
-- 2026-06-29 20:59 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/560693404.shtml)
-- 2026-06-29 21:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/618583454876.shtml)
-- 2026-06-29 20:57 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/6417698424.shtml)
-- 2026-06-29 21:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/49961583120.shtml)
-- 2026-06-29 20:55 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/703665503967.shtml)
-- 2026-06-29 21:15 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/2939194.shtml)
-- 2026-06-29 21:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/6456062.shtml)
-- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/699991.shtml)
-- 2026-06-29 21:09 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/201003418376.shtml)
-- 2026-06-29 21:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/18959.shtml)
-- 2026-06-29 21:03 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/96907792573.shtml)
-- 2026-06-29 20:56 - [恋与深空 巧合](http://www.share.minike.top/Article/details/70801750968.shtml)
+- 2026-06-29 21:09 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/433075.shtml)
+- 2026-06-29 21:15 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/66090433.shtml)
+- 2026-06-29 21:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/607597.shtml)
+- 2026-06-29 21:09 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/50509913572.shtml)
+- 2026-06-29 20:56 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/03893632.shtml)
+- 2026-06-29 20:58 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/779391703269.shtml)
+- 2026-06-29 21:01 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/26932.shtml)
+- 2026-06-29 21:21 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/7425176.shtml)
+- 2026-06-29 21:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/680562448715.shtml)
+- 2026-06-29 21:18 - [温网](https://www.blog.minike.top/Article/details/713646.shtml)
+- 2026-06-29 21:19 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/52326723137.shtml)
+- 2026-06-29 20:58 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/1962718.shtml)
+- 2026-06-29 21:13 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/117965326.shtml)
+- 2026-06-29 21:00 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/867486.shtml)
+- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/8051476.shtml)

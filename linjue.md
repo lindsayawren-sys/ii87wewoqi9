@@ -1,61 +1,60 @@
-# “杭州六小龙”第一股、“全球空间智能第一股”诞生！群核科技港交所“敲锣”
+# EMERGE Commerce Q1营收增长17.5% 连续八季度实现同比增长
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：每日经济新闻 记者：叶晓丹 4月17日，Manycore Tech Inc．（以下简称群核科技，股票代码为HK00068）正式于香港联合交易所主板挂牌上市，成为“全球空间智能第一股”，也是“杭州六小龙”中第一家成功登陆资本市场的公司。 上市首日，截至12点，群核科技涨幅为135.96%，股价为17.9
+EMERGE Commerce Ltd．公布了截至2026年3月31日的第一季度财务业绩。这家总部位于加拿大的电商品牌收购与运营公司在核心财务指标上展现出持续改善的势头。 财报显示，公司第一季度营收达到590万加元，较去年同期的500万加元增长17.5%，这标志着EMERGE连续第八个季度实现营收同比增长。毛利润从去年同期的190万加元增至210万加元，同比增长6.2%。 在盈
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+EMERGE Commerce Ltd．公布了截至2026年3月31日的第一季度财务业绩。
 
-来源：每日经济新闻 记者：叶晓丹 4月17日，Manycore Tech Inc．（以下简称群核科技，股票代码为HK00068）正式于香港联合交易所主板挂牌上市，成为“全球空间智能第一股”，也是“杭州六小龙”中第一家成功登陆资本市场的公司。
+这家总部位于加拿大的电商品牌收购与运营公司在核心财务指标上展现出持续改善的势头。
 
-上市首日，截至12点，群核科技涨幅为135.96%，股价为17.980港元/股，市值为305.68亿港元。
+财报显示，公司第一季度营收达到590万加元，较去年同期的500万加元增长17.5%，这标志着EMERGE连续第八个季度实现营收同比增长。
 
-群核科技联合创始人兼董事长黄晓煌在上市致辞中表示：“AI正以前所未有的力量席卷全球，这赋予了我们更大的责任，推动AI从仅限于虚拟世界的生成与对话，走向物理世界的理解、行动与创造。
+毛利润从去年同期的190万加元增至210万加元，同比增长6.2%。
 
-而空间智能，正是这一过程中的关键。
+在盈利能力方面，调整后EBITDA达到12.2万加元，高于去年同期的3.2万加元，为连续第六个季度录得正值。
 
-” （群核科技联合创始人兼董事长黄晓煌致辞。
+然而，从持续经营业务来看，公司报告净亏损12.5万加元，去年同期为亏损2.2万加元。
 
-公司供图） 上市前夜，4月16日晚间，群核科技公布配售结果，群核科技香港公开发售获1591倍认购，国际发售获14.46倍认购。
+基本每股亏损和稀释每股亏损均为0.0008加元。
 
-4月17日，群核科技于港交所成功“敲锣”。
+资产负债表方面，公司现金状况显著改善。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 21:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 21:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 21:12 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 20:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 21:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 21:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 20:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 21:04 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 21:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 20:51 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 21:02 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 21:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 21:18 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 20:56 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 20:55 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 21:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 21:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 21:15 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 21:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 21:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 21:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 21:21 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 21:11 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 21:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 21:14 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/8863301.shtml)
-- 2026-06-29 20:53 - [我们的少年时代2](https://www.share.minike.top/Article/details/269695060.shtml)
-- 2026-06-29 21:08 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/37199464188.shtml)
-- 2026-06-29 21:04 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/550457.shtml)
-- 2026-06-29 21:16 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/90890605.shtml)
-- 2026-06-29 21:00 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/46385667.shtml)
-- 2026-06-29 21:12 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/017015996.shtml)
-- 2026-06-29 21:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/131738153043.shtml)
-- 2026-06-29 21:02 - [周生如故](https://www.share.minike.top/Article/details/948411653002.shtml)
-- 2026-06-29 21:08 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/5736284.shtml)
-- 2026-06-29 20:51 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/022530.shtml)
-- 2026-06-29 21:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/7908539.shtml)
-- 2026-06-29 20:50 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/362046.shtml)
-- 2026-06-29 20:58 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/3287399.shtml)
-- 2026-06-29 21:06 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/6747052.shtml)
+- 2026-06-29 21:01 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/894514106517.shtml)
+- 2026-06-29 21:05 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/34779107.shtml)
+- 2026-06-29 21:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/900244031.shtml)
+- 2026-06-29 21:22 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/63230931537.shtml)
+- 2026-06-29 21:12 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/42354555055.shtml)
+- 2026-06-29 20:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/26855273.shtml)
+- 2026-06-29 20:56 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/58009.shtml)
+- 2026-06-29 21:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/04495931254.shtml)
+- 2026-06-29 20:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/75893.shtml)
+- 2026-06-29 20:55 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/516482554776.shtml)
+- 2026-06-29 20:56 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/423393.shtml)
+- 2026-06-29 21:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/6738355387.shtml)
+- 2026-06-29 21:18 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/00263014.shtml)
+- 2026-06-29 21:06 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/57398987.shtml)
+- 2026-06-29 21:22 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/178246454.shtml)

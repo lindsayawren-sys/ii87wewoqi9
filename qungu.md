@@ -1,56 +1,56 @@
-# 对得起信任，扛得住责任
+# 软银集团将在法国建设人工智能数据中心
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-原标题：对得起信任，扛得住责任(人民论坛) 在其位、谋其政、尽其责，是党员干部的本分。当群众“误打误撞”求助一件“分外之事”，该咋办？ 湖北利川元堡乡，一位老人因为不识字错过便民服务大厅，走进党建办公室反映“家里停水”，工作人员带她到水务公司咨询，还给村干部打电话跟踪解决。 江西景德镇珠山区，有群众来到纪委办公室投诉噪声扰民。接访干部给出建议，先与相关职能部门沟通联系，如果存在
+软银集团与Sesterce将在法国建设人工智能数据中心。 双方成立合资企业，旨在巩固法国在人工智能领域的领先地位、创造就业岗位，并推动上法国大区全面落地人工智能应用。 由软银集团控股、联合Sesterce成立的合资企业今日宣布，中标法国人工智能数据中心园区的开发与运营项目。 该项目是法国乃至整个欧洲布局下一代人工智能配套基础设施的重要举措。此项目也是软银集团在2026年“选择法
 
 ## 正文
 
-原标题：对得起信任，扛得住责任(人民论坛) 在其位、谋其政、尽其责，是党员干部的本分。
+软银集团与Sesterce将在法国建设人工智能数据中心。
 
-当群众“误打误撞”求助一件“分外之事”，该咋办？
+双方成立合资企业，旨在巩固法国在人工智能领域的领先地位、创造就业岗位，并推动上法国大区全面落地人工智能应用。
 
-湖北利川元堡乡，一位老人因为不识字错过便民服务大厅，走进党建办公室反映“家里停水”，工作人员带她到水务公司咨询，还给村干部打电话跟踪解决。
+由软银集团控股、联合Sesterce成立的合资企业今日宣布，中标法国人工智能数据中心园区的开发与运营项目。
 
-江西景德镇珠山区，有群众来到纪委办公室投诉噪声扰民。
+该项目是法国乃至整个欧洲布局下一代人工智能配套基础设施的重要举措。
 
-接访干部给出建议，先与相关职能部门沟通联系，如果存在不作为、慢作为的情况，纪委会适时介入。
+此项目也是软银集团在2026年“选择法国”峰会上公布的5吉瓦数据中心整体规划的核心组成部分，进一步巩固了法国作为欧洲人工智能基础设施、高性能计算及数字服务核心枢纽的地位。
 
-群众“首问”，党员干部负起“首责”。
+项目选址于上法兰西大区的博斯凯尔，地理位置优越，毗邻巴黎、布鲁塞尔、阿姆斯特丹、伦敦、法兰克福等欧洲核心经济与科技重镇，可面向欧洲各大市场的客户提供低延迟的高端人工智能算力服务。
 
-有基层干部感慨：“老百姓找你，是天大的信任；你办不好，就是天大的责任。
+本次合作融合了软银集团的全球人工智能基础设施平台与Sesterce的数据中心运营实力。
 
-”对得起信任，扛得住责任，既是党性修养的体现，也是能力素质的彰显，对树立和践行正确政绩观颇有启示。
+双方将携手打造一座适配欧洲人工智能产业发展需求、兼顾超大算力规模、绿色可持续与高性能的综合园区，并运用前沿技术降低环境影响、减少水资源消耗。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 20:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 20:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 20:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 20:55 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 20:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 21:08 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 20:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 21:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 21:02 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 21:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:10 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 21:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 21:01 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 21:22 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 21:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 21:16 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 20:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 21:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 20:54 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/765568501.shtml)
-- 2026-06-29 21:02 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/88902040.shtml)
-- 2026-06-29 20:59 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/126220069372.shtml)
-- 2026-06-29 21:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/55942811.shtml)
-- 2026-06-29 20:59 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/295216701.shtml)
-- 2026-06-29 21:12 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/24870590147.shtml)
-- 2026-06-29 21:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/893381377811.shtml)
-- 2026-06-29 21:06 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/60962459.shtml)
-- 2026-06-29 21:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/2393055318.shtml)
-- 2026-06-29 21:05 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/86098.shtml)
-- 2026-06-29 20:49 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/39844886584.shtml)
-- 2026-06-29 20:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/858593.shtml)
-- 2026-06-29 21:08 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/221922.shtml)
-- 2026-06-29 20:57 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/7279561.shtml)
-- 2026-06-29 20:56 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/60957457746.shtml)
+- 2026-06-29 21:07 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/601574.shtml)
+- 2026-06-29 21:22 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/2953696.shtml)
+- 2026-06-29 20:57 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/04237685.shtml)
+- 2026-06-29 21:05 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/519362538.shtml)
+- 2026-06-29 21:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/63029338.shtml)
+- 2026-06-29 20:59 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/775295883774.shtml)
+- 2026-06-29 21:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/401396085.shtml)
+- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/376696.shtml)
+- 2026-06-29 21:21 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/238420138.shtml)
+- 2026-06-29 21:11 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/0240741798.shtml)
+- 2026-06-29 21:23 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/330737.shtml)
+- 2026-06-29 21:00 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/126323579826.shtml)
+- 2026-06-29 20:57 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/48679.shtml)
+- 2026-06-29 21:04 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/789848897933.shtml)
+- 2026-06-29 20:58 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/05797965.shtml)

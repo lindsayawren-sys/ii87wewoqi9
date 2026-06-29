@@ -1,56 +1,56 @@
-# 酒价内参4月17日价格发布，粮液普五八代小幅回落1元
+# 高息股资产布局热潮：华泰柏瑞红利全家桶成“吸金”主力
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。市场整体价格延续低位运行，终端交投表现平稳偏弱。 今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下
+近期，AI、算力等科技成长方向持续活跃的同时，部分资金开始重新关注防御属性的红利资产，资金布局呈现高低切的趋势。Wind数据显示，华泰柏瑞基金红利全家桶旗下多只产品均获资金积极增持，其中红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）均连续4周（26/5/4-26/5/28）获周度资金净流入，5月以来华泰柏瑞红利
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。
+近期，AI、算力等科技成长方向持续活跃的同时，部分资金开始重新关注防御属性的红利资产，资金布局呈现高低切的趋势。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。
+Wind数据显示，华泰柏瑞基金红利全家桶旗下多只产品均获资金积极增持，其中红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）均连续4周（26/5/4-26/5/28）获周度资金净流入，5月以来华泰柏瑞红利全家桶累计吸金59.87亿元，占同期全市场红利类ETF净流入的半数以上。
 
-市场整体价格延续低位运行，终端交投表现平稳偏弱。
+专业机构的调仓动向，进一步佐证了高股息资产吸引力的持续攀升。
 
-今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。
+据统计，截至2026年一季度，保险资金股票配置余额达3.84万亿元，占资金运用余额的9.7%，创近四年新高。
 
-上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下近一个月最高；青花汾20上涨3元/瓶；水晶剑南春小幅上涨1元/瓶。
+股票和证券投资基金余额合计约5.9万亿元，占比15.5%，并围绕高股息、低波动、长期持有、资本占用较低的权益资产方向进行精细化配置，核心持仓行业包括银行、电信、电力、能源以及部分非银金融。
 
-下跌方面，洋河梦之蓝M6+跌幅居前，下跌8元/瓶，平一个月来最低纪录；古井贡古20下跌6元/瓶；精品茅台下跌4元/瓶；国窖1573下跌3元/瓶；飞天茅台、五粮液1618及青花郎均下跌2元/瓶；五粮液普五八代小幅回落1元/瓶。
+值得关注的是，为了在低利率环境下获取更具吸引力的股息收益，机构对高股息资产的入池标准进行了下调，如有机构将股息率标准从去年的4.0%降至目前的3.5%。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+当前高股息资产受关注的原因主要有，一方面，一方面，当前市场长端利率中枢持续下移，“资产荒”格局延续，资产配置性价比分化明显。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+截至最新数据，上证红利指数股息率达5.14%，红利低波指数股息率为5.0%，相较1.72%的十年期国债收益率，存在显著的利差优势；另一方面，当前市场资金高度抱团科技成长、产业升级主线，相关赛道估值持续走高，市场畏高情绪逐步升温。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 21:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 21:04 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 21:15 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 21:14 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 21:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 20:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 20:54 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 21:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 21:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:14 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 20:58 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 21:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 21:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:15 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 21:01 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 21:12 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/470482.shtml)
-- 2026-06-29 21:16 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/9264502.shtml)
-- 2026-06-29 20:52 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/930074.shtml)
-- 2026-06-29 21:10 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/7905172786.shtml)
-- 2026-06-29 20:55 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/4958048051.shtml)
-- 2026-06-29 20:53 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/44864342181.shtml)
-- 2026-06-29 21:08 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/1954371.shtml)
-- 2026-06-29 21:14 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/089415.shtml)
-- 2026-06-29 21:12 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/70329.shtml)
-- 2026-06-29 21:14 - [青春环游记第三季](https://www.blog.minike.top/Article/details/134992.shtml)
-- 2026-06-29 21:17 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/049217407753.shtml)
-- 2026-06-29 20:53 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/40871815.shtml)
-- 2026-06-29 20:51 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/78249571206.shtml)
-- 2026-06-29 21:07 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/038624466192.shtml)
-- 2026-06-29 21:14 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/259974305.shtml)
+- 2026-06-29 21:19 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/85214087.shtml)
+- 2026-06-29 21:07 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/5768663.shtml)
+- 2026-06-29 21:09 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/45607.shtml)
+- 2026-06-29 21:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/524293974506.shtml)
+- 2026-06-29 21:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/5412567.shtml)
+- 2026-06-29 21:11 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/02546345964.shtml)
+- 2026-06-29 21:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/917292869.shtml)
+- 2026-06-29 20:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/01739089721.shtml)
+- 2026-06-29 21:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/244180903594.shtml)
+- 2026-06-29 21:19 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/219700.shtml)
+- 2026-06-29 20:59 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/412057264556.shtml)
+- 2026-06-29 21:05 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/788576768885.shtml)
+- 2026-06-29 21:00 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/2471453.shtml)
+- 2026-06-29 21:20 - [请回答王牌2019](https://www.share.minike.top/Article/details/9695074324.shtml)
+- 2026-06-29 21:18 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/50217694544.shtml)

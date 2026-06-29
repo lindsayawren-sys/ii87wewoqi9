@@ -1,60 +1,59 @@
-# 新版《涉侨法律政策指南》时隔6年更新 回应侨界关切
+# 韩股收盘涨3.55%再创新高，受科技股上涨及中东乐观消息提振
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 (记者 门睿)中国国务院侨务办公室和中国侨联联合编印的《涉侨法律政策指南(2026年版)》(下称《指南》)日前发布，其内容基本涵盖海外侨胞和归侨侨眷在中国境内工作、生活、学习、创业等所涉及的主要法律政策。受访专家在近日连线采访中向中新社记者表示，《指南》时隔6年更新，更贴近当前侨胞在中国发展和跨境往来的实际需要，回应了侨界关切。《指南》包括身份确认、出境
+韩国股市周五收盘再创历史新高，受人工智能相关股票强劲上涨以及市场对中东可能停火的乐观情绪升温的推动。韩元兑美元汇率下跌。 韩国综合股价指数（KOSPI）上涨290.86点，涨幅3.55%，收于8476.15点，盘中一度触及8615.09点的新高。 当天成交量达7.015亿股，成交额达73.7万亿韩元（约合489亿美元）。下跌股票数量远超上涨股票，比例为686比205。 外国投资
 
 ## 正文
 
-中新社北京4月16日电 (记者 门睿)中国国务院侨务办公室和中国侨联联合编印的《涉侨法律政策指南(2026年版)》(下称《指南》)日前发布，其内容基本涵盖海外侨胞和归侨侨眷在中国境内工作、生活、学习、创业等所涉及的主要法律政策。
+韩国股市周五收盘再创历史新高，受人工智能相关股票强劲上涨以及市场对中东可能停火的乐观情绪升温的推动。
 
-受访专家在近日连线采访中向中新社记者表示，《指南》时隔6年更新，更贴近当前侨胞在中国发展和跨境往来的实际需要，回应了侨界关切。
+韩元兑美元汇率下跌。
 
-《指南》包括身份确认、出境入境、投资创业、生活居住、社会保险、接受教育、婚姻家庭、公益慈善、个人纳税等13个部分，较2020年发布的上版《指南》新增知识产权、外汇管理、海关管理、纠纷解决4个部分。
+韩国综合股价指数（KOSPI）上涨290.86点，涨幅3.55%，收于8476.15点，盘中一度触及8615.09点的新高。
 
-北京理工大学法学院教授、中国华侨历史学会副会长刘国福表示，近年来侨界人士人数持续增多，结构发生深刻变化，其权益诉求日益多元。
+当天成交量达7.015亿股，成交额达73.7万亿韩元（约合489亿美元）。
 
-《指南》新增内容对于积极回应侨界人士需求、更全面地维护海外侨胞和归侨侨眷合法权益具有重要意义。
+下跌股票数量远超上涨股票，比例为686比205。
 
-刘国福表示，《指南》中“离境退税”“企业税收政策”“投资纠纷解决”“知识产权”“生活居住”“外汇管理”等内容为侨界人士提供了丰富详细的生活、工作指南，侨胞在中国办事时可随时翻阅，查询解决方案。
+外国投资者和散户投资者分别净卖出1.04万亿韩元和1.4万亿韩元的股票，而机构投资者则净买入2.37万亿韩元。
 
-济南市侨联副主席、北京迈伟律师事务所创始合伙人董一鸣表示，《指南》既回应了侨胞回国投资创业、技术合作、资金安排、物品通关和权益维护等现实需求，也体现了涉侨权益保护向前端预防延伸的趋势，同时顺应了高水平对外开放背景下对规则明确、程序便利的需要。
+韩国综合股价指数（KOSPI）在前一日下跌0.53%后，重启了此前的涨势。
 
-董一鸣在实际工作中发现，侨胞在身份确认和证件衔接、投资创业时的准入与合规、知识产权保护和成果转化等问题上常需要法律帮助。
+自5月21日以来，该指数连续四个交易日上涨，并在周二首次突破8000点大关。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 21:02 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:09 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 20:59 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 20:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:09 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 21:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 21:07 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 21:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 21:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 20:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 20:57 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 21:11 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 21:16 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 21:15 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 20:56 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 21:16 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:22 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 21:05 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 21:14 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 21:18 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 21:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 21:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/271005148.shtml)
-- 2026-06-29 21:17 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/8915347.shtml)
-- 2026-06-29 21:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/359420.shtml)
-- 2026-06-29 21:00 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/396561.shtml)
-- 2026-06-29 21:12 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/47505814312.shtml)
-- 2026-06-29 20:59 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/3336223343.shtml)
-- 2026-06-29 20:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/4787487107.shtml)
-- 2026-06-29 21:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/1021593435.shtml)
-- 2026-06-29 21:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/30973899.shtml)
-- 2026-06-29 21:02 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/040006122453.shtml)
-- 2026-06-29 21:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/3077209.shtml)
-- 2026-06-29 21:10 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/419062857.shtml)
-- 2026-06-29 21:06 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/29060.shtml)
-- 2026-06-29 21:08 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/893216955826.shtml)
-- 2026-06-29 20:55 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/7260562.shtml)
+- 2026-06-29 21:22 - [斗破苍穹](http://www.share.minike.top/Article/details/558929498246.shtml)
+- 2026-06-29 21:19 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/970762762.shtml)
+- 2026-06-29 21:02 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/435817791721.shtml)
+- 2026-06-29 20:58 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/157753260.shtml)
+- 2026-06-29 21:18 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/8681744.shtml)
+- 2026-06-29 21:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/00611.shtml)
+- 2026-06-29 21:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/87897499.shtml)
+- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3093246987.shtml)
+- 2026-06-29 21:15 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/4409123.shtml)
+- 2026-06-29 21:07 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/06931358294.shtml)
+- 2026-06-29 20:56 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/3506438.shtml)
+- 2026-06-29 21:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/513550942.shtml)
+- 2026-06-29 21:09 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/3324920.shtml)
+- 2026-06-29 21:00 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/738526690807.shtml)
+- 2026-06-29 21:23 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/4996305.shtml)

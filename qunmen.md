@@ -1,57 +1,59 @@
-# 宝丰堂港股IPO：赵氏家族左手套现右手分红独揽8800万 PCB业务增长见顶、半导体转型受挫 1400万款项去向成谜
+# 高考临近 多家AI平台涉考功能“限时上锁”
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：渚 4月10日，珠海宝丰堂半导体股份有限公司（下称“宝丰堂”或“公司”）更新招股书，再次向港股主板发起冲击，招商证券国际为独家保荐人。 2025年，宝丰堂收入增长、毛利率提升，但净利润不增反降，主要系新增一笔未披露具体科目的大额支出，金额达1464.4万元，资金去向成谜。此外，2025年宝丰堂实控人家族一边减持套现，一边大额分红，独揽8821
+高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。不少网友对此感到疑惑。记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。这一举措能否守护高考公平？来听总台记者报道。记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。除了AI平台，高
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：渚 4月10日，珠海宝丰堂半导体股份有限公司（下称“宝丰堂”或“公司”）更新招股书，再次向港股主板发起冲击，招商证券国际为独家保荐人。
+高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。
 
-2025年，宝丰堂收入增长、毛利率提升，但净利润不增反降，主要系新增一笔未披露具体科目的大额支出，金额达1464.4万元，资金去向成谜。
+不少网友对此感到疑惑。
 
-此外，2025年宝丰堂实控人家族一边减持套现，一边大额分红，独揽8821.08万元，大有掏空公司资金之势。
+记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。
 
-宝丰堂在开展海外业务的过程中，曾向实控人之子赵公魄控制的公司采购代理服务，并向其支付代理费，双方业务关系实质上是典型的关联方通道业务，形成“父亲控制公司+儿子控制海外渠道与资金”的闭环。
+这一举措能否守护高考公平？
 
-公司海外业务定价、客户、订单、资金结算长期经过关联方体外流转，海外回款先进入赵公魄控制公司账户，再转回境内，审计难以全程穿透资金流水。
+来听总台记者报道。
 
-赵氏家族左手套现右手分红独揽8800万 宝丰堂成立于2006年，引用源自欧美30多年等离子系统研发技术，是一家全球领先的专业从事等离子蚀刻/清洁系统的研发与生产制造于一体的高新科技企业。
+记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。
 
-作为专业等离子系统供应商，公司成立以来一直为线路板、LED、半导体、光电太阳能等高科技电子领域及大规模工业领域客户提供等离子处理系统。
+除了AI平台，高考期间，有中小学作业辅导工具也对答疑功能进行了限制。
 
-成立20年以来，宝丰堂仅完成一轮融资。
+据了解，各平台的这种管控实行“分时段”的精准限制，仅在考试时段，对拍题识图、试题解析等功能进行临时管控，日常聊天、生活问答等非涉考功能不受影响。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:06 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:54 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 21:02 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 21:09 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 21:04 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 20:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 21:08 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 21:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 21:12 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 21:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 21:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 21:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 21:04 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 20:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:56 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 21:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:16 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 21:04 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 21:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 21:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 20:59 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 21:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/39067153.shtml)
-- 2026-06-29 21:15 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/86441575.shtml)
-- 2026-06-29 21:09 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/926330823781.shtml)
-- 2026-06-29 20:52 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/664159985.shtml)
-- 2026-06-29 20:59 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/37292.shtml)
-- 2026-06-29 21:00 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/109499094.shtml)
-- 2026-06-29 20:50 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/989770.shtml)
-- 2026-06-29 21:09 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/32514.shtml)
-- 2026-06-29 20:57 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/9086580.shtml)
-- 2026-06-29 21:07 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/228024095.shtml)
-- 2026-06-29 21:03 - [毒液2](https://www.share.minike.top/Article/details/35133508262.shtml)
-- 2026-06-29 20:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/38955352402.shtml)
-- 2026-06-29 21:17 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/614336.shtml)
-- 2026-06-29 21:15 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5154189.shtml)
-- 2026-06-29 21:16 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/180300757777.shtml)
+- 2026-06-29 21:00 - [千与千寻](http://www.share.minike.top/Article/details/547531825.shtml)
+- 2026-06-29 20:56 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/0154597.shtml)
+- 2026-06-29 20:55 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/0641563.shtml)
+- 2026-06-29 21:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/233181.shtml)
+- 2026-06-29 20:55 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/15380.shtml)
+- 2026-06-29 21:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/026133931.shtml)
+- 2026-06-29 21:08 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/8155246.shtml)
+- 2026-06-29 21:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/310114727.shtml)
+- 2026-06-29 20:54 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/6977745.shtml)
+- 2026-06-29 21:08 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/1494767.shtml)
+- 2026-06-29 21:13 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/95010.shtml)
+- 2026-06-29 21:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/8947009236.shtml)
+- 2026-06-29 21:16 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/73252327.shtml)
+- 2026-06-29 21:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/4547137108.shtml)
+- 2026-06-29 21:23 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/3396956611.shtml)

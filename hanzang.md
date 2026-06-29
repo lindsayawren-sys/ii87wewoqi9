@@ -1,60 +1,48 @@
-# 5.0%！重要经济数据出炉，国家统计局权威解读
+# 6月1日周末要闻：伊朗再度否认总统辞职传闻 美伊谈判和信息交流仍在进行中
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-面对复杂外部环境与地缘冲突等不确定性因素，一季度中国经济展现出强劲韧性与活力，新质生产力加速成长为重要增长引擎。 4月16日，国家统计局发布今年一季度国民经济运行情况。数据显示，我国GDP同比增长5.0%，主要宏观指标增速回升，生产供给加快恢复，市场需求持续改善，就业物价总体平稳，经济运行实现良好开局。 在国新办同日举行的新闻发布会上，国家统计局相关负责人还就大宗商品价格波动、
+上周国际市场回顾 5月30日收盘：美股再创新高 三大股指在5月均录得较大涨幅 5月30日美股成交额前20：戴尔获美军大单股价飙升逾30% 5月30日热门中概股涨跌不一 名创优品涨3.18%，理想汽车跌3.41% 欧洲市场逼近纪录高点 得益于美伊协议前景改善 大宗商品综述：油价跌至六周低点 金价收窄涨幅 伦铝走高 宏观 伊朗总统府再度否认佩泽希齐扬辞职传闻 伊朗外长：伊美谈判和信
 
 ## 正文
 
-面对复杂外部环境与地缘冲突等不确定性因素，一季度中国经济展现出强劲韧性与活力，新质生产力加速成长为重要增长引擎。
+上周国际市场回顾 5月30日收盘：美股再创新高 三大股指在5月均录得较大涨幅 5月30日美股成交额前20：戴尔获美军大单股价飙升逾30% 5月30日热门中概股涨跌不一 名创优品涨3.18%，理想汽车跌3.41% 欧洲市场逼近纪录高点 得益于美伊协议前景改善 大宗商品综述：油价跌至六周低点 金价收窄涨幅 伦铝走高 宏观 伊朗总统府再度否认佩泽希齐扬辞职传闻 伊朗外长：伊美谈判和信息交换仍在进行中 伊官员称伊朗不会对美退让妥协 伊官员称伊朗在核问题上对美方没有任何承诺 以方消息称以色列寻求美国支持扩大对黎真主党打击 知情人士称伊朗可能将对谅解备忘录文本提出新的修订意见 伊朗军官：将与敌人的过分要求和霸权行径战斗到最后一刻 美称正继续执行对伊海上封锁 已迫使118艘船只改道 马克龙：黎南局势升级“毫无正当理由” 欧盟据悉考虑暂时冻结俄罗斯石油价格上限机制
 
-4月16日，国家统计局发布今年一季度国民经济运行情况。
+丹麦养老基金拉黑SpaceX 软银集团将在法国建设人工智能数据中心 豪掷5900亿！
 
-数据显示，我国GDP同比增长5.0%，主要宏观指标增速回升，生产供给加快恢复，市场需求持续改善，就业物价总体平稳，经济运行实现良好开局。
-
-在国新办同日举行的新闻发布会上，国家统计局相关负责人还就大宗商品价格波动、中东局势对出口、物价等的影响，回答了媒体记者的提问。
-
-供需两端都有改善 经初步核算，一季度国内生产总值（GDP）为334193亿元，按不变价格计算，同比增长5.0%，比上年四季度加快0.5个百分点。
-
-分产业看，第一产业增加值11941亿元，同比增长3.8%；第二产业增加值116135亿元，增长4.9%；第三产业增加值206117亿元，增长5.2%。
-
-从环比看，一季度国内生产总值增长1.3%。
-
-国家统计局副局长毛盛勇表示，一季度经济增速比去年四季度大幅回升，同时就业总体平稳，价格出现积极变化，货物进出口快速增长。
+软银据报将在法国建设欧洲最大算力集群 报道：首款搭载英伟达芯片的Windows电脑将于下周发布 评论 贝森特：伊朗袭击波斯湾周边邻国是“重大失误” 英国央行官员格林表示，稳定币需求或将很快消退 国际原子能机构：袭击核设施不可接受 必须停止 美联储官员沃勒：稳定币将扩大美国政策的影响范围责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 20:55 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 21:12 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 20:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 20:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 21:08 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 21:17 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 20:55 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 20:49 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 20:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 21:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 21:14 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:52 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 20:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 20:58 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 21:21 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 21:19 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 21:23 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 21:01 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 21:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 21:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 20:58 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 21:10 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 21:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 21:06 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 21:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/66686473466.shtml)
-- 2026-06-29 21:01 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/36201239.shtml)
-- 2026-06-29 21:12 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/759019043.shtml)
-- 2026-06-29 21:10 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/726456180.shtml)
-- 2026-06-29 21:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/01966.shtml)
-- 2026-06-29 21:04 - [急先锋](http://www.blog.minike.top/Article/details/1535345874.shtml)
-- 2026-06-29 20:57 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/17380697.shtml)
-- 2026-06-29 21:02 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/1452685060.shtml)
-- 2026-06-29 21:13 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/540026334.shtml)
-- 2026-06-29 21:11 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/177039685.shtml)
-- 2026-06-29 20:49 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/1706499.shtml)
-- 2026-06-29 20:58 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/8762510231.shtml)
-- 2026-06-29 21:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/83280938.shtml)
-- 2026-06-29 21:10 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/68332135406.shtml)
-- 2026-06-29 20:52 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/99143725340.shtml)
+- 2026-06-29 21:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/92537072342.shtml)
+- 2026-06-29 21:05 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/694667.shtml)
+- 2026-06-29 21:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/42950275499.shtml)
+- 2026-06-29 21:00 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/919012817.shtml)
+- 2026-06-29 21:23 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/9169056.shtml)
+- 2026-06-29 21:13 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/100354920.shtml)
+- 2026-06-29 20:54 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/9101105.shtml)
+- 2026-06-29 21:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/98155784594.shtml)
+- 2026-06-29 20:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/7366499.shtml)
+- 2026-06-29 21:09 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/205331.shtml)
+- 2026-06-29 21:04 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/68633159.shtml)
+- 2026-06-29 21:23 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/88274.shtml)
+- 2026-06-29 21:08 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/80830219.shtml)
+- 2026-06-29 21:11 - [恋与深空回应争议](https://www.share.minike.top/Article/details/8247458.shtml)
+- 2026-06-29 21:03 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/643371.shtml)

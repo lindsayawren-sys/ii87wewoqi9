@@ -1,56 +1,56 @@
-# 第十五届中国饭店文化节将在横琴和澳门两地举办
+# “法治纽扣”青少年普法全国首站活动在浙江启动
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒
+中新网杭州5月29日电(郭其钰)5月29日，“法治纽扣”青少年普法全国首站活动——法治小记者“六一”法治宣传教育专场在浙江杭州举行。该活动以“法治为扣 E路生花”为主题，创新场景化、沉浸式、互动式普法模式，通过法治课堂、模拟法庭、牵手结对成果展示等鲜活载体，让网络法治知识可感可触、入脑入心，契合青少年认知特点与成长规律。 未成年人是“网络原住民”。截至2025年底，中国未成年网
 
 ## 正文
 
-中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。
+中新网杭州5月29日电(郭其钰)5月29日，“法治纽扣”青少年普法全国首站活动——法治小记者“六一”法治宣传教育专场在浙江杭州举行。
 
-澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。
+该活动以“法治为扣 E路生花”为主题，创新场景化、沉浸式、互动式普法模式，通过法治课堂、模拟法庭、牵手结对成果展示等鲜活载体，让网络法治知识可感可触、入脑入心，契合青少年认知特点与成长规律。
 
-据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。
+未成年人是“网络原住民”。
 
-主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒店业发展报告》《2026酒店集团及品牌发展报告》及酒店集团规模TOP50、品牌领跑者TOP100榜单。
+截至2025年底，中国未成年网民约2.03亿人，保障未成年人在网络空间的合法权益成为网络空间治理的重要任务。
 
-平行论坛包括首届粤澳饭店业合作发展大会、2026饭店业高质量发展标杆案例分享会、第六届酒店数字化发展论坛、首届休闲度假生态合作大会、第六届饭店工匠节等活动。
+活动现场，全国人大代表祝响响与金华市浦江县人民检察院检察官张凯丽带来双师联动法治课堂，聚焦青少年高频网络风险，开展青少年网络素养专项法治教育，在未成年人心中播撒民主法治的种子。
 
-澳门酒店旅业商会会长张健中表示，澳门在“一国两制”下拥有自由港、单独关税区及广泛的国际联系网络等独特优势，希望借此次活动推动中国内地和澳门旅游酒店业品牌出海协同平台建设；同时借助澳门国际先进酒店管理经验，推动中国饭店业服务标准、绿色标准与国际接轨。
+法治小记者还带来“网络打赏”主题的模拟法庭。
 
-此外，中国饭店文化节期间，澳门酒店旅业商会将与中国饭店协会共同发布《粤澳饭店产业协作发展三年行动计划》，明确连续三年在琴澳举办中国饭店文化节活动。
+宁波市奉化区人民法院法官王佩岚表示，希望通过角色扮演与规范庭审程序，引导青少年增强网络安全意识，树立理性消费观念，提升法治素养与自我保护能力。
 
-“商会亦将积极发挥自身资源优势，继续致力于探索粤澳酒店、文旅产业在人才培养、标准互认、品牌联动、绿色低碳等领域的合作路径，将国家级高水平活动项目引入并留在横琴，促进琴澳一体化发展。
+“法治从来不是冰冷的条文，而是温暖的守护。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 21:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 20:48 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 21:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 21:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 21:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 21:06 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 20:58 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 20:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 21:16 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 21:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 21:06 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 20:57 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 21:09 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 21:05 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 21:21 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 21:11 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 20:58 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 20:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/217735412268.shtml)
-- 2026-06-29 21:00 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/977858.shtml)
-- 2026-06-29 20:48 - [流金岁月](https://www.share.kurohicncr.top/Article/details/02961.shtml)
-- 2026-06-29 20:52 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/76090420.shtml)
-- 2026-06-29 21:17 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/47213258163.shtml)
-- 2026-06-29 20:49 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/64637.shtml)
-- 2026-06-29 20:53 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/355397136111.shtml)
-- 2026-06-29 21:09 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/660285.shtml)
-- 2026-06-29 21:03 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/210231359735.shtml)
-- 2026-06-29 21:04 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/714639880726.shtml)
-- 2026-06-29 21:17 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/68334999877.shtml)
-- 2026-06-29 21:14 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/887973399.shtml)
-- 2026-06-29 21:04 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/2556160695.shtml)
-- 2026-06-29 20:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/275060274263.shtml)
-- 2026-06-29 21:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/8353310733.shtml)
+- 2026-06-29 21:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/489383181.shtml)
+- 2026-06-29 21:18 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/380020.shtml)
+- 2026-06-29 21:16 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/90902100.shtml)
+- 2026-06-29 21:13 - [送你一朵小红花](http://www.blog.minike.top/Article/details/88238070938.shtml)
+- 2026-06-29 21:03 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/719156.shtml)
+- 2026-06-29 21:16 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8503594.shtml)
+- 2026-06-29 21:00 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/02733.shtml)
+- 2026-06-29 21:07 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/298853494086.shtml)
+- 2026-06-29 21:23 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/11509.shtml)
+- 2026-06-29 21:01 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/0455927.shtml)
+- 2026-06-29 21:09 - [爱很美味](http://www.share.minike.top/Article/details/2642040418.shtml)
+- 2026-06-29 20:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/33198849518.shtml)
+- 2026-06-29 21:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5397034052.shtml)
+- 2026-06-29 20:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/280553.shtml)
+- 2026-06-29 21:06 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/985704.shtml)

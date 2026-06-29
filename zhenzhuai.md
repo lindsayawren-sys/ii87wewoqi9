@@ -1,52 +1,53 @@
-# 共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚
+# 韩国外汇委员会：韩国将于7月6日启动韩元全天候外汇交易
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+韩国外汇委员会表示，韩国将于7月6日启动货币全天候交易，取代现行上午9点至次日凌晨2点的交易时段。 韩元交易除周末及1月1日外，其余时间均可进行。 实行美国夏令时期间，交易时间为周一早6点至周六早6点；非夏令时期间，交易时间为周一早7点至周六早7点。 按照国际市场惯例，美元兑韩元可在韩国法定节假日成交，但资金清算将顺延至下一银行工作日。 监管机构预计，此次调整将消除交易断档，便
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
+韩国外汇委员会表示，韩国将于7月6日启动货币全天候交易，取代现行上午9点至次日凌晨2点的交易时段。
 
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
+韩元交易除周末及1月1日外，其余时间均可进行。
 
-经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
+实行美国夏令时期间，交易时间为周一早6点至周六早6点；非夏令时期间，交易时间为周一早7点至周六早7点。
 
-上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
+按照国际市场惯例，美元兑韩元可在韩国法定节假日成交，但资金清算将顺延至下一银行工作日。
 
-案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
+监管机构预计，此次调整将消除交易断档，便利境外投资者、进出口企业参与交易，并降低交易成本。
 
-(总台央视记者 王婧 汪君）
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 21:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 20:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 20:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 20:51 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 21:11 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 21:13 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 21:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 21:17 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 21:17 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 20:57 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:58 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 21:16 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 21:15 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 21:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 21:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 20:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 21:08 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/187448639.shtml)
-- 2026-06-29 21:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/573025844.shtml)
-- 2026-06-29 20:52 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/3635523.shtml)
-- 2026-06-29 21:08 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/783200.shtml)
-- 2026-06-29 21:13 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/5984895.shtml)
-- 2026-06-29 20:53 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/912816.shtml)
-- 2026-06-29 20:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/775264623307.shtml)
-- 2026-06-29 20:54 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/43040438312.shtml)
-- 2026-06-29 20:55 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/22337.shtml)
-- 2026-06-29 21:13 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/1352962629.shtml)
-- 2026-06-29 20:49 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/9172677407.shtml)
-- 2026-06-29 20:53 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/24618003210.shtml)
-- 2026-06-29 21:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/94329.shtml)
-- 2026-06-29 21:13 - [起风了](http://www.share.minike.top/Article/details/7486732726.shtml)
-- 2026-06-29 20:48 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/11908.shtml)
+- 2026-06-29 21:09 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/9881002.shtml)
+- 2026-06-29 21:13 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/9722771593.shtml)
+- 2026-06-29 21:06 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/12289789253.shtml)
+- 2026-06-29 21:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/03121.shtml)
+- 2026-06-29 21:03 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/01941835679.shtml)
+- 2026-06-29 21:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/6831543.shtml)
+- 2026-06-29 21:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/3872338769.shtml)
+- 2026-06-29 21:02 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3690297.shtml)
+- 2026-06-29 20:56 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/19427.shtml)
+- 2026-06-29 21:17 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/95428441.shtml)
+- 2026-06-29 21:19 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/48486767655.shtml)
+- 2026-06-29 21:11 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/054006.shtml)
+- 2026-06-29 21:21 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/52107.shtml)
+- 2026-06-29 21:04 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/8668325.shtml)
+- 2026-06-29 20:55 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/537236758974.shtml)

@@ -1,58 +1,61 @@
-# 特朗普：以黎领导人“明天”将对话
+# 辉瑞与信达生物达成105亿美元肿瘤合作
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网4月16日电 当地时间15日，美国总统特朗普在社交媒体发文称，以色列和黎巴嫩领导人“明天”将对话。 特朗普表示，“两国(以黎)领导人已经很长时间没有对话了，大概有34年。明天就会实现。” 据此前报道，美国国务院当地时间14日消息称，以色列和黎巴嫩政府代表当天在美国首都华盛顿举行直接会谈，美国务卿鲁比奥出席了以黎会谈。美国务院在会谈后发表声明称，以色列和黎巴嫩已同意启动直接
+辉瑞与信达生物宣布达成一项总额高达105亿美元的全球战略合作，共同开发12款早期癌症药物，涵盖抗体偶联药物及多特异性抗体。 根据协议，信达生物将获得6.5亿美元首付款，并有资格获得最高98.5亿美元的研发、监管与商业化里程碑付款，以及两位数比例的产品销售分成。此次合作包含12个项目：8个来自信达生物的早期管线，4个由辉瑞提议的全新发现项目。 在分工上，信达生物负责将合作项目推进
 
 ## 正文
 
-中新网4月16日电 当地时间15日，美国总统特朗普在社交媒体发文称，以色列和黎巴嫩领导人“明天”将对话。
+辉瑞与信达生物宣布达成一项总额高达105亿美元的全球战略合作，共同开发12款早期癌症药物，涵盖抗体偶联药物及多特异性抗体。
 
-特朗普表示，“两国(以黎)领导人已经很长时间没有对话了，大概有34年。
+根据协议，信达生物将获得6.5亿美元首付款，并有资格获得最高98.5亿美元的研发、监管与商业化里程碑付款，以及两位数比例的产品销售分成。
 
-明天就会实现。
+此次合作包含12个项目：8个来自信达生物的早期管线，4个由辉瑞提议的全新发现项目。
 
-” 据此前报道，美国国务院当地时间14日消息称，以色列和黎巴嫩政府代表当天在美国首都华盛顿举行直接会谈，美国务卿鲁比奥出席了以黎会谈。
+在分工上，信达生物负责将合作项目推进至I期临床研究，此后由辉瑞主导后续全球开发。
 
-美国务院在会谈后发表声明称，以色列和黎巴嫩已同意启动直接谈判，具体时间和地点待定。
+权益划分分为三类：4个项目由双方全球共同开发、共同承担成本，并在美欧共同商业化、共享利润，信达保留大中华区权利；4个项目辉瑞获得大中华区以外独家许可并承担大部分开发成本；其余4个项目辉瑞获得全球独家许可并承担全部开发成本。
 
-以色列方面表示，其目标是解除黎巴嫩真主党武装。
+辉瑞首席肿瘤官Jeff Legos表示，此次合作结合了信达在新药发现与早期临床开发的创新实力，与辉瑞在全球研发与商业化上的综合能力。
 
-黎巴嫩方面则呼吁以色列和黎巴嫩真主党之间实现停火，并且采取措施应对其面临的人道主义危机。
+信达生物首席研发官周辉指出，通过对核心项目的全球共同开发及在美欧共同商业化，将进一步拓展信达的全球布局。
+
+此次交易预计在2026年第三季度完成，需满足所需监管批准条件。
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 20:55 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 21:00 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 21:16 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:51 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 21:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 21:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 21:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:16 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 21:15 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 21:11 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:56 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 21:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 20:56 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 21:02 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 21:00 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 20:55 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 21:14 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 21:22 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 21:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 21:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 20:59 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 21:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 21:19 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 20:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 21:19 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 21:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 21:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/06257465.shtml)
-- 2026-06-29 21:00 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/8013580501.shtml)
-- 2026-06-29 20:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/09660284.shtml)
-- 2026-06-29 20:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/8327953168.shtml)
-- 2026-06-29 21:16 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/8148627432.shtml)
-- 2026-06-29 21:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/214169.shtml)
-- 2026-06-29 21:00 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/274512.shtml)
-- 2026-06-29 20:59 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/926938092.shtml)
-- 2026-06-29 20:54 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/9126740.shtml)
-- 2026-06-29 20:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/103915452553.shtml)
-- 2026-06-29 21:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2559704920.shtml)
-- 2026-06-29 21:05 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/04723451927.shtml)
-- 2026-06-29 20:50 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/44236223.shtml)
-- 2026-06-29 21:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/944853576224.shtml)
-- 2026-06-29 20:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/799572.shtml)
+- 2026-06-29 21:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/788253.shtml)
+- 2026-06-29 21:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/7855931554.shtml)
+- 2026-06-29 21:02 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/4576545.shtml)
+- 2026-06-29 20:57 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/050287601.shtml)
+- 2026-06-29 21:18 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/734448246239.shtml)
+- 2026-06-29 21:04 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/110270767236.shtml)
+- 2026-06-29 21:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/482354255499.shtml)
+- 2026-06-29 21:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1214367930.shtml)
+- 2026-06-29 21:13 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/48211.shtml)
+- 2026-06-29 21:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/1588863176.shtml)
+- 2026-06-29 21:15 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/1986603.shtml)
+- 2026-06-29 21:21 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/460632653.shtml)
+- 2026-06-29 21:22 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/6528386321.shtml)
+- 2026-06-29 20:59 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/07435634.shtml)
+- 2026-06-29 21:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/68500420087.shtml)

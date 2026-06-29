@@ -1,50 +1,57 @@
-# 发改委：预计到2030年非化石能源供应规模将比2025年显著增长 2035年比2025年实现倍增
+# 贵港海关信息化设备及系统驻点维护服务比选采购公告
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-格隆汇4月17日|国新办4月17日举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况。国家发展改革委副主任王昌林表示，近期，面对国际形势变化对我国油气进口的影响，国家采取综合措施，有力保障国内油品供应充足，市场运行平稳，充分体现了我国新型能源体系的建设成效。下一步，将加快非化石能源高质量发展，统筹集中式和分布式清洁能源开发，全力增加非
+贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。 二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。四、报价人资格： (一)国内注册(指按
 
 ## 正文
 
-格隆汇4月17日|国新办4月17日举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况。
+贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。
 
-国家发展改革委副主任王昌林表示，近期，面对国际形势变化对我国油气进口的影响，国家采取综合措施，有力保障国内油品供应充足，市场运行平稳，充分体现了我国新型能源体系的建设成效。
+二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。
 
-下一步，将加快非化石能源高质量发展，统筹集中式和分布式清洁能源开发，全力增加非化石能源电力生产和消费规模。
+(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。
 
-通过上述努力，预计到2030年非化石能源供应规模将比2025年显著增长，2035年比2025年实现倍增。
+四、报价人资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资格条件，具备法人资格的供应商 (二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
 
-责任编辑：蒋露瑶
+五、报价文件要求： (一)报价文件(需提交正本一份，副本二份，见附件2)。
+
+(二)报价文件复印件须加盖封面章或骑缝章。
+
+所有报价文件需按报价文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖报价人单位公章以示密封。
+
+六、协商须知： (一)报价文件必须满足贵港海关信息化设备及系统驻点维护服务采购需求表中所列具体要求(附件1)。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 21:02 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 21:09 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 20:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 20:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 21:17 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 21:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 20:52 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 20:49 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 21:07 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 21:11 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 21:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 21:16 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:14 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 21:02 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 21:01 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 20:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 21:16 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 21:04 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 21:21 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/6558101.shtml)
-- 2026-06-29 20:59 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.kurohicncr.top/Article/details/25675153311.shtml)
-- 2026-06-29 20:57 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/08323353262.shtml)
-- 2026-06-29 21:11 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/15729533.shtml)
-- 2026-06-29 21:03 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/2040119057.shtml)
-- 2026-06-29 21:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/315058260027.shtml)
-- 2026-06-29 21:16 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/014931.shtml)
-- 2026-06-29 21:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/758142056719.shtml)
-- 2026-06-29 20:50 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/581741140.shtml)
-- 2026-06-29 21:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/0064567442.shtml)
-- 2026-06-29 20:51 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/3131081806.shtml)
-- 2026-06-29 20:58 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/69985.shtml)
-- 2026-06-29 20:48 - [请回答王牌2019](http://www.blog.minike.top/Article/details/053826337373.shtml)
-- 2026-06-29 20:55 - [新官上任三把火](http://www.blog.minike.top/Article/details/11369.shtml)
-- 2026-06-29 21:14 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/50274008.shtml)
+- 2026-06-29 21:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/435155921381.shtml)
+- 2026-06-29 21:23 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/6213078.shtml)
+- 2026-06-29 21:14 - [女心理师](https://www.blog.kurohicncr.top/Article/details/36707.shtml)
+- 2026-06-29 21:18 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/34177687380.shtml)
+- 2026-06-29 21:22 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/853332350026.shtml)
+- 2026-06-29 21:04 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/881085.shtml)
+- 2026-06-29 21:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/67516.shtml)
+- 2026-06-29 21:07 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/030948.shtml)
+- 2026-06-29 21:08 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/71883546.shtml)
+- 2026-06-29 21:01 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/272465.shtml)
+- 2026-06-29 20:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/493104.shtml)
+- 2026-06-29 20:56 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/612558466.shtml)
+- 2026-06-29 21:08 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/35634267947.shtml)
+- 2026-06-29 20:59 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/84367.shtml)
+- 2026-06-29 21:16 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/869013463874.shtml)

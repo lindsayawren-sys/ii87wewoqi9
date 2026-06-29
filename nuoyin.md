@@ -1,59 +1,59 @@
-# 闽宁少先队员“云端”相聚 共叙山海情谊
+# 赣鄱“数智”潮涌，他们在奔涌处筑堤
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新网福州4月16日电 (高坤颖 刘其燚)为欢庆“三月三”民族传统节日，罗源县2026年“铸牢中华民族共同体意识主题月”暨“福蕴罗源 山海明珠”三月三活动——罗源·贺兰“山海石榴情”少先队员线上文化交流活动16日正式举行。福建福州民族小学与宁夏回族自治区银川市贺兰县第十小学的少先队员们跨越千里相聚“云端”，以文化为纽带，共叙山海情谊。 当天上午，两地少先队员通过视频连线隔空相见
+指尖轻触屏幕，数字生活的便利与算法推送的洪流同时抵达。在江西，数字经济已经成为高质量发展的新引擎。法治，无疑是一条为数字浪潮校准航向的重要轨道。 轨道铺得如何？日前，2026年“E法同行”全国网络法治主题宣传江西站活动在宜春启动。启动仪式上，来自江西检察、法院、公安、网信一线的四位讲述人代表所在战线讲述了多个鲜活案例，那是他们奋力将法治精神嵌进数字生活的模样。 捍卫网络世界的数
 
 ## 正文
 
-中新网福州4月16日电 (高坤颖 刘其燚)为欢庆“三月三”民族传统节日，罗源县2026年“铸牢中华民族共同体意识主题月”暨“福蕴罗源 山海明珠”三月三活动——罗源·贺兰“山海石榴情”少先队员线上文化交流活动16日正式举行。
+指尖轻触屏幕，数字生活的便利与算法推送的洪流同时抵达。
 
-福建福州民族小学与宁夏回族自治区银川市贺兰县第十小学的少先队员们跨越千里相聚“云端”，以文化为纽带，共叙山海情谊。
+在江西，数字经济已经成为高质量发展的新引擎。
 
-当天上午，两地少先队员通过视频连线隔空相见，彼此挥手致意、热情问好，现场氛围热烈温馨。
+法治，无疑是一条为数字浪潮校准航向的重要轨道。
 
-在闽宁协作三十周年的背景下，这场跨越东海之滨与西北戈壁的交流活动，是两地深化协作、促进民族交融的生动实践，让两地少年在互动中增进了解、凝聚情感，像石榴籽一样紧紧抱在一起。
+轨道铺得如何？
 
-活动中，两地少先队员化身文化传播使者，展开民族文化交流互鉴。
+日前，2026年“E法同行”全国网络法治主题宣传江西站活动在宜春启动。
 
-福州民族小学的红领巾讲解员详细介绍“三月三”民族传统节日及民俗文化，展示凤凰装、畲歌、苎麻织染等非遗技艺；贺兰县的少先队员则分享当地民族节日习俗，展现西北特色民俗风情。
+启动仪式上，来自江西检察、法院、公安、网信一线的四位讲述人代表所在战线讲述了多个鲜活案例，那是他们奋力将法治精神嵌进数字生活的模样。
 
-在“云端家宴”环节，乌米饭、馓子、油香等两地特色美食轮番亮相，福州民族小学更是展示了乌米饭制作过程。
+捍卫网络世界的数字“尊严” 晚上11点42分，赣州居民小蒲的手机屏幕骤然亮起。
 
-值得一提的是，两地少年还提前互寄美食，在品尝与交流中感受不同地域的饮食文化魅力。
+“查到了，你老公昨晚入住的酒店，同住一人。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 21:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 21:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 20:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 20:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 21:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 20:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 20:50 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 21:05 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 21:05 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:02 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 21:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 21:22 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 20:54 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 21:12 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 21:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 20:57 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 20:57 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 21:06 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 21:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 21:14 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 21:14 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 21:17 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 21:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 21:10 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/4762066332.shtml)
-- 2026-06-29 21:04 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/8516431888.shtml)
-- 2026-06-29 20:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/293148825.shtml)
-- 2026-06-29 20:54 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/197146319915.shtml)
-- 2026-06-29 20:56 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/4821642649.shtml)
-- 2026-06-29 20:53 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/55566845407.shtml)
-- 2026-06-29 21:11 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/722972719151.shtml)
-- 2026-06-29 21:03 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/6442719254.shtml)
-- 2026-06-29 20:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/832561.shtml)
-- 2026-06-29 20:51 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/81677717.shtml)
-- 2026-06-29 21:13 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/569427194561.shtml)
-- 2026-06-29 20:57 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/874985476097.shtml)
-- 2026-06-29 20:59 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/915320057737.shtml)
-- 2026-06-29 21:00 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/380607816063.shtml)
-- 2026-06-29 21:16 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/54103446997.shtml)
+- 2026-06-29 21:10 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/41173498.shtml)
+- 2026-06-29 21:21 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/26498.shtml)
+- 2026-06-29 21:05 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/036383564446.shtml)
+- 2026-06-29 21:15 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/323804002343.shtml)
+- 2026-06-29 21:00 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/69256.shtml)
+- 2026-06-29 21:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/0065177.shtml)
+- 2026-06-29 21:07 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/743541195924.shtml)
+- 2026-06-29 21:08 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/41593206445.shtml)
+- 2026-06-29 21:19 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/0142412.shtml)
+- 2026-06-29 21:17 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/66277091468.shtml)
+- 2026-06-29 21:14 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/5074252.shtml)
+- 2026-06-29 21:07 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/95510432.shtml)
+- 2026-06-29 21:05 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/78554.shtml)
+- 2026-06-29 21:18 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/05321229067.shtml)
+- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6689137.shtml)

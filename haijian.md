@@ -1,58 +1,58 @@
-# 台湾大叔心愿：盼“古早”台味飘香武汉街巷
+# 美媒：美公司在乌克兰测试人形机器人，计划将技术引入美军
 
-> 更新时间：2026-06-29 21:18:02 UTC+8
+> 更新时间：2026-06-29 21:24:02 UTC+8
 
 ## 摘要
 
-中新社武汉4月17日电 题：台湾大叔心愿：盼“古早”台味飘香武汉街巷 中新社记者 武一力 在武汉一家台式小酒馆，黏稠的肉汤咕噜作响，香气弥漫着整个小店。 “哪有什么秘密宝典，唯有‘用心’二字，这一锅肉，足足炖了5个小时。”近日，小酒馆主理人郭仟云与中新社记者谈到卤肉饭做法时说道。这碗卤肉饭，也是他最想分享给大陆食客的“古早”台味。 记者走进店内发现，其装修风格类似台湾老式菜市场
+中新网5月31日电 据美国消费者新闻与商业频道(CNBC)30日报道，一家总部位于美国旧金山的机器人初创公司已经在乌克兰测试了其人形机器人，并计划很快将这项技术引入美国军方。 该公司成立于2024年，旨在将人形机器人应用于军事和工业领域，而非家务劳动和服务业。该公司预计，在乌克兰的测试能为未来与美军的合作提供参考。 今年早些时候，该公司已将两台人形机器人送往乌克兰进行测试，主要
 
 ## 正文
 
-中新社武汉4月17日电 题：台湾大叔心愿：盼“古早”台味飘香武汉街巷 中新社记者 武一力 在武汉一家台式小酒馆，黏稠的肉汤咕噜作响，香气弥漫着整个小店。
+中新网5月31日电 据美国消费者新闻与商业频道(CNBC)30日报道，一家总部位于美国旧金山的机器人初创公司已经在乌克兰测试了其人形机器人，并计划很快将这项技术引入美国军方。
 
-“哪有什么秘密宝典，唯有‘用心’二字，这一锅肉，足足炖了5个小时。
+该公司成立于2024年，旨在将人形机器人应用于军事和工业领域，而非家务劳动和服务业。
 
-”近日，小酒馆主理人郭仟云与中新社记者谈到卤肉饭做法时说道。
+该公司预计，在乌克兰的测试能为未来与美军的合作提供参考。
 
-这碗卤肉饭，也是他最想分享给大陆食客的“古早”台味。
+今年早些时候，该公司已将两台人形机器人送往乌克兰进行测试，主要用于执行危险区域的后勤任务，如物资取件。
 
-记者走进店内发现，其装修风格类似台湾老式菜市场，“档口”摆放着台湾啤酒和台式小吃，循环播放着闽南语歌谣。
+这些测试获得美国政府支持。
 
-郭仟云原本在台北从事音乐行业，1994年受同行邀约，来到武汉参与音乐餐吧的运营工作。
+目前，这家初创企业已获得总额2400万美元的政府研究合同，用于在陆军、海军和空军中开展检查、后勤及武器操作方面的可行性测试。
 
-他本以为此行只是一段短暂差旅，没料到与一位本地姑娘相恋，在武汉成家立业。
+报道指出，在战场部署人形机器人的相关技术引发了诸多伦理担忧，特别是涉及在生死攸关的战斗中使用机器人自主决策的问题。
 
-他的母亲在台北经营一家卤肉饭小摊，这碗卤肉饭，总让他想起母爱和童年时光。
+目前，乌克兰国防部拒绝就此事发表评论，而美国国防部则未回应问询。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 20:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 21:16 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 21:05 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 20:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 21:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 20:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 21:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 21:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 21:00 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 21:17 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 20:57 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 21:06 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 21:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 21:23 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 21:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 21:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 20:55 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 21:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 21:10 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 21:13 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 21:22 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/573602229.shtml)
-- 2026-06-29 20:54 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/308284186413.shtml)
-- 2026-06-29 21:15 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/190043.shtml)
-- 2026-06-29 21:16 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/5624218341.shtml)
-- 2026-06-29 20:58 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/873024244.shtml)
-- 2026-06-29 21:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/03267359862.shtml)
-- 2026-06-29 20:56 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/24349.shtml)
-- 2026-06-29 20:58 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/6781683760.shtml)
-- 2026-06-29 21:09 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/5734010.shtml)
-- 2026-06-29 21:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/69179.shtml)
-- 2026-06-29 21:05 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/13164541828.shtml)
-- 2026-06-29 20:53 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/74393594.shtml)
-- 2026-06-29 21:02 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/075308.shtml)
-- 2026-06-29 21:00 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/937319097869.shtml)
-- 2026-06-29 20:58 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/4558590763.shtml)
+- 2026-06-29 21:23 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/0631797.shtml)
+- 2026-06-29 20:59 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/58703374650.shtml)
+- 2026-06-29 20:57 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/281557155863.shtml)
+- 2026-06-29 20:57 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/265935116.shtml)
+- 2026-06-29 21:16 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/059308.shtml)
+- 2026-06-29 21:21 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/125462997775.shtml)
+- 2026-06-29 21:20 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/66999.shtml)
+- 2026-06-29 21:13 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/331645.shtml)
+- 2026-06-29 21:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/47356.shtml)
+- 2026-06-29 20:57 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/6884450.shtml)
+- 2026-06-29 20:59 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/49990868079.shtml)
+- 2026-06-29 21:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8686573301.shtml)
+- 2026-06-29 20:57 - [这一刀 会很帅](https://www.share.minike.top/Article/details/274968.shtml)
+- 2026-06-29 21:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/49346029.shtml)
+- 2026-06-29 20:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/2134498948.shtml)
