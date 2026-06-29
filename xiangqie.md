@@ -1,53 +1,47 @@
-# 受大风天气影响 温州沿海水上客运航线全部停航
+# 美国总统特朗普结束访华
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-受东北大风影响，温州沿海海域迎来强风天气。为保障水上交通安全，温州海事局于4月29日7时正式发布沿海大风橙色预警，全面启动应急防控措施。 截至4月29日17时，温州海事局已完成辖区内水上交通和作业的全面管控。据统计，沿海7条水上客运航线的8艘客运船舶已全部停航，确保旅客出行安全；19个沿海涉水工程项目全面停工，45艘施工船舶已安全撤离至避风锚地，避免了强风对工程设施和人员的威胁
+发布时间：2026年05月15日 15:10 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-受东北大风影响，温州沿海海域迎来强风天气。
-
-为保障水上交通安全，温州海事局于4月29日7时正式发布沿海大风橙色预警，全面启动应急防控措施。
-
-截至4月29日17时，温州海事局已完成辖区内水上交通和作业的全面管控。
-
-据统计，沿海7条水上客运航线的8艘客运船舶已全部停航，确保旅客出行安全；19个沿海涉水工程项目全面停工，45艘施工船舶已安全撤离至避风锚地，避免了强风对工程设施和人员的威胁。
-
-此外，沿海水域的游艇、小型船只及加油船也已全部停航避风。
-
-(总台记者 张延 韩栋)
+发布时间：2026年05月15日 15:10 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 04:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 04:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:26 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 04:07 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:17 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 04:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 04:16 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 04:13 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 04:29 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 04:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 04:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 04:33 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 04:26 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 04:24 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 04:09 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 04:24 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 04:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 04:23 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 04:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 04:29 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 04:16 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 04:34 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 04:13 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 04:21 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/80345.shtml)
-- 2026-06-30 04:07 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/844523.shtml)
-- 2026-06-30 04:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/905764208565.shtml)
-- 2026-06-30 04:12 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/4194923.shtml)
-- 2026-06-30 04:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/54030745441.shtml)
-- 2026-06-30 04:11 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/7896510388.shtml)
-- 2026-06-30 04:08 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/393182.shtml)
-- 2026-06-30 04:29 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/0440943.shtml)
-- 2026-06-30 04:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/43557251.shtml)
-- 2026-06-30 04:21 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/24377791.shtml)
-- 2026-06-30 04:20 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/0320053772.shtml)
-- 2026-06-30 04:13 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/451963.shtml)
-- 2026-06-30 04:06 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/765595513.shtml)
-- 2026-06-30 04:13 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/319376.shtml)
-- 2026-06-30 04:22 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/4194851833.shtml)
+- 2026-06-30 04:22 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/680160.shtml)
+- 2026-06-30 04:07 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/260249477.shtml)
+- 2026-06-30 04:16 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/05140.shtml)
+- 2026-06-30 04:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/7856707.shtml)
+- 2026-06-30 04:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/984427624966.shtml)
+- 2026-06-30 04:35 - [一见倾心](http://www.share.minike.top/Article/details/959235134857.shtml)
+- 2026-06-30 04:33 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/48654031.shtml)
+- 2026-06-30 04:15 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/41297806.shtml)
+- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/90480.shtml)
+- 2026-06-30 04:19 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/448330.shtml)
+- 2026-06-30 04:21 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/643503.shtml)
+- 2026-06-30 04:19 - [巴西2比1日本](http://www.blog.minike.top/Article/details/54861010295.shtml)
+- 2026-06-30 04:07 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/4630311334.shtml)
+- 2026-06-30 04:23 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/10745.shtml)
+- 2026-06-30 04:32 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/201023.shtml)

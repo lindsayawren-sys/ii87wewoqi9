@@ -1,56 +1,60 @@
-# 新浪财经李兀：防范“漂绿”须从披露规范、评价标准、强化监督三方面同时入手
+# 华泰期货：产销数据好转，钢价震荡运行
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。 他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。 第一
+市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。昨日，全国建材成交9.28万吨。 供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。目前建材产销矛盾不足，消费持续性有待验
 
 ## 正文
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
+市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。
 
-新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。
+现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。
 
-他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。
+昨日，全国建材成交9.28万吨。
 
-第一，披露必须规范。
+供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。
 
-李兀表示，当前国际标准尚未统一，但有志之士正在持续推进，这是“重中之重”。
+目前建材产销矛盾不足，消费持续性有待验证。
 
-他借用热播剧《太平年》中的一句台词——“须去做，方知晓”提到，“可持续发展事业、高质量发展其实也是类似的，我们从业人员觉得它是一个美好的前景，各利益相关方都要为此不断努力，去提高披露的规范性。
+板材产量变化不大，受出口接单回落预期影响，短期钢材价格上下空间均较为有限，关注后续消费韧性、去库斜率及出口接单情况。
 
-” 第二，提升评价标准。
+策略 单边：震荡 跨期：无 跨品种：无 期现：无 期权：无 风险 宏观政策、成材供需、钢材出口、钢厂利润、成本支撑等。
 
-他认为，ESG评级体系中与气候相关的权重需要调整。
+投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:18 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 04:18 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 04:18 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 04:26 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:21 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 04:02 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 04:13 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 04:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 04:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 04:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 04:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 04:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 04:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 04:11 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 04:13 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 04:30 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 04:07 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 04:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 04:15 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 04:22 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9305304719.shtml)
-- 2026-06-30 04:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/2969059317.shtml)
-- 2026-06-30 04:13 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/547900.shtml)
-- 2026-06-30 04:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/94307.shtml)
-- 2026-06-30 04:14 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/3780364834.shtml)
-- 2026-06-30 04:14 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/9500147.shtml)
-- 2026-06-30 04:11 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/564871170404.shtml)
-- 2026-06-30 04:23 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/7541131.shtml)
-- 2026-06-30 04:01 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/406043233.shtml)
-- 2026-06-30 04:22 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/320229907.shtml)
-- 2026-06-30 04:28 - [点菜也要教吗](http://www.share.minike.top/Article/details/4714043781.shtml)
-- 2026-06-30 04:13 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/477827.shtml)
-- 2026-06-30 04:01 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/4559267334.shtml)
-- 2026-06-30 04:05 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/25853.shtml)
-- 2026-06-30 04:19 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/540228749.shtml)
+- 2026-06-30 04:30 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/87261740488.shtml)
+- 2026-06-30 04:27 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/7323944770.shtml)
+- 2026-06-30 04:26 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/70318822.shtml)
+- 2026-06-30 04:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/465988139781.shtml)
+- 2026-06-30 04:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/5269126949.shtml)
+- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/84261132262.shtml)
+- 2026-06-30 04:31 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/47869623394.shtml)
+- 2026-06-30 04:18 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/26223790.shtml)
+- 2026-06-30 04:25 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/51541.shtml)
+- 2026-06-30 04:11 - [速度与激情9](http://www.blog.minike.top/Article/details/82855457105.shtml)
+- 2026-06-30 04:22 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/45255763226.shtml)
+- 2026-06-30 04:13 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/9689448592.shtml)
+- 2026-06-30 04:33 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/287388.shtml)
+- 2026-06-30 04:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/4753378.shtml)
+- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/99684071.shtml)

@@ -1,60 +1,61 @@
-# 巴西零售商CVLB申请破产保护，旗下运营CASA&VIDEO和Le Biscuit
+# Chartwell宣布5月每单位0.052加元分派
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-巴西零售商CVLB Brasil申请破产保护，称此举是为正在进行的债务重组过程“扩大范围并提供更大的法律稳定性”。 该公司运营着CASA&VIDEO和Le Biscuit连锁店。作为破产保护申请的一部分，CVLB Brasil透露已获得一笔7500万雷亚尔的营运资金融资。声明称，这笔资金旨在“在此重组阶段加强流动性和确保业务连续性”。该公司还表示，其业务运营正常，将继续采取措施
+最新分派公告 Chartwell Retirement Residences近日宣布，2026年5月份的现金分派为每信托单位0.052加元。此次分派将于2026年6月15日支付给5月29日登记在册的持有人。 分派历史与上调记录 此次0.052加元的分派延续了Chartwell自2026年3月起执行的月度分派水平。此前，公司于2026年2月26日批准将月度分派从0.051加元上调
 
 ## 正文
 
-巴西零售商CVLB Brasil申请破产保护，称此举是为正在进行的债务重组过程“扩大范围并提供更大的法律稳定性”。
+最新分派公告 Chartwell Retirement Residences近日宣布，2026年5月份的现金分派为每信托单位0.052加元。
 
-该公司运营着CASA&VIDEO和Le Biscuit连锁店。
+此次分派将于2026年6月15日支付给5月29日登记在册的持有人。
 
-作为破产保护申请的一部分，CVLB Brasil透露已获得一笔7500万雷亚尔的营运资金融资。
+分派历史与上调记录 此次0.052加元的分派延续了Chartwell自2026年3月起执行的月度分派水平。
 
-声明称，这笔资金旨在“在此重组阶段加强流动性和确保业务连续性”。
+此前，公司于2026年2月26日批准将月度分派从0.051加元上调至0.052加元，年化分派额相应从0.612加元增至0.624加元。
 
-该公司还表示，其业务运营正常，将继续采取措施改善财务和运营结构。
+该上调自2026年3月31日登记的分派起生效。
 
-CVLB Brasil申请破产保护与其2021年完成的重组有关，当时该公司在将普通股转为优先股后，减少了约21亿雷亚尔的债务。
+股息再投资计划 持有人可参与Chartwell的分派再投资计划。
 
-然而，高企的利率和融资挑战使巴西零售商处境艰难，与2020年相比，申请破产保护的公司数量有所增加。
+符合条件的投资者其月度现金分派将用于购买信托单位，并可获得相当于月度分派3%的红利单位，且无需支付佣金或经纪费用。
 
-该公司解释称，破产保护的申请源于“有必要扩大范围并为正在进行的重组过程提供更大的法律稳定性”，但这并不代表放弃谈判。
+完整计划详情可通过公司官网或投资顾问获取。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 04:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 04:11 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 04:11 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 04:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 04:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 04:10 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 04:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 04:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 04:12 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:01 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 04:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 04:03 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 04:34 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 04:16 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 04:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 04:18 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 04:23 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 04:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 04:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 04:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 04:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 04:17 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 04:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 04:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 04:08 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 04:08 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/8765933.shtml)
-- 2026-06-30 04:19 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/927042482025.shtml)
-- 2026-06-30 04:29 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/28444218.shtml)
-- 2026-06-30 04:20 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/98095659.shtml)
-- 2026-06-30 04:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/4765233.shtml)
-- 2026-06-30 04:17 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3058750714.shtml)
-- 2026-06-30 04:12 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/4387866.shtml)
-- 2026-06-30 04:10 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/377520492013.shtml)
-- 2026-06-30 04:25 - [点菜也要教吗](http://www.share.minike.top/Article/details/22349.shtml)
-- 2026-06-30 04:00 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9476303529.shtml)
-- 2026-06-30 04:08 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/33621656.shtml)
-- 2026-06-30 04:06 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/007374.shtml)
-- 2026-06-30 04:14 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/675271056.shtml)
-- 2026-06-30 04:26 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/18927.shtml)
-- 2026-06-30 04:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/299563543.shtml)
+- 2026-06-30 04:09 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/1249831.shtml)
+- 2026-06-30 04:20 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/7905985.shtml)
+- 2026-06-30 04:30 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/8337956.shtml)
+- 2026-06-30 04:18 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/902274.shtml)
+- 2026-06-30 04:35 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/217345.shtml)
+- 2026-06-30 04:25 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/842706011179.shtml)
+- 2026-06-30 04:18 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/1068837.shtml)
+- 2026-06-30 04:28 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/2057439.shtml)
+- 2026-06-30 04:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/251998873.shtml)
+- 2026-06-30 04:30 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/493069148249.shtml)
+- 2026-06-30 04:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/589671740699.shtml)
+- 2026-06-30 04:32 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/523204.shtml)
+- 2026-06-30 04:19 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/919673887.shtml)
+- 2026-06-30 04:30 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/64272922226.shtml)
+- 2026-06-30 04:27 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/382852661.shtml)

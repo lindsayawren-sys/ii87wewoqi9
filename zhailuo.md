@@ -1,58 +1,60 @@
-# 民宿以“蛇很多”为由劝退预订客户 浙江淳安已立案并双倍赔付
+# 全球债券大幅下挫 通胀升温引发投资者恐慌
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-新华社杭州5月1日电 (记者郑可意)浙江淳安县文化和广电旅游体育局5月1日发布通报，就网络反映当地一民宿以“蛇很多”等不实理由强制要求顾客退单一事作出回应。目前，涉事民宿因涉嫌违反相关法律法规已被立案调查，消费者已获得双倍客房订单价款赔付。通报显示，2026年4月30日，网络出现淳安县民宿以“酒店劝退预订客户声称蛇很多”等不实理由强制要求顾客退单的信息。淳安县文化和广电旅游体育
+全球债券市场在周五惨淡收官，本周走势承压。伊朗局势冲突对经济的冲击迹象愈发明显，投资者由此预判央行加息节奏将快于预期，且经济增长将遭受拖累。 美国国债收益率创下近一年新高，交易员普遍认为，受伊朗冲突引发能源价格冲击、通胀压力飙升，美联储或将被迫加息以抑制通胀。 欧洲早盘交易中，德、意、法国债遭遇抛售，日本债券收益率亦创下历史新高。 意大利 10 年期国债收益率飙升近 9 个基点
 
 ## 正文
 
-新华社杭州5月1日电 (记者郑可意)浙江淳安县文化和广电旅游体育局5月1日发布通报，就网络反映当地一民宿以“蛇很多”等不实理由强制要求顾客退单一事作出回应。
+全球债券市场在周五惨淡收官，本周走势承压。
 
-目前，涉事民宿因涉嫌违反相关法律法规已被立案调查，消费者已获得双倍客房订单价款赔付。
+伊朗局势冲突对经济的冲击迹象愈发明显，投资者由此预判央行加息节奏将快于预期，且经济增长将遭受拖累。
 
-通报显示，2026年4月30日，网络出现淳安县民宿以“酒店劝退预订客户声称蛇很多”等不实理由强制要求顾客退单的信息。
+美国国债收益率创下近一年新高，交易员普遍认为，受伊朗冲突引发能源价格冲击、通胀压力飙升，美联储或将被迫加息以抑制通胀。
 
-淳安县文化和广电旅游体育局随即组建工作组赴现场核查处置。
+欧洲早盘交易中，德、意、法国债遭遇抛售，日本债券收益率亦创下历史新高。
 
-经县市场监督管理局现场调查，涉事民宿拒绝消费者正常入住的行为，涉嫌违反《中华人民共和国价格法》《明码标价和禁止价格欺诈规定》等法律法规，将依法进行立案调查。
+意大利 10 年期国债收益率飙升近 9 个基点，至 3.87% 左右，单周累计涨幅接近 14 个基点；德国基准国债收益率上涨近 6 个基点，报 3.11%。
 
-同时，依据《淳安县星级旅游饭店消费纠纷赔偿指引》第三条“酒店违约取消客人预订的客房，客人可以选择要求酒店双倍返还客房订单价款”的规定，相关部门主动和客人取得联系，并通过政府资金池已赔付到位，切实保障消费者合法权益。
+本周通胀数据显示，受地缘冲突影响，企业与居民端物价压力大幅攀升；本轮局势已推动原油价格涨幅超 50%。
 
-通报说，下一步，将联合相关部门在全县住宿行业开展全覆盖排查整治，畅通投诉举报渠道，依法从严查处强制退单、恶意涨价、虚假宣传等侵害游客权益行为，坚决维护淳安旅游市场秩序。
+对通胀与利率预期最为敏感的两年期债券收益率本周涨幅最为迅猛，长端债券收益率也同步走高，反映出投资者担忧此次价格冲击将产生长期影响。
+
+杰富瑞策略师莫希特・库马尔表示：“市场关注点不应只局限于通胀，财政赤字走高同样值得警惕。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 04:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 04:05 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 04:26 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 04:29 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 04:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 04:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 04:06 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:05 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 04:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 04:18 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 04:19 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 04:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 04:19 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 04:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 04:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 04:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:26 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 04:22 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 04:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 04:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 04:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 04:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 04:26 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 04:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/054023254760.shtml)
-- 2026-06-30 04:12 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/47840.shtml)
-- 2026-06-30 04:06 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/0496319.shtml)
-- 2026-06-30 04:29 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/6608123004.shtml)
-- 2026-06-30 04:29 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/333341737114.shtml)
-- 2026-06-30 04:06 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/9825238.shtml)
-- 2026-06-30 04:00 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/32313977678.shtml)
-- 2026-06-30 04:15 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/039600298.shtml)
-- 2026-06-30 04:04 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/176964.shtml)
-- 2026-06-30 04:24 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/1753501.shtml)
-- 2026-06-30 04:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/80210.shtml)
-- 2026-06-30 04:21 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/70697581.shtml)
-- 2026-06-30 04:27 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/59913994.shtml)
-- 2026-06-30 04:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/90438535.shtml)
-- 2026-06-30 04:06 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/0026150.shtml)
+- 2026-06-30 04:15 - [斗破苍穹](http://www.share.minike.top/Article/details/167960875.shtml)
+- 2026-06-30 04:25 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/0587022.shtml)
+- 2026-06-30 04:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/162881.shtml)
+- 2026-06-30 04:32 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/95662.shtml)
+- 2026-06-30 04:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0183792738.shtml)
+- 2026-06-30 04:22 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/5397560.shtml)
+- 2026-06-30 04:12 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/9669461.shtml)
+- 2026-06-30 04:24 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/168862.shtml)
+- 2026-06-30 04:24 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/547616461.shtml)
+- 2026-06-30 04:07 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3892137.shtml)
+- 2026-06-30 04:11 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/213043.shtml)
+- 2026-06-30 04:07 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/54472826531.shtml)
+- 2026-06-30 04:13 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/8743125.shtml)
+- 2026-06-30 04:17 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/6945079.shtml)
+- 2026-06-30 04:30 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/1789052.shtml)

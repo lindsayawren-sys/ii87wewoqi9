@@ -1,59 +1,59 @@
-# 阿克曼双重上市首秀遇冷，股价跌破发行价
+# 603082，股价2连涨停！公司紧急澄清：未生产人形机器人本体及零部件！
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-亿万富翁投资者比尔·阿克曼旗下潘兴广场公司周三在纽约证券交易所完成双重上市，但其备受瞩目的首秀表现不尽如人意。 此次上市采用双重架构，包括封闭式基金潘兴广场美国公司（PSUS）和资产管理公司潘兴广场公司（PS）。PSUS发行价为50美元，投资者每购买5股可免费获赠1股PS股份。合并IPO共募资50亿美元，其中包括基石投资者锁定的28亿美元，是过去十年来最大规模的封闭式基金IPO
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！两连板北自科技（603082）5月15日晚间发布股价异动公告，针对市场热度较高的人形机器人概念作出明确澄清，表示公司聚焦产业化落地，截至目前未生产人形机器人本体及零部件，也未发现其他可能影响股价的热点概念事项或市场传闻。 北自科技称，针对股价异动，公司进行了全面自查，并对公司控股股东、间接控股股东就相关事项
 
 ## 正文
 
-亿万富翁投资者比尔·阿克曼旗下潘兴广场公司周三在纽约证券交易所完成双重上市，但其备受瞩目的首秀表现不尽如人意。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次上市采用双重架构，包括封闭式基金潘兴广场美国公司（PSUS）和资产管理公司潘兴广场公司（PS）。
+两连板北自科技（603082）5月15日晚间发布股价异动公告，针对市场热度较高的人形机器人概念作出明确澄清，表示公司聚焦产业化落地，截至目前未生产人形机器人本体及零部件，也未发现其他可能影响股价的热点概念事项或市场传闻。
 
-PSUS发行价为50美元，投资者每购买5股可免费获赠1股PS股份。
+北自科技称，针对股价异动，公司进行了全面自查，并对公司控股股东、间接控股股东就相关事项进行了核实，公司生产经营情况正常，内外部经营环境未发生重大变化，公司及控股股东均不存在应披露而未披露的重大信息。
 
-合并IPO共募资50亿美元，其中包括基石投资者锁定的28亿美元，是过去十年来最大规模的封闭式基金IPO。
+北自科技2024年登陆资本市场，主要从事智能物流系统和装备的研发、设计、制造与集成业务。
 
-然而，首日交易表现惨淡。
+2025年公司实现营业总收入21.06亿元，同比增长2.13%，归母净利润1.72亿元，同比增长1.3%；2026 年一季度实现营收4.26亿元，同比下降3.41%，归母净利润 1900.76 万元，同比下降54.97%。
 
-PSUS开盘价42美元，较发行价下跌16%，盘中一度跌至40.33美元，最终收跌约18%。
+对于今年一季度业绩波动的原因，公司解释称其智能物流系统为非标准化产品，销售定价受市场竞争与项目复杂度影响，本期部分验收项目毛利率偏低，直接拖累利润水平。
 
-PS开盘价为24美元，随后小幅回落至23美元附近。
+5月以来北自科技股价震荡上行，5月14日、15日连续两个交易日涨停，两日成交额分别为1.8亿元和5.27亿元，换手率分别为11.97%和31.63%，成交活跃。
 
-阿克曼在CNBC采访中表示，此次IPO旨在实现“资本主义的民主化”，让散户投资者得以参与其投资策略，为此与Robinhood和嘉信理财等零售券商合作分配股份。
+盘后龙虎榜数据显示，知名游资炒股养家的常用席位华鑫证券上海宛平南路连续两日现身，5月14日位列买一席位，买入1889.43万元，5月15日上榜卖一席位，卖出2042.41万元。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 04:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 04:07 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:19 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 04:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 04:05 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 04:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 04:17 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 04:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 04:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:19 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:18 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 04:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 04:27 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 04:30 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 04:22 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 04:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 04:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 04:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 04:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 04:15 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 04:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 04:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 04:35 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 04:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 04:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/91583559062.shtml)
-- 2026-06-30 04:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/50938790387.shtml)
-- 2026-06-30 04:15 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/0843335449.shtml)
-- 2026-06-30 04:22 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/31670060.shtml)
-- 2026-06-30 04:24 - [急先锋](http://www.share.kurohicncr.top/Article/details/172678889.shtml)
-- 2026-06-30 04:21 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/823007933319.shtml)
-- 2026-06-30 04:13 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/430367578.shtml)
-- 2026-06-30 04:08 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/1368561.shtml)
-- 2026-06-30 04:20 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/55305212091.shtml)
-- 2026-06-30 04:07 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2970516.shtml)
-- 2026-06-30 04:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/851246.shtml)
-- 2026-06-30 04:22 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/56234.shtml)
-- 2026-06-30 04:18 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/72035002620.shtml)
-- 2026-06-30 04:04 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/92741899.shtml)
-- 2026-06-30 04:14 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/84958.shtml)
+- 2026-06-30 04:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/56124.shtml)
+- 2026-06-30 04:35 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/483951681541.shtml)
+- 2026-06-30 04:10 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/880554.shtml)
+- 2026-06-30 04:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/751678445.shtml)
+- 2026-06-30 04:09 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/033520587.shtml)
+- 2026-06-30 04:24 - [流金岁月](https://www.blog.minike.top/Article/details/2565829856.shtml)
+- 2026-06-30 04:21 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/8815788.shtml)
+- 2026-06-30 04:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/395301.shtml)
+- 2026-06-30 04:16 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/601379.shtml)
+- 2026-06-30 04:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/809855670711.shtml)
+- 2026-06-30 04:21 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/285446.shtml)
+- 2026-06-30 04:16 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/358266918.shtml)
+- 2026-06-30 04:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/25192160726.shtml)
+- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/093720.shtml)
+- 2026-06-30 04:10 - [孙兴慜道歉](http://www.share.minike.top/Article/details/90469.shtml)

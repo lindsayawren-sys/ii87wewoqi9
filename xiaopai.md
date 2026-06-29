@@ -1,57 +1,56 @@
-# 真相丨日本军国主义的“锁链”，还剩几根？
+# 贾可：中国汽车产业面临十大转折
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 21:50 来源：中国新闻网 那个被锁住数十年的恶魔，正在日本右翼政客的“倾力帮助”下，一点点挣开枷锁。 4月底，日本前首相鸠山由纪夫痛批高市早苗当局“错误举动”。但现实远比“错误”二字更惊心：就在同一天，日本政府高调推进修订“安保三文件”，公然叫嚣“为长期战争备战”。 这是为恶魔打开了又一道锁。 数日前，自卫队“一佐”军衔正式改回“大佐”——
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。轩辕矩阵 CEO、轩辕同学校长、世界新汽车生态协会理事长贾可在演讲中表示，中国汽车产业当下面临十大转折。 转折一，本土市场从规模扩张转向存量博弈，“甚至是缩量博弈，这话写在小字里更合适，但这就是我们当下本土市场的现实。”贾可强调，“大家必须清醒认识到，再也不能靠亏
 
 ## 正文
 
-发布时间：2026年04月30日 21:50 来源：中国新闻网 那个被锁住数十年的恶魔，正在日本右翼政客的“倾力帮助”下，一点点挣开枷锁。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-4月底，日本前首相鸠山由纪夫痛批高市早苗当局“错误举动”。
+轩辕矩阵 CEO、轩辕同学校长、世界新汽车生态协会理事长贾可在演讲中表示，中国汽车产业当下面临十大转折。
 
-但现实远比“错误”二字更惊心：就在同一天，日本政府高调推进修订“安保三文件”，公然叫嚣“为长期战争备战”。
+转折一，本土市场从规模扩张转向存量博弈，“甚至是缩量博弈，这话写在小字里更合适，但这就是我们当下本土市场的现实。
 
-这是为恶魔打开了又一道锁。
+”贾可强调，“大家必须清醒认识到，再也不能靠亏损换规模、靠不挣钱求生存，失血过多，根本活不了。
 
-数日前，自卫队“一佐”军衔正式改回“大佐”——那个浸透亚洲人民鲜血的旧日军称谓，死灰复燃。
+”这一现实倒逼车企必须做大做强，他补充道：“今年一季度行业利润又创新低，只有3.21%，二月更低，三月虽随销量回升有所好转，但这样的行业底色，让我们必须认清现实，再这么下去肯定不行。
 
-这不是简单的改名，这是在为恶魔重新披上当年的军装。
+” 转折二，中国汽车出海将面临25%份额假说的天花板。
 
-锁链，再断一环。
+贾可表示，“大家一定要意识到，刨除北美和日韩这两个堡垒市场，我们现在的出海份额已经达到25.5%，罗兰贝格基于百年汽车史提出的25%假说，说的就是单一国别全球份额大概就在25%，我们已经超了。
 
-更令人脊背发凉的是，4月23日，日本众议院强行通过法案，新设“国家情报局”。
+”他坦言，“突破25%到30%、40%，我们要付出的代价会非常大，因为我们的本地化率只有20多，五六辆车才有一辆是本地产的，而德系、日系的本地化率超过80%。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 04:11 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 04:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 04:18 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 04:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 04:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 04:26 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 04:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 04:24 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 04:29 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 04:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 04:16 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 04:24 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 04:19 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 04:13 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:16 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 04:22 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 04:20 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 04:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/07251.shtml)
-- 2026-06-30 04:11 - [房价什么时候能涨](http://www.share.minike.top/Article/details/7062789453.shtml)
-- 2026-06-30 04:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/584213.shtml)
-- 2026-06-30 04:22 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/31280907.shtml)
-- 2026-06-30 04:08 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/98330598939.shtml)
-- 2026-06-30 04:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8380832698.shtml)
-- 2026-06-30 04:08 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/67317.shtml)
-- 2026-06-30 04:19 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/00668063.shtml)
-- 2026-06-30 04:25 - [千香](https://www.share.kurohicncr.top/Article/details/39695088.shtml)
-- 2026-06-30 04:20 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/939215.shtml)
-- 2026-06-30 04:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/18535328559.shtml)
-- 2026-06-30 04:05 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/395219112443.shtml)
-- 2026-06-30 04:26 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/12755.shtml)
-- 2026-06-30 04:14 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/6604271.shtml)
-- 2026-06-30 04:10 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/69255578247.shtml)
+- 2026-06-30 04:17 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/5736889.shtml)
+- 2026-06-30 04:31 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/360294.shtml)
+- 2026-06-30 04:27 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/7694377893.shtml)
+- 2026-06-30 04:24 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/794556.shtml)
+- 2026-06-30 04:06 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/8415569652.shtml)
+- 2026-06-30 04:09 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/34069261736.shtml)
+- 2026-06-30 04:21 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/212938.shtml)
+- 2026-06-30 04:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/01312843.shtml)
+- 2026-06-30 04:14 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/528265899.shtml)
+- 2026-06-30 04:32 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/80240584564.shtml)
+- 2026-06-30 04:15 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/43482.shtml)
+- 2026-06-30 04:33 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/7895750.shtml)
+- 2026-06-30 04:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/998912903983.shtml)
+- 2026-06-30 04:23 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/237573861.shtml)
+- 2026-06-30 04:30 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/169595.shtml)

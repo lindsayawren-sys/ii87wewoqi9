@@ -1,61 +1,57 @@
-# 华泰证券紧急澄清
+# 4月金融数据出炉 直接融资占比持续提升
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】华泰证券发布澄清公告 中国基金报记者 莫琳 4月30日午间，华泰证券紧急发布澄清公告。 公告称，近日，公司关注到有市场媒体报道称华泰证券因基金销售违规遭监管责令改正并暂停业务12个月。经与各方核实，截至目前，公司未收到中国证监会江苏监管局任何有关基金
+记者 张琼斯 中国人民银行5月14日发布的金融统计数据报告显示，4月末，广义货币（M2）余额、社会融资规模存量、人民币贷款余额分别同比增长8.6%、7.8%和5.6%。 其中，债券融资等直接融资，在整个融资“盘子”中的占比继续提高，贷款增速放缓则成为常态。业内专家表示，核心金融指标增速高于名义经济增速，社会融资成本处于低位，反映当前融资条件较为宽松、有效融资需求得到满足。贷款增
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者 张琼斯 中国人民银行5月14日发布的金融统计数据报告显示，4月末，广义货币（M2）余额、社会融资规模存量、人民币贷款余额分别同比增长8.6%、7.8%和5.6%。
 
-【导读】华泰证券发布澄清公告 中国基金报记者 莫琳 4月30日午间，华泰证券紧急发布澄清公告。
+其中，债券融资等直接融资，在整个融资“盘子”中的占比继续提高，贷款增速放缓则成为常态。
 
-公告称，近日，公司关注到有市场媒体报道称华泰证券因基金销售违规遭监管责令改正并暂停业务12个月。
+业内专家表示，核心金融指标增速高于名义经济增速，社会融资成本处于低位，反映当前融资条件较为宽松、有效融资需求得到满足。
 
-经与各方核实，截至目前，公司未收到中国证监会江苏监管局任何有关基金销售业务暂停12个月的行政监管措施。
+贷款增速放缓与经济结构、融资结构转型息息相关，债券融资、股权融资等渠道将进一步发挥作用。
 
-前述媒体报道系不实信息，公司已要求相关媒体平台立即删除上述不实信息报告并消除影响。
+企业债券增长亮眼 社会融资规模、M2等金融总量指标平稳增长。
 
-公司表示，正密切关注该事件的进展并保留追究其法律责任的权利。
+初步统计，4月末社会融资规模存量为456.89万亿元，前4个月的社会融资规模增量为15.45万亿元。
 
-目前，公司经营一切正常，不存在《上海证券交易所股票上市规则》等相关法规所规定的应予以披露而未披露的重大事项，公司不存在违反公平信息披露规定的其他情形。
+其中，债券融资增长亮眼。
 
-据记者了解，今日早些时候，有媒体报道称，华泰证券因在基金销售业务中存在多项违规行为，被中国证券监督管理委员会江苏监管局采取责令改正并暂停办理相关业务12个月的行政监管措施。
+数据显示，4月末，政府债券余额为99.37万亿元，同比增长15.6%。
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 04:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 04:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 04:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 04:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 04:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 04:05 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:02 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 04:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:17 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 04:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 04:22 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 04:14 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 04:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 04:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 04:28 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 04:22 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 04:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 04:31 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 04:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 04:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 04:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 04:20 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/1412289.shtml)
-- 2026-06-30 04:18 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/63993.shtml)
-- 2026-06-30 04:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/12781.shtml)
-- 2026-06-30 04:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/35419089.shtml)
-- 2026-06-30 04:14 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6807738438.shtml)
-- 2026-06-30 04:11 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/3512279.shtml)
-- 2026-06-30 04:19 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/92190551602.shtml)
-- 2026-06-30 04:13 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/9044758.shtml)
-- 2026-06-30 04:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/6698576.shtml)
-- 2026-06-30 04:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/563520688.shtml)
-- 2026-06-30 04:22 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/54008775927.shtml)
-- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/5571130.shtml)
-- 2026-06-30 04:24 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/466380579.shtml)
-- 2026-06-30 04:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/8353716.shtml)
-- 2026-06-30 04:15 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/5163118.shtml)
+- 2026-06-30 04:12 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/27931755699.shtml)
+- 2026-06-30 04:07 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/38055625460.shtml)
+- 2026-06-30 04:30 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/525385101.shtml)
+- 2026-06-30 04:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/98594.shtml)
+- 2026-06-30 04:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/3519818.shtml)
+- 2026-06-30 04:18 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/378230.shtml)
+- 2026-06-30 04:20 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/62708228836.shtml)
+- 2026-06-30 04:15 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/625400.shtml)
+- 2026-06-30 04:20 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/38312.shtml)
+- 2026-06-30 04:16 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/191152.shtml)
+- 2026-06-30 04:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/714276.shtml)
+- 2026-06-30 04:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/04222057.shtml)
+- 2026-06-30 04:24 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/710715607001.shtml)
+- 2026-06-30 04:32 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/6848851707.shtml)
+- 2026-06-30 04:16 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/998526736236.shtml)

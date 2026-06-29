@@ -1,57 +1,59 @@
-# 以侨为桥 26家新西兰采购商来穗集中采购
+# 司法部就欧盟外国补贴调查相关做法构成不当域外管辖答记者问
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网广州5月1日电 (记者 许青青)由广州国际商会主办，广州市海珠区侨务局、海珠区科工商信局等单位承办的“广货行天下 名品世界行”新西兰采购团专项对接会4月30日在广州举行，广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议。 据了解，本次对接会依托广州市侨办、市贸促会及新西兰粤商会等侨务网络特邀26家新西兰采购商。新西兰采购团在广交会期间达成60余项意向合作项
+司法部认定欧盟相关跨境调查做法构成不当域外管辖措施 司法部新闻发言人今天就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。 问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。请问有何考虑？ 答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信
 
 ## 正文
 
-中新网广州5月1日电 (记者 许青青)由广州国际商会主办，广州市海珠区侨务局、海珠区科工商信局等单位承办的“广货行天下 名品世界行”新西兰采购团专项对接会4月30日在广州举行，广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议。
+司法部认定欧盟相关跨境调查做法构成不当域外管辖措施 司法部新闻发言人今天就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。
 
-据了解，本次对接会依托广州市侨办、市贸促会及新西兰粤商会等侨务网络特邀26家新西兰采购商。
+问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。
 
-新西兰采购团在广交会期间达成60余项意向合作项目，意向成交额突破1000万美元，覆盖绿色能源、智能家电、日用消费等多个板块。
+请问有何考虑？
 
-本次对接会特设参展企业推介环节，海葳特、博笠斯、金庄食品、芯宠工场等30家广州本土优秀企业依次携拳头产品亮相，面向新西兰采购团进行集中推介，展示了包含潮玩产品、潮流服饰、智能数码、广府美食在内的“广货优品”设计、创新、品质等。
+答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信息，是对相关实体施加的不当要求，明显违反国际法与国际关系基本准则。
 
-对接会现场还发布了食品农产品国际贸易垂直AI大模型平台场景化应用解决方案—云食慧AI-v2.1，现场全面演示了该大模型在供需智能匹配、多语种翻译辅助、采购需求精准推送等核心功能。
+为维护国家主权、安全和发展利益，保护中国公民、法人或其他组织的合法权益，司法部根据《中华人民共和国反外国不当域外管辖条例》，会同商务部等有关部门依法识别，认定欧盟上述做法构成不当域外管辖措施。
 
-广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议，打通广州优势产业与新西兰市场的对接通道，助力更多广货走进新西兰。
+任何组织、个人不得执行或者协助执行该不当域外管辖措施。
 
-主办方相关负责人表示，未来将持续联动侨商、外商资源，深入推进外商走进广州，全力为中外企业经贸合作保驾护航、搭建桥梁。
+欧盟《外国补贴条例》是其自行创设的单边工具。
 
-(完)
+自实施以来，欧盟频繁利用《外国补贴条例》对中国企业进行调查，具有明显针对性和歧视性，是典型的以“公平竞争”之名行“保护主义”之实。
 
 ## 相关推荐
 
-- 2026-06-30 04:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 04:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 04:16 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 04:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 04:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 04:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 04:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 04:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 04:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 04:05 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 04:25 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 04:14 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 04:24 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 04:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 04:21 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 04:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 04:30 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 04:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 04:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 04:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 04:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 04:35 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 04:10 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/01716673210.shtml)
-- 2026-06-30 04:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/868197058070.shtml)
-- 2026-06-30 04:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/047132015360.shtml)
-- 2026-06-30 04:23 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/506206170341.shtml)
-- 2026-06-30 04:26 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/1004409287.shtml)
-- 2026-06-30 04:28 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/62749414.shtml)
-- 2026-06-30 04:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/4298654.shtml)
-- 2026-06-30 04:19 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/8552755754.shtml)
-- 2026-06-30 04:16 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/5377378144.shtml)
-- 2026-06-30 04:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/6731068551.shtml)
-- 2026-06-30 04:07 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/866755174909.shtml)
-- 2026-06-30 04:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/96710913187.shtml)
-- 2026-06-30 04:20 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/7205523.shtml)
-- 2026-06-30 04:01 - [一生一世](https://www.blog.minike.top/Article/details/949453390184.shtml)
-- 2026-06-30 04:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/568587.shtml)
+- 2026-06-30 04:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/9569165.shtml)
+- 2026-06-30 04:08 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/57809898073.shtml)
+- 2026-06-30 04:12 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/95676044.shtml)
+- 2026-06-30 04:13 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/185860043953.shtml)
+- 2026-06-30 04:07 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/24987897.shtml)
+- 2026-06-30 04:35 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/989322424391.shtml)
+- 2026-06-30 04:29 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/464901056.shtml)
+- 2026-06-30 04:12 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/420073551816.shtml)
+- 2026-06-30 04:29 - [田曦薇没招了](http://www.share.minike.top/Article/details/606223.shtml)
+- 2026-06-30 04:25 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/2938158112.shtml)
+- 2026-06-30 04:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/29963132.shtml)
+- 2026-06-30 04:16 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/985571478.shtml)
+- 2026-06-30 04:23 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/507294968.shtml)
+- 2026-06-30 04:22 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/120216.shtml)
+- 2026-06-30 04:23 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/247369.shtml)

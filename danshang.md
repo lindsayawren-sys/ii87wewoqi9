@@ -1,56 +1,58 @@
-# 江西高校连续八年重走长征路 以青春步履赓续红色血脉
+# 明确三方面内容！证券批量纠纷诉调指引来了
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月30日电 (熊锦阳)4月30日，南昌职业大学2026年重走红军二万五千里长征路暨长征文化育人思政实践教学活动启动仪式举行。2026年是中国工农红军长征胜利90周年，也是这所扎根于江西这片红土圣地的高校，第八年举办此项红色育人思政实践活动。 据了解，该校将中央红军二万五千里长征路划分为18段，规划以18年为一个完整周期，每年组织师生沿长征路前行，把思政课堂“搬”到长
+转自：证券时报5月15日，是第八个“5·15全国投资者保护宣传日”，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》（以下简称《指引》），旨在进一步畅通和规范证券批量纠纷诉调对接流程，推动证券纠纷高效实质化解，助力中小投资者合法权益保护。上海金融法院立案庭副庭长周欣接受证券时报记者采访时表示，《指引》是对上海金融法院与调解组织开展
 
 ## 正文
 
-中新网南昌4月30日电 (熊锦阳)4月30日，南昌职业大学2026年重走红军二万五千里长征路暨长征文化育人思政实践教学活动启动仪式举行。
+转自：证券时报5月15日，是第八个“5·15全国投资者保护宣传日”，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》（以下简称《指引》），旨在进一步畅通和规范证券批量纠纷诉调对接流程，推动证券纠纷高效实质化解，助力中小投资者合法权益保护。
 
-2026年是中国工农红军长征胜利90周年，也是这所扎根于江西这片红土圣地的高校，第八年举办此项红色育人思政实践活动。
+上海金融法院立案庭副庭长周欣接受证券时报记者采访时表示，《指引》是对上海金融法院与调解组织开展示范性诉讼促推证券纠纷批量化调解成功经验的集中呈现。
 
-据了解，该校将中央红军二万五千里长征路划分为18段，规划以18年为一个完整周期，每年组织师生沿长征路前行，把思政课堂“搬”到长征路上。
+“之前其他法院、调解组织以及投资者多次向我们咨询示范性诉讼推动批量化调解过程中的相关问题，《指引》的发布，可为示范性诉讼与批量化调解工作提供操作指南，推动批量纠纷高效化解。
 
-“重走红军二万五千里长征路是淬炼信仰的‘必修课’、砥砺品格的‘大练兵’、传承精神的‘接力赛’。
+” 周欣说。
 
-”南昌职业大学党委书记、督导专员刘志刚表示，希望参与活动的师生在追寻红色足迹中筑牢信仰之基，在沉浸式研学中汲取奋进之力，在践行使命中彰显青春之为，在砥砺前行中展现青年学子的良好风貌。
+明确解纷模式运用等三方面内容2024年以来，上海金融法院运用示范性诉讼化解纠纷5600余件，已形成可复制可推广的批量纠纷化解经验。
 
-据介绍，自2019年该项活动启动以来，南昌职业大学师生队伍从江西于都启程，足迹已遍及赣、粤、湘、桂、黔、川、滇等长征途经省份，累计编印活动资料9卷约120万字，还出版了专项成果书籍《淬火青春长征如歌——南昌职业大学思政教育实践手记》。
+《指引》即是上海金融法院近年来诸多创新探索和成功经验的总结。
 
-根据活动安排，今年该校师生重走的是1935年中央红军“巧渡金沙江”的长征路段，沿途串联云南省内12个县(市、区)。
+《指引》全文共六章三十五条，分为总则、示范性诉讼、批量化调解、诉调对接、机制保障和附则。
 
-师生队伍将每天步行10公里以上，并在曲靖、昆明举办“曜阳笑脸”公益活动，在皎平渡镇为老区群众义诊，在金沙江渡口与云南民族大学、云南新兴职业学院师生开展交流，同上一堂大思政课。
+其中，重点明确了以下三方面内容：一是明确“示范性诉讼+批量化调解”解纷模式运用。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:22 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 04:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 04:10 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 04:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 04:03 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 04:15 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 04:06 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 04:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 04:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 04:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 04:15 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 04:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 04:23 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 04:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 04:12 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 04:13 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 04:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 04:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/034142476.shtml)
-- 2026-06-30 04:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/77099.shtml)
-- 2026-06-30 04:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/575142144971.shtml)
-- 2026-06-30 04:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/488762471441.shtml)
-- 2026-06-30 04:06 - [美人鱼](https://www.share.kurohicncr.top/Article/details/29557338.shtml)
-- 2026-06-30 04:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/9778243.shtml)
-- 2026-06-30 04:24 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/0818174.shtml)
-- 2026-06-30 04:24 - [巴西扳平比分](http://www.blog.minike.top/Article/details/6358848.shtml)
-- 2026-06-30 04:18 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/404493811924.shtml)
-- 2026-06-30 04:04 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/309692812.shtml)
-- 2026-06-30 04:08 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/97929620328.shtml)
-- 2026-06-30 04:10 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/89601.shtml)
-- 2026-06-30 04:19 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/75621345678.shtml)
-- 2026-06-30 04:14 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/94276915.shtml)
-- 2026-06-30 04:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/401009452.shtml)
+- 2026-06-30 04:33 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/3791318800.shtml)
+- 2026-06-30 04:06 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/6028917.shtml)
+- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0316244.shtml)
+- 2026-06-30 04:06 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/34871948862.shtml)
+- 2026-06-30 04:33 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/545765103819.shtml)
+- 2026-06-30 04:19 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/277935.shtml)
+- 2026-06-30 04:28 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/5319861.shtml)
+- 2026-06-30 04:14 - [第一炉香](http://www.blog.minike.top/Article/details/336741865104.shtml)
+- 2026-06-30 04:26 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/69365720744.shtml)
+- 2026-06-30 04:08 - [张凌赫 客串](http://www.blog.minike.top/Article/details/690095410.shtml)
+- 2026-06-30 04:21 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/667305.shtml)
+- 2026-06-30 04:34 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/60875678.shtml)
+- 2026-06-30 04:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/867503903802.shtml)
+- 2026-06-30 04:08 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/349843.shtml)
+- 2026-06-30 04:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/600813252408.shtml)

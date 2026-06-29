@@ -1,57 +1,58 @@
-# 云南发布2026夏航季三大升级计划 航文旅融合激活“五一”消费
+# 宋海涛：中国AI正从“追赶”走向“并跑” 具身智能商业化迈入“最后一公里”
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网昆明4月30日电 (赵颖)30日，“旅居云南 航旅相伴”2026夏航季发布会暨“秘境佤乡·云端有约”航文旅推介会在昆明长水国际机场举行。通过优化航线布局、推出惠民产品、升级服务品质与推介文旅资源多维联动，全力激活“五一”假期文旅消费市场，助力航空与文旅产业深度协同、提质增效。 此次活动由云南省文化和旅游厅、云南机场集团有限责任公司联合主办，是深入落实“旅居云南”发展专项规
+中新网上海5月15日电 (记者 李佳佳)上海交通大学、上海人工智能研究院院长，联合国人工智能独立国际科学小组成员宋海涛近日在沪出席中欧国际工商学院金融MBA15周年系列F-Dialogue活动“聚力AI，洞见商业新机遇”时表示，当前具身智能行业正处于“打通从数据到整个环境的‘最后一公里’”的关键节点。 在谈到中国AI产业发展时，宋海涛称，虽然当前与国际领先技术仍有差距，但近三年
 
 ## 正文
 
-中新网昆明4月30日电 (赵颖)30日，“旅居云南 航旅相伴”2026夏航季发布会暨“秘境佤乡·云端有约”航文旅推介会在昆明长水国际机场举行。
+中新网上海5月15日电 (记者 李佳佳)上海交通大学、上海人工智能研究院院长，联合国人工智能独立国际科学小组成员宋海涛近日在沪出席中欧国际工商学院金融MBA15周年系列F-Dialogue活动“聚力AI，洞见商业新机遇”时表示，当前具身智能行业正处于“打通从数据到整个环境的‘最后一公里’”的关键节点。
 
-通过优化航线布局、推出惠民产品、升级服务品质与推介文旅资源多维联动，全力激活“五一”假期文旅消费市场，助力航空与文旅产业深度协同、提质增效。
+在谈到中国AI产业发展时，宋海涛称，虽然当前与国际领先技术仍有差距，但近三年国内模型能力提升斜率已比美国高出23个百分点，差距正加速缩小。
 
-此次活动由云南省文化和旅游厅、云南机场集团有限责任公司联合主办，是深入落实“旅居云南”发展专项规划、推动“有一种叫云南的生活”品牌具象化落地的关键举措。
+当天，宋海涛带来《人工智能发展与全球治理》的主旨演讲。
 
-发布会上，云南机场集团有限责任公司发布2026年夏航季三大升级计划，涵盖航线网络、航旅产品、机场服务三大板块，持续筑牢以昆明长水国际机场为核心、各州市机场为有力支撑的航空运输体系，新增多个国内航线直达航点，稳步拓展南亚、东南亚市场的国际航线，进一步提升区域航空通达性。
+他从人工智能发展历程、新质生产力、上海探索与全球治理四个维度展开分享，系统梳理了人类从农耕文明、工业经济迈向数字经济的科技演进脉络，指出科技创新已成为国家兴衰与全球竞争的关键变量。
 
-云南省旅游景区协会同步推出“一张机票游云南”特色航旅联动产品，相关企业现场推介“旅居云南”智慧服务平台，为游客打造一站式、便捷化的出行游玩新体验。
+宋海涛结合全球视野与前沿实践，深入剖析人工智能跨学科、跨领域的融合特性，阐述AI如何从技术走向产业、赋能新质生产力发展。
 
-东方航空、祥鹏航空、昆明航空等9家航空公司发布优惠套票、出行次卡、家庭专属折扣等系列惠民文旅产品，精准覆盖青年出游、银发康养、家庭出行等多元客群需求。
+他同时强调，在全球高度关注人工智能的背景下，构建开放、协同、安全、负责任的全球AI治理体系至关重要，为人工智能规范发展、国际合作与产业落地提供了深刻洞察与方向指引。
 
-省内重点文旅企业则同步推出航旅融合专属优惠套餐，推动航空运输与文旅体验无缝衔接。
+宋海涛指出，科技创新正深刻改写全球经济版图。
 
-活动现场，临沧市、沧源佤族自治县先后开展文旅主题推介，全方位展现“世界佤乡”的民族文化、自然风光与地域美食，并向游客推出三条特色旅游线路和文旅一卡通超值大礼包。
+“过去的1800年，全球经济增长约六倍；而在近200年，有效人口增长不到十倍，全球经济却发生了接近两百倍的增长，这里面最大的变量就是科技乘数。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 04:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:29 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 04:27 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 04:27 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 04:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 04:20 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 04:02 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 04:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 04:09 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 04:08 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 04:28 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 04:17 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 04:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 04:14 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 04:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 04:13 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 04:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 04:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 04:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 04:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 04:06 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 04:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/782948422773.shtml)
-- 2026-06-30 04:10 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/110855.shtml)
-- 2026-06-30 04:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/041432068.shtml)
-- 2026-06-30 04:12 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/99658733994.shtml)
-- 2026-06-30 04:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/99018535094.shtml)
-- 2026-06-30 04:16 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/436733.shtml)
-- 2026-06-30 04:26 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/6495332832.shtml)
-- 2026-06-30 04:22 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/467264.shtml)
-- 2026-06-30 04:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/0277116.shtml)
-- 2026-06-30 04:22 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/247646023156.shtml)
-- 2026-06-30 04:05 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/5309130.shtml)
-- 2026-06-30 04:04 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/538298.shtml)
-- 2026-06-30 04:26 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/12093.shtml)
-- 2026-06-30 04:29 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/6317751636.shtml)
-- 2026-06-30 04:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/0223162196.shtml)
+- 2026-06-30 04:13 - [巴西vs日本](https://www.blog.minike.top/Article/details/7017888.shtml)
+- 2026-06-30 04:23 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/3990179.shtml)
+- 2026-06-30 04:15 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/72936579238.shtml)
+- 2026-06-30 04:34 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/209915.shtml)
+- 2026-06-30 04:12 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/4967016587.shtml)
+- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8500717.shtml)
+- 2026-06-30 04:08 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/46184978.shtml)
+- 2026-06-30 04:26 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/3879946.shtml)
+- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/4242022.shtml)
+- 2026-06-30 04:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/39483728198.shtml)
+- 2026-06-30 04:23 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/137563.shtml)
+- 2026-06-30 04:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/14722350633.shtml)
+- 2026-06-30 04:22 - [爱很美味](https://www.share.minike.top/Article/details/869273115.shtml)
+- 2026-06-30 04:10 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/668459183.shtml)
+- 2026-06-30 04:35 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/132650.shtml)

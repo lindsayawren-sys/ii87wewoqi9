@@ -1,54 +1,56 @@
-# 中央党校（国家行政学院）举行2026年春季学期第一批进修班毕业典礼 陈希出席并为学员颁发毕业证书
+# 黎霍高速太岳山隧道贯通 全长11.1千米
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-新华社北京4月30日电 中共中央党校(国家行政学院)30日举行2026年春季学期第一批进修班毕业典礼。中央党校(国家行政学院)校长(院长)陈希出席毕业典礼，并为学员颁发毕业证书。 中央党校(国家行政学院)本期毕业学员370人。毕业典礼上，4位学员代表发言。大家一致认为，此次学习适逢“十五五”开局起步的关键节点，深感意义特殊、学有所获。通过深学细悟习近平新时代中国特色社会主义思想
+中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。 太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险
 
 ## 正文
 
-新华社北京4月30日电 中共中央党校(国家行政学院)30日举行2026年春季学期第一批进修班毕业典礼。
+中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。
 
-中央党校(国家行政学院)校长(院长)陈希出席毕业典礼，并为学员颁发毕业证书。
+太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。
 
-中央党校(国家行政学院)本期毕业学员370人。
+由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险突出。
 
-毕业典礼上，4位学员代表发言。
+受复杂地形及太岳山国家级自然保护区环保要求限制，项目需攻克单洞单向超长独头掘进难题，掘进距离达到5.32公里，在国内高速公路隧道施工中较为少见，对施工技术、安全管控及环保措施等提出了严苛要求。
 
-大家一致认为，此次学习适逢“十五五”开局起步的关键节点，深感意义特殊、学有所获。
+面对多重施工挑战，项目部科学谋划，精心组织，多次邀请隧道专家现场勘察、集中“会诊”，对特长隧道通风、排水、物料运输制定专项施工方案。
 
-通过深学细悟习近平新时代中国特色社会主义思想，集中学习领会党的二十届四中全会精神，认真参加树立和践行正确政绩观学习教育，接受系统的理论教育、党性教育和履职能力培训，进一步筑牢政治忠诚、提高理论素养、锤炼党性修养、强化担当本领。
+其间，项目部创新应用“巷道式+射流风机多级接力”通风系统，显著改善洞内通风条件与空气质量，优化了超长隧道洞内施工作业环境。
 
-大家表示，在新征程上，要坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，自觉运用党的创新理论把握大势、明辨方向、掌握方法，切实把学习成果转化为推动高质量发展的实际行动，带头树牢正确政绩观，坚持为人民出政绩、以实干出政绩，奋力开创中国式现代化建设新局面。
+“建设中，隧道富水断层破碎带突泥涌水风险极为突出，尤其是在穿越S4富水褶皱断层过程中，日均涌水量高达17000立方米，约等同于7个标准游泳池蓄水量，施工难度极大。
+
+”中铁三局项目部总工程师赵卿政介绍。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 04:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 04:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 04:25 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 04:26 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 04:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 04:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 04:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 04:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 04:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 04:08 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 04:26 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 04:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 04:32 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 04:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 04:27 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 04:32 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 04:13 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/011493914665.shtml)
-- 2026-06-30 04:29 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/586722152.shtml)
-- 2026-06-30 04:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/14421355.shtml)
-- 2026-06-30 04:02 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/3713507400.shtml)
-- 2026-06-30 04:11 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/4381714909.shtml)
-- 2026-06-30 04:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/78711.shtml)
-- 2026-06-30 04:25 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/7192331473.shtml)
-- 2026-06-30 04:08 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/4510328247.shtml)
-- 2026-06-30 04:15 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/35917396616.shtml)
-- 2026-06-30 04:06 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/73007.shtml)
-- 2026-06-30 04:09 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/2254196.shtml)
-- 2026-06-30 04:17 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/774974667771.shtml)
-- 2026-06-30 04:11 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/102886178.shtml)
-- 2026-06-30 04:19 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/081007779091.shtml)
-- 2026-06-30 04:08 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/2578168.shtml)
+- 2026-06-30 04:31 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/2962656.shtml)
+- 2026-06-30 04:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/55499719.shtml)
+- 2026-06-30 04:10 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/0688408872.shtml)
+- 2026-06-30 04:32 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/810047155563.shtml)
+- 2026-06-30 04:20 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/30086.shtml)
+- 2026-06-30 04:35 - [天道](http://www.share.kurohicncr.top/Article/details/813490.shtml)
+- 2026-06-30 04:31 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/637571597.shtml)
+- 2026-06-30 04:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/4980078.shtml)
+- 2026-06-30 04:27 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/28231225192.shtml)
+- 2026-06-30 04:15 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/363051.shtml)
+- 2026-06-30 04:34 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/53350.shtml)
+- 2026-06-30 04:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/93396982991.shtml)
+- 2026-06-30 04:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/162793226.shtml)
+- 2026-06-30 04:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/646798.shtml)
+- 2026-06-30 04:10 - [女心理师](https://www.share.kurohicncr.top/Article/details/21904.shtml)

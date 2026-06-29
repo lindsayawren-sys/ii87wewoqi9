@@ -1,59 +1,59 @@
-# 港股硬科技，资金狂涌！规模最大港股通信息技术ETF华宝（159131）开盘半小时快速获资金申购6100万份！
+# 百余家科创企业齐聚新疆 探索人工智能“兴百业”
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-4月30日开盘，港股硬科技小幅盘整，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内现跌0.78%，溢价持续，开盘半小时已快速吸引资金申购6100万份！此前4个交易日连续“吸金”超1.1亿元。 自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17%，同期恒生科技、港股通
+中新社乌鲁木齐5月15日电 (胡嘉琛)与机器人踢足球、遛机器狗……刚果(金)在华留学生基韦尼15日在乌鲁木齐市体验人工智能应用成果后说：“人工智能正加速改变我们的生活，毫无疑问，中国在这个领域成果很多。” “人工智能+”应用场景典型案例展示活动当日启幕，100余家科技创新企业携前沿技术成果亮相，通过“科普+展示+体验”模式，呈现人工智能改变生产生活的更多可能性。来自中亚五国以及
 
 ## 正文
 
-4月30日开盘，港股硬科技小幅盘整，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内现跌0.78%，溢价持续，开盘半小时已快速吸引资金申购6100万份！
+中新社乌鲁木齐5月15日电 (胡嘉琛)与机器人踢足球、遛机器狗……刚果(金)在华留学生基韦尼15日在乌鲁木齐市体验人工智能应用成果后说：“人工智能正加速改变我们的生活，毫无疑问，中国在这个领域成果很多。
 
-此前4个交易日连续“吸金”超1.1亿元。
+” “人工智能+”应用场景典型案例展示活动当日启幕，100余家科技创新企业携前沿技术成果亮相，通过“科普+展示+体验”模式，呈现人工智能改变生产生活的更多可能性。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17%，同期恒生科技、港股通科技的涨幅分别为2.92%、4.63%，锐度和弹性显著领先。
+来自中亚五国以及俄罗斯、刚果(金)、加蓬、巴西等国家和地区的60余名中外青年和科技工作者现场体验。
 
-统计区间：2026.3.31-2026.4.29。
+记者在现场看到，活动设产业升级、民生服务等7个功能展区。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+其中，“兴疆特色展区”展示了智慧畜牧业解决方案、棉花病虫害可穿戴诊断仪等结合新疆资源禀赋与产业特点的应用案例。
 
-指数过往业绩不预示未来表现。
+石河子大学博士生黄毓贤在现场展示的可穿戴式棉花病虫害智能诊断仪，据其介绍：“以算力为支撑，通过无人机和可穿戴设备精准防治棉花病虫害，提升了效率、降低了人力成本。
 
-根据IDC数据，26Q1中国AI芯片市场规模同比增长87.2%，其中国产AI芯片份额首次突破55%，同比提升21个百分点；在政务、金融、能源等关键行业领域，国产AI芯片采购占比已超70%。
+目前这套解决方案已在新疆多个棉花种植区投入应用。
 
-方正证券指出，国内AI芯片厂商正积极切换为国产供应链，而当前本土先进节点晶圆产能难以满足高速增长的算力所需，国内先进逻辑产能有望加速扩张。
+” 此次活动征集近300项科技成果，集中展示人工智能在工业、能源、医疗、教育、政务服务等领域的应用成效。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 04:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 04:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 04:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 04:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 04:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 04:15 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 04:10 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 04:21 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 04:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 04:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 04:01 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 04:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 04:28 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 04:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:30 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 04:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 04:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:20 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 04:21 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 04:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 04:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 04:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 04:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 04:29 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/134183551233.shtml)
-- 2026-06-30 04:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/876654727084.shtml)
-- 2026-06-30 04:02 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/68558960.shtml)
-- 2026-06-30 04:10 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/63945893797.shtml)
-- 2026-06-30 04:04 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/84460139.shtml)
-- 2026-06-30 04:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/72358429458.shtml)
-- 2026-06-30 04:05 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/391410621008.shtml)
-- 2026-06-30 04:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/87379696567.shtml)
-- 2026-06-30 04:10 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/946586000238.shtml)
-- 2026-06-30 04:16 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/51852611.shtml)
-- 2026-06-30 04:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/50764519.shtml)
-- 2026-06-30 04:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/457055505.shtml)
-- 2026-06-30 04:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/29352.shtml)
-- 2026-06-30 04:03 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/149730367543.shtml)
-- 2026-06-30 04:26 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/37602769.shtml)
+- 2026-06-30 04:23 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/23206186.shtml)
+- 2026-06-30 04:32 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/3771414.shtml)
+- 2026-06-30 04:27 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/035445352880.shtml)
+- 2026-06-30 04:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/816322752.shtml)
+- 2026-06-30 04:29 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/2034913417.shtml)
+- 2026-06-30 04:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/393617.shtml)
+- 2026-06-30 04:19 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/82355.shtml)
+- 2026-06-30 04:23 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/82032.shtml)
+- 2026-06-30 04:10 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/13315996.shtml)
+- 2026-06-30 04:30 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/70960.shtml)
+- 2026-06-30 04:25 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/785178956730.shtml)
+- 2026-06-30 04:21 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/5717533902.shtml)
+- 2026-06-30 04:15 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/792882.shtml)
+- 2026-06-30 04:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/1934599.shtml)
+- 2026-06-30 04:15 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/95515630161.shtml)

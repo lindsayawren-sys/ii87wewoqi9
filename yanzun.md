@@ -1,58 +1,52 @@
-# 算力芯片爆发，寒武纪20CM涨停！华宝基金“科创双雄”狂飙，589190、589520拉升超6%！港股芯片连续吸金
+# 官宣：这类人群可享淡季火车票优惠，5月15日开始发售
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-从追“光”到抢“芯”！ 周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！ 港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信
+为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。 国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5
 
 ## 正文
 
-从追“光”到抢“芯”！
+为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。
 
-周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！
+国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5月29日至6月30日期间的周中时段(周一12:00至周五12:00，6月18日至22日端午假期运输除外)，部分动车组列车车票可享受执行票价9折优惠，实行“折上折”。
 
-全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！
+铁路12306在相关优惠车次后标注“敬”字，享受优惠的车票在订单详情和本人车票页面标识“长者优惠”字样；年满60周岁及以上的持有残疾军人证、伤残人民警察证、国家综合性消防救援队伍残疾人员证的中国公民，在享受原有优待票价的基础上，可再享受9折优惠。
 
-重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！
-
-港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信息技术ETF华宝（159131）持续吸引资金布局，单日再获净申购4900万份，至此已连续5日获资金净流入，此前四日资金累计爆买超1亿元。
-
-光模块CPO方向则窄幅震荡，重仓光模块龙头的创业板人工智能ETF华宝（159363）场内微跌0.24%，资金继续净申购4800万份，此前五累计加仓超7亿元。
-
-据财联社报道，2026年四大海外云巨头资本支出预期合计有望突破7000亿美元，大幅超预期。
-
-光模块等海外算力链有望持续受益，高“光”创业板人工智能仍具备长期配置价值。
+成功购票出行的老年会员旅客，同时享受普通常旅客会员的3倍积分优惠，积分可用于兑换火车票或办理座位升席业务。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 04:18 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 04:20 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 04:22 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 04:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 04:04 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 04:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 04:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 04:11 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 04:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 04:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 04:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 04:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 04:09 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 04:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 04:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 04:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 04:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 04:28 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 04:34 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 04:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 04:10 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 04:11 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 04:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 04:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/883672138.shtml)
-- 2026-06-30 04:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/47312014954.shtml)
-- 2026-06-30 04:10 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/643307056.shtml)
-- 2026-06-30 04:15 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/10740753138.shtml)
-- 2026-06-30 04:10 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/25304868718.shtml)
-- 2026-06-30 04:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/29082288963.shtml)
-- 2026-06-30 04:27 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/286917208108.shtml)
-- 2026-06-30 04:05 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/74884584.shtml)
-- 2026-06-30 04:28 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/0001116.shtml)
-- 2026-06-30 04:14 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/754088505580.shtml)
-- 2026-06-30 04:28 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/119345969726.shtml)
-- 2026-06-30 04:18 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/7555228.shtml)
-- 2026-06-30 04:03 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/909270633973.shtml)
-- 2026-06-30 04:27 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/800931485.shtml)
-- 2026-06-30 04:13 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/920667263561.shtml)
+- 2026-06-30 04:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/41254748381.shtml)
+- 2026-06-30 04:35 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/736334022873.shtml)
+- 2026-06-30 04:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/870651033320.shtml)
+- 2026-06-30 04:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/1333577.shtml)
+- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/93588.shtml)
+- 2026-06-30 04:33 - [点菜也要教吗](http://www.share.minike.top/Article/details/46682353225.shtml)
+- 2026-06-30 04:12 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/76536902.shtml)
+- 2026-06-30 04:29 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/86495.shtml)
+- 2026-06-30 04:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/16799915135.shtml)
+- 2026-06-30 04:35 - [刘念回应](http://www.share.kurohicncr.top/Article/details/514588.shtml)
+- 2026-06-30 04:26 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/55672850.shtml)
+- 2026-06-30 04:26 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/0652000.shtml)
+- 2026-06-30 04:14 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/4627027700.shtml)
+- 2026-06-30 04:27 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/648046.shtml)
+- 2026-06-30 04:14 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/08221927725.shtml)

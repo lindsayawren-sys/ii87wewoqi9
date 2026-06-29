@@ -1,59 +1,61 @@
-# “新世纪中国织锦技艺巡展”在杭开幕 131件珍品亮相
+# 沪金短期震荡偏空为主 螺纹钢震荡整理为主基调
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月30日电(曹丹)4月30日，“新世纪中国织锦技艺的创新与传承作品巡展”首展在浙江杭州的中国丝绸博物馆开幕。本次展览聚焦传统工艺的当代转化，汇聚131件珍贵展品，系统呈现中国织锦技艺从文化传承到创新发展的转型之路。 展览分为“织锦与时代同行”“传统与创新对话”“科技赋能织锦”三个板块。其中，“织锦与时代同行”集中展现织锦亮相APEC、G20等重大国际峰会的外交高光，
+（来源：市场资讯） 研报正文 【黄金】 美联储理事斯蒂芬·米兰正式递交辞呈，表示将在新任主席凯文·沃什上任之时或之前离开美联储理事会。堪萨斯城联储主席施密德表示，尽管美国经济在面对多重挑战时展现出“显著韧性”，通胀依然是当前美国经济面临的最大风险，而就业市场整体仍保持稳定。 评：新任美联储主席上台之后，市场偏鹰预期较强，基本面利空黄金。印度提高进口黄金关税，消费端利空黄金。黄金
 
 ## 正文
 
-中新网杭州4月30日电(曹丹)4月30日，“新世纪中国织锦技艺的创新与传承作品巡展”首展在浙江杭州的中国丝绸博物馆开幕。
+（来源：市场资讯） 研报正文 【黄金】 美联储理事斯蒂芬·米兰正式递交辞呈，表示将在新任主席凯文·沃什上任之时或之前离开美联储理事会。
 
-本次展览聚焦传统工艺的当代转化，汇聚131件珍贵展品，系统呈现中国织锦技艺从文化传承到创新发展的转型之路。
+堪萨斯城联储主席施密德表示，尽管美国经济在面对多重挑战时展现出“显著韧性”，通胀依然是当前美国经济面临的最大风险，而就业市场整体仍保持稳定。
 
-展览分为“织锦与时代同行”“传统与创新对话”“科技赋能织锦”三个板块。
+评：新任美联储主席上台之后，市场偏鹰预期较强，基本面利空黄金。
 
-其中，“织锦与时代同行”集中展现织锦亮相APEC、G20等重大国际峰会的外交高光，千年技艺成为讲好中国故事、彰显文化自信的重要载体；“传统与创新对话”呈现了云锦、蜀锦、宋锦、壮锦、缂丝等传统技艺与当代创新的碰撞；“科技赋能织锦”则聚焦重大科技成果，包括世界最大独幅织锦画《金贵妃》、合织海峡两岸名作的《富春山居图》等。
+印度提高进口黄金关税，消费端利空黄金。
 
-“华流就是顶流。
+黄金震荡偏空。
 
-”中国工艺美术学会织锦专业委员会主任、南京云锦博物馆馆长简名伟说，云锦拥有1600多年织造历史，过去专为皇家织造龙袍，“现在我们让绘画成锦，让皇家技艺变成当代的摆件与画作”。
+【螺纹钢】 据Mysteel，截至5月14日当周，螺纹产量201.4万吨，较上周增加4.75万吨，增幅为2.42%；厂库167.54万吨，较上周减少12.3万吨，降幅为6.84%；社库518.4万吨，较上周减少28.82万吨，降幅为5.27%；表需242.52万吨，较上周增加44.71万吨，增幅为22.6%。
 
-简名伟以现场一款熊猫织锦文创摆件举例，其购买者平均年龄不足21岁。
+评：本周钢市需求回升力度明显大于供给，五大品种钢材总库存减少，表明供需基本面尚未转差。
 
-“如今，皇家非遗不再沉重，年轻人正用热爱接续文化自信。
+考虑到南方雨季影响下游施工，后期钢市供需压力或略有加大，库存降幅收窄。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 04:15 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 04:05 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:11 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 04:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 04:17 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 04:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 04:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 04:01 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 04:18 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 04:01 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 04:10 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 04:23 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 04:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 04:14 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 04:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:24 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 04:06 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 04:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 04:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 04:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 04:32 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 04:16 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 04:07 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 04:35 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 04:15 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 04:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/40327568535.shtml)
-- 2026-06-30 04:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/97839656411.shtml)
-- 2026-06-30 04:01 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/1309131277.shtml)
-- 2026-06-30 04:21 - [金牌调解](http://www.share.minike.top/Article/details/9418446371.shtml)
-- 2026-06-30 04:15 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/350675015.shtml)
-- 2026-06-30 04:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/316964.shtml)
-- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/17455.shtml)
-- 2026-06-30 04:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/26986.shtml)
-- 2026-06-30 04:29 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/855101309707.shtml)
-- 2026-06-30 04:13 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/42362.shtml)
-- 2026-06-30 04:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/4174187440.shtml)
-- 2026-06-30 04:12 - [流金岁月](https://www.blog.minike.top/Article/details/1168530137.shtml)
-- 2026-06-30 04:11 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/282067.shtml)
-- 2026-06-30 04:25 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/00418538.shtml)
-- 2026-06-30 04:14 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/08745832.shtml)
+- 2026-06-30 04:34 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/013154.shtml)
+- 2026-06-30 04:15 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/400528567028.shtml)
+- 2026-06-30 04:15 - [日本领先巴西](http://www.share.minike.top/Article/details/231365179.shtml)
+- 2026-06-30 04:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/54484923822.shtml)
+- 2026-06-30 04:09 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/0947133.shtml)
+- 2026-06-30 04:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/30723749899.shtml)
+- 2026-06-30 04:23 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/69729570883.shtml)
+- 2026-06-30 04:06 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/37806640679.shtml)
+- 2026-06-30 04:15 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/01779.shtml)
+- 2026-06-30 04:10 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/197634553640.shtml)
+- 2026-06-30 04:12 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/147791.shtml)
+- 2026-06-30 04:09 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/276977.shtml)
+- 2026-06-30 04:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/08154.shtml)
+- 2026-06-30 04:20 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9805002.shtml)
+- 2026-06-30 04:19 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/7597102535.shtml)

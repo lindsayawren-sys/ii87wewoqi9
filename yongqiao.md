@@ -1,52 +1,59 @@
-# 小摩：中国平安维持“增持”评级 目标价为90港元
+# 华北等地雨势强劲局地或现大暴雨 北方多地气温将持续偏低
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，维持中国平安（02318）“增持”评级，目标价为90港元。该行认为，以2027财年预测7倍市盈率及6%的股息率计算，估值仍属合理。该行认为，集团今年首季业绩很大程度上缓解了市场相关的忧虑。期内新业务价值（NBV）达156亿元人民币，同比增21%； 核心盈利（营运利润OPAT）为408亿元人民币，同比增长7.6%，双双达到或超越该行预期。该行表示，对寿险销售量
+中国天气网讯 未来三天(5月17日至19日)，强降雨带将逐渐向东转移，华北等地可能出现同期少见的强降雨，局地有大暴雨，公众需警惕持续强降雨可能引发的次生灾害。同时，受冷空气及降雨的共同影响，北方多地气温将陆续降至偏低水平，炎热消退，体感凉爽不少，公众需适时添衣，谨防感冒。 中东部大范围降水正在发展 华北等地局地或现同期少见强降雨 昨天，中东部降雨强度有所增强，雨带整体向东推进。
 
 ## 正文
 
-摩根大通发布研报称，维持中国平安（02318）“增持”评级，目标价为90港元。
+中国天气网讯 未来三天(5月17日至19日)，强降雨带将逐渐向东转移，华北等地可能出现同期少见的强降雨，局地有大暴雨，公众需警惕持续强降雨可能引发的次生灾害。
 
-该行认为，以2027财年预测7倍市盈率及6%的股息率计算，估值仍属合理。
+同时，受冷空气及降雨的共同影响，北方多地气温将陆续降至偏低水平，炎热消退，体感凉爽不少，公众需适时添衣，谨防感冒。
 
-该行认为，集团今年首季业绩很大程度上缓解了市场相关的忧虑。
+中东部大范围降水正在发展 华北等地局地或现同期少见强降雨 昨天，中东部降雨强度有所增强，雨带整体向东推进。
 
-期内新业务价值（NBV）达156亿元人民币，同比增21%； 核心盈利（营运利润OPAT）为408亿元人民币，同比增长7.6%，双双达到或超越该行预期。
+监测显示，昨日8时至今日6时，中东部地区出现大范围明显降雨，山西东南部、河南西北部、湖北西部、湖南西部、贵州北部和西部、广西北部和西部等地部分地区出现大到暴雨，局地大暴雨。
 
-该行表示，对寿险销售量的强劲增长及产品利润率的韧性感到惊喜。
+今天，华北、黄淮西部、江汉以及西南地区东部降雨将显著增强，部分地区或现成片的大到暴雨，局地大暴雨；明天，湖北、湖南、安徽、江苏、山东仍有大到暴雨，局地大暴雨。
 
-责任编辑：卢昱君
+后天，本轮降水过程将减弱收尾，但山东、江苏、安徽、江西、湖南等地部分地区仍有大到暴雨。
+
+具体来看，中央气象台预计，今天，辽宁西南部、京津冀大部、山西中南部、陕西东部、山东西部、河南大部、湖北中西部、重庆大部、贵州北部、湖南北部、四川南部、西藏东南部、广西南部、广东南部、海南岛东部等地部分地区有大到暴雨，其中，河北中部、湖北南部等地部分地区有大暴雨。
+
+明天，西藏东南部、黄淮大部、江淮大部、江汉南部、江南北部、西南地区东部、华南西北部和南部、海南岛大部等地部分地区有中到大雨，其中，山东南部、江苏北部、安徽北部、河南东南部、湖北东部、湖南北部、贵州南部、广西北部、广东南部沿海等地部分地区有暴雨或大暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 04:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 04:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 04:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:08 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 04:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 04:18 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 04:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 04:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 04:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 04:23 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 04:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 04:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 04:16 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 04:24 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 04:20 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 04:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 04:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 04:11 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:18 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 04:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/4633925321.shtml)
-- 2026-06-30 04:01 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/00770656.shtml)
-- 2026-06-30 04:02 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/9746273321.shtml)
-- 2026-06-30 04:02 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/53774846.shtml)
-- 2026-06-30 04:17 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/322542093.shtml)
-- 2026-06-30 04:05 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/86169848.shtml)
-- 2026-06-30 04:27 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/615661409.shtml)
-- 2026-06-30 04:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/709591525933.shtml)
-- 2026-06-30 04:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/2466780783.shtml)
-- 2026-06-30 04:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/4870269.shtml)
-- 2026-06-30 04:22 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6771139.shtml)
-- 2026-06-30 04:13 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/515671.shtml)
-- 2026-06-30 04:22 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4155240064.shtml)
-- 2026-06-30 04:29 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/2537252764.shtml)
-- 2026-06-30 04:08 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/36319259408.shtml)
+- 2026-06-30 04:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/094066752.shtml)
+- 2026-06-30 04:10 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/972418375.shtml)
+- 2026-06-30 04:06 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/5432297.shtml)
+- 2026-06-30 04:18 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/023187854739.shtml)
+- 2026-06-30 04:06 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/7950494570.shtml)
+- 2026-06-30 04:24 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/4322300.shtml)
+- 2026-06-30 04:08 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/122558.shtml)
+- 2026-06-30 04:20 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/8415948730.shtml)
+- 2026-06-30 04:10 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/67191.shtml)
+- 2026-06-30 04:08 - [天道](http://www.blog.minike.top/Article/details/317990.shtml)
+- 2026-06-30 04:30 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/7395144.shtml)
+- 2026-06-30 04:25 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/7632453.shtml)
+- 2026-06-30 04:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/14200113933.shtml)
+- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/53576985.shtml)
+- 2026-06-30 04:11 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/96111789.shtml)

@@ -1,60 +1,56 @@
-# 哈铁“五一”小长假预计运送旅客312万人次
+# 侨博士聚穗 广州邀英才筑梦大湾区
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨4月30日电 (任忆南)中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)30日对外发布，2026年“五一”小长假预计发送旅客312万人次，日均39万人次，同比增长2.4%。5月1日为客流最高峰，预计发送旅客53.1万人次。 今年“五一”小长假客流主要以旅游、探亲为主，呈现“头尾密集、往返交织”的特点。省外出行主要集中在大连、北京、上海、延吉等热门方向，省
+中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？那一定是最需要他的地方。”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。 他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。” 从美国、英国、德国、新加坡等国家学成归来的十
 
 ## 正文
 
-中新网哈尔滨4月30日电 (任忆南)中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)30日对外发布，2026年“五一”小长假预计发送旅客312万人次，日均39万人次，同比增长2.4%。
+中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？
 
-5月1日为客流最高峰，预计发送旅客53.1万人次。
+那一定是最需要他的地方。
 
-今年“五一”小长假客流主要以旅游、探亲为主，呈现“头尾密集、往返交织”的特点。
+”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。
 
-省外出行主要集中在大连、北京、上海、延吉等热门方向，省内集中在齐齐哈尔、伊春、牡丹江、佳木斯等方向。
+他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。
 
-哈尔滨局集团公司计划开行临客及高峰线列车81.5对，同比增加21.5对，其中省外17对、省内64.5对。
+” 从美国、英国、德国、新加坡等国家学成归来的十余位海外侨博士，当天与海内外广州茶居主理人代表、广州侨界挚友代表等齐聚广东粤港澳大湾区国家纳米科技创新研究院本部园区，共同参加广州茶居·侨博士茶局茶叙。
 
-通过普速列车加挂车厢增加运力1968辆次，安排动车组重联运行135列次，为旅客出行提供充沛运力保障。
+本次活动由广州市归国华侨联合会、广东粤港澳大湾区国家纳米科技创新研究院主办。
 
-“五一”期间，哈尔滨局集团公司精准对接“银发族”出游需求，开行哈尔滨至亚布力、敦化方向旅游专列，1300余名游客乘坐专列尽览北国春日美景。
+今年，广州市侨联将参与主办第十五届中国创新创业大赛纳米产业技术创新专业赛，同时，经向工信部申请，本次大赛还将首次增设侨博士精英赛赛道，旨在为海内外侨界英才展现科创成果、匹配全周期创业支持提供重要平台。
 
-铁路部门在前期高铁宠物托运服务成功试行的基础上，推出“爱宠行”服务，提供“携宠出行”与“爱宠单独行”两种托运模式，符合相关要求的宠物无需主人陪同也可进行托运。
+广州市侨联党组书记、主席卞勇邀请广大侨博士参与侨博士精英赛以及即将举办的2026“百万英才创在广州”活动。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 04:14 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 04:15 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 04:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 04:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 04:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 04:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 04:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 04:28 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 04:28 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 04:22 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 04:17 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 04:15 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 04:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 04:11 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 04:19 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 04:29 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 04:06 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 04:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 04:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 04:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/2291603.shtml)
-- 2026-06-30 04:11 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/74623845.shtml)
-- 2026-06-30 04:28 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/5785680858.shtml)
-- 2026-06-30 04:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/553691388.shtml)
-- 2026-06-30 04:21 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/529756903695.shtml)
-- 2026-06-30 04:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/2083238232.shtml)
-- 2026-06-30 04:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/262983902.shtml)
-- 2026-06-30 04:22 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8099592344.shtml)
-- 2026-06-30 04:21 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/63084.shtml)
-- 2026-06-30 04:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/61145068.shtml)
-- 2026-06-30 04:19 - [极限挑战第一季](http://www.share.minike.top/Article/details/25104316306.shtml)
-- 2026-06-30 04:15 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/361483317.shtml)
-- 2026-06-30 04:10 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/543247175378.shtml)
-- 2026-06-30 04:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/4821270106.shtml)
-- 2026-06-30 04:22 - [周生如故](http://www.blog.minike.top/Article/details/55567602.shtml)
+- 2026-06-30 04:25 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/386204620.shtml)
+- 2026-06-30 04:26 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/212867071124.shtml)
+- 2026-06-30 04:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/891617712.shtml)
+- 2026-06-30 04:15 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/37418871.shtml)
+- 2026-06-30 04:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/3603604.shtml)
+- 2026-06-30 04:17 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/45047753.shtml)
+- 2026-06-30 04:29 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/75227.shtml)
+- 2026-06-30 04:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/37628.shtml)
+- 2026-06-30 04:12 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/891694765824.shtml)
+- 2026-06-30 04:26 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/24709681.shtml)
+- 2026-06-30 04:12 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/47074.shtml)
+- 2026-06-30 04:32 - [世界杯](https://www.share.minike.top/Article/details/35977144404.shtml)
+- 2026-06-30 04:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/05044115135.shtml)
+- 2026-06-30 04:20 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/3580801.shtml)
+- 2026-06-30 04:28 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/993655181944.shtml)

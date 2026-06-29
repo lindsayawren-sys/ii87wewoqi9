@@ -1,57 +1,56 @@
-# 达索系统CEO：深耕创新源泉中国 不融入将失竞争力
+# 直面台风季灾害场景 海南开展应急通信保障实战演练
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。 达洛兹透露，此次中国之行在三天内走
+中新网海口5月16日电 (钟坚 吴志刚)为应对台风季极端天气挑战，提升“断路、断网、断电”等极端复杂场景下的应急通信保障能力，海南省消防救援总队15日组织开展了一场高强度、实战化的应急通信保障实战化联合拉动演练。 此次演练由海南省消防救援总队牵头，海南省应急管理厅、海南移动、海南联通、海南电信、海南铁塔、南方电网、中国通航、海南大疆应急联盟、维德自组网应急队等多家单位协同参与，
 
 ## 正文
 
-中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。
+中新网海口5月16日电 (钟坚 吴志刚)为应对台风季极端天气挑战，提升“断路、断网、断电”等极端复杂场景下的应急通信保障能力，海南省消防救援总队15日组织开展了一场高强度、实战化的应急通信保障实战化联合拉动演练。
 
-”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。
+此次演练由海南省消防救援总队牵头，海南省应急管理厅、海南移动、海南联通、海南电信、海南铁塔、南方电网、中国通航、海南大疆应急联盟、维德自组网应急队等多家单位协同参与，共出动直升机1架、固定翼无人机1架、通信车辆12台、通信保障人员46名，形成跨部门、跨行业的应急通信保障合力。
 
-他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。
+演练以极端气候灾害事故为背景，精准还原灾害发生后道路、通信、电力“三断”的极端场景，省消防救援总队接到报警后迅速启动应急响应预案，调集各联动单位力量赶赴灾区处置。
 
-达洛兹透露，此次中国之行在三天内走访了六座城市，拜访多家中国客户和合作伙伴。
+演练重点开展联勤联动响应、直升机前突索降、运营商公网恢复、系留通信中继、无线通信组网、无人机物资投送等实战科目，全面检验各单位应急联动效率和极端条件下的通信保障水平。
 
-在他看来，中国新一代企业家已“完全做好进军全球市场的准备”。
+“演练不仅理顺了各单位协同配合流程，还锤炼了通信保障队伍的实战能力。
 
-“几年前，当我拜访吉利、上汽这些大型企业时，他们的核心议题是如何在技术能力、最佳实践和组织架构上奋起直追。
+”海南省消防救援总队应急通信和车辆勤务大队大队长严荣辉表示，演练有效强化了多部门、多层级间的协同作战能力，构建起了“快速响应、空地协同、多网互通、持续可靠”的应急通信保障模式，为海南汛期防汛救灾工作提供坚实的应急通信支撑。
 
-时至今日，他们的核心议程已经不止于追赶，而是领航业界。
-
-”达洛兹认为，中国已孕育出一批真正准备好冲击未来格局的卓越企业。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 04:15 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 04:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 04:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 04:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 04:23 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 04:26 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 04:02 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 04:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 04:28 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 04:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 04:06 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 04:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 04:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 04:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 04:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 04:21 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 04:16 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 04:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 04:07 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 04:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 04:12 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/7323594908.shtml)
-- 2026-06-30 04:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/05813.shtml)
-- 2026-06-30 04:27 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/551138.shtml)
-- 2026-06-30 04:20 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/4092142.shtml)
-- 2026-06-30 04:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/182015.shtml)
-- 2026-06-30 04:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/6961544.shtml)
-- 2026-06-30 04:04 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/95507395.shtml)
-- 2026-06-30 04:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/4708693821.shtml)
-- 2026-06-30 04:04 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/85853324.shtml)
-- 2026-06-30 04:20 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/556451333.shtml)
-- 2026-06-30 04:18 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/224780.shtml)
-- 2026-06-30 04:18 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/58276024689.shtml)
-- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/368111473352.shtml)
-- 2026-06-30 04:14 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/77983.shtml)
-- 2026-06-30 04:25 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/32846407.shtml)
+- 2026-06-30 04:14 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/90772.shtml)
+- 2026-06-30 04:08 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/87163340.shtml)
+- 2026-06-30 04:35 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/3755104.shtml)
+- 2026-06-30 04:16 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/65841919069.shtml)
+- 2026-06-30 04:10 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/167986349134.shtml)
+- 2026-06-30 04:31 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/092522769.shtml)
+- 2026-06-30 04:34 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/566567952.shtml)
+- 2026-06-30 04:19 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/1485269196.shtml)
+- 2026-06-30 04:29 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/87600.shtml)
+- 2026-06-30 04:17 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/6899016047.shtml)
+- 2026-06-30 04:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/154549844951.shtml)
+- 2026-06-30 04:18 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/9436981967.shtml)
+- 2026-06-30 04:18 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/790166320204.shtml)
+- 2026-06-30 04:13 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/56007675.shtml)
+- 2026-06-30 04:27 - [世界杯](https://www.share.kurohicncr.top/Article/details/498965438139.shtml)

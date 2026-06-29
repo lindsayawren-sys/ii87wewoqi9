@@ -1,59 +1,48 @@
-# 邦达亚洲:美联储如期按兵不动 美元指数小幅收涨
+# 杭州银行：已完成注册资本变更登记，注册资本增至72.49亿元
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-4月30日，美东时间4月29日周三，美联储货币政策委员会FOMC会后决定，将联邦基金利率的目标区间继续维持在3.50%至3.75%。至此，在截至去年末连续三次会议降息后，FOMC进入2026年以来的三次货币政策会议均暂停行动。有“新美联储通讯社”之称的资深联储报道记者Nick Timiraos指出，本次决议暴露了，对于是否应暗示未来可能进一步降息，联储内部存在更为严重的分歧。从
+5月15日金融一线消息，杭州银行今日发布公告称，该行于2026年4月23日披露了《杭州银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2026-009），国家金融监督管理总局浙江监管局同意公司变更注册资本。 近日，杭州银行已完成注册资本的变更登记手续，并取得浙江省市场监督管理局换发的《营业执照》，公司注册资本由人民币5930200432元变更为人民币72490
 
 ## 正文
 
-4月30日，美东时间4月29日周三，美联储货币政策委员会FOMC会后决定，将联邦基金利率的目标区间继续维持在3.50%至3.75%。
+5月15日金融一线消息，杭州银行今日发布公告称，该行于2026年4月23日披露了《杭州银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2026-009），国家金融监督管理总局浙江监管局同意公司变更注册资本。
 
-至此，在截至去年末连续三次会议降息后，FOMC进入2026年以来的三次货币政策会议均暂停行动。
+近日，杭州银行已完成注册资本的变更登记手续，并取得浙江省市场监督管理局换发的《营业执照》，公司注册资本由人民币5930200432元变更为人民币7249002548元。
 
-有“新美联储通讯社”之称的资深联储报道记者Nick Timiraos指出，本次决议暴露了，对于是否应暗示未来可能进一步降息，联储内部存在更为严重的分歧。
+公司修订后的《杭州银行股份有限公司章程》已完成备案。
 
-从12名票委中四人反对的结果看，这是自1992年以来持有异议人数最多的一次联储货币政策会议。
-
-媒体评论称，本次投票结果显示联储出现两个截然不同方向的分歧，米兰还在主张降息，另外三名投票委员则反对保留所谓的“宽松倾向”，那是指，过去两年里，联储一直暗示降息的可能性高于加息。
-
-评论称，本次会议声明的措辞实际上并没有明确袒露宽松倾向，并未直言降息。
-
-另外，中金公司发布研报称，美联储4月会议维持利率不变，符合市场预期。
-
-但四名官员投票反对，其中三人反对纳入宽松倾向措辞，显示货币政策立场正变得更加谨慎。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 04:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 04:00 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 04:19 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 04:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 04:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 04:28 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 04:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 04:26 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 04:21 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 04:12 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 04:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 04:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 04:27 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 04:11 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 04:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 04:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 04:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 04:09 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 04:29 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 04:16 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 04:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [扬名立万](http://www.share.kurohicncr.top/Article/details/2702271534.shtml)
-- 2026-06-30 04:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/295912101.shtml)
-- 2026-06-30 04:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/40147320.shtml)
-- 2026-06-30 04:28 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/27387.shtml)
-- 2026-06-30 04:17 - [苗族银饰](http://www.share.minike.top/Article/details/8199647601.shtml)
-- 2026-06-30 04:02 - [极限挑战第一季](https://www.share.minike.top/Article/details/128930892.shtml)
-- 2026-06-30 04:06 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/783313215875.shtml)
-- 2026-06-30 04:20 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/9872990.shtml)
-- 2026-06-30 04:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/126601.shtml)
-- 2026-06-30 04:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/309316.shtml)
-- 2026-06-30 04:01 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/708079738.shtml)
-- 2026-06-30 04:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/5509164.shtml)
-- 2026-06-30 04:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/16117262.shtml)
-- 2026-06-30 04:24 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/41283538.shtml)
-- 2026-06-30 04:03 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/99391100929.shtml)
+- 2026-06-30 04:24 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/18963519.shtml)
+- 2026-06-30 04:31 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/3643405963.shtml)
+- 2026-06-30 04:12 - [刘念回应](http://www.share.minike.top/Article/details/38151220529.shtml)
+- 2026-06-30 04:20 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/17007904.shtml)
+- 2026-06-30 04:08 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/015535.shtml)
+- 2026-06-30 04:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/8646601245.shtml)
+- 2026-06-30 04:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/38026.shtml)
+- 2026-06-30 04:30 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/02613018585.shtml)
+- 2026-06-30 04:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/15631.shtml)
+- 2026-06-30 04:29 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/62251807.shtml)
+- 2026-06-30 04:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/39842.shtml)
+- 2026-06-30 04:18 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/386984.shtml)
+- 2026-06-30 04:27 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/3287036.shtml)
+- 2026-06-30 04:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/1992461220.shtml)
+- 2026-06-30 04:33 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/64977434413.shtml)

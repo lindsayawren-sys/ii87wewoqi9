@@ -1,61 +1,60 @@
-# 商务部新闻发言人就美国联邦通信委员会审议通过检测认证和电信领域相关限制措施事答记者问
+# Vatee万腾:黄金避险需求持续稳固
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-问：美东时间4月30日，美国联邦通信委员会(FCC)审议通过相关限制措施，拟取消未与美国签署“互认协议”国家检测认证机构资质，禁止被列入所谓“覆盖清单”的实体在美开展电信业务。后续相关措施将征求公众意见。请问商务部对此有何评论？答：美国联邦通信委员会摒弃技术中立原则，泛化国家安全概念，在没有事实依据的情况下，频频出台限制措施，歧视性对待包括中国在内的他国企业和产品，严重损害中国
+5月15日，地缘紧张持续扰动全球大宗商品市场，黄金作为传统避险资产再获机构关注。Vatee万腾表示，尽管金价短期承压回调，但从底层需求结构来看，机构与主权基金的配置力度依然稳固，回落更多体现为前期避险溢价的部分兑现，而非长期趋势的反转。 Vatee万腾分析称，HSBC首席贵金属分析师James Steel近日表示，上海黄金交易所的现货溢价水平约为二十美元，反映出亚洲核心消费地区
 
 ## 正文
 
-问：美东时间4月30日，美国联邦通信委员会(FCC)审议通过相关限制措施，拟取消未与美国签署“互认协议”国家检测认证机构资质，禁止被列入所谓“覆盖清单”的实体在美开展电信业务。
+5月15日，地缘紧张持续扰动全球大宗商品市场，黄金作为传统避险资产再获机构关注。
 
-后续相关措施将征求公众意见。
+Vatee万腾表示，尽管金价短期承压回调，但从底层需求结构来看，机构与主权基金的配置力度依然稳固，回落更多体现为前期避险溢价的部分兑现，而非长期趋势的反转。
 
-请问商务部对此有何评论？
+Vatee万腾分析称，HSBC首席贵金属分析师James Steel近日表示，上海黄金交易所的现货溢价水平约为二十美元，反映出亚洲核心消费地区的实物买盘仍然旺盛；机构端配置需求成为本轮支撑的关键力量。
 
-答：美国联邦通信委员会摒弃技术中立原则，泛化国家安全概念，在没有事实依据的情况下，频频出台限制措施，歧视性对待包括中国在内的他国企业和产品，严重损害中国及其他相关贸易伙伴利益。
+与此同时，全球央行连续多年保持净购金态势，使金价的中枢被持续抬升。
 
-这些限制措施冲击中美经贸关系来之不易的稳定，违背两国元首达成的共识，中方对此高度关注，坚决反对。
+综合来看，金价的多元支撑结构并未根本动摇。
 
-我们注意到，美国联邦通信委员会还要就有关限制措施征求公众意见，如最终实施，将严重破坏国际经贸秩序，扰乱通信电子和相关领域全球产业链供应链稳定，冲击全球产业合作与科技创新，也会损害美国产业界和消费者的利益，影响美自身供应链安全。
+地缘维度上，霍尔木兹海峡紧张虽阶段性缓和，但停火框架仍较为脆弱，市场对突发事件再起的关注度未减。
 
-希望美方正视业界呼声，尊重市场规律，停止错误做法，撤销有关措施。
+业内分析认为，在不确定性显著抬升的大环境下，黄金作为对冲工具的战略价值进一步上升，资产组合中的合理配置比例正被重新评估。
 
-若美方一意孤行，中方将坚决采取必要措施，坚定维护中国企业的正当权益。
+展望后市，Vatee万腾预计，黄金价格仍将围绕美债收益率、美元走势与地缘事件展开博弈，但中长期支撑结构整体稳健。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 04:12 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 04:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 04:20 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 04:17 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 04:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 04:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 04:06 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 04:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 04:22 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 04:21 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:28 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 04:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 04:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 04:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 04:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 04:24 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 04:20 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 04:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 04:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 04:26 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 04:18 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 04:23 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 04:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 04:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 04:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 04:26 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 04:24 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/510939081.shtml)
-- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/69070002.shtml)
-- 2026-06-30 04:13 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/2521230.shtml)
-- 2026-06-30 04:09 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/263515167.shtml)
-- 2026-06-30 04:26 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/01230401490.shtml)
-- 2026-06-30 04:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/3112041252.shtml)
-- 2026-06-30 04:17 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/4618527.shtml)
-- 2026-06-30 04:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/51306.shtml)
-- 2026-06-30 04:18 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/50722.shtml)
-- 2026-06-30 04:28 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/2218545205.shtml)
-- 2026-06-30 04:11 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/246226761.shtml)
-- 2026-06-30 04:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/7391228237.shtml)
-- 2026-06-30 04:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/1813176564.shtml)
-- 2026-06-30 04:14 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/32388127448.shtml)
-- 2026-06-30 04:18 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/510672.shtml)
+- 2026-06-30 04:06 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/47588.shtml)
+- 2026-06-30 04:11 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/23290821.shtml)
+- 2026-06-30 04:35 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/86370321766.shtml)
+- 2026-06-30 04:19 - [斛珠夫人](https://www.blog.minike.top/Article/details/728629842.shtml)
+- 2026-06-30 04:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/707056077406.shtml)
+- 2026-06-30 04:12 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/14880.shtml)
+- 2026-06-30 04:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/50275555.shtml)
+- 2026-06-30 04:06 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/00071979160.shtml)
+- 2026-06-30 04:28 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/513133683897.shtml)
+- 2026-06-30 04:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/36750604041.shtml)
+- 2026-06-30 04:28 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/806563413348.shtml)
+- 2026-06-30 04:07 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/351058227469.shtml)
+- 2026-06-30 04:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/6667373726.shtml)
+- 2026-06-30 04:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/5195346927.shtml)
+- 2026-06-30 04:12 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/1144696.shtml)

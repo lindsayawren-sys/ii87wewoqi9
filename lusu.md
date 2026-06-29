@@ -1,61 +1,56 @@
-# 广西“十五五”工业蓝图：打造1个万亿产业、2个五千亿产业
+# 马斯克中文发帖：我的儿子正在学习普通话
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。 袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西
+5月14日上午，特斯拉首席执行官马斯克携幼子现身人民大会堂，孩子身着新中式上衣。 视频：马斯克携幼子现身北京 外国网友：孩子那身新中式太好看了！来源：中国新闻网 当天稍晚，马斯克在社交媒体上用中文发帖称，我的儿子正在学习普通话。 特朗普此次访华，十余家美国知名企业的高管跟随，其中包括苹果首席执行官蒂姆·库克、英伟达创始人兼首席执行官黄仁勋、特斯拉公司首席执行官埃隆·马斯克等。
 
 ## 正文
 
-中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。
+5月14日上午，特斯拉首席执行官马斯克携幼子现身人民大会堂，孩子身着新中式上衣。
 
-广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。
+视频：马斯克携幼子现身北京 外国网友：孩子那身新中式太好看了！
 
-袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西规上工业企业总量突破1万家，规上工业增加值年均增长7%，工业对经济增长的贡献率超过三分之一。
+来源：中国新闻网 当天稍晚，马斯克在社交媒体上用中文发帖称，我的儿子正在学习普通话。
 
-进入“十五五”，广西将打破传统产业、新兴产业和未来产业的界限，集中优势资源打造有色金属及关键金属材料等制造业十大现代化支柱产业。
+特朗普此次访华，十余家美国知名企业的高管跟随，其中包括苹果首席执行官蒂姆·库克、英伟达创始人兼首席执行官黄仁勋、特斯拉公司首席执行官埃隆·马斯克等。
 
-袁煌称，发展制造业十大现代化支柱产业，广西具备多重优势。
+5月14日，离开人民大会堂时，马斯克回应记者提问说，会谈“非常顺利”，“很多好事正在发生”。
 
-资源禀赋方面，稀土、锑、铟、镓等9种有色金属矿产保有量居中国前五，甘蔗、水果、木材产量稳居中国第一，水资源、生态资源、海洋能源、清洁能源等潜力巨大。
-
-产业基础方面，已有十大支柱产业，其中有色金属产业年产值突破4600亿元，钢铁、食品加工产业突破3000亿元，其他支柱产业均跨过千亿门槛。
-
-政策优势方面，国家给予了广西西部陆海新通道、自贸试验区、沿边临港产业园区、面向东盟的金融开放门户等20多个重大支持政策。
+中国新闻社(CNS1952)综合自中国新闻社视频号、马斯克社交账号等 编辑：代硕 审校：魏园 责编：马学玲 (中新社微信公众号)
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 04:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 04:22 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 04:26 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 04:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 04:26 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 04:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 04:21 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 04:09 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 04:04 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 04:08 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 04:08 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 04:02 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:22 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 04:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 04:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 04:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 04:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 04:35 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 04:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 04:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 04:23 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 04:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 04:09 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 04:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 04:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 04:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/62720642.shtml)
-- 2026-06-30 04:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/4927160.shtml)
-- 2026-06-30 04:12 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/7285189298.shtml)
-- 2026-06-30 04:11 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/34116039348.shtml)
-- 2026-06-30 04:06 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/04932.shtml)
-- 2026-06-30 04:08 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/91405099893.shtml)
-- 2026-06-30 04:17 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/562524008.shtml)
-- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/0483391516.shtml)
-- 2026-06-30 04:16 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/36905.shtml)
-- 2026-06-30 04:03 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/1732857499.shtml)
-- 2026-06-30 04:14 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/84897.shtml)
-- 2026-06-30 04:23 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/22680.shtml)
-- 2026-06-30 04:11 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/41017131.shtml)
-- 2026-06-30 04:13 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/483968.shtml)
-- 2026-06-30 04:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/4403806091.shtml)
+- 2026-06-30 04:32 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/778512165751.shtml)
+- 2026-06-30 04:31 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/84621951409.shtml)
+- 2026-06-30 04:20 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/449345082874.shtml)
+- 2026-06-30 04:08 - [《贺子珍》](http://www.share.minike.top/Article/details/451014.shtml)
+- 2026-06-30 04:09 - [刘念回应](https://www.share.kurohicncr.top/Article/details/579790.shtml)
+- 2026-06-30 04:18 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/05879.shtml)
+- 2026-06-30 04:14 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/42753050.shtml)
+- 2026-06-30 04:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/793798875779.shtml)
+- 2026-06-30 04:27 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/211781746.shtml)
+- 2026-06-30 04:35 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/94880971446.shtml)
+- 2026-06-30 04:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/3268503.shtml)
+- 2026-06-30 04:23 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/856488.shtml)
+- 2026-06-30 04:08 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/098702717553.shtml)
+- 2026-06-30 04:23 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8397700659.shtml)
+- 2026-06-30 04:27 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/01609993.shtml)

@@ -1,59 +1,56 @@
-# 印尼泗水侨界举办“实现两岸统一 共创复兴伟业”专题座谈会
+# 重庆：每20.99万人拥有一家博物馆
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网雅加达4月29日电 (关瀚儒 李志全)4月28日，印尼泗水侨界举办“实现两岸统一 共创复兴伟业”专题座谈会。中国驻泗水总领事叶素出席并讲话，印尼华人和平统一促进会、印尼中国友好协会东爪哇分会、留台校友会东爪哇分会、金门会馆、泗水彼得拉基督教大学代表等20余人参加。 与会代表一致认为，世界上只有一个中国，台湾是中国领土不可分割的一部分，“台独”分裂不得人心、没有出路。实现两
+中新网重庆5月16日电 (记者 钟旖)“5·18国际博物馆日”将至，记者16日从重庆市文化旅游委获悉，截至2025年底，该市备案博物馆总数达152家，区县博物馆覆盖率100%，每20.99万人即拥有一家博物馆，基本达到全国平均水平。 据介绍，重庆以巴渝文化、三峡文化、革命文化、抗战文化、统战文化、移民文化为核心，构建起历史、革命、抗战、工业、自然“五大博物馆群”，形成覆盖城乡、
 
 ## 正文
 
-中新网雅加达4月29日电 (关瀚儒 李志全)4月28日，印尼泗水侨界举办“实现两岸统一 共创复兴伟业”专题座谈会。
+中新网重庆5月16日电 (记者 钟旖)“5·18国际博物馆日”将至，记者16日从重庆市文化旅游委获悉，截至2025年底，该市备案博物馆总数达152家，区县博物馆覆盖率100%，每20.99万人即拥有一家博物馆，基本达到全国平均水平。
 
-中国驻泗水总领事叶素出席并讲话，印尼华人和平统一促进会、印尼中国友好协会东爪哇分会、留台校友会东爪哇分会、金门会馆、泗水彼得拉基督教大学代表等20余人参加。
+据介绍，重庆以巴渝文化、三峡文化、革命文化、抗战文化、统战文化、移民文化为核心，构建起历史、革命、抗战、工业、自然“五大博物馆群”，形成覆盖城乡、特色鲜明、开放普惠的博物馆体系。
 
-与会代表一致认为，世界上只有一个中国，台湾是中国领土不可分割的一部分，“台独”分裂不得人心、没有出路。
+152家博物馆中，按类型划分，综合地志类34家、革命纪念类39家、历史文化类37家、考古遗址类8家、艺术类8家、自然科技类11家、其他类15家。
 
-实现两岸统一是海内外中华儿女的共同心愿，是大势所趋、民心所向、历史必然。
+按区域划分，主城都市区有108家、渝东北三峡库区有30家、渝东南武陵山区有14家。
 
-印尼华侨华人为祖(籍)国日益强盛倍感自豪，将继续坚定恪守一个中国原则，坚决反对和抵制任何形式“台独”分裂行径，积极促进民间交流合作，为祖(籍)国统一大业不懈努力。
+数据显示，博物馆已成为重庆城市文化地标和文旅融合的重要引擎。
 
-叶素赞赏印尼华侨华人长期坚持反“独”促统立场，强调台湾的发展前途在于强大祖国、台湾同胞的利益福祉系于中华民族伟大复兴，任何形式的“台独”分裂和外来干涉图谋必将失败，中国完全统一定要实现，也一定能实现。
+2025年，重庆全市博物馆全面取消参观预约，实行“随到随入”免预约制度，极大提升了观众入馆便利度和观展热情。
 
-勉励领区侨界赓续中华优秀传统文化，发挥融通内外优势，为实现两岸统一和民族复兴伟业贡献力量。
+全市博物馆2025年度共举办陈列展览1062个，同比增长14.32%；开展社会教育活动16977场次，同比增长19.88%；共接待观众4505.79万人次，同比增长7.22%。
 
-(完)
+另有数据显示，“十四五”期间，重庆市博物馆事业取得跨越式发展，文博服务体系持续健全，公共服务质效稳步提升。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 04:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 04:18 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 04:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 04:29 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 04:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 04:00 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 04:01 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 04:29 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 04:12 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 04:21 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 04:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 04:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 04:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 04:23 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 04:21 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 04:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 04:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 04:20 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 04:35 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 04:09 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 04:11 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/885115969948.shtml)
-- 2026-06-30 04:17 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/868272957762.shtml)
-- 2026-06-30 04:08 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/39447484.shtml)
-- 2026-06-30 04:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/435184210.shtml)
-- 2026-06-30 04:00 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/489105275.shtml)
-- 2026-06-30 04:03 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/61288466.shtml)
-- 2026-06-30 04:25 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/01641028.shtml)
-- 2026-06-30 04:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/246613001.shtml)
-- 2026-06-30 04:17 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/8893712283.shtml)
-- 2026-06-30 04:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/721142168.shtml)
-- 2026-06-30 04:20 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/1201036.shtml)
-- 2026-06-30 04:09 - [月亮](http://www.blog.minike.top/Article/details/63995239.shtml)
-- 2026-06-30 04:27 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/257068455.shtml)
-- 2026-06-30 04:13 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/917113992.shtml)
-- 2026-06-30 04:26 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/879252318708.shtml)
+- 2026-06-30 04:32 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/0303926.shtml)
+- 2026-06-30 04:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/71430.shtml)
+- 2026-06-30 04:26 - [蔚来车主罚站](https://www.share.minike.top/Article/details/41222.shtml)
+- 2026-06-30 04:23 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/67536140905.shtml)
+- 2026-06-30 04:29 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/568874454.shtml)
+- 2026-06-30 04:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4272322.shtml)
+- 2026-06-30 04:33 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/231663183635.shtml)
+- 2026-06-30 04:22 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/9069940.shtml)
+- 2026-06-30 04:16 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/6907408.shtml)
+- 2026-06-30 04:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/62146.shtml)
+- 2026-06-30 04:28 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/181596661.shtml)
+- 2026-06-30 04:18 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/0611436324.shtml)
+- 2026-06-30 04:32 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/186703.shtml)
+- 2026-06-30 04:26 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/0153860.shtml)
+- 2026-06-30 04:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/977203378.shtml)

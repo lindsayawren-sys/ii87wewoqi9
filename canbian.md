@@ -1,56 +1,59 @@
-# “板凳会”上话防火 西安市林业局开展森林防火宣传
+# 山东上线“齐鲁制造会客厅” 勾勒“智造”跃升新图景
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网西安4月30日电(记者 阿琳娜)为筑牢春季森林防火安全防线，保障“五一”假期林区安全，打通宣传服务“最后一公里”，西安市秦岭生态环境保护管理局(市林业局)组建宣传小分队，于29日深入周至县马召镇安富园社区，以“围坐话防火，护好咱青山”为主题，开展森林防火“进社区”暨“板凳会”宣传活动。 安富园社区地处秦岭林缘区域，林边村、林缘户集中，留守老人、儿童等五类重点人员较多，春耕
+中新网济南5月15日电(记者 孙婷婷)山东打造“齐鲁制造会客厅”系列活动，围绕人工智能、机器人、智能终端、空天装备、新能源装备、智能装备、高端化工、新材料等产业链，展示企业最新技术成果和前沿技术产品，塑造引领行业变革的“硬核样本”，并借由“齐鲁制造会客厅”，帮助企业精准找到供应链衔接方、资本对接方，加速创新链到产业链的深度转化，推动样机走进车间、材料装进产品、软件跑上产线，让技
 
 ## 正文
 
-中新网西安4月30日电(记者 阿琳娜)为筑牢春季森林防火安全防线，保障“五一”假期林区安全，打通宣传服务“最后一公里”，西安市秦岭生态环境保护管理局(市林业局)组建宣传小分队，于29日深入周至县马召镇安富园社区，以“围坐话防火，护好咱青山”为主题，开展森林防火“进社区”暨“板凳会”宣传活动。
+中新网济南5月15日电(记者 孙婷婷)山东打造“齐鲁制造会客厅”系列活动，围绕人工智能、机器人、智能终端、空天装备、新能源装备、智能装备、高端化工、新材料等产业链，展示企业最新技术成果和前沿技术产品，塑造引领行业变革的“硬核样本”，并借由“齐鲁制造会客厅”，帮助企业精准找到供应链衔接方、资本对接方，加速创新链到产业链的深度转化，推动样机走进车间、材料装进产品、软件跑上产线，让技术成果真正转化为市场订单和产业增量。
 
-安富园社区地处秦岭林缘区域，林边村、林缘户集中，留守老人、儿童等五类重点人员较多，春耕生产、上坟祭祀、野外用火频繁，防火任务艰巨。
+“齐鲁制造会客厅”人工智能专场活动15日在济南拉开帷幕。
 
-针对基层实际，西安市林业局机关宣传小分队联合市森林和水源地保护公安局、市小王涧国有生态林场、周至县秦岭保护局等单位，一改传统宣讲模式，用“板凳会”拉家常的方式，开展接地气、入人心的精准宣传。
+山东省副省长孙喜民在会上表示，人工智能是山东塑造竞争新优势的关键力量，也是建设先进制造业强省的必由之路。
 
-活动现场，西安市林业局宣传小分队成员用大白话向民众讲解森林防火期、高火险时段、“七个严禁、六个务必”等核心要求，重点宣贯新修订《森林草原防灭火条例》，明确野外用火禁令与科学避险方法。
+该省将围绕制造业全链条挖掘优质应用场景，分行业建立需求库，培育100个左右示范性标杆，同时鼓励大企业打造定制化AI解决方案，为中小微企业推出AI套餐，推动初创AI企业与传统制造业合作，赋能传统产业、孵化新兴产业。
 
-社区干部用方言讲述身边因烧荒、烧纸、乱扔烟头引发火情的真实案例。
+山东省工业和信息化厅厅长陈飞指出，当前，山东工业经济正处于由大到强的关键转型期，亟须打破“传统产业大省”的固有标签，全方位展示产业智能化转型新成果。
 
-市森林公安民警围绕违规用火处罚标准、失火罪与放火罪法律责任开展普法，明确“防火期违规用火最高可罚5000元、引发火灾将追究刑事责任”的法律红线。
+“齐鲁制造会客厅”作为全新的产业服务品牌，核心目标是讲好山东智造新故事、树立产业新形象，依托19条标志性产业链持续挖掘优质企业、标杆产品，推动“山东制造”向“山东智造”加速跃迁。
 
-现场设置两轮森林防火知识有奖问答，围绕防火期、禁火行为、报警电话、五类人员管护、新条例要点等内容互动，让民众在轻松氛围中巩固防火知识。
+在首期活动中，6家企业分享了在人工智能赋能制造业方面的最新实践。
 
-自乐班文艺节目将防火知识融入歌曲、秦腔，寓教于乐。
+浪潮集团执行总裁肖雪在推介“人工智能工厂”产品时表示，浪潮集团部署人工智能工厂企业版，通过超级智能体，为产业提供自主可控的AI基座。
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 04:13 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 04:10 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 04:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 04:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 04:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 04:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 04:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 04:14 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 04:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 04:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 04:23 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 04:23 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 04:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 04:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 04:34 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 04:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 04:12 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 04:31 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 04:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 04:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/496777.shtml)
-- 2026-06-30 04:01 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/70358.shtml)
-- 2026-06-30 04:24 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/9525020.shtml)
-- 2026-06-30 04:20 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/138333.shtml)
-- 2026-06-30 04:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/200613.shtml)
-- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/5862684469.shtml)
-- 2026-06-30 04:21 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/91786721022.shtml)
-- 2026-06-30 04:22 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/2603971.shtml)
-- 2026-06-30 04:01 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/6817999942.shtml)
-- 2026-06-30 04:10 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/623318941334.shtml)
-- 2026-06-30 04:12 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/348327.shtml)
-- 2026-06-30 04:09 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/32335441.shtml)
-- 2026-06-30 04:10 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/5726943773.shtml)
-- 2026-06-30 04:20 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/7761097.shtml)
-- 2026-06-30 04:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/2854780.shtml)
+- 2026-06-30 04:11 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/88184247.shtml)
+- 2026-06-30 04:14 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/592831.shtml)
+- 2026-06-30 04:13 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/23624.shtml)
+- 2026-06-30 04:16 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/03127461918.shtml)
+- 2026-06-30 04:13 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/400580556510.shtml)
+- 2026-06-30 04:27 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/280893.shtml)
+- 2026-06-30 04:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/69778370.shtml)
+- 2026-06-30 04:12 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/26124426.shtml)
+- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/7040838906.shtml)
+- 2026-06-30 04:33 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/52567.shtml)
+- 2026-06-30 04:12 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/25890.shtml)
+- 2026-06-30 04:19 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/924197692.shtml)
+- 2026-06-30 04:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/06850487403.shtml)
+- 2026-06-30 04:30 - [女心理师](http://www.share.minike.top/Article/details/8215378604.shtml)
+- 2026-06-30 04:32 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/33910927076.shtml)

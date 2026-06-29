@@ -1,56 +1,56 @@
-# 告别“套娃式”导流与支付捆绑 助贷行业整改进入倒计时
+# 台湾写真：台湾学子迎考试季 文昌宫里祈福忙
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-来源：经济参考报 “必须在9月底前完成全流程整改，调整系统架构和导流链路，重新评估合作放款机构。”一家头部助贷机构负责人向记者坦言，“长期以来的导流模式被叫停，获客与盈利模式都将面临根本性改写。” 当前，距离《金融产品网络营销管理办法》正式实施仅剩5个月。这项由央行等八部门于日前联合发布的新规，将于2026年9月30日起全面施行。无论是“套娃式”多层分销，还是隐形的API导流，
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。 位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。宫庙自5月13日起连续三日举行法会，为考生集体祈福。连日来，该
 
 ## 正文
 
-来源：经济参考报 “必须在9月底前完成全流程整改，调整系统架构和导流链路，重新评估合作放款机构。
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。
 
-”一家头部助贷机构负责人向记者坦言，“长期以来的导流模式被叫停，获客与盈利模式都将面临根本性改写。
+考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。
 
-” 当前，距离《金融产品网络营销管理办法》正式实施仅剩5个月。
+位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。
 
-这项由央行等八部门于日前联合发布的新规，将于2026年9月30日起全面施行。
+宫庙自5月13日起连续三日举行法会，为考生集体祈福。
 
-无论是“套娃式”多层分销，还是隐形的API导流，还是支付收银台里的信贷捆绑到短视频里的“秒到账”话术，过去数年间助贷行业习以为常的展业手段，几乎被逐一画上红线。
+连日来，该宫庙人山人海，宫庙前空地上特意增设数张供品桌，便利民众摆放各式供品。
 
-业内不完全统计显示，国内七家上市互联网助贷平台2025年四季度业绩普遍承压。
+在中华传统文化中，文昌帝君掌管学业、考试与功名，倡导勤学向善，千百年来，广受读书人尊崇。
 
-在新规出台前不久，国家金融监督管理总局已对5家头部平台进行集中约谈，要求规范营销宣传、清晰披露息费、加强个人信息保护。
+时至今日，学子赶考前“拜文昌”，祈求考试顺遂、金榜题名，已是两岸民间深入人心的一项传统。
 
-一系列监管动作表明，助贷行业靠信息差和流量倒卖赚快钱的时代，正在加速终结。
+走进台北市文昌宫，右侧入口处一幅写有“将相无种凭才德，男儿自强习文章”的对联赫然入目；两侧的柱子上，密密麻麻挂满考生许愿牌，写着对学业与未来的美好祝愿；供品桌上，准考证复印件、考生衣服以及葱、蒜、芹菜、白萝卜、粽子等各式供品整齐摆放。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 04:24 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 04:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 04:24 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 04:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 04:20 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 04:04 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 04:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 04:09 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 04:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:33 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 04:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 04:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 04:21 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 04:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 04:28 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 04:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:06 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/7758254.shtml)
-- 2026-06-30 04:13 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/50595148.shtml)
-- 2026-06-30 04:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/85812.shtml)
-- 2026-06-30 04:16 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/32868784826.shtml)
-- 2026-06-30 04:23 - [扬名立万](https://www.share.kurohicncr.top/Article/details/48701.shtml)
-- 2026-06-30 04:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/4537680765.shtml)
-- 2026-06-30 04:21 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/236661.shtml)
-- 2026-06-30 04:21 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/822302869582.shtml)
-- 2026-06-30 04:11 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/04451185130.shtml)
-- 2026-06-30 04:09 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/836472.shtml)
-- 2026-06-30 04:19 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/46484139285.shtml)
-- 2026-06-30 04:07 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/3908392.shtml)
-- 2026-06-30 04:04 - [日本领先巴西](http://www.share.minike.top/Article/details/94888146.shtml)
-- 2026-06-30 04:19 - [乔家的儿女](https://www.blog.minike.top/Article/details/57607.shtml)
-- 2026-06-30 04:03 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/67840873.shtml)
+- 2026-06-30 04:24 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/88076439.shtml)
+- 2026-06-30 04:07 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/925841187296.shtml)
+- 2026-06-30 04:32 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/32570796824.shtml)
+- 2026-06-30 04:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/574749.shtml)
+- 2026-06-30 04:25 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/340102915864.shtml)
+- 2026-06-30 04:06 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/59003004852.shtml)
+- 2026-06-30 04:14 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/266427921769.shtml)
+- 2026-06-30 04:12 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/5563218.shtml)
+- 2026-06-30 04:06 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/982767601.shtml)
+- 2026-06-30 04:06 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/10173772.shtml)
+- 2026-06-30 04:21 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/6239066.shtml)
+- 2026-06-30 04:31 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/39991752.shtml)
+- 2026-06-30 04:06 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/437319815.shtml)
+- 2026-06-30 04:13 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/9717997.shtml)
+- 2026-06-30 04:06 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/84007898.shtml)

@@ -1,53 +1,57 @@
-# 鲍威尔表示，他将继续担任美联储理事，“任期时长待定”
+# 美国承诺向联合国提供新的人道主义援助，并称援助须符合特朗普政府的利益
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美联储主席杰罗姆·鲍威尔周三表示，在针对央行总部大楼翻新项目的调查进行期间，他将继续留在理事会任职一段不确定的时间。 “我已经说过，在这次调查真正彻底结束、实现透明且有了最终结果之前，我不会离开理事会，我坚持这一点。我对近期的进展感到鼓舞，并且正在密切关注这一过程的后续步骤，”鲍威尔在会后新闻发布会开始时表示。 “在这些问题上的决定
+美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。 此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。 杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担
 
 ## 正文
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美联储主席杰罗姆·鲍威尔周三表示，在针对央行总部大楼翻新项目的调查进行期间，他将继续留在理事会任职一段不确定的时间。
+美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。
 
-“我已经说过，在这次调查真正彻底结束、实现透明且有了最终结果之前，我不会离开理事会，我坚持这一点。
+此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。
 
-我对近期的进展感到鼓舞，并且正在密切关注这一过程的后续步骤，”鲍威尔在会后新闻发布会开始时表示。
+此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。
 
-“在这些问题上的决定，将继续完全基于我认为什么最符合本机构以及我们服务对象的利益。
+杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担任负责对外援助、人道主义事务及宗教自由的副国务卿。
 
-我将在5月15日主席任期结束后，继续担任联储理事，任期时长待定，”他补充道。
+他表示，通过该机制拨付的美国援助中，92%已“高度优先”用于救生援助，且这一比例将持续保持。
 
-责任编辑：张俊 SF065
+他谈及美国总统唐纳德・特朗普时称：“高度优先、聚焦重点，只投向符合我们外交政策利益、契合总统关切的地区。
+
+” 卢因指出，这意味着作为联合国人道主义事务协调厅（OCHA）最大单一捐助国，美国的资金将不会流向那些与美国利益不符、且不符合OCHA优先事项的国家。
+
+他补充称，通过OCHA提供的资金，并非美国海外人道主义援助的全部。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 04:00 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 04:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 04:08 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 04:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 04:18 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 04:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 04:25 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 04:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 04:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 04:04 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 04:22 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 04:35 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 04:28 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 04:31 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 04:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 04:11 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 04:33 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 04:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 04:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 04:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 04:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/208634238414.shtml)
-- 2026-06-30 04:22 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/060643512.shtml)
-- 2026-06-30 04:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/94877.shtml)
-- 2026-06-30 04:24 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/59758893134.shtml)
-- 2026-06-30 04:28 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/5528270132.shtml)
-- 2026-06-30 04:03 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/8343647897.shtml)
-- 2026-06-30 04:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/26439343.shtml)
-- 2026-06-30 04:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/595273317.shtml)
-- 2026-06-30 04:02 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/5726514.shtml)
-- 2026-06-30 04:04 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/37287641503.shtml)
-- 2026-06-30 04:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/63777592.shtml)
-- 2026-06-30 04:12 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/086491.shtml)
-- 2026-06-30 04:26 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/877049373933.shtml)
-- 2026-06-30 04:09 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/675160311785.shtml)
-- 2026-06-30 04:12 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/78074417.shtml)
+- 2026-06-30 04:24 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/83743.shtml)
+- 2026-06-30 04:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/29177674.shtml)
+- 2026-06-30 04:14 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/7934453.shtml)
+- 2026-06-30 04:25 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/67922840.shtml)
+- 2026-06-30 04:10 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/800542464.shtml)
+- 2026-06-30 04:25 - [啊啊啊](http://www.share.minike.top/Article/details/5999521.shtml)
+- 2026-06-30 04:35 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/4464700764.shtml)
+- 2026-06-30 04:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/90179.shtml)
+- 2026-06-30 04:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/36981401089.shtml)
+- 2026-06-30 04:19 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/857732140296.shtml)
+- 2026-06-30 04:07 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/044232.shtml)
+- 2026-06-30 04:06 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/3417195963.shtml)
+- 2026-06-30 04:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/17744.shtml)
+- 2026-06-30 04:11 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/56088.shtml)
+- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4721027.shtml)

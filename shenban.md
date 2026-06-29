@@ -1,49 +1,49 @@
-# 特朗普称美政府将公布“大量”关于不明飞行物的信息
+# 金力永磁午前涨超4% 第一季度出口销售收入3.81亿元
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。 特朗普称：“我认为其中一些内容会让人们感到非常有趣。” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，
+金力永磁（06680）盘中涨超5%，截至发稿，股价上涨4.22%，现报21.24港元，成交额1.61亿港元。 金力永磁近期发布投资者关系活动记录表，公司表示，在中重稀土相关物项出口管制措施出台后，按照国家有关规定开展出口申报工作，已陆续获得国家主管部门颁发的出口许可证，并成为国家首批授予通用许可证的企业。公司出口业务基本稳定，2026年第一季度实现出口销售收入3.81亿元，占营
 
 ## 正文
 
-中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。
+金力永磁（06680）盘中涨超5%，截至发稿，股价上涨4.22%，现报21.24港元，成交额1.61亿港元。
 
-特朗普称：“我认为其中一些内容会让人们感到非常有趣。
+金力永磁近期发布投资者关系活动记录表，公司表示，在中重稀土相关物项出口管制措施出台后，按照国家有关规定开展出口申报工作，已陆续获得国家主管部门颁发的出口许可证，并成为国家首批授予通用许可证的企业。
 
-” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，并且“首批文件的公开将很快、很快开始。
+公司出口业务基本稳定，2026年第一季度实现出口销售收入3.81亿元，占营业收入的18.7%，同比增长22.16%。
 
-”
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 04:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 04:02 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 04:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 04:16 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 04:26 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 04:25 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 04:21 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 04:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 04:25 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 04:25 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:27 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 04:25 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 04:14 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 04:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 04:34 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 04:32 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 04:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 04:07 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 04:15 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 04:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 04:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/137942.shtml)
-- 2026-06-30 04:22 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/8495716.shtml)
-- 2026-06-30 04:12 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/6987380.shtml)
-- 2026-06-30 04:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/63880599.shtml)
-- 2026-06-30 04:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/62627445.shtml)
-- 2026-06-30 04:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/544599928.shtml)
-- 2026-06-30 04:18 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/325962.shtml)
-- 2026-06-30 04:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/998276629924.shtml)
-- 2026-06-30 04:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/53826.shtml)
-- 2026-06-30 04:12 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/33460.shtml)
-- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/303182074.shtml)
-- 2026-06-30 04:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/06300.shtml)
-- 2026-06-30 04:26 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/08712.shtml)
-- 2026-06-30 04:19 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/56579.shtml)
-- 2026-06-30 04:25 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/30530654639.shtml)
+- 2026-06-30 04:09 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/820751930069.shtml)
+- 2026-06-30 04:24 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/73831.shtml)
+- 2026-06-30 04:10 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/4763686.shtml)
+- 2026-06-30 04:09 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/0805582396.shtml)
+- 2026-06-30 04:23 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/5707829325.shtml)
+- 2026-06-30 04:10 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/78758379245.shtml)
+- 2026-06-30 04:24 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/21792713561.shtml)
+- 2026-06-30 04:06 - [一生一世](http://www.share.kurohicncr.top/Article/details/1046070370.shtml)
+- 2026-06-30 04:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5178107.shtml)
+- 2026-06-30 04:07 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/54797.shtml)
+- 2026-06-30 04:17 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/895669005.shtml)
+- 2026-06-30 04:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/027114971219.shtml)
+- 2026-06-30 04:33 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/399923806.shtml)
+- 2026-06-30 04:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/83677915.shtml)
+- 2026-06-30 04:26 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/7657044.shtml)

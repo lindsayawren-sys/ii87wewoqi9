@@ -1,60 +1,60 @@
-# 中信建投：2026下半年CPU恐迎新一轮涨价，SpaceX计划自研GPU
+# 马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信建投研究 半导体：2026下半年全球CPU恐迎新一轮涨价；SpaceX计划自研自制GPU。 据台媒报道称，受AI算力需求激增影响，AMD、英特尔消费级CPU价格在今年3月上涨5%~10%，服务器CPU涨幅达10%-20%。这轮涨价潮并非短期波动，供应链消息显示，短缺将贯穿至2027年，2026年第
+文 | 《硅谷观察》栏目 郑峻 据外媒报道，埃隆·马斯克（Elon Musk）起诉OpenAI案进入结案陈词阶段。 马斯克的首席律师史蒂文·莫洛（Steven Molo）在庭审中表示，“这是一件他非常投入、非常在意的事情。”莫洛对陪审团保证，借此说明马斯克虽然未能出庭，但仍高度关注本案进展。 这是一场备受关注的AI世纪审判，就在今天，这场审判结束了第一回合——庭审听证。在过去的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文 | 《硅谷观察》栏目 郑峻 据外媒报道，埃隆·马斯克（Elon Musk）起诉OpenAI案进入结案陈词阶段。
 
-来源：中信建投研究 半导体：2026下半年全球CPU恐迎新一轮涨价；SpaceX计划自研自制GPU。
+马斯克的首席律师史蒂文·莫洛（Steven Molo）在庭审中表示，“这是一件他非常投入、非常在意的事情。
 
-据台媒报道称，受AI算力需求激增影响，AMD、英特尔消费级CPU价格在今年3月上涨5%~10%，服务器CPU涨幅达10%-20%。
+”莫洛对陪审团保证，借此说明马斯克虽然未能出庭，但仍高度关注本案进展。
 
-这轮涨价潮并非短期波动，供应链消息显示，短缺将贯穿至2027年，2026年第3季度恐将迎来新一轮调价。
+这是一场备受关注的AI世纪审判，就在今天，这场审判结束了第一回合——庭审听证。
 
-消息称，AMD为应对向2nm工艺过渡的成本压力，计划在2026年第二、三季度连续两次上调服务器CPU价格，累计涨幅预估16%~17%。
+在过去的三周时间，全球首富马斯克、OpenAI总裁格雷格·布罗克曼（Greg Brockman）、前首席科学家伊利亚·苏茨克维（Ilya Sutskever）、OpenAI CEO山姆·奥特曼（Sam Altman）以及微软CEO纳德拉（Satya Nadella）等AI行业的重磅人物依次出庭作证。
 
-英特尔已在3月调整PC CPU价格，并于4月1日调整服务器CPU售价，带动第2季毛利率回升。
+十多名关键证人，每一位都带来了爆炸性的证词，每一份内部文件都在改写这场战争的历史注脚。
 
-市场预期，下半年仍有约8%-10%的涨价空间。
+而从下周开始，九人组成的陪审团将开始评议，给出建议裁定。
 
-据路透社爆料称，SpaceX可能正准备啃下芯片产业里最难的一块骨头之一：自己制造支撑AI运算的核心芯片——GPU。
+无论结果如何，审判已经完成了它的使命：把OpenAI的权力内幕赤裸裸地摆在了全世界面前。
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 04:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 04:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 04:08 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 04:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 04:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 04:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 04:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 04:28 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 04:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 04:24 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 04:16 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 04:17 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 04:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 04:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 04:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 04:23 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 04:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 04:15 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 04:06 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:18 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 04:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 04:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 04:27 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 04:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 04:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/385272.shtml)
-- 2026-06-30 04:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/75649012584.shtml)
-- 2026-06-30 04:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/0481185.shtml)
-- 2026-06-30 04:25 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4091864327.shtml)
-- 2026-06-30 04:17 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/97924.shtml)
-- 2026-06-30 04:21 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/7542139670.shtml)
-- 2026-06-30 04:07 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/765757796.shtml)
-- 2026-06-30 04:11 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/218926028571.shtml)
-- 2026-06-30 04:18 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/04174690.shtml)
-- 2026-06-30 04:12 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8469462.shtml)
-- 2026-06-30 04:26 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/2427643.shtml)
-- 2026-06-30 04:13 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/25510.shtml)
-- 2026-06-30 04:24 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/1448664015.shtml)
-- 2026-06-30 04:12 - [扫黑风暴](http://www.blog.minike.top/Article/details/96017436315.shtml)
-- 2026-06-30 04:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/905532168305.shtml)
+- 2026-06-30 04:10 - [恋与深空 巧合](http://www.share.minike.top/Article/details/1090226275.shtml)
+- 2026-06-30 04:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/5286718041.shtml)
+- 2026-06-30 04:35 - [斛珠夫人](https://www.share.minike.top/Article/details/890680.shtml)
+- 2026-06-30 04:33 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/835758.shtml)
+- 2026-06-30 04:20 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/59365130.shtml)
+- 2026-06-30 04:20 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/70779317593.shtml)
+- 2026-06-30 04:34 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/243720758.shtml)
+- 2026-06-30 04:27 - [毒液2](http://www.share.minike.top/Article/details/35624595286.shtml)
+- 2026-06-30 04:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/0093759291.shtml)
+- 2026-06-30 04:08 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/61377506.shtml)
+- 2026-06-30 04:12 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/796479361909.shtml)
+- 2026-06-30 04:20 - [啊啊啊](http://www.share.minike.top/Article/details/13552.shtml)
+- 2026-06-30 04:10 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/398948777186.shtml)
+- 2026-06-30 04:27 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/05410800.shtml)
+- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/80635189.shtml)

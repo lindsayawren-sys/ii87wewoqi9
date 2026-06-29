@@ -1,60 +1,59 @@
-# 广东56个镇街遭遇暴雨、大暴雨
+# 四川省与澳大利亚维多利亚州结好十周年庆祝活动在蓉举行
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 王坚)广东多地28日白天到29日早晨持续强降雨，全省有56个镇街遭遇暴雨、大暴雨，其中阳江阳东区和江门恩平出现了局地特大暴雨。 广东省气象局介绍，据气象水文监测，28日8时到29日8时，全省有6个镇街录得超过250毫米的特大暴雨，有50个镇街录得100至250毫米的大暴雨，有162个镇街录得50至100毫米的暴雨，各市雨量最大的镇街有：阳江阳东区
+中新网成都5月15日电 (记者 岳依桐)四川省与澳大利亚维多利亚州建立友好省州关系十周年庆祝活动15日在成都举行。 2016年，四川与维多利亚州正式缔结友好省州关系，这是四川与澳大利亚第一对正式友好省州关系，也是中澳间第100对友城关系。十年来，两省州在经济、人文等领域的交流合作取得丰硕成果。 当日，澳大利亚维多利亚州州督加德纳专程出席庆祝活动。2024年加德纳履新后首次访问中
 
 ## 正文
 
-中新网广州4月29日电 (记者 王坚)广东多地28日白天到29日早晨持续强降雨，全省有56个镇街遭遇暴雨、大暴雨，其中阳江阳东区和江门恩平出现了局地特大暴雨。
+中新网成都5月15日电 (记者 岳依桐)四川省与澳大利亚维多利亚州建立友好省州关系十周年庆祝活动15日在成都举行。
 
-广东省气象局介绍，据气象水文监测，28日8时到29日8时，全省有6个镇街录得超过250毫米的特大暴雨，有50个镇街录得100至250毫米的大暴雨，有162个镇街录得50至100毫米的暴雨，各市雨量最大的镇街有：阳江阳东区大八镇455毫米、珠海金湾区南水镇188.8毫米、韶关乳源瑶族自治县洛阳镇170.5毫米、茂名高州市南塘镇158.3毫米。
+2016年，四川与维多利亚州正式缔结友好省州关系，这是四川与澳大利亚第一对正式友好省州关系，也是中澳间第100对友城关系。
 
-此外，全省大部有轻雾，部分市县有雾，清远阳山录得最低能见度100米。
+十年来，两省州在经济、人文等领域的交流合作取得丰硕成果。
 
-广东省气象局预计，29日夜间开始，全省降水明显减弱。
+当日，澳大利亚维多利亚州州督加德纳专程出席庆祝活动。
 
-29日夜间到30日，南部沿海市县多云间阴天有分散阵雨，其余大部市县多云。
+2024年加德纳履新后首次访问中国，第一站便来到四川。
 
-气象专家表示，近期，广东强降水趋于明显，需注意防范局地强降水可能诱发的地质灾害、城乡积涝、农田渍涝等风险。
+谈及再访四川的感受时，加德纳直言，此行自己最大的收获是真切感受到了四川省当下的发展实力，以及双方未来的合作空间。
 
-同时，需注意防范强雷电、雷雨大风等强对流天气引发的灾害风险。
+“我们现有的合作基础十分扎实，未来的合作机遇非常广阔，甚至可以说潜力巨大。
 
-此外，雨时能见度差，道路湿滑，注意交通出行安全。
+” 在接受媒体采访时，加德纳强调了两地人文领域合作交流的重要性。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 04:19 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 04:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 04:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 04:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 04:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 04:10 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 04:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 04:18 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 04:27 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 04:21 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 04:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 04:06 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 04:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 04:30 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 04:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 04:27 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 04:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 04:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 04:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 04:14 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 04:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 04:35 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 04:15 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 04:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 04:26 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/48095386116.shtml)
-- 2026-06-30 04:13 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/2062653252.shtml)
-- 2026-06-30 04:20 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/63921225404.shtml)
-- 2026-06-30 04:10 - [毒液2](https://www.blog.minike.top/Article/details/765294.shtml)
-- 2026-06-30 04:21 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9459417.shtml)
-- 2026-06-30 04:13 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/347280260299.shtml)
-- 2026-06-30 04:04 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/879369.shtml)
-- 2026-06-30 04:04 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/835312034.shtml)
-- 2026-06-30 04:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/438314514.shtml)
-- 2026-06-30 04:13 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/816243.shtml)
-- 2026-06-30 04:05 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/35326564.shtml)
-- 2026-06-30 04:10 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/778362869.shtml)
-- 2026-06-30 04:03 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/34983675.shtml)
-- 2026-06-30 04:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/74272.shtml)
-- 2026-06-30 04:12 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/61794634.shtml)
+- 2026-06-30 04:14 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/50023238735.shtml)
+- 2026-06-30 04:30 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/216366334.shtml)
+- 2026-06-30 04:31 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/248046808.shtml)
+- 2026-06-30 04:14 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/31619.shtml)
+- 2026-06-30 04:08 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/4905721.shtml)
+- 2026-06-30 04:28 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/673544154.shtml)
+- 2026-06-30 04:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/962934075.shtml)
+- 2026-06-30 04:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/7249202.shtml)
+- 2026-06-30 04:22 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/9616014.shtml)
+- 2026-06-30 04:24 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/8277685.shtml)
+- 2026-06-30 04:35 - [日本领先巴西](http://www.share.minike.top/Article/details/4914721627.shtml)
+- 2026-06-30 04:16 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/07820.shtml)
+- 2026-06-30 04:15 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/60243.shtml)
+- 2026-06-30 04:29 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/048290.shtml)
+- 2026-06-30 04:07 - [扬名立万](http://www.share.kurohicncr.top/Article/details/1631940907.shtml)

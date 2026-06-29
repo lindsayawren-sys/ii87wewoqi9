@@ -1,56 +1,45 @@
-# 中国零关税“点燃”尼日利亚农产品加工梦
+# 中国宏桥于5月14日斥资3.1亿港元回购925.15万股
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-在非洲第一人口大国尼日利亚，来自中国的零关税政策，犹如一阵温润的季风，吹进了当地农产品从业者的心田。近年来，尼日利亚特色农产品对华出口稳步增长。从业者们热切期盼，零关税不仅能带来更广阔的出口机遇，更能如同一把钥匙，开启吸引中国投资、实现本地农产品加工增值的全新未来。 在尼日利亚北部古城卡诺，商人亨利·伊克布纳拥有着一座集清洗与包装于一体的加工厂。他的“中国故事”，始于2022年
+中国宏桥（01378）发布公告，于2026年5月14日，该公司斥资3.1亿港元回购925.15万股。责任编辑：卢昱君
 
 ## 正文
 
-在非洲第一人口大国尼日利亚，来自中国的零关税政策，犹如一阵温润的季风，吹进了当地农产品从业者的心田。
+中国宏桥（01378）发布公告，于2026年5月14日，该公司斥资3.1亿港元回购925.15万股。
 
-近年来，尼日利亚特色农产品对华出口稳步增长。
-
-从业者们热切期盼，零关税不仅能带来更广阔的出口机遇，更能如同一把钥匙，开启吸引中国投资、实现本地农产品加工增值的全新未来。
-
-在尼日利亚北部古城卡诺，商人亨利·伊克布纳拥有着一座集清洗与包装于一体的加工厂。
-
-他的“中国故事”，始于2022年。
-
-那一年，通过当地的中国商人，第一批决明子跨越山海，抵达中国，也为他打开了一扇通往东方的大门。
-
-尼日利亚农产品加工贸易商 亨利·伊克布纳：我们在卡诺遇到了中国商人，他们想买一些农产品。
-
-由于我们有仓库和交易平台，他们对此很感兴趣，这也激发了我们对中国市场的兴趣。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 04:15 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 04:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 04:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 04:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 04:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 04:24 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 04:17 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 04:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:24 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 04:19 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 04:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 04:22 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:18 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 04:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 04:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 04:15 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 04:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 04:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/4671095.shtml)
-- 2026-06-30 04:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/53055731.shtml)
-- 2026-06-30 04:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/48259790.shtml)
-- 2026-06-30 04:13 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/733865.shtml)
-- 2026-06-30 04:27 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/474853.shtml)
-- 2026-06-30 04:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/4068080.shtml)
-- 2026-06-30 04:26 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/29693177040.shtml)
-- 2026-06-30 04:28 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/234553670.shtml)
-- 2026-06-30 04:29 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/157058703.shtml)
-- 2026-06-30 04:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/14694.shtml)
-- 2026-06-30 04:01 - [小娘惹](http://www.blog.minike.top/Article/details/785629975753.shtml)
-- 2026-06-30 04:18 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/42345229783.shtml)
-- 2026-06-30 04:15 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/591304004511.shtml)
-- 2026-06-30 04:09 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/526114208.shtml)
-- 2026-06-30 04:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/40979.shtml)
+- 2026-06-30 04:33 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/195740793.shtml)
+- 2026-06-30 04:22 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/88422334.shtml)
+- 2026-06-30 04:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/55015953191.shtml)
+- 2026-06-30 04:25 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/18894.shtml)
+- 2026-06-30 04:34 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/13921299.shtml)
+- 2026-06-30 04:10 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/9793798279.shtml)
+- 2026-06-30 04:20 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/67346801386.shtml)
+- 2026-06-30 04:21 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/447109213.shtml)
+- 2026-06-30 04:06 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/9069165388.shtml)
+- 2026-06-30 04:24 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/73542976902.shtml)
+- 2026-06-30 04:25 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/0186951061.shtml)
+- 2026-06-30 04:09 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/7790958682.shtml)
+- 2026-06-30 04:32 - [逃狱兄弟](http://www.share.minike.top/Article/details/876223.shtml)
+- 2026-06-30 04:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/203381175042.shtml)
+- 2026-06-30 04:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/30230.shtml)

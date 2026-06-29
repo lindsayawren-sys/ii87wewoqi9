@@ -1,59 +1,56 @@
-# “五一”假期临近 各地出台惠民举措带动文旅消费
+# 2026公众科学日：中国科学院138家机构单位全国联动向社会开放
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。 临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。 从5月起，四川将陆续发放3000万元省级文旅消费券，
+中新网北京5月16日电 (记者 孙自法)2026年已是第二十二届的中国科学院公众科学日5月16日如约而至，聚焦“赴科学之约，赋未来之翼”主题，中国科学院位于全国的138家院属研究机构及相关单位联动，向社会公众开放科研场所超过300处，举办约350场科普活动，6000余名科研工作者和志愿者邀约大众共同参与。 本届公众科学日立足中国科学院国家战略科技力量主力军使命定位，集中展示中国
 
 ## 正文
 
-央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。
+中新网北京5月16日电 (记者 孙自法)2026年已是第二十二届的中国科学院公众科学日5月16日如约而至，聚焦“赴科学之约，赋未来之翼”主题，中国科学院位于全国的138家院属研究机构及相关单位联动，向社会公众开放科研场所超过300处，举办约350场科普活动，6000余名科研工作者和志愿者邀约大众共同参与。
 
-临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。
+本届公众科学日立足中国科学院国家战略科技力量主力军使命定位，集中展示中国科学院在加快抢占科技制高点、有力支撑科技强国建设中的新进展、新成果、新作为，推动前沿科技从实验室走向公众视野，让更多青少年在亲近科学、体验科学中种下科学梦想的种子，让更多社会公众拥抱科学、理解科学，推动崇尚科学、追求创新在全社会蔚然成风。
 
-“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。
+在院士领衔发挥科普示范带动作用方面，数十位两院院士围绕多个学科领域开展科普报告和互动交流，讲解最新最前沿的科研成果。
 
-从5月起，四川将陆续发放3000万元省级文旅消费券，场景涉及酒店、民宿、研学基地等。
+开放是中国科学院公众科学日的关键词，一批大科学装置、实验室和野外台站集中向公众开放。
 
-“五一”期间，全省策划推出1800多场活动，全面释放文旅消费新动能。
+大科学装置方面，高能物理研究所在北京怀柔和东莞松山湖分别开放同步辐射光源和中国散裂中子源，生物物理研究所首次开放多模态跨尺度生物医学成像设施；国家同步辐射实验室与深空探测、半导体芯片物理与技术、脑认知与类脑智能等全国重点实验室开门迎客；精密测量科学与技术创新研究院、西北高原生物研究所等组织实地体验武汉大地测量、青海海北高寒草地生态系统等国家级野外台站。
 
-湖北整合旅游资源，推出包括度假休闲、乡村研学等在内的十大文旅融合主题产品。
+本届公众科学日还专门为科学教师、香港青少年两大群体量身定制探访活动：60位科学教师将参观中国科学院科技成就展，并深入科研院所参与特色实操研学；50位香港青少年代表走进深圳先进技术研究院，参观高端科研平台，参与科普互动体验，与内地科学家面对面交流。
 
-同时，全省联动实施“一票通享”政策，游客凭高铁票、演唱会门票和赛事门票，可以享受景区和酒店住宿的优惠折扣。
+围绕“新质生产力”主题，中国科学院各地院所结合学科特色推出丰富多彩的科普活动。
 
-“五一”假期，福建福州的上百场文旅活动，突出“诗画闽江”“魅力海滨”主题，传统文化结合潮流玩法，通过游戏、互动和沉浸式体验，让游客感受古韵新风。
+新材料领域，过程工程研究所搭建锂资源高值化利用全景科普场景，从盐湖提取、矿石冶炼到高端材料制备与绿色回收，展示“白色石油”全生命周期；国家纳米科学中心开放微纳加工超净室，带领公众近距离了解前沿材料和先进制造技术；新疆理化技术研究所结合区域特色，围绕特色资源高值化利用、新材料研发等内容开展科普活动。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 04:25 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 04:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 04:12 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 04:13 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:11 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 04:08 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 04:04 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 04:14 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 04:27 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 04:28 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 04:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 04:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 04:25 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 04:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 04:06 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 04:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/8165020133.shtml)
-- 2026-06-30 04:01 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/703304040526.shtml)
-- 2026-06-30 04:16 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/50289.shtml)
-- 2026-06-30 04:26 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/645511.shtml)
-- 2026-06-30 04:11 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/562365.shtml)
-- 2026-06-30 04:30 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/25441149.shtml)
-- 2026-06-30 04:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/2474249.shtml)
-- 2026-06-30 04:11 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/826549762062.shtml)
-- 2026-06-30 04:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/81812690.shtml)
-- 2026-06-30 04:29 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/8888620.shtml)
-- 2026-06-30 04:04 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/533807.shtml)
-- 2026-06-30 04:19 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/46212291545.shtml)
-- 2026-06-30 04:21 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5516093960.shtml)
-- 2026-06-30 04:12 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/0632398.shtml)
-- 2026-06-30 04:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/3842543343.shtml)
+- 2026-06-30 04:12 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/99493.shtml)
+- 2026-06-30 04:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/6297888240.shtml)
+- 2026-06-30 04:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/002644724328.shtml)
+- 2026-06-30 04:15 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/20734125.shtml)
+- 2026-06-30 04:20 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/099708.shtml)
+- 2026-06-30 04:23 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/786577440.shtml)
+- 2026-06-30 04:14 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/69506877.shtml)
+- 2026-06-30 04:24 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/7506746049.shtml)
+- 2026-06-30 04:10 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/67187549.shtml)
+- 2026-06-30 04:19 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/576945343.shtml)
+- 2026-06-30 04:18 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/4335934.shtml)
+- 2026-06-30 04:17 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/79258045.shtml)
+- 2026-06-30 04:34 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/40250683.shtml)
+- 2026-06-30 04:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/29938130.shtml)
+- 2026-06-30 04:27 - [一见倾心](https://www.share.kurohicncr.top/Article/details/4204828.shtml)

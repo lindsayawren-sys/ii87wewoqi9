@@ -1,56 +1,57 @@
-# 第九届数字中国建设峰会“中国—东盟数字化转型合作分论坛”成功举办
+# 汽车与人工智能提振美国制造业产量，战争引发供应短缺隐忧浮现
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国家数据局 4月28日下午，第九届数字中国建设峰会“中国—东盟数字化转型合作分论坛”在福州成功举办。本场分论坛由国家数据局主办、国家发展改革委国际合作中心承办，旨在加强与东盟国家数字经济合作，搭建交流合作平台。福建省人民政府副省长赵增连、国家数据局数据资源司副司长（国际数据治理合作司筹备组牵头人）宋宪
+受汽车产业回暖及人工智能投资热潮带动科技产品需求上升影响，美国 4 月工厂产出创下 14 个月以来最大增幅；但美伊战争导致的供应中断，为制造业前景蒙上阴影。 纽约联邦储备银行周五发布的调查预警了上述风险：纽约州供应商 5 月交付状况恶化。美以联合对伊朗的冲突已扰乱霍尔木兹海峡航运，推高能源价格、冲击全球供应链，并造成化肥、铝、消费品等多类物资短缺。 4 月生产者物价指数（PPI
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+受汽车产业回暖及人工智能投资热潮带动科技产品需求上升影响，美国 4 月工厂产出创下 14 个月以来最大增幅；但美伊战争导致的供应中断，为制造业前景蒙上阴影。
 
-来源：国家数据局 4月28日下午，第九届数字中国建设峰会“中国—东盟数字化转型合作分论坛”在福州成功举办。
+纽约联邦储备银行周五发布的调查预警了上述风险：纽约州供应商 5 月交付状况恶化。
 
-本场分论坛由国家数据局主办、国家发展改革委国际合作中心承办，旨在加强与东盟国家数字经济合作，搭建交流合作平台。
+美以联合对伊朗的冲突已扰乱霍尔木兹海峡航运，推高能源价格、冲击全球供应链，并造成化肥、铝、消费品等多类物资短缺。
 
-福建省人民政府副省长赵增连、国家数据局数据资源司副司长（国际数据治理合作司筹备组牵头人）宋宪荣致开幕辞，马来西亚驻华大使馆公使诺法琳娜·穆罕德·阿兹米，印度尼西亚共和国驻华大使馆公使裴连杰，越南社会主义共和国驻华大使馆经济参赞黎忠坚参会发言，国家发展改革委国际合作中心副主任崔琳主持有关环节。
+4 月生产者物价指数（PPI）创下四年最快涨幅。
 
-来自中国和东盟国家政企学各界代表、国际组织代表共100人参会。
+周五，特朗普总统与伊朗外长的表态削弱了外界对达成海峡航运袭击与扣押问题协议的预期，油价应声上涨。
 
-分论坛以“中国—东盟数联合作 共拓数字发展新未来”为主题，聚焦中国与东盟国家在数字经济领域的深度合作，通过主题交流和圆桌对话等多元形式，围绕东盟数字化转型机遇、数据领域国际合作实践分享、数字基础设施绿色化转型、数据要素开发与应用等议题展开深入研讨。
+摩根士丹利首席经济学家迈克尔・加彭表示：“整体而言，需求走强与产出持续扩张表明制造业具备一定韧性。
 
-主题交流环节，与会代表重点讨论了东盟在数字化转型进程中面临的机遇，表示希望在数字化浪潮中把握契机，拓展多边合作领域，共同推进数字经济合作行稳致远。
+但供应与价格的不确定性，令短期前景风险偏向下行。
 
-来自福建、河南、海南和云南省等地方数据局负责人先后介绍了数据领域国际合作实践情况，分享了各自在数字发展方面的成果。
+” 美联储数据显示，美国 4 月制造业产出环比增长0.6%，为 2025 年 2 月以来最大升幅；3 月数据由此前的下降0.1%上修为增长0.1%。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 04:27 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 04:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 04:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 04:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 04:16 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 04:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 04:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 04:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 04:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 04:11 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 04:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 04:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 04:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 04:21 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 04:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 04:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 04:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/732814.shtml)
-- 2026-06-30 04:15 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/219028601.shtml)
-- 2026-06-30 04:16 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/0976594040.shtml)
-- 2026-06-30 04:28 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/193131689.shtml)
-- 2026-06-30 04:20 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/794377672.shtml)
-- 2026-06-30 04:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/445930.shtml)
-- 2026-06-30 04:09 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/6971895949.shtml)
-- 2026-06-30 04:20 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/66176800.shtml)
-- 2026-06-30 04:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/8290398.shtml)
-- 2026-06-30 04:03 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/1671363677.shtml)
-- 2026-06-30 04:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/49591845.shtml)
-- 2026-06-30 04:23 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/921807.shtml)
-- 2026-06-30 04:22 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/6286407056.shtml)
-- 2026-06-30 04:23 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/34209.shtml)
-- 2026-06-30 04:24 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/6555630.shtml)
+- 2026-06-30 04:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/53610602613.shtml)
+- 2026-06-30 04:30 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/15189085.shtml)
+- 2026-06-30 04:28 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/055673674.shtml)
+- 2026-06-30 04:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/6974740.shtml)
+- 2026-06-30 04:30 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/775968.shtml)
+- 2026-06-30 04:21 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/38791117887.shtml)
+- 2026-06-30 04:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/587251255.shtml)
+- 2026-06-30 04:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/75031239253.shtml)
+- 2026-06-30 04:19 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/6485217.shtml)
+- 2026-06-30 04:26 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/157957279.shtml)
+- 2026-06-30 04:21 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/5665008809.shtml)
+- 2026-06-30 04:06 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/096841729.shtml)
+- 2026-06-30 04:07 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/460308415684.shtml)
+- 2026-06-30 04:33 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/60797659637.shtml)
+- 2026-06-30 04:19 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/9438311188.shtml)

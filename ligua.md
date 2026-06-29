@@ -1,60 +1,57 @@
-# 经济大省挑大梁 以“一域”服务全局
+# 习近平同美国总统特朗普在中南海小范围会晤
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-经济大省挑大梁 以“一域”服务全局(高质量发展故事汇·第18期) 今年全国两会期间，习近平总书记在参加江苏代表团审议时强调，江苏等经济大省处在改革开放前沿，要在研究新情况、解决新问题上下功夫、出经验。 习近平总书记多次对经济大省挑大梁作出重要指示批示，为经济大省挑大梁指明了方向、提供了根本遵循。“十五五”时期，面对更加复杂的环境、更多深层次矛盾，经济大省要主动回答好时代之问、历
+新华社北京5月15日电(记者杨依军、孙奕)5月15日上午，国家主席习近平在中南海同美国总统特朗普举行小范围会晤。 春末夏初的中南海，绿荫渐浓、草木葱茏。特朗普抵达时，习近平热情迎接。两国元首边走边谈，不时驻足观赏园中苍劲挺拔的古树和各色月季。 习近平指出，特朗普总统此访是一次历史性、标志性的访问，我们共同确定了中美建设性战略稳定关系的新定位，就保持经贸关系稳定、拓展各领域务实合
 
 ## 正文
 
-经济大省挑大梁 以“一域”服务全局(高质量发展故事汇·第18期) 今年全国两会期间，习近平总书记在参加江苏代表团审议时强调，江苏等经济大省处在改革开放前沿，要在研究新情况、解决新问题上下功夫、出经验。
+新华社北京5月15日电(记者杨依军、孙奕)5月15日上午，国家主席习近平在中南海同美国总统特朗普举行小范围会晤。
 
-习近平总书记多次对经济大省挑大梁作出重要指示批示，为经济大省挑大梁指明了方向、提供了根本遵循。
+春末夏初的中南海，绿荫渐浓、草木葱茏。
 
-“十五五”时期，面对更加复杂的环境、更多深层次矛盾，经济大省要主动回答好时代之问、历史之问，为推进中国式现代化提供坚实支撑。
+特朗普抵达时，习近平热情迎接。
 
-经济大省挑大梁是新形势下运用辩证法开展经济工作的生动实践和战略选择 我国幅员辽阔、人口众多，地区间资源禀赋、发展基础差异巨大，这一国情决定了各地区经济发展不可能一刀切、齐步走，需要运用辩证法，因时因势处理好重点与整体的关系。
+两国元首边走边谈，不时驻足观赏园中苍劲挺拔的古树和各色月季。
 
-当前，外部环境复杂严峻、国际形势演变深刻影响国内发展，我国进入基本实现社会主义现代化夯实基础、全面发力的关键时期，经济大省成为事关国家发展全局的“关键一域”。
+习近平指出，特朗普总统此访是一次历史性、标志性的访问，我们共同确定了中美建设性战略稳定关系的新定位，就保持经贸关系稳定、拓展各领域务实合作、妥善解决彼此关切达成重要共识，同意就国际和地区问题加强沟通和协调。
 
-经济大省地理区位优、规模效应强、创新活力足、财税贡献大、内需市场活，具有庞大的市场容量和强大的生产能力，是国内大循环的核心支撑；同时也是提升我国在全球价值链和全球治理中的话语权，实现高质量发展和高水平安全良性互动的重要基石。
+访问有利于促进相互理解、加深彼此信任、增进两国人民福祉。
 
-在新的历史方位下，经济大省需要走在前、作示范、挑大梁，真正成为我国经济社会稳健运行的压舱石、稳定器和动力源。
+这也再次表明，中美在相互尊重基础上实现和平共处、合作共赢，走出一条正确相处之道，是两国人民所愿和世界各国人民所盼。
 
-经济大省走得好、顶得上，我国应对各种不确定性和困难问题的信心和底气就足。
+特朗普总统希望让美国再次伟大，我致力于带领中国人民实现中华民族伟大复兴。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 04:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 04:04 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 04:03 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 04:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 04:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 04:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 04:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 04:00 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:06 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 04:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 04:23 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 04:24 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 04:32 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 04:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 04:16 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 04:27 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 04:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 04:09 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 04:24 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 04:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 04:29 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 04:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/16082550.shtml)
-- 2026-06-30 04:12 - [美人鱼](http://www.blog.minike.top/Article/details/69465375611.shtml)
-- 2026-06-30 04:24 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/79347.shtml)
-- 2026-06-30 04:15 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/35742.shtml)
-- 2026-06-30 04:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/356981139811.shtml)
-- 2026-06-30 04:29 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/922310.shtml)
-- 2026-06-30 04:07 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/411704.shtml)
-- 2026-06-30 04:19 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/962926563892.shtml)
-- 2026-06-30 04:06 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/20422320.shtml)
-- 2026-06-30 04:14 - [金刚川](http://www.share.minike.top/Article/details/85571405960.shtml)
-- 2026-06-30 04:12 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/40613458.shtml)
-- 2026-06-30 04:05 - [请回答王牌2019](https://www.blog.minike.top/Article/details/961963.shtml)
-- 2026-06-30 04:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/31624.shtml)
-- 2026-06-30 04:04 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/0546521365.shtml)
-- 2026-06-30 04:13 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/457803576.shtml)
+- 2026-06-30 04:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/9179660131.shtml)
+- 2026-06-30 04:16 - [金刚川](https://www.share.kurohicncr.top/Article/details/896050623117.shtml)
+- 2026-06-30 04:26 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/85289.shtml)
+- 2026-06-30 04:23 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/79264954.shtml)
+- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/3920944261.shtml)
+- 2026-06-30 04:12 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/06935043970.shtml)
+- 2026-06-30 04:35 - [青春环游记第三季](http://www.blog.minike.top/Article/details/1495279078.shtml)
+- 2026-06-30 04:09 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/84874.shtml)
+- 2026-06-30 04:09 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/387274.shtml)
+- 2026-06-30 04:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/32740044.shtml)
+- 2026-06-30 04:27 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/66038.shtml)
+- 2026-06-30 04:28 - [一生一世](https://www.blog.minike.top/Article/details/871284808551.shtml)
+- 2026-06-30 04:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/6351044755.shtml)
+- 2026-06-30 04:15 - [明星大侦探第四季](https://www.share.minike.top/Article/details/8669092838.shtml)
+- 2026-06-30 04:13 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/562377.shtml)

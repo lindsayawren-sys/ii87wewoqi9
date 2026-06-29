@@ -1,58 +1,57 @@
-# Atlas Merchant Capital CEO警示：通胀与美债风险正在积聚
+# 英媒：若伯纳姆赢得补选 英首相斯塔默或将考虑辞职
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-Atlas Merchant Capital创始合伙人兼首席执行官Bob Diamond发出警告，利率短期内不太可能下调，而通胀和债务风险正在持续攀升。 Diamond在接受采访时指出，当前宏观环境面临多重压力叠加。他指出，不断扩大的财政赤字具有通胀属性，因为它增加了体系内的货币供给，这可能是形成恶性循环的开端：更高赤字推升债务融资需求，融资加剧通胀，而通胀反过来侵蚀债券价值并
+中新网5月17日电 据《每日电讯报》当地时间15日报道，多位英国内阁大臣认为，如果热门竞争人选曼彻斯特市长安迪·伯纳姆赢得梅克菲尔德选区补选成为国会议员，斯塔默可能会考虑辞去英国首相职务。 报道称，近日与斯塔默讨论过领导权僵局的内阁成员表示，尽管斯塔默公开表示“不会考虑辞职”，但他私下里的态度远没有那么“强硬”，目前正在考虑“所有选项”。 斯塔默表示，他希望避免公开竞选党首所带
 
 ## 正文
 
-Atlas Merchant Capital创始合伙人兼首席执行官Bob Diamond发出警告，利率短期内不太可能下调，而通胀和债务风险正在持续攀升。
+中新网5月17日电 据《每日电讯报》当地时间15日报道，多位英国内阁大臣认为，如果热门竞争人选曼彻斯特市长安迪·伯纳姆赢得梅克菲尔德选区补选成为国会议员，斯塔默可能会考虑辞去英国首相职务。
 
-Diamond在接受采访时指出，当前宏观环境面临多重压力叠加。
+报道称，近日与斯塔默讨论过领导权僵局的内阁成员表示，尽管斯塔默公开表示“不会考虑辞职”，但他私下里的态度远没有那么“强硬”，目前正在考虑“所有选项”。
 
-他指出，不断扩大的财政赤字具有通胀属性，因为它增加了体系内的货币供给，这可能是形成恶性循环的开端：更高赤字推升债务融资需求，融资加剧通胀，而通胀反过来侵蚀债券价值并推高融资成本。
+斯塔默表示，他希望避免公开竞选党首所带来的“混乱”，这引发了人们的猜测：如果伯纳姆是唯一挑战他的候选人，他可能会辞职。
 
-Diamond表示：“我不知道世界以这种方式运行赤字怎么会不带来通胀，结果或许已经注定，只是尚未显现。
+报道称，梅克菲尔德选区补选预计将于6月18日举行，有与斯塔默关系密切的人物敦促首相在此之前不要宣布辞职，避免引发混乱。
 
-” Diamond还对快速增长的私募信贷市场提出担忧。
+近期，斯塔默因工党在地方选举中惨败深陷执政危机，工党已有数十名议员呼吁其辞职。
 
-他指出，该市场规模已达约1.7至1.8万亿美元，内部存在超过1000家参与机构，承销标准参差不齐。
-
-他强调：“并非所有机构都是出色的，一旦信用周期逆转，冲击将超出许多人的预期。
-
-” 在更广泛的宏观层面，Diamond点名伊朗战争、全球再军事化趋势、基础设施投资需求及各主要经济体财政赤字，均是潜在的通胀压力来源。
+斯塔默多次表示不会辞职，并坚称如有工党下院议员发起党首选举，他将“迎战”。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 04:19 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 04:15 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 04:10 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 04:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 04:03 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 04:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 04:01 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 04:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 04:04 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 04:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 04:03 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 04:07 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 04:32 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:30 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 04:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 04:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 04:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 04:10 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:09 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 04:22 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 04:12 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:14 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 04:26 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 04:22 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 04:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/65779127.shtml)
-- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/23536603719.shtml)
-- 2026-06-30 04:26 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/93006911892.shtml)
-- 2026-06-30 04:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/595700.shtml)
-- 2026-06-30 04:27 - [沙丘](http://www.share.kurohicncr.top/Article/details/058950.shtml)
-- 2026-06-30 04:25 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/195467772.shtml)
-- 2026-06-30 04:02 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/010152635883.shtml)
-- 2026-06-30 04:01 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/53405161316.shtml)
-- 2026-06-30 04:12 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/916997.shtml)
-- 2026-06-30 04:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/70777.shtml)
-- 2026-06-30 04:19 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/486714581.shtml)
-- 2026-06-30 04:24 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/7555107607.shtml)
-- 2026-06-30 04:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/40474.shtml)
-- 2026-06-30 04:08 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/08978.shtml)
-- 2026-06-30 04:25 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/924431281637.shtml)
+- 2026-06-30 04:33 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/393898022.shtml)
+- 2026-06-30 04:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/831604820303.shtml)
+- 2026-06-30 04:12 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/32605.shtml)
+- 2026-06-30 04:30 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/442231912392.shtml)
+- 2026-06-30 04:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/34936956538.shtml)
+- 2026-06-30 04:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/48935730649.shtml)
+- 2026-06-30 04:28 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/8711293.shtml)
+- 2026-06-30 04:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/192384066004.shtml)
+- 2026-06-30 04:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/91733616515.shtml)
+- 2026-06-30 04:23 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/450222.shtml)
+- 2026-06-30 04:24 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/6688851.shtml)
+- 2026-06-30 04:13 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/97181.shtml)
+- 2026-06-30 04:12 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/785978871.shtml)
+- 2026-06-30 04:18 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/254609.shtml)
+- 2026-06-30 04:24 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/215246836.shtml)

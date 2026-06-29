@@ -1,61 +1,57 @@
-# 浙江：使“浙里创新、万物生长”理念深入人心
+# 涉案12亿余元 成都公安通报一起“暴力虚开”增值税发票案
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月1日电(记者 王逸飞)“开局起步‘十五五’”浙江专场新闻发布会4月30日在杭州举行。会上，浙江省省长刘捷谈及营造良好的创新生态、打造一流的营商环境时表示，浙江要使“浙里创新、万物生长”的理念深入人心，形成既有参天大树、也有葱茏草木的“热带雨林”式发展格局。 当前，随着全国统一大市场建设深入推进和经济体制改革持续深化，营商环境建设的着眼点已经从“政府效能最优”转向“
+5月14日，在“5·15”全国公安机关打击和防范经济犯罪宣传日来临之际，成都市公安局通报了一起金融领域“暴力虚开”增值税发票案件，涉案金额高达12亿余元。 据了解，犯罪嫌疑人巫某某在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况下为其虚开增值税专用发票，帮助企业虚增业绩、提高贷款额度，并按票面金额5%至6%收取“开票费”。后为达
 
 ## 正文
 
-中新网杭州5月1日电(记者 王逸飞)“开局起步‘十五五’”浙江专场新闻发布会4月30日在杭州举行。
+5月14日，在“5·15”全国公安机关打击和防范经济犯罪宣传日来临之际，成都市公安局通报了一起金融领域“暴力虚开”增值税发票案件，涉案金额高达12亿余元。
 
-会上，浙江省省长刘捷谈及营造良好的创新生态、打造一流的营商环境时表示，浙江要使“浙里创新、万物生长”的理念深入人心，形成既有参天大树、也有葱茏草木的“热带雨林”式发展格局。
+据了解，犯罪嫌疑人巫某某在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况下为其虚开增值税专用发票，帮助企业虚增业绩、提高贷款额度，并按票面金额5%至6%收取“开票费”。
 
-当前，随着全国统一大市场建设深入推进和经济体制改革持续深化，营商环境建设的着眼点已经从“政府效能最优”转向“创新生态最优”。
+后为达到偷逃税款的目的，巫某某同时注册120余家空壳个体工商户，利用个体工商户部分免税政策，在没有真实业务的情况下向其实际控制的空壳公司虚开发票冲抵企业成本偷逃税款，导致国家税收损失巨大。
 
-此前，浙江明确提出让良好的创新生态成为最好的营商环境，加快建设以人才成长“最佳沃土”、企业服务“最好摇篮”、融合协同“最高质效”、政策服务“最为有感”为鲜明特征的一流创新生态。
+2025年2月，成都公安经侦部门对盘踞在该市的虚开犯罪团伙开展集中收网行动，捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元。
 
-“‘热带雨林’的生长离不开‘阳光、土壤、水分和空气’，我们构建一流创新生态的4个着力点也可以相互印证。
+目前，该案主要犯罪嫌疑人被判处有期徒刑5年。
 
-”刘捷对这些着力点进行了详细介绍。
+办案民警介绍，该案犯罪团伙区别于传统走逃式“暴力虚开”模式，在敏锐嗅到金融领域开票经济的“商机”后，借助地方税收优惠政策大量成立空壳企业，精心伪造虚假业务设计虚开模式，匹配目标企业实际需求。
 
-“阳光”指的是科学的顶层设计、明确的政策导向。
+为偷逃税款、违规获益，犯罪团伙滥用个体工商户核定征收政策，大量注册空壳个体户搭建层层虚开网络实现“零”税点开票。
 
-浙江围绕加快建设创新浙江、因地制宜发展新质生产力，谋深做实推动教育科技人才一体改革发展、科技创新和产业创新深度融合的具体举措；围绕激发经营主体活力，每年迭代实施“8+4”经济政策体系，落细落实浙江民营经济32条等政策举措；围绕增强企业获得感，创新实施政策“直达快享、免申即享”机制，努力变“企业找政策”为“政策找企业”，为创新主体提供清晰的目标引领和稳定的发展预期。
+据悉，该案的成功破获，为打击金融领域虚开发票犯罪提供了范例。
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 04:11 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 04:09 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 04:16 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 04:22 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 04:20 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 04:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 04:11 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 04:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 04:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 04:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 04:13 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 04:05 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 04:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 04:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 04:09 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 04:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 04:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 04:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 04:25 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 04:25 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 04:18 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 04:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 04:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/34956309609.shtml)
-- 2026-06-30 04:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/331766321.shtml)
-- 2026-06-30 04:24 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/414014044603.shtml)
-- 2026-06-30 04:13 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/7334583.shtml)
-- 2026-06-30 04:11 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/69593.shtml)
-- 2026-06-30 04:12 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/42955799.shtml)
-- 2026-06-30 04:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/84954143946.shtml)
-- 2026-06-30 04:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/68838096.shtml)
-- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/310257766.shtml)
-- 2026-06-30 04:19 - [月亮](http://www.blog.kurohicncr.top/Article/details/0277565801.shtml)
-- 2026-06-30 04:23 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/3687910882.shtml)
-- 2026-06-30 04:16 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/75665.shtml)
-- 2026-06-30 04:23 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/3638515.shtml)
-- 2026-06-30 04:08 - [毒液2](http://www.share.minike.top/Article/details/919947849323.shtml)
-- 2026-06-30 04:02 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/9087213.shtml)
+- 2026-06-30 04:10 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/444947766137.shtml)
+- 2026-06-30 04:14 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/3891272.shtml)
+- 2026-06-30 04:11 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/13769480337.shtml)
+- 2026-06-30 04:31 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/88961620.shtml)
+- 2026-06-30 04:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/592415632.shtml)
+- 2026-06-30 04:35 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/03738112540.shtml)
+- 2026-06-30 04:31 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/336326.shtml)
+- 2026-06-30 04:09 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/9090628.shtml)
+- 2026-06-30 04:18 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/469174049186.shtml)
+- 2026-06-30 04:20 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/54506863.shtml)
+- 2026-06-30 04:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/733390.shtml)
+- 2026-06-30 04:29 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/0167316673.shtml)
+- 2026-06-30 04:26 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/265766711297.shtml)
+- 2026-06-30 04:28 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/5425993.shtml)
+- 2026-06-30 04:32 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/5629422749.shtml)

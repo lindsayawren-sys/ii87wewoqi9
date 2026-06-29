@@ -1,53 +1,59 @@
-# 看图学习·追光的你丨与产业工人面对面 总书记礼赞工匠精神
+# 加密货币交易所Gemini因温克尔沃斯基金注资1亿美元股价飙升
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-产业工人是工人阶级的主体力量。党的十八大以来，习近平总书记心系产业工人队伍建设，明确提出要大力弘扬劳模精神、劳动精神、工匠精神，勉励我国工人阶级和广大劳动群众奋进新征程、建功新时代。 “真正在添砖加瓦建设中国特色社会主义现代化强国大厦的人，他们都是值得我们尊敬的”。今天，让我们一同重温总书记的亲切话语，感受总书记对一线劳动者的尊重与关爱，向每一位劳动者致敬！ 总监制：骆红秉 总
+由温克尔沃斯兄弟创立并领导的加密货币交易所Gemini Space Station周四晚间宣布，获得来自加密亿万富翁旗下风投基金——温克尔沃斯资本基金的1亿美元注资，随后在盘前交易中股价大涨22%。 Gemini首席执行官泰勒·温克尔沃斯在一份声明中表示：“我们认为市场严重低估了Gemini的价值，这笔投资将助力公司进入下一阶段的增长。Gemini已在产品和监管方面达成多项重要
 
 ## 正文
 
-产业工人是工人阶级的主体力量。
+由温克尔沃斯兄弟创立并领导的加密货币交易所Gemini Space Station周四晚间宣布，获得来自加密亿万富翁旗下风投基金——温克尔沃斯资本基金的1亿美元注资，随后在盘前交易中股价大涨22%。
 
-党的十八大以来，习近平总书记心系产业工人队伍建设，明确提出要大力弘扬劳模精神、劳动精神、工匠精神，勉励我国工人阶级和广大劳动群众奋进新征程、建功新时代。
+Gemini首席执行官泰勒·温克尔沃斯在一份声明中表示：“我们认为市场严重低估了Gemini的价值，这笔投资将助力公司进入下一阶段的增长。
 
-“真正在添砖加瓦建设中国特色社会主义现代化强国大厦的人，他们都是值得我们尊敬的”。
+Gemini已在产品和监管方面达成多项重要里程碑，使我们能够从一家加密公司转型为一家市场公司。
 
-今天，让我们一同重温总书记的亲切话语，感受总书记对一线劳动者的尊重与关爱，向每一位劳动者致敬！
+这笔投资将推动这一愿景，并为Gemini的长期成功奠定基础。
 
-总监制：骆红秉 总策划：张军于锋 监制：伍刚王薇 策划：赵净关灵子 设计：刘启阳
+” Gemini还公布，第一季度每股亏损为93美分，低于市场预期。
+
+据FactSet数据，分析师此前预期每股亏损1.03美元。
+
+此外，5030万美元的营收也高于预期的4790万美元。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 04:08 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 04:10 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:06 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 04:17 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 04:28 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 04:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:00 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 04:07 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 04:23 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 04:10 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 04:15 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 04:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 04:08 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 04:32 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 04:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 04:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 04:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 04:11 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 04:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:31 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 04:35 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 04:22 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 04:12 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 04:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 04:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/457863.shtml)
-- 2026-06-30 04:17 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/65027543.shtml)
-- 2026-06-30 04:16 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/3989911.shtml)
-- 2026-06-30 04:22 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/07543.shtml)
-- 2026-06-30 04:14 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/942426216212.shtml)
-- 2026-06-30 04:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/50872648215.shtml)
-- 2026-06-30 04:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/415085.shtml)
-- 2026-06-30 04:17 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/391612.shtml)
-- 2026-06-30 04:17 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/1475411.shtml)
-- 2026-06-30 04:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/20400316.shtml)
-- 2026-06-30 04:01 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/898456041.shtml)
-- 2026-06-30 04:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/91476382.shtml)
-- 2026-06-30 04:12 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/782774398623.shtml)
-- 2026-06-30 04:26 - [千香](https://www.share.minike.top/Article/details/08533437.shtml)
-- 2026-06-30 04:07 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/79652476995.shtml)
+- 2026-06-30 04:07 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/494051.shtml)
+- 2026-06-30 04:17 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/6721055969.shtml)
+- 2026-06-30 04:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/2279833153.shtml)
+- 2026-06-30 04:11 - [第一炉香](http://www.share.kurohicncr.top/Article/details/362388242.shtml)
+- 2026-06-30 04:28 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/83316.shtml)
+- 2026-06-30 04:06 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/09085390.shtml)
+- 2026-06-30 04:22 - [一生一世](https://www.share.minike.top/Article/details/6521522.shtml)
+- 2026-06-30 04:09 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/626006912692.shtml)
+- 2026-06-30 04:15 - [月亮](http://www.blog.minike.top/Article/details/82085788.shtml)
+- 2026-06-30 04:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/1093357.shtml)
+- 2026-06-30 04:07 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/76379.shtml)
+- 2026-06-30 04:15 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/14227716.shtml)
+- 2026-06-30 04:30 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/1674880.shtml)
+- 2026-06-30 04:25 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/049199551.shtml)
+- 2026-06-30 04:19 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/476909788081.shtml)

@@ -1,56 +1,47 @@
-# 光大期货：4月30日有色金属日报
+# 开盘|国内期货主力合约跌多涨少 钯跌超7%
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡走弱，国内现货精炼铜进口小幅盈利。宏观方面，地缘政治方面，美国总统特朗普接受采访时表示，他将继续对伊朗实施海上封锁，直到伊朗方面同意达成一项能够打消美国对伊朗核计划担忧的协议。昨晚美联储议息会议继续按兵不动，但联储内部分歧再加大。宏观层面美伊冲突走向仍是最大变数，谈判持续僵局，为节
+2026年5月15日，早盘开盘，国内期货主力合约跌多涨少。钯跌超7%，沪银跌超5%，铂跌超4%，碳酸锂、20号胶、低硫燃料油（LU）跌近3%，沪锡、橡胶、豆二跌超2%，合成橡胶、豆粕、菜粕、棉花、聚氯乙烯（PVC）跌超1%；涨幅方面，PX0>对二甲苯（PX）、苯乙烯（EB）涨超1%。责任编辑：赵思远
 
 ## 正文
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡走弱，国内现货精炼铜进口小幅盈利。
+2026年5月15日，早盘开盘，国内期货主力合约跌多涨少。
 
-宏观方面，地缘政治方面，美国总统特朗普接受采访时表示，他将继续对伊朗实施海上封锁，直到伊朗方面同意达成一项能够打消美国对伊朗核计划担忧的协议。
+钯跌超7%，沪银跌超5%，铂跌超4%，碳酸锂、20号胶、低硫燃料油（LU）跌近3%，沪锡、橡胶、豆二跌超2%，合成橡胶、豆粕、菜粕、棉花、聚氯乙烯（PVC）跌超1%；涨幅方面，PX0>对二甲苯（PX）、苯乙烯（EB）涨超1%。
 
-昨晚美联储议息会议继续按兵不动，但联储内部分歧再加大。
-
-宏观层面美伊冲突走向仍是最大变数，谈判持续僵局，为节日期间增添不确定性，市场谨慎待之；基本面方面，国内铜矿TC历史极端低位报价以及海外潜在的硫酸短缺危机对铜供应端形成扰动，成为价格强支撑因素。
-
-本交易日为五一小长假节前最后一个交易日，宏观不确定性仍然是首要考虑的因素，轻仓过节。
-
-镍&不锈钢： （朱希，从业资格号：F03109968；交易咨询资格号：Z0021609） 隔夜LME镍跌0.95%报19245美元/吨，沪镍跌1.23%报148720元/吨。
-
-库存方面，LME库存增加300吨至277818吨，SHFE 仓单增加1940吨至69491吨。
-
-升贴水来看，LME0-3月升贴水维持负数；进口镍升贴水维持-700元/吨。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 04:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 04:28 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 04:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 04:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 04:27 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 04:24 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 04:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 04:21 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 04:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:15 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 04:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 04:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 04:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 04:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 04:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 04:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 04:33 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [沙丘](http://www.share.minike.top/Article/details/0318087800.shtml)
-- 2026-06-30 04:27 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/1146115.shtml)
-- 2026-06-30 04:26 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/340824727720.shtml)
-- 2026-06-30 04:18 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/9288246827.shtml)
-- 2026-06-30 04:05 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/28112264.shtml)
-- 2026-06-30 04:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/908392120.shtml)
-- 2026-06-30 04:24 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/93513160.shtml)
-- 2026-06-30 04:07 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/2602483230.shtml)
-- 2026-06-30 04:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/287474597.shtml)
-- 2026-06-30 04:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/8901958.shtml)
-- 2026-06-30 04:18 - [一见倾心](http://www.share.minike.top/Article/details/0989311.shtml)
-- 2026-06-30 04:12 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/956972.shtml)
-- 2026-06-30 04:14 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/24468.shtml)
-- 2026-06-30 04:26 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/27001868581.shtml)
-- 2026-06-30 04:06 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/982195688223.shtml)
+- 2026-06-30 04:19 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/70441334381.shtml)
+- 2026-06-30 04:35 - [月亮](http://www.share.kurohicncr.top/Article/details/8710687224.shtml)
+- 2026-06-30 04:17 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/598489092.shtml)
+- 2026-06-30 04:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/0414001170.shtml)
+- 2026-06-30 04:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/2298285629.shtml)
+- 2026-06-30 04:26 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/33749377006.shtml)
+- 2026-06-30 04:24 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/24039.shtml)
+- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/22399.shtml)
+- 2026-06-30 04:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/806560.shtml)
+- 2026-06-30 04:23 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/053493.shtml)
+- 2026-06-30 04:15 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/396338098506.shtml)
+- 2026-06-30 04:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/90051366114.shtml)
+- 2026-06-30 04:18 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/54154514.shtml)
+- 2026-06-30 04:33 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/280219040.shtml)
+- 2026-06-30 04:34 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/68418011.shtml)

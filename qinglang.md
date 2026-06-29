@@ -1,61 +1,61 @@
-# 东吴证券归母净利润高增50.12% 分红近18亿元创下历史记录 战略整合东海证券再添想象空间
+# 韩国股市大幅下挫逾6% 芯片股领跌 持续五周的涨势结束
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。 据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。 分业务来看，东吴证券各业务实力均稳步提
+韩国股市周五大幅下挫，早盘指标股指曾一度升至历史高位，之后因芯片股下跌涨幅全数回吐，终结了连续五周的上涨势头。 指标韩国综合股价指数（KOSPI） 收盘下跌488.23点，或6.12%，报7，493.18点。本周累计下跌0.1%。周五早盘，该指数一度上涨0.82%，创下历史新高8，046.78点，在突破7，000点大关仅一周多后，便再次突破8，000点关口。 权重股中三星电子下
 
 ## 正文
 
-2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。
+韩国股市周五大幅下挫，早盘指标股指曾一度升至历史高位，之后因芯片股下跌涨幅全数回吐，终结了连续五周的上涨势头。
 
-据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。
+指标韩国综合股价指数（KOSPI） 收盘下跌488.23点，或6.12%，报7，493.18点。
 
-分业务来看，东吴证券各业务实力均稳步提升。
+本周累计下跌0.1%。
 
-据Wind SECI数据，2025年东吴证券经纪业务、投行业务、资管业务排名分别较上年提升4名、4名、4名，其自营业务排名虽未发生变动，但该板块营收增速高达40.34%，远超同期上市券商整体增速（31.46%），位居行业前列。
+周五早盘，该指数一度上涨0.82%，创下历史新高8，046.78点，在突破7，000点大关仅一周多后，便再次突破8，000点关口。
 
-在保持高质量发展的同时，东吴证券继续执行高分红政策。
+权重股中三星电子下跌8.61%，SK海力下跌7.66%。
 
-年报中，公司披露2025年利润分配方案，拟向全体股东每10股派发现金红利人民币2.20元（含税），叠加2025年中期已每10股派发现金红利人民币1.38元（含税），合计全年每10股派发人民币3.58元（含税），对应股息率超4%，在全部上市券商中位列第一。
+电池厂商LG新能源下跌5.66%。
 
-按照上述利润分配方案，公司全年现金分红总额达17.79亿元（含税），在2024年分红高基数上再度提升15%，创下东吴证券自2011年上市以来的最高分红金额纪录。
+LG化学下跌4.71%，大型入口网站Naver 下跌4.46%，移动通讯应用程序业者Kakao 下跌4.24%。
 
-业绩高增之余，东吴证券与东海证券战略整合工作持续推进，为公司的成长再添想象空间。
+现代汽车下跌1.69%，起亚汽车下跌5.67%；钢铁制造商POSCO Holdings 下跌3.91%，而制药商三星生物制剂 下跌2.07%。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 04:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 04:12 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 04:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 04:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 04:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 04:05 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 04:19 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 04:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 04:13 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 04:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 04:25 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 04:25 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 04:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 04:05 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:10 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:26 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 04:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 04:26 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 04:09 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 04:14 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 04:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 04:24 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 04:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 04:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 04:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 04:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:33 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 04:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 04:25 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [绘画区你赢了](http://www.share.minike.top/Article/details/447584973.shtml)
-- 2026-06-30 04:05 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/05074206.shtml)
-- 2026-06-30 04:00 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/77914.shtml)
-- 2026-06-30 04:15 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/612566321.shtml)
-- 2026-06-30 04:14 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/91767801969.shtml)
-- 2026-06-30 04:19 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/8416022.shtml)
-- 2026-06-30 04:18 - [点菜也要教吗](https://www.blog.minike.top/Article/details/798867990.shtml)
-- 2026-06-30 04:17 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/50250533043.shtml)
-- 2026-06-30 04:01 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/88494229609.shtml)
-- 2026-06-30 04:21 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/749573622.shtml)
-- 2026-06-30 04:19 - [斛珠夫人](https://www.blog.minike.top/Article/details/57337.shtml)
-- 2026-06-30 04:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/8823673.shtml)
-- 2026-06-30 04:11 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/4735004.shtml)
-- 2026-06-30 04:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/115760490.shtml)
-- 2026-06-30 04:11 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/360263782823.shtml)
+- 2026-06-30 04:32 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/06074.shtml)
+- 2026-06-30 04:19 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/958760552668.shtml)
+- 2026-06-30 04:29 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/298423.shtml)
+- 2026-06-30 04:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/47928911759.shtml)
+- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/606950088277.shtml)
+- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8288012.shtml)
+- 2026-06-30 04:12 - [日本进球](https://www.blog.kurohicncr.top/Article/details/645520.shtml)
+- 2026-06-30 04:32 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/35598.shtml)
+- 2026-06-30 04:07 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/998382101776.shtml)
+- 2026-06-30 04:34 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/7423728.shtml)
+- 2026-06-30 04:21 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/37846947120.shtml)
+- 2026-06-30 04:19 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/700308580702.shtml)
+- 2026-06-30 04:33 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/4708082.shtml)
+- 2026-06-30 04:07 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/608848724.shtml)
+- 2026-06-30 04:07 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/746298170.shtml)

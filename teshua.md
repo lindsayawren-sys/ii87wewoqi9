@@ -1,60 +1,58 @@
-# 从渠道提质到C端共鸣，从一季度报看汾酒经营模式的“转身”
+# 吴松泉：中国汽车品牌在时机成熟时仍有必要进入美国市场
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，山西汾酒2026年一季度报如期披露。报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。中国汽车技术研究中心资深首席专家吴松泉在演讲中表示，我国汽车出口的空间和潜力主要体现在三个方面： 一是向全球主要汽车市场发力，2024年全球主要汽车市场已明确，虽然目前我国汽车进入美国市场面临困难，但长远来看，中国品牌在时机成熟时仍有必要进入美国市场； 二是向新能
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-4月29日，山西汾酒2026年一季度报如期披露。
+中国汽车技术研究中心资深首席专家吴松泉在演讲中表示，我国汽车出口的空间和潜力主要体现在三个方面： 一是向全球主要汽车市场发力，2024年全球主要汽车市场已明确，虽然目前我国汽车进入美国市场面临困难，但长远来看，中国品牌在时机成熟时仍有必要进入美国市场； 二是向新能源汽车领域要增量，全球电动化发展的速度和方向毋庸置疑，各类机构的预测报告均对此形成共识，国际能源署预测，到2030年全球新能源汽车市场将实现蓬勃发展； 三是向数据化生产要增量。
 
-报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。
+吴松泉认为“十五五”期间我国汽车出口可能会达到峰值，之后海外生产将快速增长，长远来看，我国将主要依靠海外生产满足国外市场需求。
 
-省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。
+这也是全球主要汽车国家、品牌和企业的共同路径，通过海外生产、本地销售的方式，满足当地市场需求。
 
-与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信心充足，且渠道回款良性，现金流稳定。
+目前，我国已有众多整车企业、动力电池企业和零部件企业在海外建立工厂，海外生产已逐步起步。
 
-当关注点从利润与增速的表象转向长远价值，会发现数据的背后，是汾酒在清香复兴关键期，一场关于“稳根基、优结构、谋长远”的主动变革。
+除此之外，“十五五”期间汽车出海还将呈现以下几个趋势： 第一，体系出海、协同发展成为主旋律。
 
-相较于短期利润的亮眼，更值得行业关注的是汾酒围绕渠道秩序、产品结构、消费触达所展开的系统性重构。
+目前，我国已有部分企业开始成体系地“走出去”，实现全方位、协同化的全球化布局。
 
-主动优化渠道，从规模驱动转向生态优先 在行业深度调整期，“稳”比“快”更具价值。
+第二，零部件出口仍有巨大潜力。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 04:19 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 04:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 04:13 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 04:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 04:11 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 04:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 04:26 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 04:03 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 04:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 04:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 04:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 04:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 04:17 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 04:30 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 04:13 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 04:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 04:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 04:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 04:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 04:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 04:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 04:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 04:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/13317.shtml)
-- 2026-06-30 04:21 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/08370418209.shtml)
-- 2026-06-30 04:03 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/7577830487.shtml)
-- 2026-06-30 04:03 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/37704.shtml)
-- 2026-06-30 04:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/311577748901.shtml)
-- 2026-06-30 04:27 - [金刚川](http://www.share.minike.top/Article/details/66723693.shtml)
-- 2026-06-30 04:06 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/364262062.shtml)
-- 2026-06-30 04:09 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/395634.shtml)
-- 2026-06-30 04:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/383384.shtml)
-- 2026-06-30 04:17 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/350384052953.shtml)
-- 2026-06-30 04:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/7719642.shtml)
-- 2026-06-30 04:16 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/8099098.shtml)
-- 2026-06-30 04:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/82826225981.shtml)
-- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/23757.shtml)
-- 2026-06-30 04:22 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/739749501290.shtml)
+- 2026-06-30 04:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/101597.shtml)
+- 2026-06-30 04:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/74894381054.shtml)
+- 2026-06-30 04:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/74886.shtml)
+- 2026-06-30 04:26 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/90243413.shtml)
+- 2026-06-30 04:22 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/06809.shtml)
+- 2026-06-30 04:26 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/540129297.shtml)
+- 2026-06-30 04:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/69105589208.shtml)
+- 2026-06-30 04:26 - [请回答王牌2019](https://www.share.minike.top/Article/details/79978016.shtml)
+- 2026-06-30 04:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/934281559430.shtml)
+- 2026-06-30 04:31 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/580635592802.shtml)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/6272082100.shtml)
+- 2026-06-30 04:29 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/5644123157.shtml)
+- 2026-06-30 04:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/596931879.shtml)
+- 2026-06-30 04:28 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7570256.shtml)
+- 2026-06-30 04:32 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/144125894247.shtml)

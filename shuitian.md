@@ -1,56 +1,56 @@
-# “宁水贷”正式发布：用水权变“硬通货” 首批4家企业获授信5.5亿元
+# 134小时的ICU时光 被一本日记完整珍藏
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。首批4家涉水企业累计获得专项授信5.5亿元。“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。产品创新建立两种融资模式：“水权+信用”增信模
+从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。 你今天没有惊心动魄的抢救，按部就班，稳中向好。每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。 一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。由于病情危重，她意识模糊，身上插着不少管子。等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。 这位小伙，名叫孙国涛，是ICU的护士。两年前
 
 ## 正文
 
-中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。
+从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。
 
-该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。
+你今天没有惊心动魄的抢救，按部就班，稳中向好。
 
-首批4家涉水企业累计获得专项授信5.5亿元。
+每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。
 
-“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。
+一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。
 
-产品创新建立两种融资模式：“水权+信用”增信模式，以用水权评估价值为基数，叠加信用评价、节水成效等指标，优质主体融资额度最高可放大8倍，实现无抵押纯信用贷款；“用水权抵押+”组合担保模式，以用水权抵押为基础，可叠加其他担保方式，抵押率最高可达评估价值的75%，为信用一般企业提供多元融资渠道。
+由于病情危重，她意识模糊，身上插着不少管子。
 
-产品还为涉水经营主体配套提供额度优先、期限灵活、利率优惠、担保多元、审批高效、成本压降的一揽子金融优惠政策。
+等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。
 
-签约现场，国能宁夏鸳鸯湖第二发电有限公司、宁夏宁东水务有限公司、宁夏全等4家企业获首批授信。
+这位小伙，名叫孙国涛，是ICU的护士。
 
-宁夏塞尚乳业有限公司相关负责人介绍，企业凭借30万立方米用水权和A级信用等级，通过“水权+信用”模式获得农行5000万元授信，全程无需固定资产抵押，“为企业长期投资吃下了‘定心丸’”。
+两年前，他还在兰州医院实习时，就一直利用休息时间为患者记录这些“被偷走的时光”。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 04:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 04:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 04:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 04:24 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 04:14 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 04:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 04:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 04:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 04:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 04:17 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 04:25 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 04:27 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 04:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 04:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 04:12 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 04:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 04:09 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 04:08 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/17212741292.shtml)
-- 2026-06-30 04:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/9055116.shtml)
-- 2026-06-30 04:12 - [美股](https://www.share.kurohicncr.top/Article/details/91579.shtml)
-- 2026-06-30 04:05 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/25146677.shtml)
-- 2026-06-30 04:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/353014747997.shtml)
-- 2026-06-30 04:29 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/615472368.shtml)
-- 2026-06-30 04:25 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/492130824751.shtml)
-- 2026-06-30 04:02 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/52237426439.shtml)
-- 2026-06-30 04:26 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/969425780.shtml)
-- 2026-06-30 04:27 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/54985544.shtml)
-- 2026-06-30 04:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/489585900830.shtml)
-- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/7266043.shtml)
-- 2026-06-30 04:07 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/27902.shtml)
-- 2026-06-30 04:05 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/7532770.shtml)
-- 2026-06-30 04:18 - [美股](http://www.blog.kurohicncr.top/Article/details/32630533946.shtml)
+- 2026-06-30 04:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/82347891.shtml)
+- 2026-06-30 04:09 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/81981299559.shtml)
+- 2026-06-30 04:11 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/02458.shtml)
+- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/213453775509.shtml)
+- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/348001031.shtml)
+- 2026-06-30 04:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/333262.shtml)
+- 2026-06-30 04:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/2567458477.shtml)
+- 2026-06-30 04:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/08221929890.shtml)
+- 2026-06-30 04:20 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/155719.shtml)
+- 2026-06-30 04:16 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/95328589866.shtml)
+- 2026-06-30 04:15 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/01296.shtml)
+- 2026-06-30 04:07 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/787940789903.shtml)
+- 2026-06-30 04:27 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/264839873207.shtml)
+- 2026-06-30 04:24 - [恋与深空回应争议](https://www.share.minike.top/Article/details/48744953.shtml)
+- 2026-06-30 04:13 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/46337725861.shtml)

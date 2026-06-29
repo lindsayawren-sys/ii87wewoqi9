@@ -1,59 +1,59 @@
-# 北京市欧美同学会青年委员会召开二届二次主任委员会
+# 国际大行上调白银价格预期 但警告供需缺口收窄或限制未来涨势
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-4月27日下午，北京市欧美同学会青年委员会二届二次主任委员会召开。会议由市政协副主席、市欧美同学会副会长、青年委员会主任委员燕瑛主持。市欧美同学会秘书长、一级巡视员郭玉良，青年委员会副主任委员安楠、孙逸、何允锋、张馨予、郭雷风、谢海山，市欧美同学会组宣处处长胡顺强，办公室副主任、青年委员会联络员杜娟参加会议。 会议传达了《北京市欧美同学会专委会工作条例》、《北京市欧美同学会专委
+财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。 银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
 
 ## 正文
 
-4月27日下午，北京市欧美同学会青年委员会二届二次主任委员会召开。
+财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。
 
-会议由市政协副主席、市欧美同学会副会长、青年委员会主任委员燕瑛主持。
+银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
 
-市欧美同学会秘书长、一级巡视员郭玉良，青年委员会副主任委员安楠、孙逸、何允锋、张馨予、郭雷风、谢海山，市欧美同学会组宣处处长胡顺强，办公室副主任、青年委员会联络员杜娟参加会议。
+但随后，在2月，由于中东冲突导致美元大幅升值以及黄金价格回落，白银价格大幅下跌至每盎司约64美元，之后又再次回升至当前的每盎司86美元以上。
 
-会议传达了《北京市欧美同学会专委会工作条例》、《北京市欧美同学会专委会联络员工作制度》，1-2月轮值主任委员谢海山、3-4月轮值主任委员张馨予分别汇报了轮值期间工作开展情况，主任委员会成员共同研究了青年委员会委员发起活动安排，并就下一步工作开展座谈交流。
+在上调目标价格的同时，汇丰银行仍保持谨慎的中期展望，警告称白银供应缺口的缩小以及工业和珠宝需求的减弱，限制了白银价格持续上涨的可能性。
 
-燕瑛主任委员对副主任委员们在轮值期间的履职成效给予高度评价与充分肯定。
+该银行预计，全球白银市场缺口将在从去年的1.43亿盎司缩小至今年的7300万盎司，到2027年将进一步缩小至2500万盎司，因为矿山和回收渠道的供应将增加。
 
-她指出，青年委员会在市欧美同学会的坚强领导下，积极开展主任委员轮值，充分激发了各位副主任委员的履职热情，释放了不同领域的资源势能，各项工作开展得有声有色。
+汇丰银行首席贵金属分析师詹姆斯·斯蒂尔（James Steel）表示：“我们认为，温和的供需缺口并不足以使白银价格在较长时期内大幅上涨。
 
-她强调，各位主任委员会成员是青委会工作开展的示范者和引领者，要发挥好带头作用，积极发挥自身优势和资源禀赋，组织符合留学人员特点和需求的活动，不断增强组织活力；要聚焦国家发展大局和北京“十五五”规划，围绕文旅体商融合发展、金融赋能实体经济发展、教育科技人才一体发展等关键内容开展建言献策，为国家和首都经济社会发展贡献青年智慧力量。
+” 他预计，到2026年下半年和2027年下半年，银价可能将有所回落。
 
-郭玉良秘书长表示，青年委员会在燕瑛主任委员带领下，主动作为，活动声势明显，效能不断提升，在各大专委会中走在前列。
+供需缺口正在缩小 工业需求占白银总消费量的逾一半，2025年这一需求已经降至6.57亿盎司，而前一年为创纪录的6.79亿盎司。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 04:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 04:25 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 04:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 04:16 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 04:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 04:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:01 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 04:14 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 04:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 04:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 04:12 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 04:12 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 04:06 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 04:23 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 04:27 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 04:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 04:06 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 04:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 04:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 04:11 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 04:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 04:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 04:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 04:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/117432719.shtml)
-- 2026-06-30 04:24 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/947030195374.shtml)
-- 2026-06-30 04:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/62077.shtml)
-- 2026-06-30 04:11 - [日本领先巴西](https://www.blog.minike.top/Article/details/007060.shtml)
-- 2026-06-30 04:23 - [房价什么时候能涨](https://www.share.minike.top/Article/details/874025058.shtml)
-- 2026-06-30 04:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/179275.shtml)
-- 2026-06-30 04:21 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/4533751104.shtml)
-- 2026-06-30 04:00 - [女心理师](http://www.share.kurohicncr.top/Article/details/73733.shtml)
-- 2026-06-30 04:27 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/949683.shtml)
-- 2026-06-30 04:01 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/50296493887.shtml)
-- 2026-06-30 04:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/43873738742.shtml)
-- 2026-06-30 04:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/02890.shtml)
-- 2026-06-30 04:20 - [勇敢的心第二部](https://www.share.minike.top/Article/details/89427271.shtml)
-- 2026-06-30 04:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/1575483867.shtml)
-- 2026-06-30 04:18 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/3487075397.shtml)
+- 2026-06-30 04:18 - [日本进球](http://www.share.kurohicncr.top/Article/details/811817.shtml)
+- 2026-06-30 04:23 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/652409916.shtml)
+- 2026-06-30 04:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0693163.shtml)
+- 2026-06-30 04:20 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/59259.shtml)
+- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/37251.shtml)
+- 2026-06-30 04:06 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/6105154.shtml)
+- 2026-06-30 04:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/951987625379.shtml)
+- 2026-06-30 04:28 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/7426960982.shtml)
+- 2026-06-30 04:23 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/434852.shtml)
+- 2026-06-30 04:06 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/6163336585.shtml)
+- 2026-06-30 04:23 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/1540438309.shtml)
+- 2026-06-30 04:12 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/043243960161.shtml)
+- 2026-06-30 04:31 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/021536430520.shtml)
+- 2026-06-30 04:20 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/9255285.shtml)
+- 2026-06-30 04:30 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/389849.shtml)

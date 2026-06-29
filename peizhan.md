@@ -1,58 +1,58 @@
-# 斯泰兰蒂斯一季度财报出炉，股价一度暴跌10%
+# 五角大楼加速推进欧洲撤军计划，取消向波兰部署装甲旅
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 斯泰兰蒂斯（Jeep 吉普母公司）周四公布一季度业绩，受核心北美市场销量提振，调整后营业利润同比近乎增至三倍，但公司股价仍大幅下挫。 这家跨国汽车集团旗下拥有吉普、道奇、菲亚特、克莱斯勒、标致等知名品牌，一季度调整后营业利润为9.6 亿欧元（折合 11.2 亿美元）。 路透社调查，分析师一致预期为 5.68 亿欧元，公司实际业绩大
+美国国防部近期加速实施其欧洲驻军缩减战略，在宣布从德国撤出约5000名美军之后，又突然取消了向波兰部署一个装甲旅的计划，标志着美国在欧洲的军事存在正经历战略性调整。 撤军行动加速推进 5月1日，美国国防部长赫格塞思下令在未来6至12个月内从德国撤出约5000名美军。特朗普随后表示实际撤军规模将远不止5000人，并暗示可能削减驻意大利和西班牙的兵力。撤军导火索被广泛认为是美德领导
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 斯泰兰蒂斯（Jeep 吉普母公司）周四公布一季度业绩，受核心北美市场销量提振，调整后营业利润同比近乎增至三倍，但公司股价仍大幅下挫。
+美国国防部近期加速实施其欧洲驻军缩减战略，在宣布从德国撤出约5000名美军之后，又突然取消了向波兰部署一个装甲旅的计划，标志着美国在欧洲的军事存在正经历战略性调整。
 
-这家跨国汽车集团旗下拥有吉普、道奇、菲亚特、克莱斯勒、标致等知名品牌，一季度调整后营业利润为9.6 亿欧元（折合 11.2 亿美元）。
+撤军行动加速推进 5月1日，美国国防部长赫格塞思下令在未来6至12个月内从德国撤出约5000名美军。
 
-路透社调查，分析师一致预期为 5.68 亿欧元，公司实际业绩大幅跑赢预期；较去年同期 3.27 亿欧元的调整后营业利润，同比大增 194%。
+特朗普随后表示实际撤军规模将远不止5000人，并暗示可能削减驻意大利和西班牙的兵力。
 
-公司米兰上市股票早盘一度暴跌10%，随后跌幅收窄，最新跌幅约 7%。
+撤军导火索被广泛认为是美德领导人之间围绕美国对伊朗政策的公开分歧。
 
-这是斯泰兰蒂斯首次发布季度盈利数据，以往公司仅每半年披露一次业绩。
+波兰部署突然取消 据报道，五角大楼取消了向波兰部署第一骑兵师第二装甲旅的计划。
 
-财报显示：公司一季度净营收381 亿欧元，同比 2025 年同期增长 6%；一季度净利润3.77 亿欧元，而 2025 年同期亏损 3.87 亿欧元。
+该旅约4000名官兵中已有部分人员和装备启程前往欧洲，因此这一决定令部分军方官员感到惊讶。
 
-斯泰兰蒂斯首席执行官安东尼奥・菲洛萨在声明中表示：“我们开始启用季度财报披露机制，2026 年前三个月的业绩，体现了公司重回可持续盈利增长战略的初步成效。
+五角大楼发言人拒绝对此置评。
 
-” 他补充称：“2025 年推出的新车型市场反响良好，我们有信心 2026 年计划推出的 10 款新车，将延续这一增长势头。
+战略重心持续东移 此次撤军反映了美国全球战略重心的根本性转变。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:06 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 04:09 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 04:04 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 04:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 04:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 04:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 04:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:03 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 04:04 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 04:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 04:30 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 04:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:24 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 04:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 04:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 04:09 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 04:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 04:34 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 04:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 04:35 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 04:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 04:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/996570895441.shtml)
-- 2026-06-30 04:08 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/9880335816.shtml)
-- 2026-06-30 04:09 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/7776396375.shtml)
-- 2026-06-30 04:20 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/5399932.shtml)
-- 2026-06-30 04:13 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/20436.shtml)
-- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/59877504.shtml)
-- 2026-06-30 04:07 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/836374535391.shtml)
-- 2026-06-30 04:20 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/75729186.shtml)
-- 2026-06-30 04:29 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/79251.shtml)
-- 2026-06-30 04:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/203484774978.shtml)
-- 2026-06-30 04:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/495719100.shtml)
-- 2026-06-30 04:22 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/55194.shtml)
-- 2026-06-30 04:24 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/0875404.shtml)
-- 2026-06-30 04:14 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/7503420878.shtml)
-- 2026-06-30 04:19 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/8972446.shtml)
+- 2026-06-30 04:18 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/97283.shtml)
+- 2026-06-30 04:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/68691654679.shtml)
+- 2026-06-30 04:26 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/679907699646.shtml)
+- 2026-06-30 04:13 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/30475426873.shtml)
+- 2026-06-30 04:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/830816.shtml)
+- 2026-06-30 04:09 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/11068951783.shtml)
+- 2026-06-30 04:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/04677.shtml)
+- 2026-06-30 04:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/48145078.shtml)
+- 2026-06-30 04:06 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/3895550835.shtml)
+- 2026-06-30 04:07 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/349722.shtml)
+- 2026-06-30 04:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/0786459.shtml)
+- 2026-06-30 04:07 - [蔚来车主罚站](https://www.share.minike.top/Article/details/15100272.shtml)
+- 2026-06-30 04:27 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/08674.shtml)
+- 2026-06-30 04:06 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/56161764667.shtml)
+- 2026-06-30 04:12 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/684832.shtml)

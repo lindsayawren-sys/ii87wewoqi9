@@ -1,48 +1,61 @@
-# 柯文哲一审获刑17年 台北地检署今日提起上诉
+# 江苏将全面实施“人工智能+”行动 打造创新发展高地
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-台湾民众党前主席、台北市前市长柯文哲被控涉京华城土地违法容积奖励、政治献金公益侵占等案，台北地方法院今年3月依违背职务收贿、侵占政治献金等，重判柯有期徒刑17年，褫夺公权6年。 台北地检署收受判决后研读判决理由，在上诉期限的最后一天提起上诉，台北地院在4月30日中午收到上诉案件，待柯文哲等其他被告上诉书状送达后，全案将进入高院二审程序。 (总台记者 梁爽 郑宇燕）
+中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达
 
 ## 正文
 
-台湾民众党前主席、台北市前市长柯文哲被控涉京华城土地违法容积奖励、政治献金公益侵占等案，台北地方法院今年3月依违背职务收贿、侵占政治献金等，重判柯有期徒刑17年，褫夺公权6年。
+中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。
 
-台北地检署收受判决后研读判决理由，在上诉期限的最后一天提起上诉，台北地院在4月30日中午收到上诉案件，待柯文哲等其他被告上诉书状送达后，全案将进入高院二审程序。
+刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。
 
-(总台记者 梁爽 郑宇燕）
+目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达4400万余次。
+
+江苏将发挥制造优势，把制造业作为AI赋能的主赛道，从研发设计、生产管理、产品质检、物流运输到市场营销，全链条推动AI规模化、商业化应用，同时拓展AI+科学、医疗、教育、交通、政务、社会治理等应用，让AI深度融入生产生活。
+
+在筑牢基础底座方面，刘小涛指出，人工智能世界，词元(Token)是基础细胞，算法是工具，要素是算力和数据。
+
+江苏算力规模超10万P居全国前列，其中智算7.8万P。
+
+数据方面，以江苏省卫生健康云为例，每日健康数据交互超千万级，累计1600多亿条；建成全省统一的“影像云”，大家到医院看病基本上不用带片子，全省通用，同时建成了21个专病数据集。
+
+此外，江苏将发展数据标注产业，建设高质量数据集，到2027年高质量数据集将超1000个。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 04:26 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 04:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 04:27 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 04:22 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 04:19 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 04:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 04:25 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 04:22 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 04:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 04:19 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 04:17 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 04:25 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 04:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 04:29 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 04:24 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:32 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 04:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 04:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 04:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 04:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 04:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 04:20 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 04:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 04:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/2153502701.shtml)
-- 2026-06-30 04:13 - [金刚川](http://www.share.minike.top/Article/details/4762175.shtml)
-- 2026-06-30 04:11 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/242690793.shtml)
-- 2026-06-30 04:26 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/927711850.shtml)
-- 2026-06-30 04:27 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/762254766.shtml)
-- 2026-06-30 04:04 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/8980396.shtml)
-- 2026-06-30 04:02 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/42258443101.shtml)
-- 2026-06-30 04:08 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/172061386.shtml)
-- 2026-06-30 04:23 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/669275527.shtml)
-- 2026-06-30 04:02 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/35884031.shtml)
-- 2026-06-30 04:08 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/335474.shtml)
-- 2026-06-30 04:01 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/724745710865.shtml)
-- 2026-06-30 04:08 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/73485532.shtml)
-- 2026-06-30 04:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/0589192334.shtml)
-- 2026-06-30 04:15 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/26868.shtml)
+- 2026-06-30 04:27 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/189665.shtml)
+- 2026-06-30 04:14 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/30106.shtml)
+- 2026-06-30 04:21 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/4898845.shtml)
+- 2026-06-30 04:19 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/8504379560.shtml)
+- 2026-06-30 04:31 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/558721056.shtml)
+- 2026-06-30 04:11 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/10925716780.shtml)
+- 2026-06-30 04:28 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/42597821.shtml)
+- 2026-06-30 04:11 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/34062504752.shtml)
+- 2026-06-30 04:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/973012749.shtml)
+- 2026-06-30 04:31 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/3412709389.shtml)
+- 2026-06-30 04:10 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6638545.shtml)
+- 2026-06-30 04:34 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/30428494892.shtml)
+- 2026-06-30 04:06 - [第一炉香](https://www.blog.minike.top/Article/details/35396058050.shtml)
+- 2026-06-30 04:26 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/0367666.shtml)
+- 2026-06-30 04:33 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/084292556060.shtml)

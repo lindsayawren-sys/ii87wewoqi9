@@ -1,60 +1,57 @@
-# 不降息！美联储，罕见重大分歧！
+# 长岛铁路工人或于今夜举行罢工
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-专题：A股风格切换一触即发？5月机构紧盯三大景气主线 美联储维持利率不变，但内部分歧创1992年以来最高水平。 当地时间4月29日，美股三大指数收盘涨跌不一。截至收盘，道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.85点，跌幅为0.04%，报7135.95点。 当天，美国联邦储备委员会
+纽约大都会运输署提醒通勤民众：若薪资加薪纠纷未能在午夜前达成和解，铁路出行将陷入混乱 内容速览 因薪资谈判陷入僵局，长岛铁路工人或于周六凌晨零点零一分发起罢工，数十万通勤民众出行将受到严重影响。 由于工会与纽约大都会运输署在加薪幅度上依旧存在分歧，长岛铁路铁路工人或于周六凌晨 0 点 01 分正式罢工。 数十万居住在纽约郊区的通勤族出行将遭遇不便，若罢工持续至工作日，影响范围还
 
 ## 正文
 
-专题：A股风格切换一触即发？
+纽约大都会运输署提醒通勤民众：若薪资加薪纠纷未能在午夜前达成和解，铁路出行将陷入混乱 内容速览 因薪资谈判陷入僵局，长岛铁路工人或于周六凌晨零点零一分发起罢工，数十万通勤民众出行将受到严重影响。
 
-5月机构紧盯三大景气主线 美联储维持利率不变，但内部分歧创1992年以来最高水平。
+由于工会与纽约大都会运输署在加薪幅度上依旧存在分歧，长岛铁路铁路工人或于周六凌晨 0 点 01 分正式罢工。
 
-当地时间4月29日，美股三大指数收盘涨跌不一。
+数十万居住在纽约郊区的通勤族出行将遭遇不便，若罢工持续至工作日，影响范围还将进一步扩大。
 
-截至收盘，道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.85点，跌幅为0.04%，报7135.95点。
+大都会运输署已筹备应急接驳巴士，但坦言运力严重不足。
 
-当天，美国联邦储备委员会宣布不降息，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
+官方呼吁民众届时尽量减少非必要出行，条件允许尽量居家办公。
 
-这一今年连续第三次维持利率不变的决定符合市场普遍预期。
+目前劳资双方均表示仍在持续谈判协商。
 
-不过，围绕当天发布的政策声明，美联储负责制定货币政策的核心决策机构——联邦公开市场委员会却出现了自1992年以来最严重的分歧。
+长岛铁路是美国客流量最大的通勤铁路系统，平日每日开行 947 趟列车，服务约 30 万名通勤乘客。
 
-美联储今年连续第三次宣布维持利率不变 美联储周三决定维持基准利率在3.50%—3.75%区间不变，这是美联储今年连续第三次宣布维持利率不变。
+一旦本次罢工爆发，将成为该铁路自 1994 年以来首次大规模罢工。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 04:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 04:00 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 04:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 04:05 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 04:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 04:05 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 04:23 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 04:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 04:01 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 04:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 04:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 04:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 04:27 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 04:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 04:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 04:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:35 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 04:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 04:20 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 04:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 04:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 04:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 04:22 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 04:32 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/24676730.shtml)
-- 2026-06-30 04:28 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/192794310.shtml)
-- 2026-06-30 04:29 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/04636153792.shtml)
-- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/180035065159.shtml)
-- 2026-06-30 04:24 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/707626912.shtml)
-- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/3619879442.shtml)
-- 2026-06-30 04:25 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/95701886.shtml)
-- 2026-06-30 04:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/66164016.shtml)
-- 2026-06-30 04:13 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/9558385481.shtml)
-- 2026-06-30 04:16 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/37638871.shtml)
-- 2026-06-30 04:07 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/80339888.shtml)
-- 2026-06-30 04:23 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/25237604165.shtml)
-- 2026-06-30 04:15 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/569112623267.shtml)
-- 2026-06-30 04:18 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/998019082.shtml)
-- 2026-06-30 04:10 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/930219.shtml)
+- 2026-06-30 04:08 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/89564082.shtml)
+- 2026-06-30 04:16 - [毒液2](https://www.share.kurohicncr.top/Article/details/599216038033.shtml)
+- 2026-06-30 04:32 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/6742323275.shtml)
+- 2026-06-30 04:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/945428.shtml)
+- 2026-06-30 04:14 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/4042029862.shtml)
+- 2026-06-30 04:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/53566.shtml)
+- 2026-06-30 04:07 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/020950.shtml)
+- 2026-06-30 04:21 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/64839472049.shtml)
+- 2026-06-30 04:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/3947612682.shtml)
+- 2026-06-30 04:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/2475275.shtml)
+- 2026-06-30 04:27 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9972362376.shtml)
+- 2026-06-30 04:28 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/94040156.shtml)
+- 2026-06-30 04:33 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/4755386.shtml)
+- 2026-06-30 04:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/00856536714.shtml)
+- 2026-06-30 04:17 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/6254104.shtml)

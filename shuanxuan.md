@@ -1,57 +1,57 @@
-# Alphabet第一季度营收和利润均超预期 受云业务强劲表现提振
+# 贵州：水往高处流 幸福润万家
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-谷歌母公司Alphabet第一季度营收和利润均超预期，主要得益于云业务强劲增长，表明这家互联网巨头在人工智能（AI）基础设施的空前投资开始获得回报。 Alphabet公布第一季度不含合作伙伴分成的营收为947亿美元，高于汇总分析师平均预估的916亿美元。每股收益5.11美元，也高于华尔街预期的2.62美元。 业绩公布后，Alphabet股价在盘后交易中大涨逾6%。该股周四收报3
+中新网贵阳5月15日电 (记者 周燕玲)“喀斯特王国”贵州，地下是漏水的岩溶，地上是盼水的民众，千百年来，“水往低处流”让山里人望水兴叹。如今，清泉正完成一场“反向奔跑”，从谷底“爬”上了山巅，实现了“水往高处流，幸福润万家”。 千米扬程：把水从谷底“提”上山 平均海拔2200米的贵州省毕节市威宁彝族回族苗族自治县，被誉为高原“阳光城”，这里不仅降雨量少，而且不少地方还陷入“守
 
 ## 正文
 
-谷歌母公司Alphabet第一季度营收和利润均超预期，主要得益于云业务强劲增长，表明这家互联网巨头在人工智能（AI）基础设施的空前投资开始获得回报。
+中新网贵阳5月15日电 (记者 周燕玲)“喀斯特王国”贵州，地下是漏水的岩溶，地上是盼水的民众，千百年来，“水往低处流”让山里人望水兴叹。
 
-Alphabet公布第一季度不含合作伙伴分成的营收为947亿美元，高于汇总分析师平均预估的916亿美元。
+如今，清泉正完成一场“反向奔跑”，从谷底“爬”上了山巅，实现了“水往高处流，幸福润万家”。
 
-每股收益5.11美元，也高于华尔街预期的2.62美元。
+千米扬程：把水从谷底“提”上山 平均海拔2200米的贵州省毕节市威宁彝族回族苗族自治县，被誉为高原“阳光城”，这里不仅降雨量少，而且不少地方还陷入“守着江河难用水、望着雨水留不住”的困境。
 
-业绩公布后，Alphabet股价在盘后交易中大涨逾6%。
+“以前村里用水靠水窖，天旱时要跑到几公里外挑水，一桶水要等半天。
 
-该股周四收报349.94美元。
+”威宁自治县盐仓镇镇长苏艳红回忆道。
 
-谷歌已投入巨资建设AI数据中心，与Anthropic和OpenAI等初创公司展开激烈竞争。
+距离盐仓镇不远的双龙镇凉山村，72岁的王明安拧开自家水龙头，清泉哗哗流出。
 
-投资者密切关注云业务表现，以判断需求是否会持续增长，这被视为AI热潮推进速度的一个重要风向标。
+“过去吃水要靠人背，来回一趟一个多小时，冬天路上结冰，摔跤是常事。
 
-谷歌云业务第一季度营收200亿美元，高于分析师预估的184亿美元。
+现在一拧开就有水，心里踏实了。
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 04:11 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 04:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 04:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 04:00 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 04:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 04:27 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 04:06 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 04:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 04:10 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 04:34 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 04:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 04:32 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 04:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 04:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 04:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 04:22 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 04:15 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 04:35 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 04:11 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:19 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/30582765939.shtml)
-- 2026-06-30 04:04 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/47047313593.shtml)
-- 2026-06-30 04:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/52314.shtml)
-- 2026-06-30 04:17 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/085876.shtml)
-- 2026-06-30 04:11 - [锐评T1零封KC](http://www.share.minike.top/Article/details/6739190.shtml)
-- 2026-06-30 04:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/69306.shtml)
-- 2026-06-30 04:16 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/139504592.shtml)
-- 2026-06-30 04:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/71726716.shtml)
-- 2026-06-30 04:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/97218498.shtml)
-- 2026-06-30 04:10 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/419788030393.shtml)
-- 2026-06-30 04:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/297553.shtml)
-- 2026-06-30 04:00 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/859472687291.shtml)
-- 2026-06-30 04:14 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/98195.shtml)
-- 2026-06-30 04:28 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/982685984639.shtml)
-- 2026-06-30 04:17 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/02609428.shtml)
+- 2026-06-30 04:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/61481.shtml)
+- 2026-06-30 04:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/89887830.shtml)
+- 2026-06-30 04:22 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/87934479.shtml)
+- 2026-06-30 04:24 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/6351812337.shtml)
+- 2026-06-30 04:32 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/732069143516.shtml)
+- 2026-06-30 04:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/2713029181.shtml)
+- 2026-06-30 04:23 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/33480807795.shtml)
+- 2026-06-30 04:14 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/31625753258.shtml)
+- 2026-06-30 04:27 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/521420449.shtml)
+- 2026-06-30 04:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5305840.shtml)
+- 2026-06-30 04:23 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/6385169.shtml)
+- 2026-06-30 04:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/410906909.shtml)
+- 2026-06-30 04:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/06413428.shtml)
+- 2026-06-30 04:18 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/3922826.shtml)
+- 2026-06-30 04:11 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/775781636154.shtml)

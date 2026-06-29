@@ -1,54 +1,58 @@
-# 伊朗德黑兰机场宣布增加航线和航班频次
+# 米兰卸任美联储理事：为沃什铺路
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。 伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。 阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。他说，伊玛目霍梅尼国际
+核心要点 美联储理事斯蒂芬・米兰上任时，对央行改革抱有诸多激进构想。如今，他即将结束71 年来最短的理事任期，卸任在即，却仍坚信自己的主张正确。 但在 CNBC 采访中，42 岁的米兰坦言，美联储的现实运作让他对改革节奏的预期趋于务实 —— 变革远比他设想的缓慢。 他表示，美联储 “本质上是一个委员会，而非由单一最高负责人说了算的机构。在这里，没人能独断专行，不认同规则就只能出
 
 ## 正文
 
-据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。
+核心要点 美联储理事斯蒂芬・米兰上任时，对央行改革抱有诸多激进构想。
 
-伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。
+如今，他即将结束71 年来最短的理事任期，卸任在即，却仍坚信自己的主张正确。
 
-阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。
+但在 CNBC 采访中，42 岁的米兰坦言，美联储的现实运作让他对改革节奏的预期趋于务实 —— 变革远比他设想的缓慢。
 
-他说，伊玛目霍梅尼国际机场两个航站楼的出入境通道均严格遵守相关标准，并在安全的环境下运行。
+他表示，美联储 “本质上是一个委员会，而非由单一最高负责人说了算的机构。
 
-据伊朗方面25日消息，伊玛目霍梅尼国际机场当天恢复运营。
+在这里，没人能独断专行，不认同规则就只能出局。
 
-(央视新闻客户端)
+” 这一判断至关重要，原因有二：其一，米兰可能在特朗普本届任期内重返美联储；其二，新任主席沃什与他的核心改革理念高度契合。
+
+沃什于本周三获参议院确认，将接任米兰空出的理事席位，两人任期无重叠。
+
+但沃什必须直面米兰早已洞悉的现实：美联储内部观点多元，制度改革往往进展迟缓。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 04:24 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 04:09 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 04:09 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 04:20 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 04:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 04:06 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 04:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 04:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 04:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 04:29 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 04:00 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 04:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:14 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 04:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 04:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 04:24 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 04:15 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 04:06 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 04:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 04:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 04:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 04:35 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 04:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/454269994825.shtml)
-- 2026-06-30 04:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/08546837720.shtml)
-- 2026-06-30 04:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/249315.shtml)
-- 2026-06-30 04:27 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/12148.shtml)
-- 2026-06-30 04:22 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/947753.shtml)
-- 2026-06-30 04:25 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/77471308219.shtml)
-- 2026-06-30 04:03 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/6111286.shtml)
-- 2026-06-30 04:22 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/961566749693.shtml)
-- 2026-06-30 04:11 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/4311225788.shtml)
-- 2026-06-30 04:06 - [恋与深空 日服](http://www.blog.minike.top/Article/details/558081.shtml)
-- 2026-06-30 04:25 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/722662044120.shtml)
-- 2026-06-30 04:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/1785847147.shtml)
-- 2026-06-30 04:26 - [一见倾心](https://www.share.minike.top/Article/details/959567.shtml)
-- 2026-06-30 04:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/92610.shtml)
-- 2026-06-30 04:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/87188.shtml)
+- 2026-06-30 04:29 - [田曦薇没招了](http://www.share.minike.top/Article/details/793472225127.shtml)
+- 2026-06-30 04:11 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/888897000806.shtml)
+- 2026-06-30 04:18 - [周生如故](https://www.share.minike.top/Article/details/978632277.shtml)
+- 2026-06-30 04:34 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/560524115727.shtml)
+- 2026-06-30 04:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/060314.shtml)
+- 2026-06-30 04:18 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/47285.shtml)
+- 2026-06-30 04:22 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/16480.shtml)
+- 2026-06-30 04:18 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/65750028767.shtml)
+- 2026-06-30 04:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/78980446.shtml)
+- 2026-06-30 04:31 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/75980156.shtml)
+- 2026-06-30 04:09 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/641782672.shtml)
+- 2026-06-30 04:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/30408877.shtml)
+- 2026-06-30 04:33 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/10141644198.shtml)
+- 2026-06-30 04:29 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/60227525640.shtml)
+- 2026-06-30 04:29 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/88607524.shtml)

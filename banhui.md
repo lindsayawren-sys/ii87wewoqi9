@@ -1,50 +1,56 @@
-# 美国总统特朗普听取了对伊朗潜在军事行动方案的简报
+# “2026·中国—中亚人权发展论坛”在乌兹别克斯坦举行
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-Axios记者在社交媒体平台X援引两位知情美国官员的消息发帖称，中央司令部司令Brad Cooper上将和参谋长联席会议主席Dan Caine将军，已就针对伊朗的潜在军事行动新方案向总统特朗普作了简报。简报持续时间约45分钟。责任编辑：王永生
+发布时间：2026年05月15日 12:54 来源：中国新闻网 当地时间5月14日，“2026·中国—中亚人权发展论坛”在乌兹别克斯坦首都塔什干举行。论坛由中国人权发展基金会、乌兹别克斯坦国家人权中心共同主办，主题为“以高质量发展共促人权进步”。来自中国和中亚国家人权领域的近百名官员、专家学者及有关社会组织、企业、智库代表等出席，围绕推进减贫与民生改善、加快绿色发展、推动数智技
 
 ## 正文
 
-Axios记者在社交媒体平台X援引两位知情美国官员的消息发帖称，中央司令部司令Brad Cooper上将和参谋长联席会议主席Dan Caine将军，已就针对伊朗的潜在军事行动新方案向总统特朗普作了简报。
+发布时间：2026年05月15日 12:54 来源：中国新闻网 当地时间5月14日，“2026·中国—中亚人权发展论坛”在乌兹别克斯坦首都塔什干举行。
 
-简报持续时间约45分钟。
+论坛由中国人权发展基金会、乌兹别克斯坦国家人权中心共同主办，主题为“以高质量发展共促人权进步”。
 
-责任编辑：王永生
+来自中国和中亚国家人权领域的近百名官员、专家学者及有关社会组织、企业、智库代表等出席，围绕推进减贫与民生改善、加快绿色发展、推动数智技术赋能人权保障等议题展开研讨。
+
+论坛期间，中国人权发展基金会与乌兹别克斯坦国家人权中心签署合作谅解备忘录，并发布《中国—中亚人权发展论坛塔什干倡议》。
+
+据介绍，为落实中国—中亚峰会成果，中国人权发展基金会于2023年9月在北京举办首届中国—中亚人权发展论坛，本届论坛为第四届。
+
+(记者 单璐 制作 乐小敏） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 04:29 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 04:11 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 04:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 04:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 04:07 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 04:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 04:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 04:27 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 04:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 04:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 04:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 04:22 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 04:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 04:12 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 04:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 04:25 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 04:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 04:08 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 04:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 04:14 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 04:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 04:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 04:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 04:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 04:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 04:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/8608212.shtml)
-- 2026-06-30 04:14 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/75714.shtml)
-- 2026-06-30 04:07 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/185954628.shtml)
-- 2026-06-30 04:12 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/14506.shtml)
-- 2026-06-30 04:04 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/30405.shtml)
-- 2026-06-30 04:26 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/5913874.shtml)
-- 2026-06-30 04:18 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/300714.shtml)
-- 2026-06-30 04:27 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/1107560764.shtml)
-- 2026-06-30 04:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/241635494926.shtml)
-- 2026-06-30 04:17 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/0544993.shtml)
-- 2026-06-30 04:08 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/562152430503.shtml)
-- 2026-06-30 04:19 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/43639.shtml)
-- 2026-06-30 04:27 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/713195759.shtml)
-- 2026-06-30 04:04 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/5136852958.shtml)
-- 2026-06-30 04:20 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/68954.shtml)
+- 2026-06-30 04:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/31689279987.shtml)
+- 2026-06-30 04:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/7051392133.shtml)
+- 2026-06-30 04:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/462938909.shtml)
+- 2026-06-30 04:34 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/57964.shtml)
+- 2026-06-30 04:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/997150605.shtml)
+- 2026-06-30 04:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/2730125148.shtml)
+- 2026-06-30 04:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/81565410645.shtml)
+- 2026-06-30 04:25 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/05273068.shtml)
+- 2026-06-30 04:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/10761872.shtml)
+- 2026-06-30 04:13 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/79076585.shtml)
+- 2026-06-30 04:21 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/27975997.shtml)
+- 2026-06-30 04:20 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/657524441.shtml)
+- 2026-06-30 04:10 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/5382684873.shtml)
+- 2026-06-30 04:34 - [千香](http://www.blog.kurohicncr.top/Article/details/541788972884.shtml)
+- 2026-06-30 04:28 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/773148.shtml)

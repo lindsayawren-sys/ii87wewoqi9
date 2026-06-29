@@ -1,49 +1,58 @@
-# 张凌赫到台湾会爱上“自由民主”？台湾媒体人嘲讽：忘了胡歌赴台受限的闹剧了吗？
+# 国际足联与伊朗足协举行会谈 协调世界杯参赛保障事宜
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 19:54 来源：中国新闻网 台湾媒体人陈凤馨近日谈及“张凌赫赴台”这一话题时，质疑民进党当局所谓“自由民主”的“双标”闹剧。她提到，胡歌2024年历经波折到台湾交流，却遭遇民进党当局设置的诸多限制，甚至“不准离开所住饭店”，导致原本想见面的台湾朋友都无法相聚。陈凤馨直言，民进党当局连正常交流都层层设限，“还好意思说自由吗？”(策划/制作：燕新
+国际足联（FIFA）秘书长马蒂亚斯·格拉夫斯特伦于16日在土耳其伊斯坦布尔与伊朗足协（FFIRI）官员举行会面，旨在就伊朗国家男子足球队顺利参加美加墨世界杯提供相关保障与协调。 由于近期地缘政治局势紧张及联合主办国的单方面入境限制，伊朗队赴美参赛的前景引发外界高度关注。今年2月下旬美国与以色列对伊朗发动军事打击后，相关争议持续发酵。本月早些时候，伊朗足协主席迈赫迪·塔吉在赴加拿
 
 ## 正文
 
-发布时间：2026年04月29日 19:54 来源：中国新闻网 台湾媒体人陈凤馨近日谈及“张凌赫赴台”这一话题时，质疑民进党当局所谓“自由民主”的“双标”闹剧。
+国际足联（FIFA）秘书长马蒂亚斯·格拉夫斯特伦于16日在土耳其伊斯坦布尔与伊朗足协（FFIRI）官员举行会面，旨在就伊朗国家男子足球队顺利参加美加墨世界杯提供相关保障与协调。
 
-她提到，胡歌2024年历经波折到台湾交流，却遭遇民进党当局设置的诸多限制，甚至“不准离开所住饭店”，导致原本想见面的台湾朋友都无法相聚。
+由于近期地缘政治局势紧张及联合主办国的单方面入境限制，伊朗队赴美参赛的前景引发外界高度关注。
 
-陈凤馨直言，民进党当局连正常交流都层层设限，“还好意思说自由吗？
+今年2月下旬美国与以色列对伊朗发动军事打击后，相关争议持续发酵。
 
-”(策划/制作：燕新台 君言晚 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
+本月早些时候，伊朗足协主席迈赫迪·塔吉在赴加拿大温哥华参加国际足联大会时遭拒签。
+
+美加两国以伊朗伊斯兰革命卫队被其列为“恐怖组织”为由，单方面宣布拒绝与该部队有关联的人员入境。
+
+针对主办方的入境限制，伊朗负责法律和国际事务的副外长卡齐姆·加里巴巴迪明确表态，强调国际足联有绝对责任确保所有参赛队伍及其代表团能够顺利进入主办国。
+
+他指出，伊朗国家队已严格依据国际足联规则取得合法参赛权，任何阻挠球员、技术人员、足协官员或代表团核心成员入境的行径，均严重违背世界杯的精神与宗旨。
+
+他重申，若主办方无法保证所有晋级球队在无歧视限制下平等竞争，世界杯自身的信誉将遭受实质性损害。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 04:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 04:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 04:05 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 04:15 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 04:12 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 04:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 04:16 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 04:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:20 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 04:12 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 04:30 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 04:34 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 04:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 04:25 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 04:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 04:21 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 04:26 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 04:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 04:10 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 04:15 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/867410268837.shtml)
-- 2026-06-30 04:21 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/48193.shtml)
-- 2026-06-30 04:10 - [请回答王牌2019](http://www.blog.minike.top/Article/details/026362.shtml)
-- 2026-06-30 04:10 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8712906728.shtml)
-- 2026-06-30 04:12 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/9052054.shtml)
-- 2026-06-30 04:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/002220923.shtml)
-- 2026-06-30 04:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/047185185414.shtml)
-- 2026-06-30 04:05 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/956795.shtml)
-- 2026-06-30 04:21 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/68332529.shtml)
-- 2026-06-30 04:28 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/3349253.shtml)
-- 2026-06-30 04:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/94011690.shtml)
-- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/81140.shtml)
-- 2026-06-30 04:05 - [青春环游记第三季](https://www.blog.minike.top/Article/details/37445199.shtml)
-- 2026-06-30 04:05 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/3206491123.shtml)
-- 2026-06-30 04:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/2644836.shtml)
+- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/506305.shtml)
+- 2026-06-30 04:13 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/422121.shtml)
+- 2026-06-30 04:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/068815.shtml)
+- 2026-06-30 04:32 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/605107822852.shtml)
+- 2026-06-30 04:24 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/99910.shtml)
+- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/706319690116.shtml)
+- 2026-06-30 04:18 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/5299829650.shtml)
+- 2026-06-30 04:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/888885.shtml)
+- 2026-06-30 04:26 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/67959921.shtml)
+- 2026-06-30 04:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/902405.shtml)
+- 2026-06-30 04:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/335772256.shtml)
+- 2026-06-30 04:21 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/21269576.shtml)
+- 2026-06-30 04:18 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/286633075980.shtml)
+- 2026-06-30 04:27 - [月亮](https://www.share.kurohicncr.top/Article/details/384337.shtml)
+- 2026-06-30 04:26 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/20068.shtml)

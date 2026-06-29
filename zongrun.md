@@ -1,57 +1,61 @@
-# 判了！受贿数额特别巨大，上海保交所原董事长任春生一审获刑12年
+# 逾500名澳门中学师生走进华侨大学体验中华传统文化
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-上海保交所原董事长任春生受贿案一审宣判。 据北京市高级人民法院微信号“京网法事”消息 ，2026年4月30日，北京市第二中级人民法院依法公开宣判上海保交所原党委书记、董事长任春生受贿一案，对被告人任春生以受贿罪判处有期徒刑十二年，并处罚金人民币一百五十万元。对追缴在案的任春生受贿犯罪所得财物依法予以没收，上缴国库。 两年前的2024年4月30日，任春生被曝失联。在此之前，他卸任
+中新网泉州5月14日电 (记者 孙虹)二十四节令鼓节奏铿锵有力、舞龙舞狮翻腾跳跃……14日，澳门濠江中学逾500名师生到访华侨大学泉州校区，与华大学子同上一堂课、同唱一首歌、同吟一首诗，沉浸式体验内地高校丰富多彩的校园文化。 澳门濠江中学副校长陈虹告诉中新网记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。 作
 
 ## 正文
 
-上海保交所原董事长任春生受贿案一审宣判。
+中新网泉州5月14日电 (记者 孙虹)二十四节令鼓节奏铿锵有力、舞龙舞狮翻腾跳跃……14日，澳门濠江中学逾500名师生到访华侨大学泉州校区，与华大学子同上一堂课、同唱一首歌、同吟一首诗，沉浸式体验内地高校丰富多彩的校园文化。
 
-据北京市高级人民法院微信号“京网法事”消息 ，2026年4月30日，北京市第二中级人民法院依法公开宣判上海保交所原党委书记、董事长任春生受贿一案，对被告人任春生以受贿罪判处有期徒刑十二年，并处罚金人民币一百五十万元。
+澳门濠江中学副校长陈虹告诉中新网记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。
 
-对追缴在案的任春生受贿犯罪所得财物依法予以没收，上缴国库。
+作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。
 
-两年前的2024年4月30日，任春生被曝失联。
+多年前的校园生活令她记忆犹新，“华大以包容开放的校园氛围融通中外，重视中华优秀传统文化传承，给我留下深刻的印象，也培养了我成为一名教书育人的老师。
 
-在此之前，他卸任上海保交所党委书记、董事长职务，并被调任国家金融监督管理总局投诉调解中心筹备组组长。
+”陈虹说，希望此行能带给澳门中学生不一样的课堂体验。
 
-同年5月7日，中央纪委国家监委驻国家金融监督管理总局纪检监察组、北京市纪委监委消息称，国家金融监督管理总局投诉调解中心筹备组组长任春生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家金融监督管理总局纪检监察组纪律审查和北京市通州区监委监察调查。
+当天，澳门中学生们观看了华侨大学二十四节令鼓、舞龙、舞狮、街舞等表演，并参与互动体验。
 
-2025年3月21日，据中央纪委国家监委网站发布消息，任春生被“双开”。
+在短暂的交流学习后，华大舞龙队队员带着澳门小朋友一起配合，“巨龙”时而腾空而起，时而俯冲而下，时而盘旋飞舞，引起大家阵阵欢呼。
 
-通报称，经查，任春生身为国有金融企业党员领导干部，丧失理想信念，背弃初心使命，目无党纪国法，违反政治纪律，参加迷信活动；违反中央八项规定精神，接受可能影响公正执行公务的旅游活动和宴请，将应由本人承担的费用交由他人支付，收受可能影响公正执行公务的消费卡；违反组织纪律，在接受组织函询时不如实向组织说明问题，利用职权和职务影响为他人在人员录用工作中谋利；违反廉洁纪律，违规买卖股票。
+“体验了敲鼓、打锣，非常有趣。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 04:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 04:00 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 04:28 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 04:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:28 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 04:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 04:20 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 04:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 04:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 04:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 04:32 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 04:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 04:26 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 04:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 04:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 04:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 04:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 04:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 04:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 04:17 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 04:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 04:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 04:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 04:10 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/586356540458.shtml)
-- 2026-06-30 04:08 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/737227198152.shtml)
-- 2026-06-30 04:21 - [金牌调解](https://www.blog.minike.top/Article/details/9318320.shtml)
-- 2026-06-30 04:29 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/39836771.shtml)
-- 2026-06-30 04:19 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/746892653732.shtml)
-- 2026-06-30 04:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/42050091231.shtml)
-- 2026-06-30 04:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/027226621.shtml)
-- 2026-06-30 04:01 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/0291325235.shtml)
-- 2026-06-30 04:08 - [小娘惹](http://www.blog.minike.top/Article/details/4704109072.shtml)
-- 2026-06-30 04:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/113175008.shtml)
-- 2026-06-30 04:27 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/1153546.shtml)
-- 2026-06-30 04:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/7054575227.shtml)
-- 2026-06-30 04:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/22102.shtml)
-- 2026-06-30 04:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/84385475.shtml)
-- 2026-06-30 04:08 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/801390656.shtml)
+- 2026-06-30 04:06 - [《共患难》](https://www.share.minike.top/Article/details/456056573.shtml)
+- 2026-06-30 04:08 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/49149578.shtml)
+- 2026-06-30 04:16 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/103687483556.shtml)
+- 2026-06-30 04:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/333176.shtml)
+- 2026-06-30 04:10 - [明星大侦探第一季](http://www.share.minike.top/Article/details/436967.shtml)
+- 2026-06-30 04:08 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/312980500.shtml)
+- 2026-06-30 04:25 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/2206066.shtml)
+- 2026-06-30 04:08 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/10116883541.shtml)
+- 2026-06-30 04:08 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/700867.shtml)
+- 2026-06-30 04:08 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/4265669.shtml)
+- 2026-06-30 04:30 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/30861224.shtml)
+- 2026-06-30 04:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/917566.shtml)
+- 2026-06-30 04:09 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/72323.shtml)
+- 2026-06-30 04:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/634316826.shtml)
+- 2026-06-30 04:19 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/1765924752.shtml)

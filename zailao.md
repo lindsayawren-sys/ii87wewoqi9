@@ -1,56 +1,50 @@
-# 尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年
+# 中方是否同意未来购买美国石油？外交部回应
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。尹锡悦律师团队表示将提起上诉。 尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。 法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执
+#外交部回应是否同意购买美国石油#【#中方是否同意未来购买美国石油#？外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。 法新社记者提问，中方是否同意在未来购买美国石油？ 郭嘉昆表示，中方愿同各方共同维护全球能源安全和产供链稳定，当务之急是推动海湾和中东地区恢复和平稳定。（@北京日报 记者 刘晓琰） 责任编辑：刘万里 SF014
 
 ## 正文
 
-中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。
+#外交部回应是否同意购买美国石油#【#中方是否同意未来购买美国石油#？
 
-尹锡悦律师团队表示将提起上诉。
+外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。
 
-尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。
+法新社记者提问，中方是否同意在未来购买美国石油？
 
-法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。
+郭嘉昆表示，中方愿同各方共同维护全球能源安全和产供链稳定，当务之急是推动海湾和中东地区恢复和平稳定。
 
-法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执行逮捕令，涉嫌妨碍特别公务执行、滥用职权妨碍权利行使及教唆窝藏罪犯。
-
-同时，为应对内乱调查，尹锡悦指示总统警卫次长金成勋删除前反间谍司令官吕寅兄等人的加密通信记录，涉嫌教唆违反《总统警卫法》。
-
-上述指控与一审一致，均被认定有罪。
-
-此外，法院指出，在宣布紧急戒严过程中，尹锡悦为制造“已召开国务会议”的形式，仅召集部分国务委员，涉嫌侵害9名未到场国务委员的戒严审议权。
+（@北京日报 记者 刘晓琰） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 04:00 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 04:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 04:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 04:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 04:13 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 04:11 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 04:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 04:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 04:24 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 04:16 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 04:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 04:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 04:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 04:30 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 04:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 04:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 04:23 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 04:34 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/4300041.shtml)
-- 2026-06-30 04:22 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/7874717.shtml)
-- 2026-06-30 04:23 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/34116096.shtml)
-- 2026-06-30 04:20 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/16729905338.shtml)
-- 2026-06-30 04:16 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/759482793240.shtml)
-- 2026-06-30 04:20 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/622138213.shtml)
-- 2026-06-30 04:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/65334.shtml)
-- 2026-06-30 04:05 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/97173539.shtml)
-- 2026-06-30 04:08 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/727738713.shtml)
-- 2026-06-30 04:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/902688394.shtml)
-- 2026-06-30 04:00 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/06574764729.shtml)
-- 2026-06-30 04:26 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/58782.shtml)
-- 2026-06-30 04:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/86420.shtml)
-- 2026-06-30 04:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/0891157.shtml)
-- 2026-06-30 04:10 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/28385469.shtml)
+- 2026-06-30 04:35 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/290992766627.shtml)
+- 2026-06-30 04:19 - [毒液2](http://www.share.minike.top/Article/details/2896088.shtml)
+- 2026-06-30 04:28 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/6675994257.shtml)
+- 2026-06-30 04:15 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/70916411.shtml)
+- 2026-06-30 04:19 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/220430059.shtml)
+- 2026-06-30 04:14 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/5328687.shtml)
+- 2026-06-30 04:13 - [扫黑风暴](https://www.blog.minike.top/Article/details/195092062704.shtml)
+- 2026-06-30 04:25 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/477502129137.shtml)
+- 2026-06-30 04:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/057982089.shtml)
+- 2026-06-30 04:14 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/098321.shtml)
+- 2026-06-30 04:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/83940621669.shtml)
+- 2026-06-30 04:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/787464723.shtml)
+- 2026-06-30 04:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/8740957.shtml)
+- 2026-06-30 04:21 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/3669696.shtml)
+- 2026-06-30 04:14 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/7149278.shtml)

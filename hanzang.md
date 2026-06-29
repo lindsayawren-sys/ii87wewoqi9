@@ -1,48 +1,60 @@
-# 农业银行来宾分行被罚198.24万元：违反金融统计相关规定等
+# 湖北兴山首次发现野生珙桐群落 占地约75亩
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据中国人民银行来宾市分行行政处罚决定信息公示表显示，中国农业银行股份有限公司来宾分行因违反金融统计相关规定、违反账户管理规定、违反反假货币业务管理规定、占压财政存款或资金、违反信用信息采集、提供、查询及相关管理规定、未按规定开展客户尽职调查，被处警告，并处罚款人民币198.24万元。 责任编辑：秦艺
+中新网宜昌5月15日电 (杨麒 董晓斌)记者15日从湖北省兴山县国有坟埫坪林场获悉，该林场首次发现占地约75亩的野生珙桐群落，进一步丰富了当地的野生珍稀植物资源名录。 此次发现的野生珙桐，生长于林场海拔1400米、生态环境优良的深山密林之中。经初步调查，珙桐群落有胸径5厘米以上的30余株、幼树70余株，植株长势健壮、分布集中。 珙桐是第三纪孑遗珍稀植物、国家一级保护植物，被誉为
 
 ## 正文
 
-4月30日金融一线消息，据中国人民银行来宾市分行行政处罚决定信息公示表显示，中国农业银行股份有限公司来宾分行因违反金融统计相关规定、违反账户管理规定、违反反假货币业务管理规定、占压财政存款或资金、违反信用信息采集、提供、查询及相关管理规定、未按规定开展客户尽职调查，被处警告，并处罚款人民币198.24万元。
+中新网宜昌5月15日电 (杨麒 董晓斌)记者15日从湖北省兴山县国有坟埫坪林场获悉，该林场首次发现占地约75亩的野生珙桐群落，进一步丰富了当地的野生珍稀植物资源名录。
 
-责任编辑：秦艺
+此次发现的野生珙桐，生长于林场海拔1400米、生态环境优良的深山密林之中。
+
+经初步调查，珙桐群落有胸径5厘米以上的30余株、幼树70余株，植株长势健壮、分布集中。
+
+珙桐是第三纪孑遗珍稀植物、国家一级保护植物，被誉为“植物界的大熊猫”。
+
+珙桐极具科研价值、生态价值与保护价值，对区域生物多样性保护、森林生态系统研究意义重大。
+
+兴山县国有坟埫坪林场技术人员简喜介绍，珙桐对生长环境要求极为严苛，此次发现的野生珙桐群落，周边植被繁茂、气候温润、水土条件优越，远离人为干扰，为其生长繁育提供了绝佳的自然环境。
+
+近年来，兴山县国有坟埫坪林场持续加大山林巡护力度，严控各类破坏森林资源行为，全力守护林区生态，林区生态环境持续向好，各类珍稀野生动植物得以安心繁衍生息。
+
+下一步，林场将划定专属保护区域，加强日常巡护监测，做好种群生长跟踪记录，严防人为破坏，全力守护好珍稀野生植物资源，持续筑牢林区生态安全屏障，守护好林区绿水青山。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 04:17 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 04:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 04:01 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 04:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 04:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 04:29 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:27 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 04:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 04:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 04:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 04:17 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 04:25 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 04:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 04:16 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 04:14 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 04:20 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 04:09 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 04:12 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 04:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 04:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 04:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 04:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 04:13 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 04:15 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 04:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 04:29 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [毒液2](https://www.blog.minike.top/Article/details/37498957517.shtml)
-- 2026-06-30 04:15 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/04413035983.shtml)
-- 2026-06-30 04:06 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/5757624135.shtml)
-- 2026-06-30 04:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/986367.shtml)
-- 2026-06-30 04:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/483429969.shtml)
-- 2026-06-30 04:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/90788403.shtml)
-- 2026-06-30 04:27 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/3746890.shtml)
-- 2026-06-30 04:02 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8468256595.shtml)
-- 2026-06-30 04:26 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/66361533914.shtml)
-- 2026-06-30 04:10 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/82048920.shtml)
-- 2026-06-30 04:29 - [《贺子珍》](http://www.share.minike.top/Article/details/16377534.shtml)
-- 2026-06-30 04:02 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/25878.shtml)
-- 2026-06-30 04:16 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/869657761358.shtml)
-- 2026-06-30 04:28 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/39191556765.shtml)
-- 2026-06-30 04:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/6501597562.shtml)
+- 2026-06-30 04:32 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/20029.shtml)
+- 2026-06-30 04:34 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/265908439.shtml)
+- 2026-06-30 04:33 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/07663.shtml)
+- 2026-06-30 04:07 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/01091438.shtml)
+- 2026-06-30 04:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/41870452.shtml)
+- 2026-06-30 04:30 - [张凌赫 客串](https://www.share.minike.top/Article/details/77962013017.shtml)
+- 2026-06-30 04:06 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/57464225823.shtml)
+- 2026-06-30 04:09 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/726213630517.shtml)
+- 2026-06-30 04:19 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/376098786868.shtml)
+- 2026-06-30 04:16 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/32125321.shtml)
+- 2026-06-30 04:33 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/56337521.shtml)
+- 2026-06-30 04:30 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/08331339471.shtml)
+- 2026-06-30 04:32 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/531060.shtml)
+- 2026-06-30 04:29 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/733770239959.shtml)
+- 2026-06-30 04:34 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/514804628.shtml)

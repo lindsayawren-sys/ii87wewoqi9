@@ -1,56 +1,61 @@
-# 重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地
+# “巴菲特午餐”重启，这次有何不同？
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月30日电 (梁钦卿)随着2026年“五一”假期临近，重庆这座“8D魔幻城市”即将迎来新一轮文旅消费热潮。在巴蜀文化旅游走廊建设迈向“能级跃升”的关键之年，重庆市积极采取多项措施保障假期市场秩序，为游客营造安全放心的消费环境。 据悉，从4月25日至5月5日，重庆市开启为期11天的“五一”黄金消费周，全市将联动商户开展700余场特色促消费活动，优享让利超10亿元。尤其
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！时隔数年，“巴菲特慈善午餐”再次回归资本市场视野。 北京时间5月15日，重启后的“巴菲特慈善午餐”，最终以900.01万美元（约合人民币6100万元）的价格成交。eBay网站显示，本次拍卖共有172次出价、5位竞标者参与，最终买家身份暂未公开。 图片来自eBay网站 “巴菲特慈善午餐”此次回归，有何不同？
 
 ## 正文
 
-中新网重庆4月30日电 (梁钦卿)随着2026年“五一”假期临近，重庆这座“8D魔幻城市”即将迎来新一轮文旅消费热潮。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在巴蜀文化旅游走廊建设迈向“能级跃升”的关键之年，重庆市积极采取多项措施保障假期市场秩序，为游客营造安全放心的消费环境。
+时隔数年，“巴菲特慈善午餐”再次回归资本市场视野。
 
-据悉，从4月25日至5月5日，重庆市开启为期11天的“五一”黄金消费周，全市将联动商户开展700余场特色促消费活动，优享让利超10亿元。
+北京时间5月15日，重启后的“巴菲特慈善午餐”，最终以900.01万美元（约合人民币6100万元）的价格成交。
 
-尤其在“五一”假期，重庆市统筹推出100余项文旅活动，涵盖非遗美食、艺术展演、体育赛事、群文惠民等多个类别。
+eBay网站显示，本次拍卖共有172次出价、5位竞标者参与，最终买家身份暂未公开。
 
-据重庆市交通运输委分析研判，“五一”期间，预计重庆市跨区域出行总量达4525万人次，同比增长约3.5%。
+图片来自eBay网站 “巴菲特慈善午餐”此次回归，有何不同？
 
-游客出行选择更加多样，高铁、民航落地租车成为新趋势，小微汽车租赁预订量达1.8万辆次，同比上升10%。
+作为全球最具知名度的慈善拍卖活动之一，“巴菲特慈善午餐”曾是全球投资圈、互联网圈等高度关注的事件。
 
-如何提前应对游客激增？
+尤其在过去十余年间，多位中国企业家和投资人曾高价竞得午餐资格，一度成为热门话题。
 
-重庆市安排充足铁公水空运力，强化统筹调度，增加发车频次、缩短发车间隔、延长营运时间、开行夜间铁路班列、加飞夜间航班、加密两江游航次。
+公开资料显示，“巴菲特慈善午餐”始于2000年，由巴菲特为美国慈善机构格莱德基金会发起。
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 04:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 04:23 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 04:00 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 04:04 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 04:03 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 04:16 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 04:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 04:12 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 04:09 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 04:24 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 04:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 04:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 04:16 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 04:17 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 04:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 04:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 04:19 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 04:31 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 04:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 04:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 04:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/23189118.shtml)
-- 2026-06-30 04:02 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/97068.shtml)
-- 2026-06-30 04:19 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/0887289.shtml)
-- 2026-06-30 04:26 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/173235.shtml)
-- 2026-06-30 04:13 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/76171664.shtml)
-- 2026-06-30 04:20 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/075356146079.shtml)
-- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/808668109354.shtml)
-- 2026-06-30 04:23 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/87134945.shtml)
-- 2026-06-30 04:20 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/20374569652.shtml)
-- 2026-06-30 04:26 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/853932300625.shtml)
-- 2026-06-30 04:27 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/426019.shtml)
-- 2026-06-30 04:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/006147332.shtml)
-- 2026-06-30 04:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/027751569126.shtml)
-- 2026-06-30 04:15 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/1254704381.shtml)
-- 2026-06-30 04:22 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/8964205.shtml)
+- 2026-06-30 04:21 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/508102101630.shtml)
+- 2026-06-30 04:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/36853245.shtml)
+- 2026-06-30 04:14 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/900012126.shtml)
+- 2026-06-30 04:21 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/756683939.shtml)
+- 2026-06-30 04:30 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/595146385654.shtml)
+- 2026-06-30 04:35 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/516790277.shtml)
+- 2026-06-30 04:25 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/774185270812.shtml)
+- 2026-06-30 04:22 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/54791.shtml)
+- 2026-06-30 04:06 - [金牌调解](https://www.share.kurohicncr.top/Article/details/34127009.shtml)
+- 2026-06-30 04:30 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/3939840273.shtml)
+- 2026-06-30 04:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/79605776.shtml)
+- 2026-06-30 04:27 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/38636661926.shtml)
+- 2026-06-30 04:31 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/96461735.shtml)
+- 2026-06-30 04:27 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/508928550607.shtml)
+- 2026-06-30 04:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/610855595059.shtml)

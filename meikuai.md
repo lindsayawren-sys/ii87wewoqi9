@@ -1,59 +1,58 @@
-# 华安基金熊哲颖｜洞见能源格局：发掘新能源新动能
+# 特朗普白宫宴会厅安保拨款遭参议院裁定删除
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-从“十五五”规划明确提出“加快建设新型能源体系”，到全球可再生能源装机量持续攀升，绿色低碳已从发展倡议转变为不可逆转的时代潮流。要洞见未来复杂的能源格局，关键在于透过价格的波动与市场的喧嚣，去发掘那些正在积蓄势能、即将成为未来支柱的新能源新动能。 华安基金作为业内最早深耕科技投资的基金公司之一，集结了兼具“产业学术背景+深厚投研实力”的投研团队，凭借深厚的产业积淀与团队协作能力
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。 参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。政府一直寻求这笔资金，用于宴会厅相关的安保支出。 特朗普曾宣称，宴会厅建设将由私人捐助者出资。但参议院共和党人正寻求为特
 
 ## 正文
 
-从“十五五”规划明确提出“加快建设新型能源体系”，到全球可再生能源装机量持续攀升，绿色低碳已从发展倡议转变为不可逆转的时代潮流。
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。
 
-要洞见未来复杂的能源格局，关键在于透过价格的波动与市场的喧嚣，去发掘那些正在积蓄势能、即将成为未来支柱的新能源新动能。
+此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。
 
-华安基金作为业内最早深耕科技投资的基金公司之一，集结了兼具“产业学术背景+深厚投研实力”的投研团队，凭借深厚的产业积淀与团队协作能力，在科技投资领域不断扩容、深耕与迭代探索。
+参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。
 
-基金经理熊哲颖作为华安基金投研团队的高端制造投资实战家，拥有15年行业经验与4年投资管理经验，持续深耕汽车、机械、新能源领域。
+政府一直寻求这笔资金，用于宴会厅相关的安保支出。
 
-当AI浪潮袭来，她凭借机电背景、从AI赋能底层机械装备、永续能源等角度，快速挖掘出新科技带来的投资机会，并在机器人、新能源汽车、机械设备等领域发挥所长。
+特朗普曾宣称，宴会厅建设将由私人捐助者出资。
 
-2022年11月加入华安基金后，熊哲颖围绕“先进制造”领域展开，在维持行业均衡的同时，通过聚焦个股的方式提高锐度，形成了“攻守兼备”的投资体系。
+但参议院共和党人正寻求为特勤局划拨10亿美元纳税人资金，用于包括宴会厅在内的白宫安保升级项目。
 
-《洞见﹒新产业》第六期对话基金经理熊哲颖，以下是基金经理的精彩观点分享。
+美国参议院议事规则官负责解读参议院各项议事规则，判定相关立法条款是否合规。
 
-1．周期成长拆解投资框架，新能源行业有望量价齐升 主持人：新能源行业涉及光伏、风电、储能、新能源车等多个赛道，您如何搭建有效的投资框架？
+目前共和党掌控参议院，依旧可以修订法案，争取获得规则官认可。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 04:24 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 04:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 04:26 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 04:13 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 04:14 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 04:28 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 04:14 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 04:25 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:22 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 04:17 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 04:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 04:21 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 04:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 04:15 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 04:07 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 04:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 04:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 04:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 04:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 04:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 04:30 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 04:20 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 04:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/72622125490.shtml)
-- 2026-06-30 04:01 - [极限挑战第一季](https://www.share.minike.top/Article/details/4163694474.shtml)
-- 2026-06-30 04:15 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/9458514.shtml)
-- 2026-06-30 04:09 - [金牌调解](http://www.share.kurohicncr.top/Article/details/34661522.shtml)
-- 2026-06-30 04:03 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/350534.shtml)
-- 2026-06-30 04:29 - [巴西扳平比分](https://www.share.minike.top/Article/details/87743.shtml)
-- 2026-06-30 04:15 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/366379265245.shtml)
-- 2026-06-30 04:12 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/790688888131.shtml)
-- 2026-06-30 04:17 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/162608577996.shtml)
-- 2026-06-30 04:03 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/71858.shtml)
-- 2026-06-30 04:16 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/169846831.shtml)
-- 2026-06-30 04:24 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/96684340.shtml)
-- 2026-06-30 04:24 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/9750616894.shtml)
-- 2026-06-30 04:07 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/47708.shtml)
-- 2026-06-30 04:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/235486.shtml)
+- 2026-06-30 04:34 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/5500989.shtml)
+- 2026-06-30 04:17 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/093582.shtml)
+- 2026-06-30 04:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/909879623.shtml)
+- 2026-06-30 04:32 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/57564.shtml)
+- 2026-06-30 04:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/338393223.shtml)
+- 2026-06-30 04:22 - [刘念回应](https://www.blog.minike.top/Article/details/062418873.shtml)
+- 2026-06-30 04:34 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/6975959938.shtml)
+- 2026-06-30 04:25 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/35636095.shtml)
+- 2026-06-30 04:21 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/38834.shtml)
+- 2026-06-30 04:16 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/33114927.shtml)
+- 2026-06-30 04:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/07549.shtml)
+- 2026-06-30 04:06 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/07116629.shtml)
+- 2026-06-30 04:27 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/82631937.shtml)
+- 2026-06-30 04:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/00711895357.shtml)
+- 2026-06-30 04:18 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/89558.shtml)

@@ -1,51 +1,58 @@
-# 中创智领遭贝莱德减持4.3万股 每股作价18.5819港元
+# Nu Holdings营收突破50亿美元，但季度利润率承压
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月23日，贝莱德减持中创智领（00564）4.3万股，每股作价18.5819港元，总金额约为79.90万港元。减持后最新持股数目为1698.42万股，最新持股比例为6.98%。责任编辑：卢昱君
+Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。按中性汇率计算，净利润为8.71亿美元，同比增长41%。年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。 毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。经风险调整后的净息差（NIM）从第四季度的
 
 ## 正文
 
-香港联交所最新数据显示，4月23日，贝莱德减持中创智领（00564）4.3万股，每股作价18.5819港元，总金额约为79.90万港元。
+Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。
 
-减持后最新持股数目为1698.42万股，最新持股比例为6.98%。
+按中性汇率计算，净利润为8.71亿美元，同比增长41%。
 
-责任编辑：卢昱君
+年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。
+
+毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。
+
+经风险调整后的净息差（NIM）从第四季度的10.5%下降100个基点至9.5%。
+
+早期逾期率（15至90天不良贷款率）上升89个基点至5.0%，与2024年第一季度和2025年第一季度观察到的季节性模式一致。
+
+总信贷组合同比增长40%至372亿美元。
+
+成本收入比从第四季度的19.9%改善至17.6%。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 04:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 04:22 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 04:28 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 04:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 04:28 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 04:27 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 04:07 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 04:18 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 04:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 04:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 04:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 04:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 04:27 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 04:18 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 04:35 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 04:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 04:21 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 04:14 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 04:15 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 04:30 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 04:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 04:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/643395161051.shtml)
-- 2026-06-30 04:11 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/2229193872.shtml)
-- 2026-06-30 04:25 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/86140699.shtml)
-- 2026-06-30 04:07 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/501824.shtml)
-- 2026-06-30 04:21 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/84442688.shtml)
-- 2026-06-30 04:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/46449726357.shtml)
-- 2026-06-30 04:14 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/765040.shtml)
-- 2026-06-30 04:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/675904948042.shtml)
-- 2026-06-30 04:27 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/234554.shtml)
-- 2026-06-30 04:18 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/1240354209.shtml)
-- 2026-06-30 04:15 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/039068389067.shtml)
-- 2026-06-30 04:11 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/57874755184.shtml)
-- 2026-06-30 04:01 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/8116658.shtml)
-- 2026-06-30 04:29 - [沙丘](http://www.share.kurohicncr.top/Article/details/4245873726.shtml)
-- 2026-06-30 04:02 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/495129928.shtml)
+- 2026-06-30 04:15 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/7473136008.shtml)
+- 2026-06-30 04:22 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/6311844.shtml)
+- 2026-06-30 04:33 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/47080.shtml)
+- 2026-06-30 04:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/7083885261.shtml)
+- 2026-06-30 04:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/67006.shtml)
+- 2026-06-30 04:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/23893980442.shtml)
+- 2026-06-30 04:24 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/85717606439.shtml)
+- 2026-06-30 04:34 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/48158911.shtml)
+- 2026-06-30 04:07 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/3787185.shtml)
+- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/58892467.shtml)
+- 2026-06-30 04:35 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/1867247.shtml)
+- 2026-06-30 04:06 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/618523887390.shtml)
+- 2026-06-30 04:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/478830.shtml)
+- 2026-06-30 04:19 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/60948015547.shtml)
+- 2026-06-30 04:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/016312.shtml)

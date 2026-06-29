@@ -1,58 +1,59 @@
-# 东莞银行2025年营利双降，非息收入大降35%成拖累，一季度回暖业绩拐点待确认
+# 今年前4个月欧盟非法入境人次同比下降40%
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻4月29日讯（记者 金磊） 近日，东莞银行发布2025年年度报告及2026年一季报。2025年，该行实现营业收入93.02亿元，同比下降8.78%；归属于本行股东的净利润30.78亿元，同比下降17.53%。该行拟以总股本23.416亿股为基数，每10股派发现金股利3.20元（含税），合计派发7.49亿元。 截至2025年末，该行资产总额6892.81亿元，较上年末增加
+中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。 欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。 具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前
 
 ## 正文
 
-蓝鲸新闻4月29日讯（记者 金磊） 近日，东莞银行发布2025年年度报告及2026年一季报。
+中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。
 
-2025年，该行实现营业收入93.02亿元，同比下降8.78%；归属于本行股东的净利润30.78亿元，同比下降17.53%。
+欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。
 
-该行拟以总股本23.416亿股为基数，每10股派发现金股利3.20元（含税），合计派发7.49亿元。
+具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前4个月非法入境近8500人次，较去年同期下降46%，非法入境人员主要来自孟加拉国、索马里和苏丹，利比亚是主要中转站。
 
-截至2025年末，该行资产总额6892.81亿元，较上年末增加165.51亿元，增幅2.46%；负债总额6427.80亿元，较上年末增加136.92亿元，增幅2.18%；存款余额4477.50亿元，较上年末增加93.26亿元，增幅2.13%；贷款余额3878.41亿元，较上年末增加222.88亿元，增幅6.10%。
+在东地中海一线(目的地希腊等国)，今年前4个月非法入境逾8400人次，较去年同期下降32%，非法入境人员主要来自阿富汗、苏丹和也门，从利比亚至希腊克里特岛的非法入境路线依然活跃。
 
-非息收入成为拖累主要因素，今年一季度业绩迎来双增长 从营收构成来看，2025年该行利息净收入为73.2亿元，同比增长2.87%，是东莞银行营收的主要支柱，占总营收的78.73%。
+在西非一线，得益于毛里塔尼亚、塞内加尔、冈比亚等国加大边境管控力度，今年前4个月非法入境逾2300人次，较去年同期下降78%，非法入境人员主要来自冈比亚、塞内加尔和几内亚。
 
-2025年该行非利息收入19.79亿元，同比大幅下滑35.72%，成为拖累整体营收的重要因素。
+在西巴尔干一线，今年前4个月非法入境逾2800人次，较去年同期下降19%，非法入境人员主要来自土耳其、埃及和阿富汗。
 
-其中，投资收益15.16亿元，同比下降27.33%；公允价值变动收益仅0.02亿元，同比暴跌99.04%；汇兑损益更是录得-4.91亿元，同比减少660.29%。
+在欧盟东部陆地边境，今年前4个月非法入境逾1100人次，较去年同期下降49%，非法入境人员主要来自乌克兰、俄罗斯和黎巴嫩。
 
-而该行手续费及佣金净收入实现9.34亿元，同比增长26.70%，营收占比回升至10.04%。
+与上述路线相反，在西地中海一线(目的地西班牙等国)，今年前4个月非法入境近5200人次，较去年同期增加50%，非法入境人员主要来自阿尔及利亚、马里和摩洛哥，阿尔及利亚是主要中转站。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 04:07 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 04:12 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 04:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 04:11 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 04:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 04:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 04:08 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 04:04 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 04:21 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:11 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 04:18 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 04:15 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 04:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:11 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 04:31 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 04:22 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 04:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 04:24 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 04:13 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 04:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 04:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 04:25 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/673408126662.shtml)
-- 2026-06-30 04:09 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/463293475746.shtml)
-- 2026-06-30 04:24 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/2334929.shtml)
-- 2026-06-30 04:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/79860971688.shtml)
-- 2026-06-30 04:01 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/512258.shtml)
-- 2026-06-30 04:09 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/44518.shtml)
-- 2026-06-30 04:04 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/441984.shtml)
-- 2026-06-30 04:18 - [张凌赫 客串](https://www.blog.minike.top/Article/details/83218064354.shtml)
-- 2026-06-30 04:26 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/922671.shtml)
-- 2026-06-30 04:12 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/35126626.shtml)
-- 2026-06-30 04:12 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/770123.shtml)
-- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/1380235611.shtml)
-- 2026-06-30 04:03 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/8274054266.shtml)
-- 2026-06-30 04:28 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/9189250907.shtml)
-- 2026-06-30 04:28 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/691937416542.shtml)
+- 2026-06-30 04:15 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/79340656.shtml)
+- 2026-06-30 04:09 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/910625087.shtml)
+- 2026-06-30 04:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/65368655699.shtml)
+- 2026-06-30 04:06 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/8239179.shtml)
+- 2026-06-30 04:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/585372.shtml)
+- 2026-06-30 04:28 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/55842141274.shtml)
+- 2026-06-30 04:31 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/233354015390.shtml)
+- 2026-06-30 04:33 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/00388109.shtml)
+- 2026-06-30 04:10 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/17156278920.shtml)
+- 2026-06-30 04:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/015476954449.shtml)
+- 2026-06-30 04:28 - [金刚川](http://www.share.minike.top/Article/details/617981.shtml)
+- 2026-06-30 04:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/99681966.shtml)
+- 2026-06-30 04:33 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/7097466.shtml)
+- 2026-06-30 04:15 - [明星大侦探第一季](https://www.share.minike.top/Article/details/1000454.shtml)
+- 2026-06-30 04:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/738517364457.shtml)

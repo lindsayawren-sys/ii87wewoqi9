@@ -1,60 +1,56 @@
-# Alphabet股东要求公司解释如何管理和控制技术和云服务用途
+# 印度奥拉电动拟投资逾2亿美元推进本土化制造
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一群Alphabet股东正在向这家科技巨头施压，要求其解释如何管理和控制各国政府将其技术和云服务用于监控目的。此前，该公司拒绝了投资者要求加强信息披露的呼吁。 在一封致Alphabet的信中，投资者要求与管理层会面。此前，这家谷歌母公司反对了一项股东决议，该决议要求公司就如何监管相关风险出具报告。负责起草这封信的Zevin资产管
+印度电动车制造商奥拉电动（Ola Electric）日前宣布，将向其核心的整车及电池业务注资2.085亿美元。 此举旨在加速推进制造环节本土化，并大幅削减运营成本，以期尽快实现全面盈利。 根据规划，该项投资预计将于2027年5月14日前完成。 作为由软银集团投资的企业，奥拉电动近期持续面临高昂的运营成本压力。 为扭转局势，该公司正着手通过推进生产自动化、精简人员规模以及提高电动
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一群Alphabet股东正在向这家科技巨头施压，要求其解释如何管理和控制各国政府将其技术和云服务用于监控目的。
+印度电动车制造商奥拉电动（Ola Electric）日前宣布，将向其核心的整车及电池业务注资2.085亿美元。
 
-此前，该公司拒绝了投资者要求加强信息披露的呼吁。
+此举旨在加速推进制造环节本土化，并大幅削减运营成本，以期尽快实现全面盈利。
 
-在一封致Alphabet的信中，投资者要求与管理层会面。
+根据规划，该项投资预计将于2027年5月14日前完成。
 
-此前，这家谷歌母公司反对了一项股东决议，该决议要求公司就如何监管相关风险出具报告。
+作为由软银集团投资的企业，奥拉电动近期持续面临高昂的运营成本压力。
 
-负责起草这封信的Zevin资产管理公司可持续投资总监表示：“云服务是一个不断增长的领域，而且正变得越来越军事化。
+为扭转局势，该公司正着手通过推进生产自动化、精简人员规模以及提高电动车电芯自给率等综合手段压降开支。
 
-我们没有看到他们对高风险环境下的干预有严格的控制。
+同时，为增强产品竞争力，公司正筹备推出全新的高性价比电动两轮车系列。
 
-” 这封信由42家机构和14位个人签署，管理的资产总额达1.15万亿美元，共持有Alphabet约22亿美元的股份。
-
-此次投资者行动是针对Alphabet在Project Nimbus、向美国移民局提供服务以及在沙特阿拉伯运营等事宜表达担忧。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 04:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 04:05 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 04:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 04:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 04:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 04:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 04:12 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 04:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 04:20 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 04:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 04:25 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 04:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 04:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 04:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 04:32 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 04:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 04:06 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 04:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 04:08 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 04:30 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 04:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 04:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/6696098.shtml)
-- 2026-06-30 04:25 - [蔚来车主罚站](https://www.share.minike.top/Article/details/717557638119.shtml)
-- 2026-06-30 04:27 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/6571168.shtml)
-- 2026-06-30 04:20 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/618639740584.shtml)
-- 2026-06-30 04:20 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/562870.shtml)
-- 2026-06-30 04:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/69028416.shtml)
-- 2026-06-30 04:01 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/3258065866.shtml)
-- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/60896.shtml)
-- 2026-06-30 04:19 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/5619536.shtml)
-- 2026-06-30 04:01 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/34976336188.shtml)
-- 2026-06-30 04:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/62041.shtml)
-- 2026-06-30 04:13 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/567366967.shtml)
-- 2026-06-30 04:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/8062660242.shtml)
-- 2026-06-30 04:19 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/58630.shtml)
-- 2026-06-30 04:16 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/930187573623.shtml)
+- 2026-06-30 04:13 - [斛珠夫人](https://www.blog.minike.top/Article/details/917950220135.shtml)
+- 2026-06-30 04:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3985362331.shtml)
+- 2026-06-30 04:30 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/8034680.shtml)
+- 2026-06-30 04:08 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/45220385242.shtml)
+- 2026-06-30 04:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/626512569313.shtml)
+- 2026-06-30 04:27 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/031815159350.shtml)
+- 2026-06-30 04:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/278317.shtml)
+- 2026-06-30 04:20 - [一生一世](https://www.blog.minike.top/Article/details/05592.shtml)
+- 2026-06-30 04:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/56192.shtml)
+- 2026-06-30 04:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/42520571.shtml)
+- 2026-06-30 04:12 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/6743923152.shtml)
+- 2026-06-30 04:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/6374920353.shtml)
+- 2026-06-30 04:21 - [张凌赫 客串](http://www.share.minike.top/Article/details/3794309872.shtml)
+- 2026-06-30 04:16 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/988554.shtml)
+- 2026-06-30 04:09 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/078467.shtml)

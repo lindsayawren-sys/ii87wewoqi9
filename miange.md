@@ -1,56 +1,61 @@
-# 排行榜｜上市险企省分群雄争霸，国寿稳坐头把交椅，中坚险企高增长，市场两极分化加剧
+# 陈妤颉刷新女子200米亚洲少年（U18）纪录
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。 阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略
+5月16日晚，2026世界田联钻石联赛长三角站在浙江绍兴的轻纺城体育中心体育场举行。在女子200米比赛中，17岁的中国选手陈妤颉以22秒84的成绩获得第七名，并刷新了由自己保持的22秒97的该项目亚洲少年(U18)纪录。两届世锦赛女子200米冠军、牙买加名将谢莉卡·杰克逊以22秒07的成绩夺得冠军。“这个成绩对我来说非常惊喜，能跑出22秒84我和教练之前都没有想到。”处于最内道
 
 ## 正文
 
-来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。
+5月16日晚，2026世界田联钻石联赛长三角站在浙江绍兴的轻纺城体育中心体育场举行。
 
-其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。
+在女子200米比赛中，17岁的中国选手陈妤颉以22秒84的成绩获得第七名，并刷新了由自己保持的22秒97的该项目亚洲少年(U18)纪录。
 
-太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。
+两届世锦赛女子200米冠军、牙买加名将谢莉卡·杰克逊以22秒07的成绩夺得冠军。
 
-阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略重镇集体发力，成为中坚险企虎口夺食、价值翻倍的关键动力。
+“这个成绩对我来说非常惊喜，能跑出22秒84我和教练之前都没有想到。
 
-财险方面，人保财险继续展现强劲统治力，广东、江苏、浙江稳居“第一梯队”，占据前五席中的四席；平安财险增量亮眼，京沪市场表现分化，太保财险精准发力，阳光财险在小基数下实现“多点开花”，前三名跨入500亿俱乐部，头部效应显著。
+”处于最内道出发的陈妤颉是全部9名选手中最年轻的一个，此前的个人最好成绩也处于最末位。
 
-阳光财险沿海及中部省份保费波动明显，人保财险福建分公司虽规模最大仍出现下滑。
+发令枪响后，面对杰克逊、米勒-乌伊博和莎卡莉·理查德森等世界级名将，陈妤颉并不怯场，最终第7个冲过终点线，将自己去年在龟尾亚锦赛夺冠时创造的亚洲少年(U18)纪录又提升了0.13秒。
 
-35家主要财险分公司中，24家收入上升，11家下滑，“冰火两重天”态势凸显部分险企当下的市场压力。
+17岁的陈妤颉本月初刚刚代表中国队参加了2026哈博罗内世界接力赛的争夺，并作为主力队员与队友一起夺得女子4×100米接力第五名，同时获得了2027年北京田径世锦赛女子4×100米接力项目的参赛资格。
 
-注：中国平安未披露寿险子公司分公司数据，因信披口径问题，本文未含平安寿险分支机构。
+除刚刚刷新的女子200米亚洲少年(U18)纪录外，她目前还保有11秒10的女子100米亚洲青年(U20)纪录。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 04:03 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 04:07 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 04:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 04:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 04:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 04:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 04:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 04:16 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 04:12 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:22 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 04:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 04:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 04:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:34 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 04:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 04:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:13 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 04:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 04:35 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 04:13 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 04:11 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 04:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/5566848.shtml)
-- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/317275.shtml)
-- 2026-06-30 04:23 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/33699258.shtml)
-- 2026-06-30 04:20 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/8494842959.shtml)
-- 2026-06-30 04:22 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/2465129.shtml)
-- 2026-06-30 04:06 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/8679508.shtml)
-- 2026-06-30 04:09 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/21479.shtml)
-- 2026-06-30 04:08 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/729036571.shtml)
-- 2026-06-30 04:10 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/2665853515.shtml)
-- 2026-06-30 04:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/69624606.shtml)
-- 2026-06-30 04:04 - [电影后室值得看吗](https://www.share.minike.top/Article/details/741668.shtml)
-- 2026-06-30 04:13 - [《贺子珍》](http://www.blog.minike.top/Article/details/967677999583.shtml)
-- 2026-06-30 04:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/83521.shtml)
-- 2026-06-30 04:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/553575474.shtml)
-- 2026-06-30 04:18 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/672906.shtml)
+- 2026-06-30 04:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/7483191.shtml)
+- 2026-06-30 04:26 - [金刚川](https://www.share.kurohicncr.top/Article/details/629932861.shtml)
+- 2026-06-30 04:35 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/61502.shtml)
+- 2026-06-30 04:31 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/437079.shtml)
+- 2026-06-30 04:22 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/2403784.shtml)
+- 2026-06-30 04:20 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1202363341.shtml)
+- 2026-06-30 04:18 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/21798.shtml)
+- 2026-06-30 04:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/477967139.shtml)
+- 2026-06-30 04:21 - [刘念回应](http://www.blog.minike.top/Article/details/3303506110.shtml)
+- 2026-06-30 04:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/049370901808.shtml)
+- 2026-06-30 04:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/75521105523.shtml)
+- 2026-06-30 04:19 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/4408075741.shtml)
+- 2026-06-30 04:12 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/697769133253.shtml)
+- 2026-06-30 04:30 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/89362.shtml)
+- 2026-06-30 04:29 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/939076717.shtml)

@@ -1,59 +1,61 @@
-# 中央宣传部、全国总工会联合发布2026年“最美职工”
+# （滇藏公路50年）西藏盐井加加面：越加越幸福
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月30日电 (记者 余湛奕)在“五一”国际劳动节来临之际，中央宣传部、全国总工会向全社会发布2026年“最美职工”先进事迹。 高丰、肖素枝、楼雅佳、肖冬样、邓述东、吴琦、杨平原、拉毛叶忠、马丛、桑南才等10位同志光荣入选。他们有的潜心攻关人工智能、新型材料，以创新赋能产业转型升级；有的扎根泥土探索农技革新，为乡村振兴增添动力；有的胸怀大爱情暖童心，倾情呵护特殊儿童成
+中新网西藏昌都5月16日电 题：西藏盐井加加面：越加越幸福 记者 缪超 刘冉阳 杜潇潇 走进滇藏公路旁的“果拉丛藏家乐”，一阵悠扬的藏族祝酒歌从院子里飘出。一碗碗仅五六根面条的“加加面”被端上桌，食客们笑着用石子计数，催促“再加一碗”，乐此不疲地比拼碗数，最高纪录达147碗。 “没吃过加加面，就等于没来过盐井。”这是西藏自治区昌都市芒康县纳西民族乡居民当地人引以为傲的口头禅。
 
 ## 正文
 
-中新网北京4月30日电 (记者 余湛奕)在“五一”国际劳动节来临之际，中央宣传部、全国总工会向全社会发布2026年“最美职工”先进事迹。
+中新网西藏昌都5月16日电 题：西藏盐井加加面：越加越幸福 记者 缪超 刘冉阳 杜潇潇 走进滇藏公路旁的“果拉丛藏家乐”，一阵悠扬的藏族祝酒歌从院子里飘出。
 
-高丰、肖素枝、楼雅佳、肖冬样、邓述东、吴琦、杨平原、拉毛叶忠、马丛、桑南才等10位同志光荣入选。
+一碗碗仅五六根面条的“加加面”被端上桌，食客们笑着用石子计数，催促“再加一碗”，乐此不疲地比拼碗数，最高纪录达147碗。
 
-他们有的潜心攻关人工智能、新型材料，以创新赋能产业转型升级；有的扎根泥土探索农技革新，为乡村振兴增添动力；有的胸怀大爱情暖童心，倾情呵护特殊儿童成长；有的传承发展非遗技艺，带动乡亲就业致富；有的常年坚守深山密林，精心守护珍稀鸟类种群；有的翻山岭、战风浪，保障边海疆通信畅通；有的努力提升服务技能，细致周到满足群众所需……他们坚守初心、躬身奋斗、默默奉献、成就不凡，生动唱响了“社会主义是干出来的，幸福是奋斗出来的”时代主旋律。
+“没吃过加加面，就等于没来过盐井。
 
-广大职工群众表示，美好生活不会从天而降，一切幸福都需要靠辛勤的劳动来创造。
+”这是西藏自治区昌都市芒康县纳西民族乡居民当地人引以为傲的口头禅。
 
-要以“最美职工”为榜样，立足本职岗位，把小事做精、把难事做实、把平凡工作干出彩，在新征程上始终以奋斗姿态展现劳动之美。
+加加面，顾名思义就是“不停地加”。
 
-据悉，2026年“最美职工”发布仪式专题节目将于近期播出。
+它在茶马古道的盐粮贸易往来中，逐渐成为当地人招待远方贵客的特色吃食，至今已延续近千年。
 
-(完)
+2010年，盐井加加面被列入西藏自治区非物质文化遗产名录。
+
+果拉丛藏家乐主人卓玛拉姆，是这项技艺的传承者之一。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 04:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 04:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 04:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 04:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 04:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 04:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 04:05 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 04:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 04:21 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 04:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 04:15 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 04:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 04:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 04:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 04:07 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 04:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 04:10 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 04:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 04:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 04:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:24 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 04:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 04:06 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 04:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 04:15 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 04:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:33 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/046215586519.shtml)
-- 2026-06-30 04:06 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/10427.shtml)
-- 2026-06-30 04:11 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/239043.shtml)
-- 2026-06-30 04:26 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/1693569.shtml)
-- 2026-06-30 04:15 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/26732.shtml)
-- 2026-06-30 04:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/39768913490.shtml)
-- 2026-06-30 04:18 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/063813.shtml)
-- 2026-06-30 04:02 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/1427567.shtml)
-- 2026-06-30 04:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/640178.shtml)
-- 2026-06-30 04:16 - [锐评T1零封KC](https://www.share.minike.top/Article/details/4905162.shtml)
-- 2026-06-30 04:11 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/978841953.shtml)
-- 2026-06-30 04:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/30865.shtml)
-- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/60058661192.shtml)
-- 2026-06-30 04:15 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/284858861.shtml)
-- 2026-06-30 04:13 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/980104429.shtml)
+- 2026-06-30 04:28 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/112307932499.shtml)
+- 2026-06-30 04:26 - [日本 高位逼抢](https://www.share.minike.top/Article/details/1504223858.shtml)
+- 2026-06-30 04:26 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/230735449973.shtml)
+- 2026-06-30 04:21 - [起风了](https://www.share.kurohicncr.top/Article/details/920610.shtml)
+- 2026-06-30 04:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/3424082.shtml)
+- 2026-06-30 04:35 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/0632576.shtml)
+- 2026-06-30 04:29 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/3779122336.shtml)
+- 2026-06-30 04:23 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/9114907614.shtml)
+- 2026-06-30 04:30 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/383477352202.shtml)
+- 2026-06-30 04:22 - [TOP Prada](http://www.share.minike.top/Article/details/548994455686.shtml)
+- 2026-06-30 04:07 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/787614876.shtml)
+- 2026-06-30 04:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/08070334378.shtml)
+- 2026-06-30 04:28 - [逃狱兄弟](http://www.share.minike.top/Article/details/288423.shtml)
+- 2026-06-30 04:09 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/05565.shtml)
+- 2026-06-30 04:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/836074.shtml)

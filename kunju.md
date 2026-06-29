@@ -1,45 +1,57 @@
-# 博纳影业：一季度归母净亏损4426.98万元
+# 高盛风险偏好指标飙至2021年来新高，罕见“双高”组合26年首现
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-博纳影业4月29日公告，2026年第一季度实现营业收入2.77亿元，同比下降47.20%；归属于上市公司股东的净利润亏损4426.98万元，上年同期净亏损9.55亿元；基本每股收益-0.03元。
+指标触及极端水平 高盛近日警告称，其风险偏好指标本周已飙升至1.1以上，创下2021年以来最高水平，自1991年有记录以来处于第99百分位。该指标基于固定收益、股票、流动性、大宗商品和信用五大类高频数据构建，自1950年以来仅有约2%的时间处于1以上区间。 与此同时，股票动量表现显著增强。以iShares MSCI USA Momentum Factor ETF为例，自3月30
 
 ## 正文
 
-博纳影业4月29日公告，2026年第一季度实现营业收入2.77亿元，同比下降47.20%；归属于上市公司股东的净利润亏损4426.98万元，上年同期净亏损9.55亿元；基本每股收益-0.03元。
+指标触及极端水平 高盛近日警告称，其风险偏好指标本周已飙升至1.1以上，创下2021年以来最高水平，自1991年有记录以来处于第99百分位。
+
+该指标基于固定收益、股票、流动性、大宗商品和信用五大类高频数据构建，自1950年以来仅有约2%的时间处于1以上区间。
+
+与此同时，股票动量表现显著增强。
+
+以iShares MSCI USA Momentum Factor ETF为例，自3月30日低点以来已上涨33%，同期标普500指数上涨18.25%，推动动量Z-Score突破3这一高位区间。
+
+26年来首次出现这一组合 高盛策略师Andrea Ferrario团队指出，这是自2000年初以来，风险偏好与动量表现首次同时处于如此极端的水平。
+
+报告称：“当前市场环境具有特殊性”，这种组合在历史上极为罕见。
+
+回顾1962年以来的数据，当RAI高于0.9且美股动量Z-Score超过2.0时，共出现过8次类似情形，其中3次在随后两年内演变为熊市。
+
+不过高盛也指出，在1999年和2021年，股市是在该信号首次出现约12个月后才见顶。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 04:19 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 04:01 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 04:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 04:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 04:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 04:11 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 04:26 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 04:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 04:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 04:29 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 04:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 04:04 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 04:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 04:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 04:08 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 04:18 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 04:11 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 04:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 04:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 04:22 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 04:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/7359178.shtml)
-- 2026-06-30 04:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/29328012171.shtml)
-- 2026-06-30 04:13 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/17125.shtml)
-- 2026-06-30 04:11 - [月亮](https://www.blog.kurohicncr.top/Article/details/25131943.shtml)
-- 2026-06-30 04:07 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/43636182.shtml)
-- 2026-06-30 04:20 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/20913480641.shtml)
-- 2026-06-30 04:10 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/02769.shtml)
-- 2026-06-30 04:06 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/30187661.shtml)
-- 2026-06-30 04:23 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/906271.shtml)
-- 2026-06-30 04:07 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/01846392885.shtml)
-- 2026-06-30 04:07 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/7362833825.shtml)
-- 2026-06-30 04:01 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/420285387512.shtml)
-- 2026-06-30 04:20 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/4559224.shtml)
-- 2026-06-30 04:25 - [恋与深空 巧合](http://www.share.minike.top/Article/details/830210.shtml)
-- 2026-06-30 04:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/971836.shtml)
+- 2026-06-30 04:07 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/7309794.shtml)
+- 2026-06-30 04:06 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/66645399174.shtml)
+- 2026-06-30 04:27 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/2738679565.shtml)
+- 2026-06-30 04:20 - [我们的少年时代2](https://www.blog.minike.top/Article/details/09352.shtml)
+- 2026-06-30 04:15 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/6038079.shtml)
+- 2026-06-30 04:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/526935929204.shtml)
+- 2026-06-30 04:11 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/340526247362.shtml)
+- 2026-06-30 04:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/13968093.shtml)
+- 2026-06-30 04:12 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/39018.shtml)
+- 2026-06-30 04:35 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/518774.shtml)
+- 2026-06-30 04:06 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/59101364340.shtml)
+- 2026-06-30 04:15 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/9252571.shtml)
+- 2026-06-30 04:11 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/802380.shtml)
+- 2026-06-30 04:30 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/386602914111.shtml)
+- 2026-06-30 04:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/146000926.shtml)

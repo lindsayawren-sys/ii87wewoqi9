@@ -1,60 +1,56 @@
-# 特朗普称德国总理“不知道自己在说什么” 后者先前称美国被伊朗羞辱
+# 美债收益率持续走高 实际利率飙升压制股市
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普抨击德国总理默茨，后者先前批评美国处理伊朗战争的方式。 随着这场引发全球能源动荡的冲突进入第三个月，默茨本周早些时候表示，美国正受到伊朗领导层的“羞辱”。 特朗普周二在Truth Social发文称：“德国总理默茨认为伊朗拥有核武也没关系。他根本不知道自己在说什么！如果伊朗拥有核武器，整个世界都会成为人质。” 德国总理默茨谈特朗普。 在默茨针对特朗普的谈判策略发表
+美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。 此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。 据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。 今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下
 
 ## 正文
 
-美国总统特朗普抨击德国总理默茨，后者先前批评美国处理伊朗战争的方式。
+美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。
 
-随着这场引发全球能源动荡的冲突进入第三个月，默茨本周早些时候表示，美国正受到伊朗领导层的“羞辱”。
+此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。
 
-特朗普周二在Truth Social发文称：“德国总理默茨认为伊朗拥有核武也没关系。
+据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。
 
-他根本不知道自己在说什么！
+今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下跌；而随着该收益率回落，股市随即迎来反弹。
 
-如果伊朗拥有核武器，整个世界都会成为人质。
+自4月末以来，美国名义国债收益率持续上行，但通胀保值国债收益率直到一周前才开始正式发力上涨，周五更是创下阶段性最大涨幅。
 
-” 德国总理默茨谈特朗普。
+众所周知，10年期名义美债收益率是全美各类借贷成本的核心基准；而10年期通胀保值国债收益率，代表剔除通胀后的实际融资成本，企业在制定借贷与开支规划时，这一指标参考价值更高。
 
-在默茨针对特朗普的谈判策略发表异常坦率的评估一天半后，特朗普的反驳随之而来。
+因此相比单纯的名义收益率上涨，实际收益率走高对经济的压制作用更为显著。
 
-周一，这位德国总理在德国西部一所学校对学生表示，他看不出“美国目前选择的是何种战略退出路径”，并形容德黑兰的谈判代表“行动非常娴熟 ——或者说，非常娴熟地不谈判”。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 04:12 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 04:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 04:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 04:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 04:11 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 04:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 04:13 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 04:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 04:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 04:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 04:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 04:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:13 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 04:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 04:32 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 04:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 04:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 04:19 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 04:08 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 04:15 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 04:29 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 04:06 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:10 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/622358474.shtml)
-- 2026-06-30 04:23 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/675008701.shtml)
-- 2026-06-30 04:12 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/1196585.shtml)
-- 2026-06-30 04:06 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/722537842869.shtml)
-- 2026-06-30 04:20 - [巴西2比1日本](https://www.share.minike.top/Article/details/116525051.shtml)
-- 2026-06-30 04:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/55295624143.shtml)
-- 2026-06-30 04:16 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/80759264.shtml)
-- 2026-06-30 04:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/53389616.shtml)
-- 2026-06-30 04:02 - [美人鱼](https://www.share.minike.top/Article/details/18073027133.shtml)
-- 2026-06-30 04:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/797180310.shtml)
-- 2026-06-30 04:04 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/51058575630.shtml)
-- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/764266470650.shtml)
-- 2026-06-30 04:27 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/6664084264.shtml)
-- 2026-06-30 04:16 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/0693539.shtml)
-- 2026-06-30 04:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/384755616.shtml)
+- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/065568706.shtml)
+- 2026-06-30 04:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/10876051.shtml)
+- 2026-06-30 04:10 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/291952274396.shtml)
+- 2026-06-30 04:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/340052093889.shtml)
+- 2026-06-30 04:25 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/3421000.shtml)
+- 2026-06-30 04:18 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/775611.shtml)
+- 2026-06-30 04:10 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/556062132016.shtml)
+- 2026-06-30 04:19 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/316471318165.shtml)
+- 2026-06-30 04:29 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/887767151.shtml)
+- 2026-06-30 04:34 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/209401651.shtml)
+- 2026-06-30 04:07 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/473088940.shtml)
+- 2026-06-30 04:16 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/1077032978.shtml)
+- 2026-06-30 04:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/280191369827.shtml)
+- 2026-06-30 04:06 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/5875210838.shtml)
+- 2026-06-30 04:35 - [千香](http://www.blog.minike.top/Article/details/8467609118.shtml)

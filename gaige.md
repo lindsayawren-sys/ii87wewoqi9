@@ -1,60 +1,47 @@
-# 兴化股份涉嫌信披违规被立案
+# 伊拉克首都巴格达传出爆炸声
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月30日，兴化股份（维权）（002109.SZ）连发多份公告，内容涉及会计差错更正、提示退市风险等。公告显示，兴化股份于4月29日收到中国证监会《立案告知书》，其因涉嫌信息披露违法违规被监管部门立案。经兴化股份自查发现，2024年度部分业务存在会计处理差错，根据会计准则及信息披露相关规定，其对所涉定期报告进行会计差错更正及追溯
+中新网5月16日电 据卡塔尔半岛电视台援引路透社、法新社等消息，当地时间16日，伊拉克首都巴格达传出爆炸声。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月30日，兴化股份（维权）（002109.SZ）连发多份公告，内容涉及会计差错更正、提示退市风险等。
-
-公告显示，兴化股份于4月29日收到中国证监会《立案告知书》，其因涉嫌信息披露违法违规被监管部门立案。
-
-经兴化股份自查发现，2024年度部分业务存在会计处理差错，根据会计准则及信息披露相关规定，其对所涉定期报告进行会计差错更正及追溯调整。
-
-与此同时，兴化股份公告披露，2025年度内部控制审计报告被出具否定意见。
-
-华兴会计师事务所（特殊普通合伙）认为，兴化股份内部控制存在以下重大缺陷：控股子公司榆神能化2024年度至2025年三季度存在收入确认、产量计量和制造费用暂估不准确的情形，导致已披露的2024年度和2025年第一、二、三季度财务报表存在错报。
-
-华兴会计师事务所方面表示，该事项发生于兴化股份的重要子公司，表明兴化股份对子公司管理相关内部控制以及榆神能化的收入确认、存货管理、采购结算管理存在重大缺陷。
-
-有效的内部控制能够为财务报告及相关信息的真实完整提供合理保证，而上述重大缺陷使公司内部控制失去这一功能。
-
-兴化股份方面表示，将对上述问题进行深入的自查并制定整改措施，成立专项整改小组，对相关管理制度组织开展修订、培训及执行检查，并持续加强内部控制管理。
+中新网5月16日电 据卡塔尔半岛电视台援引路透社、法新社等消息，当地时间16日，伊拉克首都巴格达传出爆炸声。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 04:04 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 04:07 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 04:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 04:09 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 04:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 04:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 04:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 04:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 04:09 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 04:15 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 04:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 04:13 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 04:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 04:21 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 04:29 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 04:35 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 04:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 04:13 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 04:35 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 04:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 04:23 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 04:16 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 04:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 04:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 04:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 04:22 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 04:26 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/820815.shtml)
-- 2026-06-30 04:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/32665038431.shtml)
-- 2026-06-30 04:14 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/5359739057.shtml)
-- 2026-06-30 04:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/37110550368.shtml)
-- 2026-06-30 04:13 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/72621.shtml)
-- 2026-06-30 04:19 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/864429832163.shtml)
-- 2026-06-30 04:05 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/562527006.shtml)
-- 2026-06-30 04:10 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/4015025.shtml)
-- 2026-06-30 04:10 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/934568690.shtml)
-- 2026-06-30 04:16 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/58273269.shtml)
-- 2026-06-30 04:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/266191638058.shtml)
-- 2026-06-30 04:00 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/178488398.shtml)
-- 2026-06-30 04:18 - [恋与深空 巧合](https://www.share.minike.top/Article/details/8206318.shtml)
-- 2026-06-30 04:04 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/99971981.shtml)
-- 2026-06-30 04:18 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/59393071.shtml)
+- 2026-06-30 04:28 - [小娘惹](http://www.blog.minike.top/Article/details/603520.shtml)
+- 2026-06-30 04:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/4592187.shtml)
+- 2026-06-30 04:15 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/25610.shtml)
+- 2026-06-30 04:22 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/961651400786.shtml)
+- 2026-06-30 04:19 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/934630469.shtml)
+- 2026-06-30 04:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/95447450.shtml)
+- 2026-06-30 04:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/910464841972.shtml)
+- 2026-06-30 04:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/94638638.shtml)
+- 2026-06-30 04:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/1303819.shtml)
+- 2026-06-30 04:28 - [内马尔替补](https://www.share.minike.top/Article/details/0366974990.shtml)
+- 2026-06-30 04:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/954765638762.shtml)
+- 2026-06-30 04:14 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/25273.shtml)
+- 2026-06-30 04:23 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/6933039.shtml)
+- 2026-06-30 04:17 - [扬名立万](https://www.blog.minike.top/Article/details/1020141.shtml)
+- 2026-06-30 04:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/8739034.shtml)

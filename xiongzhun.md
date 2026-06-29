@@ -1,47 +1,59 @@
-# 4月30日隔夜要闻：特朗普拒绝伊朗提议 油价飙升 联储按兵不动 英特尔涨超12% Anthropic估值超9000亿美元
+# 515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖
 
-> 更新时间：2026-06-30 04:30:03 UTC+8
+> 更新时间：2026-06-30 04:36:02 UTC+8
 
 ## 摘要
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月30日收盘：美联储维持利率不变 美股涨跌不一 4月30日美股成交额前20：英特尔大涨逾12%创历史新高 4月30日热门中概股多数下跌 慧荣科技涨45.8%，小马智行跌6.46% 原油：油价逼近120美元 美伊战争仍未见结束迹象 伊朗战争加剧通胀风险 金价连续第三天下跌 欧洲股市收跌 因油价飙升且企业财报表现分化
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于
 
 ## 正文
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月30日收盘：美联储维持利率不变 美股涨跌不一 4月30日美股成交额前20：英特尔大涨逾12%创历史新高 4月30日热门中概股多数下跌 慧荣科技涨45.8%，小马智行跌6.46% 原油：油价逼近120美元 美伊战争仍未见结束迹象 伊朗战争加剧通胀风险 金价连续第三天下跌 欧洲股市收跌 因油价飙升且企业财报表现分化 美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事【专题】 宏观 一文读懂|美联储连续三次按兵不动 4人投反对票 鲍威尔称将留任理事 特朗普拒绝伊朗提议 誓言继续维持海上封锁直至达成核协议 塔斯尼姆通讯社：伊朗议长称特朗普试图迫使德黑兰投降 鲍威尔称因遭“法律攻击”而决定留任美联储理事会 鲍威尔：主席任期结束后，仍将继续担任美联储理事 美国已令42艘试图突破霍尔木兹
+专题：515投资者保护！
+
+新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+
+鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。
+
+据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于为广大高校学子搭建触达行业前沿理论与实务的学习交流平台，在课程打造方面结合高校需求，以“成体系，有深度”为原则，精准施教，于2025年秋季携手上海证券报、上海财经大学成功举办第五期《基金实战专题》国民教育高质量投教课程，为来自近10所高校的100余位硕士研究生带来了一场体系完备、内容精深的金融实务课。
+
+该课程延续“成体系、有深度”的核心原则，特邀鹏华基金8位基本面投资专家组成讲师团队，围绕“创新科技、创新消费、创新国粹”三大主题，精心设计了八大核心专题。
+
+讲师们凭借扎实的理论功底与丰富的实战经验，将前沿投资理论与市场实践深度融合，助力学子构建从认知到实战的完整知识框架。
+
+课程内容紧密契合国家产业发展趋势，覆盖科技、消费、医药、半导体、化工、AI等重点领域，课程层层递进、脉络清晰，赢得学子广泛好评。
+
+第五期课程在传承既往高品质的基础上，进一步优化内容呈现方式，通过专业课件、案例拆解与互动答疑等多种形式，将复杂金融知识转化为生动易懂的教学内容，有效提升了学习体验。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 04:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 04:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 04:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 04:09 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 04:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 04:29 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 04:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 04:17 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 04:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 04:11 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 04:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 04:21 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 04:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 04:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:11 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 04:31 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 04:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 04:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 04:23 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 04:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 04:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 04:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 04:24 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:24 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 04:30 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 04:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:29 - [美人鱼](http://www.share.kurohicncr.top/Article/details/7312714320.shtml)
-- 2026-06-30 04:01 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/38146.shtml)
-- 2026-06-30 04:26 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/827971774.shtml)
-- 2026-06-30 04:10 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/433499058.shtml)
-- 2026-06-30 04:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/069767.shtml)
-- 2026-06-30 04:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/640177933.shtml)
-- 2026-06-30 04:01 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/1312368334.shtml)
-- 2026-06-30 04:18 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/539949.shtml)
-- 2026-06-30 04:11 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/60932.shtml)
-- 2026-06-30 04:28 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/850338.shtml)
-- 2026-06-30 04:24 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/9967549.shtml)
-- 2026-06-30 04:01 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/499888.shtml)
-- 2026-06-30 04:21 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/850640707.shtml)
-- 2026-06-30 04:02 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/278459267914.shtml)
-- 2026-06-30 04:18 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/02935.shtml)
+- 2026-06-30 04:31 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/79785.shtml)
+- 2026-06-30 04:22 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/5127701.shtml)
+- 2026-06-30 04:34 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/311208.shtml)
+- 2026-06-30 04:23 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/82357994.shtml)
+- 2026-06-30 04:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/844694698.shtml)
+- 2026-06-30 04:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/89632328436.shtml)
+- 2026-06-30 04:22 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/6296857.shtml)
+- 2026-06-30 04:30 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/882795730409.shtml)
+- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/476918270.shtml)
+- 2026-06-30 04:32 - [日本反击率先破门](http://www.share.minike.top/Article/details/7837292.shtml)
+- 2026-06-30 04:06 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/42237097.shtml)
+- 2026-06-30 04:34 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/1991557.shtml)
+- 2026-06-30 04:13 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4202413.shtml)
+- 2026-06-30 04:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/296125517.shtml)
+- 2026-06-30 04:20 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/84820081.shtml)
