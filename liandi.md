@@ -1,61 +1,61 @@
-# 深江铁路站前6标首台盾构机始发
+# 习言道丨习近平亲自命名的村庄，从“干沙滩”变成“金沙滩”
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月7日电 (记者 王坚)据中铁三局7日消息，随着盾构机刀盘缓缓转动，深江铁路站前6标首台盾构机“深莞4号”近日成功始发，该工程建设进入盾构施工阶段。 据介绍，深江铁路正线全长116公里，中铁三局负责其中“两井两区间”11886.56米隧道施工任务。此次始发的“深莞4号”，主要负责4号井至5号井区间左线1660米的掘进施工。该线路下穿航站四路、机场九道等市政道路，侧穿
+中新网6月19日电 题：习近平亲自命名的村庄，从“干沙滩”变成“金沙滩” “兄弟仨只有一条裤子，谁要出门给谁穿”“扶贫下拨的珍珠种鸡被偷抓，吃得只剩下最后一只”……这是电视剧《山海情》里的场景，故事发生在20世纪90年代的宁夏西海固地区。 “有水赛江南，无水泪亦干”，宁夏曾被这样形容，而西海固地区便是后者，这里曾被联合国世界粮食计划署认定为“不适宜人类生存的地区之一”。 199
 
 ## 正文
 
-中新网深圳4月7日电 (记者 王坚)据中铁三局7日消息，随着盾构机刀盘缓缓转动，深江铁路站前6标首台盾构机“深莞4号”近日成功始发，该工程建设进入盾构施工阶段。
+中新网6月19日电 题：习近平亲自命名的村庄，从“干沙滩”变成“金沙滩” “兄弟仨只有一条裤子，谁要出门给谁穿”“扶贫下拨的珍珠种鸡被偷抓，吃得只剩下最后一只”……这是电视剧《山海情》里的场景，故事发生在20世纪90年代的宁夏西海固地区。
 
-据介绍，深江铁路正线全长116公里，中铁三局负责其中“两井两区间”11886.56米隧道施工任务。
+“有水赛江南，无水泪亦干”，宁夏曾被这样形容，而西海固地区便是后者，这里曾被联合国世界粮食计划署认定为“不适宜人类生存的地区之一”。
 
-此次始发的“深莞4号”，主要负责4号井至5号井区间左线1660米的掘进施工。
+1996年，党中央作出东西部扶贫协作战略部署，其中确定福建与宁夏结对帮扶。
 
-该线路下穿航站四路、机场九道等市政道路，侧穿机场重要区域，周边建筑物及市政管线密集，需频繁穿越“上软下硬”复合地层及全断面硬岩地质，施工过程中面临地表沉降控制难度大、盾构姿态精准控制要求高等多重挑战，施工难度与安全风险并存。
+1997年4月，时任福建省委副书记的习近平率团来到宁夏，深入西海固地区考察，六天走了五县，翻山越沟，访贫问苦，一幕幕贫困的场景牵动着他的心。
 
-为高质量完成始发掘进，该项目部严格执行“先预报、后施工，先评估、后掘进”原则，加强地质勘查工作，增加地质钻机钻孔勘探点位，强化雷达扫描补勘探测，全面探明沿线岩土分层、软硬不均地层等不良地质分布，精准绘制全域地层“脉络图”，提前对掘进参数及安全措施进行多次推演论证，制定了详细严谨的施工方案，采用袖阀管注浆工艺对隧道洞口进行深层加固，提升隧道洞口围岩稳定性和整体性。
+他后来回忆说，自己真正体会到什么叫家徒四壁，“一家子既没有桌椅板凳，也没有铺盖。
 
-据悉，深江铁路是我国“八纵八横”高铁网沿海通道的重要组成部分，串联深圳、东莞、广州、中山和江门5座城市。
+家里唯一的‘财产’是挂在房梁上的一撮发菜，就靠卖这么一点发菜来买油盐酱醋”。
 
-该铁路建成通车后，深圳与江门可实现1小时内高铁通达，为加快构建“轨道上的大湾区”、推动区域高质量一体化发展提供有力支撑。
+那次西海固之行，让习近平同志下定决心推动对宁夏的对口帮扶。
 
-(完)
+帮扶的突破口在哪里？
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 23:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 00:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:57 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 23:54 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 00:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 00:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 23:46 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 00:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 00:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:11 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 23:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 23:46 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 00:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 00:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 00:01 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 00:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 23:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 23:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 00:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 23:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 00:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 00:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:57 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 00:03 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 00:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 23:50 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/48072703054.shtml)
-- 2026-06-29 23:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/184330213597.shtml)
-- 2026-06-30 00:03 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/335489345112.shtml)
-- 2026-06-30 00:02 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/22755.shtml)
-- 2026-06-30 00:08 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/428654.shtml)
-- 2026-06-30 00:09 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/22850.shtml)
-- 2026-06-30 00:03 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/78623116551.shtml)
-- 2026-06-30 00:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/683931.shtml)
-- 2026-06-29 23:50 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/79702815.shtml)
-- 2026-06-30 00:11 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/076013403717.shtml)
-- 2026-06-29 23:43 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/6102766676.shtml)
-- 2026-06-30 00:04 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/229076.shtml)
-- 2026-06-30 00:06 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/506195.shtml)
-- 2026-06-29 23:46 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/86390324394.shtml)
-- 2026-06-29 23:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/1044603.shtml)
+- 2026-06-30 00:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/86569.shtml)
+- 2026-06-29 23:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/157892.shtml)
+- 2026-06-29 23:52 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/035674.shtml)
+- 2026-06-29 23:58 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/243110.shtml)
+- 2026-06-30 00:06 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/6471288504.shtml)
+- 2026-06-29 23:53 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/011736583.shtml)
+- 2026-06-30 00:11 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/7359491.shtml)
+- 2026-06-30 00:05 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/817844536.shtml)
+- 2026-06-30 00:14 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/2942484.shtml)
+- 2026-06-29 23:54 - [逃狱兄弟](https://www.share.minike.top/Article/details/06098.shtml)
+- 2026-06-30 00:09 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/4248365.shtml)
+- 2026-06-29 23:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/293416645.shtml)
+- 2026-06-30 00:02 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/7412501.shtml)
+- 2026-06-30 00:04 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/921593480.shtml)
+- 2026-06-29 23:58 - [存储三巨头被告了](http://www.share.minike.top/Article/details/3273057.shtml)

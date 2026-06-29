@@ -1,59 +1,56 @@
-# 我国成功发射千帆星座第7批组网卫星，卫星ETF富国（563230）盘中涨幅达4.81%
+# 刘珺：金融机构建立在强大的信用基础之上，相信工行的AI产品消费者都愿意用
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-商业航天概念整体走强，盘中航天航空、北斗导航、大飞机、卫星等板涨幅居前，截至发稿，卫星ETF富国（563230）盘中涨幅达4.81%，航空ETF富国（159392）盘中涨幅达3.45%，军工龙头ETF富国（512710）盘中涨幅达3.29%。其中卫星ETF富国成分股臻雷科技涨超11%，国机精工、信科移动涨超均8%。 消息面，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。中国工商银行行长刘珺表示，随着AI不断深入各行各业，其对金融行业的影响将是革命性的，金融机构必须为AI时代的到来做好充分准备。 针对工商银行的AI实践，刘珺谈到了三个方面。第一，技术一定是面向应用的，没有应用就没有技术真正的红利
 
 ## 正文
 
-商业航天概念整体走强，盘中航天航空、北斗导航、大飞机、卫星等板涨幅居前，截至发稿，卫星ETF富国（563230）盘中涨幅达4.81%，航空ETF富国（159392）盘中涨幅达3.45%，军工龙头ETF富国（512710）盘中涨幅达3.29%。
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-其中卫星ETF富国成分股臻雷科技涨超11%，国机精工、信科移动涨超均8%。
+中国工商银行行长刘珺表示，随着AI不断深入各行各业，其对金融行业的影响将是革命性的，金融机构必须为AI时代的到来做好充分准备。
 
-消息面，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方式，将千帆星座第7批组网卫星送入预定轨道，发射任务获得圆满成功。
+针对工商银行的AI实践，刘珺谈到了三个方面。
 
-另外，交通运输部、工信部、国资委、市场监管总局联合印发《智能航运2030行动计划》，其中提到，加快航海保障智能化技术与装备攻关。
+第一，技术一定是面向应用的，没有应用就没有技术真正的红利。
 
-提升高精度卫星定位、高可信群体测绘、高动态水文气象导航、高可靠船岸通信和数据交换技术水平，加强水面目标辨识、星（地）基北斗导航增强、时空数据标准化、低轨卫星通信等相关装备的协同攻关。
+第二，金融机构，特别是全球系统重要性的金融机构使用AI，一定要强调安全性。
 
-卫星ETF富国（563230）紧密跟踪卫星产业指数，指数覆盖集成电路设计、通信系统和终端设备、国防装备、航天、通用软件开发、电子元件与自动化器械等细分行业，网罗卫星全产业链，板块纯度足、投资效率高。
+第三，要使用AI一定要考虑到人力资源方面做充分的匹配。
 
-责任编辑：郭栩彤
+他透露，下一步工商银行将致力于优化庞大的人力资源队伍，在技术维度之上实现财务、数据及人力资产的深度构建。
+
+刘珺认为，金融机构建立在强大的信用基础之上，相信工行的AI产品消费者都愿意用。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 23:58 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 23:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 23:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 00:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 00:06 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 23:57 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 23:45 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 00:08 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 23:45 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 23:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 23:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 00:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:47 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 23:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 23:55 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 23:48 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 00:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 00:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 00:09 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 00:13 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 23:51 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 23:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 23:51 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 23:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/543572334330.shtml)
-- 2026-06-29 23:56 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/118638584406.shtml)
-- 2026-06-29 23:57 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/736237.shtml)
-- 2026-06-29 23:55 - [女心理师](https://www.blog.kurohicncr.top/Article/details/72384.shtml)
-- 2026-06-29 23:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/99570039664.shtml)
-- 2026-06-29 23:45 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/58687263.shtml)
-- 2026-06-29 23:42 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/98832060.shtml)
-- 2026-06-29 23:52 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/67729860.shtml)
-- 2026-06-29 23:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/367353844561.shtml)
-- 2026-06-29 23:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/0141363.shtml)
-- 2026-06-29 23:49 - [小娘惹](https://www.share.minike.top/Article/details/21923382.shtml)
-- 2026-06-29 23:47 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/569202020177.shtml)
-- 2026-06-30 00:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/712989.shtml)
-- 2026-06-30 00:11 - [沙丘](http://www.blog.minike.top/Article/details/483791449.shtml)
-- 2026-06-29 23:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/99437409879.shtml)
+- 2026-06-29 23:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/60029677.shtml)
+- 2026-06-30 00:08 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/582177.shtml)
+- 2026-06-30 00:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/43010013046.shtml)
+- 2026-06-29 23:56 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/63367113.shtml)
+- 2026-06-30 00:14 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/40666764656.shtml)
+- 2026-06-29 23:53 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/150607.shtml)
+- 2026-06-29 23:56 - [女心理师](http://www.share.kurohicncr.top/Article/details/115250662906.shtml)
+- 2026-06-30 00:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/001644.shtml)
+- 2026-06-30 00:08 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/141349.shtml)
+- 2026-06-29 23:51 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/4684338385.shtml)
+- 2026-06-29 23:51 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/56856304.shtml)
+- 2026-06-30 00:04 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/06660.shtml)
+- 2026-06-29 23:57 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/689013485.shtml)
+- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/78502655866.shtml)
+- 2026-06-30 00:12 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/52326458952.shtml)

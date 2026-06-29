@@ -1,59 +1,61 @@
-# 纽约汇市：美元月度涨幅收窄 市场预期伊朗战争可能缓和
+# 史诗级大涨！爆买8100亿！科技大牛市，疯狂一幕
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-美元指数周二下跌，回吐部分月度涨幅，此前有报道称美国总统唐纳德·特朗普表示，即便霍尔木兹海峡仍基本处于封锁状态，他也愿意结束美国对伊朗的军事行动。 彭博美元即期指数周二下跌0.6%，但3月仍然上涨约2.4%，创下去年7月以来最佳月度表现。 在伊朗和美国释放出推动冲突解决的信号后，油价下跌。 “在美军调动之际，不能排除局势升级的风险，”瑞穗的Jordan Rochester写道，
+美股正迎来史无前例的资金涌入潮。 据最新数据， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元（约合人民币8100亿元），创出历史单周流入新高。其中，科技板块单周流入资金规模达192亿美元，亦创下历史新高。 目前，美股AI（人工智能）交易潮正在向上游扩散，美股半导体设备股全线大涨。数据显示，截至最新，美股总市值超百亿美元的9家半导体设备公司股价年内累
 
 ## 正文
 
-美元指数周二下跌，回吐部分月度涨幅，此前有报道称美国总统唐纳德·特朗普表示，即便霍尔木兹海峡仍基本处于封锁状态，他也愿意结束美国对伊朗的军事行动。
+美股正迎来史无前例的资金涌入潮。
 
-彭博美元即期指数周二下跌0.6%，但3月仍然上涨约2.4%，创下去年7月以来最佳月度表现。
+据最新数据， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元（约合人民币8100亿元），创出历史单周流入新高。
 
-在伊朗和美国释放出推动冲突解决的信号后，油价下跌。
+其中，科技板块单周流入资金规模达192亿美元，亦创下历史新高。
 
-“在美军调动之际，不能排除局势升级的风险，”瑞穗的Jordan Rochester写道，关键结论之一是“保持做多美元”。
+目前，美股AI（人工智能）交易潮正在向上游扩散，美股半导体设备股全线大涨。
 
-美国消费者信心3月意外回升，人们对商业环境和劳动力市场状况的看法略有改善。
+数据显示，截至最新，美股总市值超百亿美元的9家半导体设备公司股价年内累计涨幅均已超过75%，均创出历史新高。
 
-美元/日元周二下跌0.6%至158.69，但3月上涨约1.7%。
+资金爆买 美银策略师援引EPFR Global的最新数据显示， 截至6月17日当周 ，流入美国股票基金的资金规模达到创纪录的1192亿美元，刷新历史峰值。
 
-美元/加元小幅走弱至1.3911。
+值得一提的是，本轮资金流入呈现出全面性特征，并非仅集中于大盘股。
 
-加拿大实际国内生产总值（GDP）年初小幅增长，显示在伊朗战争引发油价冲击之前，经济仍在稳步前行。
+据美银策略师披露，美国中盘股基金单周净流入达199亿美元，创历史纪录；美国小盘股基金单周净流入123亿美元，为历史第二高。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 23:59 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 00:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 23:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 23:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 23:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 23:57 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 23:43 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 23:56 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 23:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 00:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 23:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 00:15 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 00:09 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 00:00 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 00:05 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 23:48 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 00:03 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 00:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 23:57 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 00:17 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 23:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 23:56 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 00:10 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 23:55 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/981318664.shtml)
-- 2026-06-29 23:50 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/43017634.shtml)
-- 2026-06-30 00:05 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/6683618.shtml)
-- 2026-06-30 00:07 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/97445.shtml)
-- 2026-06-30 00:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/4909561984.shtml)
-- 2026-06-29 23:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/081345.shtml)
-- 2026-06-30 00:04 - [急先锋](https://www.blog.kurohicncr.top/Article/details/095076090.shtml)
-- 2026-06-30 00:00 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/805341950397.shtml)
-- 2026-06-29 23:42 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/6768017897.shtml)
-- 2026-06-29 23:47 - [速度与激情9](https://www.share.minike.top/Article/details/645774345810.shtml)
-- 2026-06-29 23:46 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/75469914803.shtml)
-- 2026-06-30 00:05 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/7328447.shtml)
-- 2026-06-29 23:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/678516.shtml)
-- 2026-06-29 23:57 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/588754894250.shtml)
-- 2026-06-29 23:56 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/0367283.shtml)
+- 2026-06-29 23:48 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/9300889.shtml)
+- 2026-06-29 23:56 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/727433978.shtml)
+- 2026-06-30 00:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/3804096976.shtml)
+- 2026-06-30 00:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/97711.shtml)
+- 2026-06-30 00:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/469710826061.shtml)
+- 2026-06-29 23:57 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/747053.shtml)
+- 2026-06-30 00:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/843938.shtml)
+- 2026-06-30 00:00 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/2336248386.shtml)
+- 2026-06-30 00:01 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/98830905.shtml)
+- 2026-06-30 00:13 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/866246.shtml)
+- 2026-06-30 00:11 - [明星大侦探第一季](https://www.share.minike.top/Article/details/61709079.shtml)
+- 2026-06-30 00:01 - [月亮](http://www.share.minike.top/Article/details/63208.shtml)
+- 2026-06-30 00:00 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/674099.shtml)
+- 2026-06-29 23:48 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/8420806991.shtml)
+- 2026-06-29 23:59 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/560435.shtml)

@@ -1,48 +1,52 @@
-# 大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”
+# 本周已有11艘油轮运载2000万桶原油驶离伊朗港口
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，已将中国海外发展（00688）风险回报更新，目标价由13.5港元下调至12.5港元，维持“与大市同步”评级。该行解释，下调目标价主要由于纳入2025年业绩及引入2028年预测，并将2026年核心每股盈利预测下调13%，2027年下调2%，以反映更新了物业发展项目交付及完工时间表；租金收入增长放缓；物业发展毛利率复苏较弱；销售及行政开支高于预期。责任编辑：史
+伊朗正在运输大量此前因美国封锁而无法外运的石油，在周三与华盛顿签署临时和平协议后，可能为其带来提振。 航运数据显示，本周共发现有11艘油轮离开伊朗位于阿曼湾的恰巴哈尔港，合计运载2000万桶原油。美军此前阻止这些船只驶入印度洋，这是其限制德黑兰获取石油美元努力的一部分。 与此同时，伊朗仍在继续努力控制哪些船只可以通过霍尔木兹海峡以及如何通行。伊朗为监管通行而设立的波斯湾国家管理
 
 ## 正文
 
-摩根士丹利发布研报称，已将中国海外发展（00688）风险回报更新，目标价由13.5港元下调至12.5港元，维持“与大市同步”评级。
+伊朗正在运输大量此前因美国封锁而无法外运的石油，在周三与华盛顿签署临时和平协议后，可能为其带来提振。
 
-该行解释，下调目标价主要由于纳入2025年业绩及引入2028年预测，并将2026年核心每股盈利预测下调13%，2027年下调2%，以反映更新了物业发展项目交付及完工时间表；租金收入增长放缓；物业发展毛利率复苏较弱；销售及行政开支高于预期。
+航运数据显示，本周共发现有11艘油轮离开伊朗位于阿曼湾的恰巴哈尔港，合计运载2000万桶原油。
 
-责任编辑：史丽君
+美军此前阻止这些船只驶入印度洋，这是其限制德黑兰获取石油美元努力的一部分。
+
+与此同时，伊朗仍在继续努力控制哪些船只可以通过霍尔木兹海峡以及如何通行。
+
+伊朗为监管通行而设立的波斯湾国家管理局在其网站发布的一份文件中表示，航运企业必须遵循其指定航线，并规定了船舶通过时可能面临通行费。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 23:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 23:44 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 00:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 00:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 23:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 00:01 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 00:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 00:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:55 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 23:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 23:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 23:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 00:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 23:50 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 23:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 00:09 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 23:54 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:05 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/135083383.shtml)
-- 2026-06-30 00:01 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/207960884037.shtml)
-- 2026-06-29 23:51 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/497817288.shtml)
-- 2026-06-29 23:59 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/462934.shtml)
-- 2026-06-29 23:50 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/819731.shtml)
-- 2026-06-29 23:50 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/264545.shtml)
-- 2026-06-29 23:44 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/76652356780.shtml)
-- 2026-06-29 23:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/4811476401.shtml)
-- 2026-06-30 00:02 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/500746017987.shtml)
-- 2026-06-29 23:46 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/55363833812.shtml)
-- 2026-06-29 23:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6394835.shtml)
-- 2026-06-30 00:07 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/67005.shtml)
-- 2026-06-29 23:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6883897412.shtml)
-- 2026-06-29 23:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/036086964.shtml)
-- 2026-06-30 00:05 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/51259163690.shtml)
+- 2026-06-30 00:14 - [刘念回应](http://www.share.minike.top/Article/details/4621114185.shtml)
+- 2026-06-30 00:01 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/162163569405.shtml)
+- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/401728697.shtml)
+- 2026-06-30 00:03 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/615137398.shtml)
+- 2026-06-30 00:06 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/596052220071.shtml)
+- 2026-06-29 23:50 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/010728469.shtml)
+- 2026-06-30 00:14 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/8728440748.shtml)
+- 2026-06-29 23:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/680190.shtml)
+- 2026-06-29 23:56 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/731770541.shtml)
+- 2026-06-30 00:13 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/9050412378.shtml)
+- 2026-06-29 23:53 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/2553311.shtml)
+- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/01088436.shtml)
+- 2026-06-30 00:08 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/617332.shtml)
+- 2026-06-29 23:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/3045621.shtml)
+- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/5152593738.shtml)

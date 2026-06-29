@@ -1,59 +1,59 @@
-# （乡村行·看振兴）广东紫金茶香漫山 青山绿树“生金”富农家
+# 四川亭子口灌区一期工程粟家庙渡槽连续刚构顺利合龙
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网河源4月7日电 (张璐 甘建楼)近日，广东省河源市紫金县连绵起伏的茶山上，茶树陆续吐露鲜嫩新芽，空气中弥漫着淡淡的茶香。 连日来，紫金县9万亩茶园进入春茶集中采摘期，茶农抢抓时机，穿梭在茶垄间采摘新茶。 紫金县一家茶园负责人黄东灵表示：“春分过后，茶场就陆续组织附近村民进山采茶，每天都有一两百人。” 在紫金县一家农业开发有限公司的茶叶加工厂内，机器轰鸣，茶香四溢。该公司生
+中新网成都6月19日电 (记者 刘忠俊)6月19日清晨，国家重大水利工程——四川亭子口灌区一期工程核心控制性节点粟家庙渡槽连续刚构完成最后一仓混凝土浇筑完成，顺利实现合龙。此次合龙为亭子口灌区一期工程全线按期建成并通水奠定了坚实基础。 据了解，粟家庙渡槽是亭子口灌区一期工程规模最大、施工难度最高的控制性单体工程。渡槽全长2270米，最大架空高度87米，共设59跨、4处平面转弯，
 
 ## 正文
 
-中新网河源4月7日电 (张璐 甘建楼)近日，广东省河源市紫金县连绵起伏的茶山上，茶树陆续吐露鲜嫩新芽，空气中弥漫着淡淡的茶香。
+中新网成都6月19日电 (记者 刘忠俊)6月19日清晨，国家重大水利工程——四川亭子口灌区一期工程核心控制性节点粟家庙渡槽连续刚构完成最后一仓混凝土浇筑完成，顺利实现合龙。
 
-连日来，紫金县9万亩茶园进入春茶集中采摘期，茶农抢抓时机，穿梭在茶垄间采摘新茶。
+此次合龙为亭子口灌区一期工程全线按期建成并通水奠定了坚实基础。
 
-紫金县一家茶园负责人黄东灵表示：“春分过后，茶场就陆续组织附近村民进山采茶，每天都有一两百人。
+据了解，粟家庙渡槽是亭子口灌区一期工程规模最大、施工难度最高的控制性单体工程。
 
-” 在紫金县一家农业开发有限公司的茶叶加工厂内，机器轰鸣，茶香四溢。
+渡槽全长2270米，最大架空高度87米，共设59跨、4处平面转弯，线路依次跨越张南高速、顺蓬营一级公路、国道244线等多处既有建(构)筑物，是全线跨度最长、技术难度最大、交叉构筑物最多、结构形式最复杂的渡槽，也是目前国内最大跨度的预应力混凝土简支梁式渡槽。
 
-该公司生产技术总监陈荣发介绍，为保证春茶品质，茶青采摘严格按照“一芽两叶”标准，要求当天采摘，当天制作完成。
+在结构设计与输水能力方面，该渡槽创下多项国内同类工程纪录。
 
-经过摊青、杀青、萎凋、揉捻、烘焙、提香等工序，昼夜不停地轮番作业，最终制成口感鲜香的头春茶。
+其刚构段可承载水荷载6168吨，设计过流能力达48.35立方米/秒，输水能力较国内原有同类工程提升近一倍，为目前国内过流能力最大的U型断面连续刚构渡槽。
 
-“受近期气候影响，今年春茶的香气和口感优于往年，品质比去年有明显提升。
+工程创新采用国内首创“上U下箱”断面结构，攻克连续刚构渡槽渐变段施工难题，有效优化水流形态，提升输水稳定性与安全性。
 
-”紫金县一家农场负责人钟泰钢表示，今年的头春茶“未采先热”，不少客户通过直播、提前预订等方式锁定好茶，线上线下订单持续提升。
+同时，项目首次应用四向预应力体系，大幅提升结构整体承载性能，为国内大跨度、大流量输水渡槽施工建设提供了全新技术范式与可借鉴经验。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 00:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 23:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 00:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 00:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 00:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 00:05 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 00:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 00:01 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 00:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 23:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 23:57 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 00:01 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:12 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 23:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 00:09 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 00:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 00:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:09 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 00:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 23:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 23:49 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 00:06 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/10581891.shtml)
-- 2026-06-29 23:51 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/843873141953.shtml)
-- 2026-06-29 23:46 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/816736612449.shtml)
-- 2026-06-29 23:54 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/19647708.shtml)
-- 2026-06-29 23:58 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/6012250282.shtml)
-- 2026-06-29 23:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/72116.shtml)
-- 2026-06-29 23:52 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/11886472.shtml)
-- 2026-06-30 00:08 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/6462298.shtml)
-- 2026-06-29 23:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/13364220.shtml)
-- 2026-06-29 23:50 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/07912854177.shtml)
-- 2026-06-30 00:11 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4934828163.shtml)
-- 2026-06-29 23:59 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/541511717655.shtml)
-- 2026-06-29 23:51 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/067122.shtml)
-- 2026-06-29 23:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/109307.shtml)
-- 2026-06-29 23:50 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/94707460937.shtml)
+- 2026-06-29 23:52 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/4799030820.shtml)
+- 2026-06-29 23:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/46970807.shtml)
+- 2026-06-30 00:16 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/1154463573.shtml)
+- 2026-06-30 00:07 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/2925601289.shtml)
+- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/043417254656.shtml)
+- 2026-06-29 23:52 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/288328321121.shtml)
+- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/152247145884.shtml)
+- 2026-06-29 23:50 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/982603409852.shtml)
+- 2026-06-30 00:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/290041766781.shtml)
+- 2026-06-29 23:56 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/224765.shtml)
+- 2026-06-30 00:15 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/760928359831.shtml)
+- 2026-06-29 23:59 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/60331191.shtml)
+- 2026-06-30 00:16 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/99257.shtml)
+- 2026-06-30 00:01 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/492999955519.shtml)
+- 2026-06-30 00:14 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/0262431.shtml)

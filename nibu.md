@@ -1,59 +1,61 @@
-# 英特尔将为特斯拉和SpaceX的Terafab项目设计和制造芯片
+# 中国银行董事长葛海蛟：人民币是各个经济体储备货币的优质选择
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-英特尔将参与马斯克的Terafab项目，为其提供芯片设计和制造方面的帮助。这是特斯拉和SpaceX的一项雄心勃勃的举措，旨在得克萨斯州建造一座新的芯片工厂，以支持每年1万亿瓦的算力。 英特尔在社交媒体平台X上发帖称：“我们大规模设计、制造和封装超高性能芯片的能力，将有助于加速实现Terafab每年产出1万亿瓦算力的目标，从而为AI和机器人技术的未来发展提供动力。” 据英特尔称，
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 中国银行股份有限公司董事长葛海蛟表示，实现亚太区域互通发展，关键在于推进金融基础设施互联互通。当前传统单一渠道的跨境服务模式已难以适配区域合作需求，需要持续打通清算、结算、支付等金融基础设施壁垒，搭建更多双边直接联通渠道。 葛
 
 ## 正文
 
-英特尔将参与马斯克的Terafab项目，为其提供芯片设计和制造方面的帮助。
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-这是特斯拉和SpaceX的一项雄心勃勃的举措，旨在得克萨斯州建造一座新的芯片工厂，以支持每年1万亿瓦的算力。
+中国银行股份有限公司董事长葛海蛟表示，实现亚太区域互通发展，关键在于推进金融基础设施互联互通。
 
-英特尔在社交媒体平台X上发帖称：“我们大规模设计、制造和封装超高性能芯片的能力，将有助于加速实现Terafab每年产出1万亿瓦算力的目标，从而为AI和机器人技术的未来发展提供动力。
+当前传统单一渠道的跨境服务模式已难以适配区域合作需求，需要持续打通清算、结算、支付等金融基础设施壁垒，搭建更多双边直接联通渠道。
 
-” 据英特尔称，马斯克于上周末访问了该公司。
+葛海蛟强调，新时代亚太金融合作需要强化全方位协同。
 
-英特尔股价上涨2.2%，至51.94美元。
+金融服务不应局限于传统资金融通、结算汇兑等基础功能，更要搭建起金融与非金融领域的合作桥梁。
 
-马斯克上月宣布的Terafab工厂旨在生产芯片，用于特斯拉的汽车、其正在研发的人形机器人，以及SpaceX在太空建造AI数据中心的计划。
+各国金融机构深耕本土市场，熟悉当地营商环境、产业生态和企业发展情况，具备天然的协同服务优势。
 
-对于寻求迅速扩大AI基础设施规模的科技公司而言，某些类型芯片的供应已成为一大关键瓶颈。
+金融机构要主动延伸服务边界，以金融为纽带，联动各类资源帮助跨境经营主体解决经营发展中的非金融难题，以金融协同赋能多经济体深度合作、共同发展。
 
-马斯克曾表示，Terafab项目正是为了应对既有芯片制造商的供应限制。
+他表示，在全球经济格局深度调整的当下，人民币的货币价值和配置价值持续凸显，是各经济体储备货币、企业家开展跨境贸易投资与资金结算的优质选择。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 23:53 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:47 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 23:43 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 23:42 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 23:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 23:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 00:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 00:01 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 00:00 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 23:52 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:13 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 23:55 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 23:48 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 23:51 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 23:59 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:55 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 00:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 23:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 00:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 00:07 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 00:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/623803.shtml)
-- 2026-06-30 00:04 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/240655.shtml)
-- 2026-06-29 23:47 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/5508362894.shtml)
-- 2026-06-29 23:57 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/990155051848.shtml)
-- 2026-06-29 23:54 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/43242650119.shtml)
-- 2026-06-29 23:50 - [一见倾心](http://www.share.minike.top/Article/details/29706516314.shtml)
-- 2026-06-29 23:49 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/0309754923.shtml)
-- 2026-06-30 00:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/99433479759.shtml)
-- 2026-06-29 23:56 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/87060414555.shtml)
-- 2026-06-29 23:52 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/390473204.shtml)
-- 2026-06-29 23:46 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/80912174293.shtml)
-- 2026-06-29 23:56 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/84344991.shtml)
-- 2026-06-29 23:42 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/8679341.shtml)
-- 2026-06-29 23:49 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/82440112.shtml)
-- 2026-06-30 00:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/77813.shtml)
+- 2026-06-29 23:50 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/445086.shtml)
+- 2026-06-30 00:12 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/14028.shtml)
+- 2026-06-29 23:52 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/670719561205.shtml)
+- 2026-06-30 00:00 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/502600.shtml)
+- 2026-06-29 23:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/781698921441.shtml)
+- 2026-06-30 00:08 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/98823.shtml)
+- 2026-06-30 00:15 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/16511918372.shtml)
+- 2026-06-30 00:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/06058446612.shtml)
+- 2026-06-29 23:54 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/35299512.shtml)
+- 2026-06-30 00:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/589956.shtml)
+- 2026-06-29 23:54 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/96522697.shtml)
+- 2026-06-30 00:17 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/5750543921.shtml)
+- 2026-06-30 00:04 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/993748490789.shtml)
+- 2026-06-29 23:54 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/2524099604.shtml)
+- 2026-06-30 00:08 - [起风了](http://www.share.kurohicncr.top/Article/details/6361236616.shtml)

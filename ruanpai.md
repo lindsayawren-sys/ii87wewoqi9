@@ -1,56 +1,60 @@
-# 大宗商品综述：油价回落 黄金走高 铝价创出两年最大月涨幅
+# 追讨30亿元，上海银行出手了
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-由于美国和伊朗都释放出愿意解决冲突的信号，原油价格周二回落。局势缓和的前景拖累美元和美债收益率下跌，提振黄金价格连续第三天上涨。铝价创出两年来最大单月涨幅。 原油：油价回落 美伊释放缓和信号削弱风险溢价 由于伊朗与美国释放出愿意推动冲突解决的信号，油价周二回落。 WTI下跌1.5%，收于每桶101美元左右，此前盘中一度上涨3.9%。 伊朗国家通讯社周二报道称，伊朗总统佩泽希齐扬
+来源：银瑞社 作者：许淑敏 上海银行一纸诉讼，将宝能系担保的企业告了。 日前，上海银行普陀支行以金融借款合同纠纷为由，对深圳方瑞、上海濠泉、上海兴力达、上海建配龙、深圳建业、宝能控股提起诉讼。 这件事要追溯回七年前。 2019年1月，上海银行普陀支行通过并购贷款向深圳方瑞放款31.34496亿元，担保方式为深圳方瑞提供上海建配龙、上海兴力达股权质押担保，上海濠泉、上海兴力达、上
 
 ## 正文
 
-由于美国和伊朗都释放出愿意解决冲突的信号，原油价格周二回落。
+来源：银瑞社 作者：许淑敏 上海银行一纸诉讼，将宝能系担保的企业告了。
 
-局势缓和的前景拖累美元和美债收益率下跌，提振黄金价格连续第三天上涨。
+日前，上海银行普陀支行以金融借款合同纠纷为由，对深圳方瑞、上海濠泉、上海兴力达、上海建配龙、深圳建业、宝能控股提起诉讼。
 
-铝价创出两年来最大单月涨幅。
+这件事要追溯回七年前。
 
-原油：油价回落 美伊释放缓和信号削弱风险溢价 由于伊朗与美国释放出愿意推动冲突解决的信号，油价周二回落。
+2019年1月，上海银行普陀支行通过并购贷款向深圳方瑞放款31.34496亿元，担保方式为深圳方瑞提供上海建配龙、上海兴力达股权质押担保，上海濠泉、上海兴力达、上海建配龙、深圳建业、宝能控股提供连带责任保证担保。
 
-WTI下跌1.5%，收于每桶101美元左右，此前盘中一度上涨3.9%。
+截至起诉日，深圳方瑞尚欠本金30.07666亿元及利息等。
 
-伊朗国家通讯社周二报道称，伊朗总统佩泽希齐扬重申德黑兰愿意结束战争，但前提是满足若干条件。
+简单来说，7年时间，深圳方瑞只还了1.2683亿元。
 
-但交易员仍担心，即便冲突迅速结束，也难以立即消除全球能源体系受到的扰动。
+熟悉上海地产市场的人，看到上海建配龙、上海兴力达，想必不会陌生。
 
-OnyxPoint Global Management首席投资官Shaia Hosseinzadeh表示：“即使冲突明天结束，恢复运输也需要数周甚至数月时间。
+这两个项目公司，分别对应2个地块”建配龙地块”、“兴力达地块”，历经多次换主。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 00:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 00:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 00:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 23:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 23:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 23:44 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 23:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 23:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 23:46 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 00:05 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 23:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 23:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 23:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 00:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 23:51 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 23:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 00:15 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 23:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 23:51 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 00:08 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:05 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 00:01 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/936457754744.shtml)
-- 2026-06-29 23:42 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/30981452.shtml)
-- 2026-06-30 00:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/339331959.shtml)
-- 2026-06-29 23:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/47851.shtml)
-- 2026-06-30 00:02 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/355737665614.shtml)
-- 2026-06-30 00:06 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/2122415.shtml)
-- 2026-06-30 00:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/94998.shtml)
-- 2026-06-30 00:06 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/02866463501.shtml)
-- 2026-06-29 23:50 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/348960176.shtml)
-- 2026-06-30 00:01 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/81292.shtml)
-- 2026-06-29 23:49 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/90103.shtml)
-- 2026-06-29 23:52 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/92504507.shtml)
-- 2026-06-30 00:04 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/7102193.shtml)
-- 2026-06-29 23:50 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/5455197703.shtml)
-- 2026-06-30 00:09 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/150468.shtml)
+- 2026-06-30 00:17 - [美人鱼](https://www.share.minike.top/Article/details/8508484392.shtml)
+- 2026-06-30 00:12 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/8022571.shtml)
+- 2026-06-29 23:51 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/57789.shtml)
+- 2026-06-30 00:02 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/33543188.shtml)
+- 2026-06-29 23:53 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/12701471718.shtml)
+- 2026-06-30 00:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/7065459.shtml)
+- 2026-06-30 00:17 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/855199384.shtml)
+- 2026-06-30 00:07 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/64309850.shtml)
+- 2026-06-30 00:04 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/961413504.shtml)
+- 2026-06-29 23:59 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/68205.shtml)
+- 2026-06-29 23:56 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/24145415.shtml)
+- 2026-06-29 23:52 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/386230.shtml)
+- 2026-06-30 00:08 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/35426179.shtml)
+- 2026-06-30 00:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/51191.shtml)
+- 2026-06-30 00:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/2533762.shtml)

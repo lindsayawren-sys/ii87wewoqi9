@@ -1,58 +1,61 @@
-# 银行“市值一哥”争夺战背后：农行离工行差距还有多大
+# 英媒称英外交大臣要求首相斯塔默辞职
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-低利率环境下，高股息仍是国有大行在资本市场上的关键吸引力。年报数据显示，去年大行分红率继续保持在30%以上，合计分红金额超过4270亿元。按照最新股价测算，各行股息率最低为3.73%（农业银行），最高为4.7%（交通银行）。 资本市场的投票终究要回到基本面。从最新年报数据来看，工商银行作为全球首个资产规模突破50万亿元的“巨无霸”商业银行，目前仍是最赚钱的国有大行。不过，近年来
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。 英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。 此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离
 
 ## 正文
 
-低利率环境下，高股息仍是国有大行在资本市场上的关键吸引力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-年报数据显示，去年大行分红率继续保持在30%以上，合计分红金额超过4270亿元。
+新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。
 
-按照最新股价测算，各行股息率最低为3.73%（农业银行），最高为4.7%（交通银行）。
+英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。
 
-资本市场的投票终究要回到基本面。
+此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离任时间表，内政大臣谢巴娜·马哈茂德也曾呼吁斯塔默确定离任日期。
 
-从最新年报数据来看，工商银行作为全球首个资产规模突破50万亿元的“巨无霸”商业银行，目前仍是最赚钱的国有大行。
+19日凌晨，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党首竞争、进而角逐首相职位的条件。
 
-不过，近年来，凭借县域金融的下沉优势，农行的资产扩张和盈利增长势头明显更猛。
+伯纳姆被广泛视作斯塔默工党党首地位的有力竞争者，他曾在该选区一场补选候选人辩论中表示，如果他获胜，将寻求加入任何挑战斯塔默党首之位的活动。
 
-2025年，农行的净资产收益率（ROE）跃升至大行首位。
+斯塔默19日对英国媒体表示，如果发生党首竞选，他将会参选，并重申自己不会“一走了之”。
 
-经过去年的“市值之王”争夺战，市场更关心的是，作为主责主业和专业特色迥异的“市值一哥”“市值二哥”，工行、农行是如何应对周期挑战的？
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 23:57 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 23:42 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 23:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 00:06 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 00:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 23:56 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 23:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 23:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 23:43 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 23:56 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 00:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 23:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 23:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 23:50 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 00:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 23:56 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 23:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 00:08 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 00:05 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 00:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:48 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 23:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/186095230.shtml)
-- 2026-06-29 23:43 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/84313482.shtml)
-- 2026-06-30 00:09 - [女心理师](http://www.share.minike.top/Article/details/0082140844.shtml)
-- 2026-06-29 23:47 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/1263471064.shtml)
-- 2026-06-29 23:47 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/84138204.shtml)
-- 2026-06-29 23:42 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/031638005.shtml)
-- 2026-06-29 23:52 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/411879093740.shtml)
-- 2026-06-30 00:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/50287196753.shtml)
-- 2026-06-30 00:08 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/6366785.shtml)
-- 2026-06-30 00:05 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/7922017763.shtml)
-- 2026-06-29 23:42 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/66946.shtml)
-- 2026-06-29 23:54 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/38014927271.shtml)
-- 2026-06-29 23:56 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/654147.shtml)
-- 2026-06-29 23:53 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/033877606321.shtml)
-- 2026-06-30 00:11 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/38438.shtml)
+- 2026-06-29 23:52 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/212168.shtml)
+- 2026-06-30 00:04 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/0287888.shtml)
+- 2026-06-29 23:56 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/662688.shtml)
+- 2026-06-30 00:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/16833401964.shtml)
+- 2026-06-30 00:15 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/9290806.shtml)
+- 2026-06-30 00:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/57458732959.shtml)
+- 2026-06-29 23:52 - [青春环游记第三季](http://www.blog.minike.top/Article/details/3109982.shtml)
+- 2026-06-30 00:13 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/82146805.shtml)
+- 2026-06-30 00:03 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/805610.shtml)
+- 2026-06-30 00:03 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/23590096678.shtml)
+- 2026-06-30 00:07 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/8132143998.shtml)
+- 2026-06-29 23:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/72377.shtml)
+- 2026-06-30 00:15 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/10499801.shtml)
+- 2026-06-30 00:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/31540470111.shtml)
+- 2026-06-30 00:12 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/5278800.shtml)

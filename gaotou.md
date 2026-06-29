@@ -1,49 +1,58 @@
-# 国泰海通证券：上调优必选目标价至184.77港元 续予“增持”评级
+# 10倍涨幅ETF诞生！散户猛干，外资出逃
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-国泰海通证券发布研报称，优必选（09880）去年营收高增，具身智能人形机器人产品销售逾千台。去年公司人形机器人订单总额近14亿元人民币，看好公司引领人形机器人行业发展，看好公司后续业绩进展。上调优必选2026至2027年归母净利润预测500万及5.02亿元人民币，新增2028年归母净利润预测7.99亿人民币，调高目标价至184.77港元，相当预测市销率22倍，续予“增持”评级。
+（来源：ETF进化论） 10倍！港股市场又诞生了一只超级妖基。 6月以来，两倍做多海力士ETF（7709.HK）继续飙涨，今日涨超16%，再创历史新高，年内累计涨幅达到1063%。 SK海力士股价今日上涨5.61%，盘中冲上294.5万韩元，刷新历史纪录。 SK海力士登顶韩国市值榜首！周一，韩国芯片制造商SK海力士的市值超过同行三星电子，跃居韩国市值第一大企业。 SK海力士股价
 
 ## 正文
 
-国泰海通证券发布研报称，优必选（09880）去年营收高增，具身智能人形机器人产品销售逾千台。
+（来源：ETF进化论） 10倍！
 
-去年公司人形机器人订单总额近14亿元人民币，看好公司引领人形机器人行业发展，看好公司后续业绩进展。
+港股市场又诞生了一只超级妖基。
 
-上调优必选2026至2027年归母净利润预测500万及5.02亿元人民币，新增2028年归母净利润预测7.99亿人民币，调高目标价至184.77港元，相当预测市销率22倍，续予“增持”评级。
+6月以来，两倍做多海力士ETF（7709.HK）继续飙涨，今日涨超16%，再创历史新高，年内累计涨幅达到1063%。
 
-责任编辑：史丽君
+SK海力士股价今日上涨5.61%，盘中冲上294.5万韩元，刷新历史纪录。
+
+SK海力士登顶韩国市值榜首！
+
+周一，韩国芯片制造商SK海力士的市值超过同行三星电子，跃居韩国市值第一大企业。
+
+SK海力士股价年内涨幅扩大至350%，总市值达2080.38万亿韩元；同期三星电子股价涨195%，总市值为2066.66万亿韩元。
+
+三星电子自2000年起便稳居韩国市值榜首，此次宝座被SK海力士短暂取代。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 00:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 00:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 23:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 00:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 23:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 23:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 23:59 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 23:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 23:51 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 00:07 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 23:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 00:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 00:09 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 00:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 23:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 00:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 00:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:48 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 00:16 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 23:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/96089285672.shtml)
-- 2026-06-29 23:52 - [美股](https://www.blog.minike.top/Article/details/473003344127.shtml)
-- 2026-06-29 23:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/18769420242.shtml)
-- 2026-06-29 23:58 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/6028793586.shtml)
-- 2026-06-29 23:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/21453.shtml)
-- 2026-06-29 23:44 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/551866092367.shtml)
-- 2026-06-29 23:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/6261673.shtml)
-- 2026-06-30 00:07 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/2927792875.shtml)
-- 2026-06-29 23:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/94984.shtml)
-- 2026-06-30 00:05 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/679117886.shtml)
-- 2026-06-30 00:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/8959412.shtml)
-- 2026-06-29 23:45 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/60912.shtml)
-- 2026-06-29 23:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/675277.shtml)
-- 2026-06-29 23:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/094069094435.shtml)
-- 2026-06-29 23:44 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/017439731.shtml)
+- 2026-06-30 00:04 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/340385284680.shtml)
+- 2026-06-30 00:07 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/82665.shtml)
+- 2026-06-29 23:49 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/5999583269.shtml)
+- 2026-06-29 23:58 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/5179802.shtml)
+- 2026-06-29 23:57 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/40862217323.shtml)
+- 2026-06-29 23:48 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/2925823.shtml)
+- 2026-06-30 00:08 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/47368038.shtml)
+- 2026-06-30 00:12 - [斗破苍穹](https://www.share.minike.top/Article/details/2095678125.shtml)
+- 2026-06-29 23:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/38165358167.shtml)
+- 2026-06-30 00:05 - [新官上任三把火](http://www.share.minike.top/Article/details/41638820.shtml)
+- 2026-06-29 23:59 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/322695.shtml)
+- 2026-06-29 23:58 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/755862.shtml)
+- 2026-06-29 23:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/474677.shtml)
+- 2026-06-30 00:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/8189180.shtml)
+- 2026-06-29 23:48 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/542257666718.shtml)

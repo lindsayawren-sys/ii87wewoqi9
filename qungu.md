@@ -1,60 +1,61 @@
-# 金力永磁早盘涨超7% 机构看好稀土板块估值业绩双升
+# 税务部门提醒：个税汇算结束后收到“补税提醒”要及时核实处理
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-金力永磁（06680）早盘涨超7%，截至发稿，股价上涨7.06%，现报20.62港元，成交额6850.93万港元。 近日稀土价格企稳回升，镨钕氧化物价格上涨至75万元/吨上方。在此前部分厂商公开看空后，近期下游采购积极性明显提升，市场预计主要厂商的库存降至1个月以内，或对价格形成明显支撑。国投证券认为，预计4月上旬包钢将上调稀土精矿价格，能源危机可能催化内外需求超预期，新一轮补
+中新网北京6月22日电(记者 李金磊)2025年度个人所得税综合所得汇算将于今年6月30日结束。届时，部分纳税人将会收到税务部门通过短信、电话或个人所得税APP站内信等方式发送的提示，提醒其可能存在未申报或少申报收入、需要补缴税款的情况。对此，纳税人应该如何处理？不予理会可能面临什么后果？税务部门提醒，接到税务机关“补税”提示，要及时主动进行补正申报。不要有侥幸心理，更不要听信
 
 ## 正文
 
-金力永磁（06680）早盘涨超7%，截至发稿，股价上涨7.06%，现报20.62港元，成交额6850.93万港元。
+中新网北京6月22日电(记者 李金磊)2025年度个人所得税综合所得汇算将于今年6月30日结束。
 
-近日稀土价格企稳回升，镨钕氧化物价格上涨至75万元/吨上方。
+届时，部分纳税人将会收到税务部门通过短信、电话或个人所得税APP站内信等方式发送的提示，提醒其可能存在未申报或少申报收入、需要补缴税款的情况。
 
-在此前部分厂商公开看空后，近期下游采购积极性明显提升，市场预计主要厂商的库存降至1个月以内，或对价格形成明显支撑。
+对此，纳税人应该如何处理？
 
-国投证券认为，预计4月上旬包钢将上调稀土精矿价格，能源危机可能催化内外需求超预期，新一轮补库可能在二季度启动，看好26年稀土中枢价格上涨。
+不予理会可能面临什么后果？
 
-国金证券表示，从年初至今来看，价格中枢不断上抬，该行认为或与2024-2025年发布的供给侧文件相关性较大，行业供改持续推进。
+税务部门提醒，接到税务机关“补税”提示，要及时主动进行补正申报。
 
-2025年出口全年同比-1%、2026年初至今出口增加显著，表明海外仍有较大补库需求。
+不要有侥幸心理，更不要听信不法中介所谓“可以代为处理”“不用理会也没事”等不实承诺。
 
-稀土板块将继续演化估值业绩双升，2026年亦为重点标的同业竞争解决的关键一年。
+汇算期结束，抽查复核发送“补税”提示 税务总局公布的数据显示，截至5月底，已有超过1.6亿人完成汇算申报。
 
-责任编辑：卢昱君
+但汇算申报结束是不是个税汇算就结束了呢？
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 00:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 23:58 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 00:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 23:56 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 23:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 23:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 23:57 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 00:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 23:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 23:55 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 23:59 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 23:43 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 23:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 23:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 23:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 00:15 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 23:49 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 00:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 23:48 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 00:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 00:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 00:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 00:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 00:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 00:12 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/68519.shtml)
-- 2026-06-29 23:59 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/121992939036.shtml)
-- 2026-06-29 23:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/64664834842.shtml)
-- 2026-06-29 23:46 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/681820596.shtml)
-- 2026-06-29 23:53 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/8945052519.shtml)
-- 2026-06-30 00:09 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/05915954711.shtml)
-- 2026-06-30 00:09 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/423988434.shtml)
-- 2026-06-29 23:46 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/07451.shtml)
-- 2026-06-30 00:08 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/872507879.shtml)
-- 2026-06-30 00:11 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/9303285342.shtml)
-- 2026-06-30 00:09 - [田曦薇没招了](https://www.blog.minike.top/Article/details/2555843.shtml)
-- 2026-06-30 00:03 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/438359939774.shtml)
-- 2026-06-29 23:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/40359075966.shtml)
-- 2026-06-30 00:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/693667.shtml)
-- 2026-06-30 00:05 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/545591583165.shtml)
+- 2026-06-30 00:12 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/84264215.shtml)
+- 2026-06-30 00:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/619081331.shtml)
+- 2026-06-30 00:17 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/695885904.shtml)
+- 2026-06-30 00:12 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/533923.shtml)
+- 2026-06-29 23:49 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/61206.shtml)
+- 2026-06-30 00:07 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/29079515.shtml)
+- 2026-06-30 00:14 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/923853313632.shtml)
+- 2026-06-29 23:52 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/0409492858.shtml)
+- 2026-06-29 23:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/151149389661.shtml)
+- 2026-06-29 23:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/8928806.shtml)
+- 2026-06-30 00:06 - [美股](http://www.share.minike.top/Article/details/7657535851.shtml)
+- 2026-06-30 00:00 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/737955475.shtml)
+- 2026-06-30 00:11 - [房价什么时候能涨](http://www.share.minike.top/Article/details/8781352.shtml)
+- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9296237.shtml)
+- 2026-06-30 00:11 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/90639.shtml)

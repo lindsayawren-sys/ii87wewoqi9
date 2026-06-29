@@ -1,52 +1,42 @@
-# 美国上周MBA抵押贷款申请指数下降0.8%
+# 宁夏回族自治区银川市消防救援支队党委书记汤毅接受审查调查
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-截至4月3日当周，MBA抵押贷款申请指数下降0.8%，此前一周下降10.4%。 抵押贷款申请连续第四周下降。 继前一周下降2.6%之后，购房抵押贷款申请指数上升1.1%。 再融资申请下降2.8%，此前一周下降17.3%。 30年期固定利率平均为6.51%，之前一周为6.57%。责任编辑：何云
+中新网6月22日电 据中央纪委国家监委驻应急管理部纪检监察组、宁夏回族自治区纪委监委消息：宁夏回族自治区银川市消防救援支队党委书记、政治委员汤毅(副厅级)涉嫌严重违纪违法，目前正接受中央纪委国家监委驻应急管理部纪检监察组纪律审查和宁夏回族自治区监察委员会监察调查。
 
 ## 正文
 
-截至4月3日当周，MBA抵押贷款申请指数下降0.8%，此前一周下降10.4%。
-
-抵押贷款申请连续第四周下降。
-
-继前一周下降2.6%之后，购房抵押贷款申请指数上升1.1%。
-
-再融资申请下降2.8%，此前一周下降17.3%。
-
-30年期固定利率平均为6.51%，之前一周为6.57%。
-
-责任编辑：何云
+中新网6月22日电 据中央纪委国家监委驻应急管理部纪检监察组、宁夏回族自治区纪委监委消息：宁夏回族自治区银川市消防救援支队党委书记、政治委员汤毅(副厅级)涉嫌严重违纪违法，目前正接受中央纪委国家监委驻应急管理部纪检监察组纪律审查和宁夏回族自治区监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 00:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 23:57 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 00:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 23:57 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 00:03 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:59 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 00:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:48 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 23:49 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:11 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 00:12 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 00:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 23:50 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:55 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:05 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 00:10 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 00:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 00:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/27215.shtml)
-- 2026-06-30 00:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/61858672780.shtml)
-- 2026-06-29 23:55 - [小娘惹](http://www.blog.minike.top/Article/details/5077919214.shtml)
-- 2026-06-30 00:02 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/8876307617.shtml)
-- 2026-06-29 23:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/2182399.shtml)
-- 2026-06-29 23:54 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/15581045.shtml)
-- 2026-06-29 23:51 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/8631774304.shtml)
-- 2026-06-29 23:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/2643863.shtml)
-- 2026-06-30 00:00 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/618136455979.shtml)
-- 2026-06-29 23:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/496946.shtml)
-- 2026-06-30 00:10 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/7788203385.shtml)
-- 2026-06-29 23:59 - [斗破苍穹](https://www.share.minike.top/Article/details/0497598696.shtml)
-- 2026-06-29 23:47 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/17488.shtml)
-- 2026-06-30 00:08 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/5798182265.shtml)
-- 2026-06-29 23:50 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/170219508062.shtml)
+- 2026-06-30 00:06 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/474865817.shtml)
+- 2026-06-29 23:50 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/867636868.shtml)
+- 2026-06-29 23:54 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/99007691832.shtml)
+- 2026-06-29 23:54 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/073289076.shtml)
+- 2026-06-30 00:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/030522.shtml)
+- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/2232497.shtml)
+- 2026-06-30 00:15 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/36110639383.shtml)
+- 2026-06-29 23:55 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/19110.shtml)
+- 2026-06-30 00:12 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/473236630960.shtml)
+- 2026-06-29 23:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/261385442198.shtml)
+- 2026-06-29 23:51 - [电影后室值得看吗](http://www.share.minike.top/Article/details/435493662950.shtml)
+- 2026-06-30 00:17 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/298681227185.shtml)
+- 2026-06-29 23:50 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/46134551483.shtml)
+- 2026-06-30 00:03 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/7330656077.shtml)
+- 2026-06-30 00:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/35007.shtml)

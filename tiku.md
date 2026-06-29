@@ -1,59 +1,56 @@
-# 全红婵涉嫌遭受网暴 所在训练中心：已报警
+# 第四届链博会开幕 各界呼吁提升全球产供链韧性
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 广东省二沙体育训练中心微信公众号4月8日发文称，近日，我中心跳水运动员全红婵涉嫌遭受网暴一事，受到社会的高度关注，我中心已向公安机关报警。全红婵作为一名为国家赢得荣誉的年轻运动员，在成长过程中承受了不应有的舆论压力和精神伤害，对此，我中心表示严重关切，并坚决反对。文章指出，运动员是国家的宝贵财富，是体育精神的践行者与传播者，以任何名义对运动员及其家属进行恶意中
+中新社北京6月22日电 (尹倩芸 陶思阅)第四届中国国际供应链促进博览会(简称“链博会”)22日在北京开幕。 本届链博会展期至6月26日。澳大利亚担任主宾国，这是其首次以官方国家级身份正式参与链博会。中国国内的主宾省分别是安徽省和海南省。 中国贸促会会长任鸿斌介绍，本届链博会设置“6链1展区”，分别是数智科技链、先进制造链、绿色农业链、健康生活链、智能汽车链、清洁能源链和供应链
 
 ## 正文
 
-中新网4月8日电 广东省二沙体育训练中心微信公众号4月8日发文称，近日，我中心跳水运动员全红婵涉嫌遭受网暴一事，受到社会的高度关注，我中心已向公安机关报警。
+中新社北京6月22日电 (尹倩芸 陶思阅)第四届中国国际供应链促进博览会(简称“链博会”)22日在北京开幕。
 
-全红婵作为一名为国家赢得荣誉的年轻运动员，在成长过程中承受了不应有的舆论压力和精神伤害，对此，我中心表示严重关切，并坚决反对。
+本届链博会展期至6月26日。
 
-文章指出，运动员是国家的宝贵财富，是体育精神的践行者与传播者，以任何名义对运动员及其家属进行恶意中伤、侮辱谩骂、传播虚假信息的行为，均已超过法律与道德底线。
+澳大利亚担任主宾国，这是其首次以官方国家级身份正式参与链博会。
 
-这种行为不仅严重干扰了运动员的正常训练和生活，更破坏了公平、健康、向上的体育生态。
+中国国内的主宾省分别是安徽省和海南省。
 
-文章明确，我中心坚决反对任何形式的网络暴力和人格侵害，坚决反对畸形的饭圈文化，坚决支持全红婵通过法律手段依法维护自身权益。
+中国贸促会会长任鸿斌介绍，本届链博会设置“6链1展区”，分别是数智科技链、先进制造链、绿色农业链、健康生活链、智能汽车链、清洁能源链和供应链服务展区。
 
-我中心将联合相关部门，通过法律途径坚决追究网暴者责任。
+共有676家中外链主企业、专精特新企业和行业机构参展，其中外资参展商比例达到36.5%。
 
-文章提到，我们呼吁广大体育爱好者，不要参与传播不实信息，不对运动员进行身体、家庭、个人生活的恶意评论，不实施言论攻击行为。
+当前全球产业链供应链面临挑战，多位与会人士在开幕式上重申合作的重要性。
 
-尊重与理解，是赛场的一声加油，是低谷时的一份包容，请将关注回归体育运动本身，回归体育的拼搏精神。
+南非副总统保罗·马沙蒂莱表示，链博会为重塑全球贸易体系信心，推动包容可持续的经济增长搭建了至关重要的合作平台。
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 23:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 23:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 23:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 23:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 00:02 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 23:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 23:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 00:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 23:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 00:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 00:09 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 00:02 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 00:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 00:17 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 23:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 23:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 23:50 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 00:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 00:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 23:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 00:16 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/42477134856.shtml)
-- 2026-06-29 23:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/566709.shtml)
-- 2026-06-29 23:50 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/81510577405.shtml)
-- 2026-06-29 23:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/263669.shtml)
-- 2026-06-29 23:53 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/56043.shtml)
-- 2026-06-30 00:03 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/511991677.shtml)
-- 2026-06-29 23:44 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/46128.shtml)
-- 2026-06-29 23:54 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/081901775.shtml)
-- 2026-06-30 00:08 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/296713570.shtml)
-- 2026-06-29 23:53 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/58301998163.shtml)
-- 2026-06-29 23:45 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/81570278794.shtml)
-- 2026-06-30 00:04 - [世界杯](http://www.blog.kurohicncr.top/Article/details/409970972769.shtml)
-- 2026-06-29 23:56 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/429220441.shtml)
-- 2026-06-29 23:57 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/36905536.shtml)
-- 2026-06-30 00:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/479364498.shtml)
+- 2026-06-30 00:02 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/987991.shtml)
+- 2026-06-29 23:58 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/6988882390.shtml)
+- 2026-06-29 23:55 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/77040.shtml)
+- 2026-06-29 23:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/598596320.shtml)
+- 2026-06-29 23:59 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/2989349.shtml)
+- 2026-06-29 23:56 - [明星大侦探第一季](https://www.share.minike.top/Article/details/94315.shtml)
+- 2026-06-30 00:13 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/15212.shtml)
+- 2026-06-30 00:06 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/99641.shtml)
+- 2026-06-30 00:16 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/85918.shtml)
+- 2026-06-30 00:13 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/832516526337.shtml)
+- 2026-06-30 00:04 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/785769599.shtml)
+- 2026-06-30 00:11 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/24353.shtml)
+- 2026-06-30 00:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/583134707556.shtml)
+- 2026-06-30 00:17 - [斗破苍穹](http://www.share.minike.top/Article/details/75751089.shtml)
+- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/203165972909.shtml)

@@ -1,56 +1,49 @@
-# 美交通部长暗示航空业或有大型并购：特朗普喜欢大交易
+# 财政部：在政府采购活动中对46家美国企业采取相关措施
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-随着航空燃油成本的不断上涨，美国交通部长肖恩·达菲已暗示会批准美国各航空公司之间可能的合并。 在当地时间周二的一次采访中，达菲被问及特朗普政府对航空公司合并的看法，他回应说，这取决于多种因素。“这不仅要经过我们（交通部）的决定，还要经过特朗普总统的批准，”，并补充说特朗普“乐于见到大交易发生”。 他还表示，任何此类交易都需要经过政府审查，但他同时指出，美国航空业“存在一些并购空
+中新网6月22日电 6月22日，财政部发布关于在政府采购活动中对有关美国企业采取相关措施的通知，根据有关法律法规，经批准，现决定在政府采购活动中对46家美国企业采取相关措施。具体通知如下： 一、采购人在政府采购活动中，不得采购46家美国企业(不包括在华美资企业)生产的产品。 二、本通知自印发之日起施行。
 
 ## 正文
 
-随着航空燃油成本的不断上涨，美国交通部长肖恩·达菲已暗示会批准美国各航空公司之间可能的合并。
+中新网6月22日电 6月22日，财政部发布关于在政府采购活动中对有关美国企业采取相关措施的通知，根据有关法律法规，经批准，现决定在政府采购活动中对46家美国企业采取相关措施。
 
-在当地时间周二的一次采访中，达菲被问及特朗普政府对航空公司合并的看法，他回应说，这取决于多种因素。
+具体通知如下： 一、采购人在政府采购活动中，不得采购46家美国企业(不包括在华美资企业)生产的产品。
 
-“这不仅要经过我们（交通部）的决定，还要经过特朗普总统的批准，”，并补充说特朗普“乐于见到大交易发生”。
-
-他还表示，任何此类交易都需要经过政府审查，但他同时指出，美国航空业“存在一些并购空间”。
-
-他还提到，目前关于航空业并购的讨论“很多”，但他会评估任何提案对该行业“竞争”以及消费者价格的影响。
-
-“我不会预先做出任何承诺，我会看看我桌上收到的文件，总统也会看看，”达菲说，并补充说，任何交易也意味着航空公司将“剥离一些较大的资产”。
-
-此消息传出之际，有关捷蓝航空可能出售的传闻甚嚣尘上。
-
-据悉，该航空公司曾寻求顾问来评估潜在的出售事宜，并试探性地研究了与美国联合航空控股公司、阿拉斯加航空集团或西南航空公司的合并事宜在监管机构眼中可能会引发怎样的反应，因为存在反垄断方面的担忧。
+二、本通知自印发之日起施行。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 00:11 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 23:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 23:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 23:49 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 23:43 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 23:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 23:53 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 23:51 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 23:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 00:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 00:10 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 00:01 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 00:17 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 23:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 00:00 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 00:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 00:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 23:54 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 00:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 23:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 00:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 23:55 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/767333783.shtml)
-- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/688136699289.shtml)
-- 2026-06-30 00:07 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/99471.shtml)
-- 2026-06-30 00:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/10228.shtml)
-- 2026-06-29 23:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/09406327732.shtml)
-- 2026-06-29 23:48 - [《贺子珍》](http://www.blog.minike.top/Article/details/8231531382.shtml)
-- 2026-06-29 23:52 - [天道](http://www.share.minike.top/Article/details/60676584.shtml)
-- 2026-06-29 23:52 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/41478023.shtml)
-- 2026-06-29 23:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/9354092374.shtml)
-- 2026-06-30 00:04 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/721464418473.shtml)
-- 2026-06-29 23:51 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/35860466.shtml)
-- 2026-06-30 00:06 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/247591873561.shtml)
-- 2026-06-29 23:44 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/32919.shtml)
-- 2026-06-29 23:54 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/622652555157.shtml)
-- 2026-06-29 23:49 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/3340655888.shtml)
+- 2026-06-30 00:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/2063101.shtml)
+- 2026-06-29 23:58 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/84431.shtml)
+- 2026-06-30 00:04 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/3781428.shtml)
+- 2026-06-30 00:00 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/823245.shtml)
+- 2026-06-29 23:51 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/90193145315.shtml)
+- 2026-06-29 23:54 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/80345.shtml)
+- 2026-06-30 00:11 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/45112689.shtml)
+- 2026-06-30 00:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/44530410.shtml)
+- 2026-06-30 00:15 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/9940282.shtml)
+- 2026-06-29 23:52 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/240684156647.shtml)
+- 2026-06-29 23:53 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/821048.shtml)
+- 2026-06-30 00:15 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/65997890879.shtml)
+- 2026-06-29 23:51 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/26809979.shtml)
+- 2026-06-29 23:53 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/5479366468.shtml)
+- 2026-06-30 00:06 - [第一炉香](http://www.share.minike.top/Article/details/0831694277.shtml)

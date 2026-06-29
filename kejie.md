@@ -1,58 +1,58 @@
-# 大疆供应商豪江智能5936万元收购杭州优特电源，借高端LED驱动电源打开海外高端照明市场 | 长三角资本局
+# 进一步健全投融资相协调的资本市场功能 更好服务新质生产力和经济高质量发展
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 4月2日，一笔5936万元的收购，把一家青岛上市公司和一家杭州电源企业拉到了一起。钱不算特别大，但看点并不少。 豪江智能为什么在业绩承压之际出手？一家做智能线性驱动控制的公司，为什么要拿下一家做大功率智能LED驱动电源的企业？ 而在交易另一端，杭州优特电源实控人毛昭祺，又将从这笔交易中拿走约4451.65万元税前现金。这究竟是一场普通的产业并购，还是一
+本文转载自：中国证券投资基金业协会 尊敬的吉宁书记、小川行长、龚正市长，各位领导、各位来宾，女士们、先生们： 大家上午好！很高兴又一次参加陆家嘴论坛。近来，世界形势变乱交织，国际经贸秩序深刻调整，全球金融市场高位波动，给经济发展和金融稳定带来了新考验，也对加强金融治理与监管合作提出了新课题。刚才，何立峰副总理在主旨演讲中深刻洞察世界经济金融发展大势，全面阐释进一步加快推进金融强
 
 ## 正文
 
-文|新浪财经上海站 十里 4月2日，一笔5936万元的收购，把一家青岛上市公司和一家杭州电源企业拉到了一起。
+本文转载自：中国证券投资基金业协会 尊敬的吉宁书记、小川行长、龚正市长，各位领导、各位来宾，女士们、先生们： 大家上午好！
 
-钱不算特别大，但看点并不少。
+很高兴又一次参加陆家嘴论坛。
 
-豪江智能为什么在业绩承压之际出手？
+近来，世界形势变乱交织，国际经贸秩序深刻调整，全球金融市场高位波动，给经济发展和金融稳定带来了新考验，也对加强金融治理与监管合作提出了新课题。
 
-一家做智能线性驱动控制的公司，为什么要拿下一家做大功率智能LED驱动电源的企业？
+刚才，何立峰副总理在主旨演讲中深刻洞察世界经济金融发展大势，全面阐释进一步加快推进金融强国建设的战略考量和重点部署，对于我们廓清认识、直面挑战、把握机遇，以自身发展的确定性应对各种不确定性提供了重要遵循。
 
-而在交易另一端，杭州优特电源实控人毛昭祺，又将从这笔交易中拿走约4451.65万元税前现金。
+我们将深入学习领会，认真抓好落实。
 
-这究竟是一场普通的产业并购，还是一次各取所需的资本交接？
+借此机会，我就加强资本市场功能建设，更好服务新质生产力和经济高质量发展，与大家作个交流。
 
-青岛豪江智能科技股份有限公司公告称，公司拟以5936万元暂定对价，现金收购杭州优特电源有限公司53%股权。
+一、新“国九条”和“1+N”政策体系全面落地，中国资本市场稳中向好的确定性明显增强 2024年4月国务院出台的《关于加强监管防范风险推动资本市场高质量发展的若干意见》（简称新“国九条”），全面贯彻习近平总书记关于资本市场的一系列重要论述和中央金融工作会议精神，系统重塑市场基础制度和监管底层逻辑。
 
-交易完成后，优特电源将纳入上市公司合并报表范围。
+两年多来，在中央金融委及其办公室统筹指挥协调下，中国证监会以贯彻落实新“国九条”为契机，紧扣防风险、强监管、促高质量发展的主线，会同有关方面相继出台了近70项配套政策文件并狠抓落实，监管体系和制度机制建设取得重要突破，成效日益显现。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 23:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 23:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 00:09 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 23:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:50 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 00:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 23:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 00:09 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 00:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 23:45 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 23:42 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 00:10 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 00:11 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 00:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 00:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 23:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 00:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 23:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:10 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 23:48 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 00:06 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 23:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/03653.shtml)
-- 2026-06-29 23:54 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/19178326.shtml)
-- 2026-06-30 00:08 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/35642608.shtml)
-- 2026-06-29 23:43 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/5266513175.shtml)
-- 2026-06-30 00:02 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/152161563926.shtml)
-- 2026-06-29 23:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/4365081544.shtml)
-- 2026-06-30 00:02 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/7747206801.shtml)
-- 2026-06-29 23:56 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/9549929.shtml)
-- 2026-06-29 23:48 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/729487291533.shtml)
-- 2026-06-29 23:54 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/15156.shtml)
-- 2026-06-30 00:00 - [田曦薇没招了](https://www.share.minike.top/Article/details/45680431427.shtml)
-- 2026-06-29 23:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/82201.shtml)
-- 2026-06-29 23:59 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/83517.shtml)
-- 2026-06-30 00:09 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/43561943051.shtml)
-- 2026-06-30 00:01 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/6390874.shtml)
+- 2026-06-30 00:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/14087479810.shtml)
+- 2026-06-29 23:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/6352702977.shtml)
+- 2026-06-30 00:10 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/04988435.shtml)
+- 2026-06-30 00:02 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/142716676.shtml)
+- 2026-06-29 23:59 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/94637448.shtml)
+- 2026-06-29 23:55 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/6382452.shtml)
+- 2026-06-30 00:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/353526616198.shtml)
+- 2026-06-30 00:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/546502245081.shtml)
+- 2026-06-30 00:14 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/406101767.shtml)
+- 2026-06-29 23:54 - [天道](http://www.share.kurohicncr.top/Article/details/260490.shtml)
+- 2026-06-29 23:54 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/1244404.shtml)
+- 2026-06-29 23:52 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/9073415.shtml)
+- 2026-06-30 00:04 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/12434307005.shtml)
+- 2026-06-30 00:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/999727940847.shtml)
+- 2026-06-30 00:09 - [爱很美味](https://www.blog.minike.top/Article/details/0785427289.shtml)

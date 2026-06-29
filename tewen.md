@@ -1,60 +1,57 @@
-# 一季度银行遭罚6亿，三家被罚超千万！信贷违规占比超6成
+# 资管大佬：美国财政债务是核心支撑，黄金长牛根基仍在
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-财联社3月31日讯（编辑 李响）2026年以来，银行业监管的高压态势，可从一季度银行监管处罚概况见微知著。 财联社据企业预警通数据梳理，截至3月30日，一季度全国银行机构（含分支）合计收到1675条监管处罚（包含机构和个人），罚没金额合计6.025亿元。其中，信贷业务违规成为重灾区，1011例相关案例罚没3.18亿元；此外，内控制度不健全问题同样突出，405家机构因此受罚。 从
+汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。 沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日
 
 ## 正文
 
-财联社3月31日讯（编辑 李响）2026年以来，银行业监管的高压态势，可从一季度银行监管处罚概况见微知著。
+汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。
 
-财联社据企业预警通数据梳理，截至3月30日，一季度全国银行机构（含分支）合计收到1675条监管处罚（包含机构和个人），罚没金额合计6.025亿元。
+他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。
 
-其中，信贷业务违规成为重灾区，1011例相关案例罚没3.18亿元；此外，内控制度不健全问题同样突出，405家机构因此受罚。
+沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日），凯文·沃什（Kevin Warsh）完成就任美联储主席后的首场新闻发布会，全程将稳定物价、遏制通胀作为政策核心，强硬措辞令市场大幅上调加息预期，金价随之迎来短期回调。
 
-从处罚力度看，除中国建设银行、上海浦东发展银行、杭州联合农村商业银行股份有限公司（下称“杭州联合农商行”）位列罚金前三，均超千万元以外，仍有74家机构遭超百万级别以上的金额罚款，且违规领域呈现显著多元化。
+阿克塞尔·默克表示，单纯从利率维度看，偏鹰政策确实会形成阶段性利空，但沃什推行的制度改革具备长远利好。
 
-图：一季度处罚超400万元的银行机构名单 建行浦发领罚超4000万 70余家银行机构罚金超百万 2026年一季度，监管高压雷霆手段不断。
+他取消过度前瞻指引、弱化点阵图预期引导，减少央行频繁干预市场的行为，避免过往政策信号混乱带来的大幅行情震荡。
 
-财联社据企业预警通数据梳理发现，建行以4350.61万元的罚没金额居首，浦发银行4250.44万元位列其次，两家全国性银行的违规领域高度重合，主要涉及支付结算业务；而杭州联合农商行以1110万元罚金位列第三，违规焦点则集中在信贷业务，且涉及人员追责。
+他说：“美联储过往政策调整总是滞后，容易放大市场冲击，减少政策预判类沟通，能够规避重大决策失误，整体降低资产波动率。
 
-从前三家处罚金额超千万的违规细节看，建行与浦发银行的违规行为高度一致，均涉及违反账户管理规定、清算管理规定、银行卡收单业务管理规定等10项内容。
+”在他看来，稳定的市场环境更利于黄金走出持续性行情。
 
-相较于全国性银行，杭州联合农商行的违规路径更具区域性银行特征，其被罚原因集中在“贷款管理不到位”与“数据报送不准确”，财联社梳理发现，这一问题在银行群体中较为普遍，仅以贷款管理相关的处罚表述来看，合计罚金就高达9391.87万元。
+利率机会成本逻辑存在局限，黄金核心价值在于购买力保值 行业主流观点认为，美债收益率走高会抬升无息黄金的持有成本，进而压制金价，但默克对这套单一逻辑提出质疑。
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 23:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 00:08 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 23:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 00:05 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 23:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:48 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 00:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 00:00 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 23:43 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 00:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 23:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 23:53 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 00:15 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 23:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 23:49 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 00:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 00:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 00:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 00:02 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 00:07 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 00:17 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 00:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 00:16 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/38651437.shtml)
-- 2026-06-29 23:56 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/8684313710.shtml)
-- 2026-06-29 23:46 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/0325753568.shtml)
-- 2026-06-29 23:55 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/4153929.shtml)
-- 2026-06-29 23:53 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/47328.shtml)
-- 2026-06-29 23:53 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/997807606.shtml)
-- 2026-06-29 23:44 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/36180651665.shtml)
-- 2026-06-29 23:52 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/5175116.shtml)
-- 2026-06-29 23:42 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/750656.shtml)
-- 2026-06-29 23:54 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/0300039.shtml)
-- 2026-06-30 00:01 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/4685631791.shtml)
-- 2026-06-30 00:10 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/0011759.shtml)
-- 2026-06-30 00:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/3851005.shtml)
-- 2026-06-29 23:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/358766256305.shtml)
-- 2026-06-29 23:46 - [一生一世](https://www.share.minike.top/Article/details/310350174.shtml)
+- 2026-06-29 23:58 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/65123.shtml)
+- 2026-06-30 00:01 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/490639161.shtml)
+- 2026-06-29 23:51 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/868778091.shtml)
+- 2026-06-30 00:14 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/767497388484.shtml)
+- 2026-06-30 00:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/949763850250.shtml)
+- 2026-06-30 00:12 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/566827.shtml)
+- 2026-06-30 00:15 - [青春环游记第三季](https://www.share.minike.top/Article/details/02876143.shtml)
+- 2026-06-30 00:17 - [女心理师](http://www.blog.kurohicncr.top/Article/details/591303890.shtml)
+- 2026-06-29 23:52 - [刘宇宁 好听](https://www.share.minike.top/Article/details/718793.shtml)
+- 2026-06-29 23:59 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/66619754.shtml)
+- 2026-06-30 00:10 - [一见倾心](https://www.share.minike.top/Article/details/133897.shtml)
+- 2026-06-30 00:14 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/7459992.shtml)
+- 2026-06-29 23:55 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/54257448384.shtml)
+- 2026-06-29 23:53 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/571158.shtml)
+- 2026-06-29 23:54 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/0759039.shtml)

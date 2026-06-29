@@ -1,50 +1,44 @@
-# 翔鹭钨业：公司实际担保金额为36044.80万元
+# 缅甸总统敏昂莱参访杭州企业 全程仔细研究“摸”不停
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 3月31日，翔鹭钨业发布公告称，截至本公告披露日，公司提供担保额度合计为42200万元，占公司2025年经审计净资产的34.96%，实际担保金额为36044.80万元，占公司2025年经审计净资产的29.86%。除此之外，本公司及控股子公司无对外担保情况，亦无为股东、实际控制人及其关联方提供担保的情况。公司及子公司无逾期对外担保、无涉及诉讼的对外担保及因担保被判决
+发布时间：2026年06月19日 18:30 来源：中国新闻网 6月19日，缅甸总统敏昂莱参观浙江青士新材料科技有限公司，现场了解、触摸竹制品并收到端午香囊。(记者 孙杨洋 鲍梦妮 制作 王宁） 责任编辑：【孙静波】
 
 ## 正文
 
-证券日报网讯 3月31日，翔鹭钨业发布公告称，截至本公告披露日，公司提供担保额度合计为42200万元，占公司2025年经审计净资产的34.96%，实际担保金额为36044.80万元，占公司2025年经审计净资产的29.86%。
+发布时间：2026年06月19日 18:30 来源：中国新闻网 6月19日，缅甸总统敏昂莱参观浙江青士新材料科技有限公司，现场了解、触摸竹制品并收到端午香囊。
 
-除此之外，本公司及控股子公司无对外担保情况，亦无为股东、实际控制人及其关联方提供担保的情况。
-
-公司及子公司无逾期对外担保、无涉及诉讼的对外担保及因担保被判决败诉而应承担损失的情形。
+(记者 孙杨洋 鲍梦妮 制作 王宁） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 00:02 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 00:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 00:08 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 23:50 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 23:54 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 00:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 00:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 23:54 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 23:58 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 23:45 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:44 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 00:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 23:47 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 00:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 00:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 00:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 23:57 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 23:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 23:48 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 00:17 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 23:53 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 23:59 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 00:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/8578834.shtml)
-- 2026-06-29 23:48 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/007384.shtml)
-- 2026-06-30 00:02 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/9656841.shtml)
-- 2026-06-29 23:49 - [扫黑风暴](https://www.share.minike.top/Article/details/046626.shtml)
-- 2026-06-29 23:57 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/663008.shtml)
-- 2026-06-29 23:46 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/033916121.shtml)
-- 2026-06-29 23:55 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/03057333288.shtml)
-- 2026-06-30 00:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/747225746.shtml)
-- 2026-06-29 23:58 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/3744295091.shtml)
-- 2026-06-29 23:42 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/462266.shtml)
-- 2026-06-29 23:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/5070794990.shtml)
-- 2026-06-30 00:09 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/218787705210.shtml)
-- 2026-06-29 23:59 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/591459420.shtml)
-- 2026-06-30 00:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/915300625727.shtml)
-- 2026-06-29 23:51 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/779258536.shtml)
+- 2026-06-30 00:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/39259553.shtml)
+- 2026-06-29 23:53 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/6696211.shtml)
+- 2026-06-29 23:53 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/40494.shtml)
+- 2026-06-30 00:04 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/34838303245.shtml)
+- 2026-06-29 23:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/9601155.shtml)
+- 2026-06-29 23:51 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/3293715.shtml)
+- 2026-06-30 00:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/80146.shtml)
+- 2026-06-30 00:14 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/06379.shtml)
+- 2026-06-29 23:50 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/69651767.shtml)
+- 2026-06-30 00:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/843968529.shtml)
+- 2026-06-30 00:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/533491182926.shtml)
+- 2026-06-30 00:00 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/166711641.shtml)
+- 2026-06-29 23:48 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/53909835137.shtml)
+- 2026-06-29 23:51 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/17154619657.shtml)
+- 2026-06-29 23:58 - [恋与深空 日服](http://www.share.minike.top/Article/details/197841374973.shtml)

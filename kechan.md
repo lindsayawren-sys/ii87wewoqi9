@@ -1,59 +1,61 @@
-# 特朗普同意与伊朗达成为期两周的停火协议后 金价上涨
+# 端午假期广东龙舟竞技赛超500场 近10万名健儿挥桨
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普与伊朗达成为期两周停火协议，以敲定结束这场扰乱全球市场的战争的谈判，金价随之上涨。 黄金价格一度上涨3.2%，升至每盎司4850美元以上，延续了前一交易日1.2%的涨幅。特朗普在社交媒体发文称，在他设定的摧毁伊朗“整个文明”的最后期限前不到两小时，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是此次停火的关键条件。伊朗方面表示，未来两周内，船只“有可能”安全通过该
+中新网佛山6月19日电 (记者 程景伟)“龙舟竞渡-2026‘请到广东过端午’主会场活动”19日在佛山南海西樵山天湖公园启幕。 本次活动整合文旅、赛事、商贸等优质资源，集中展现广东源远流长的端午民俗文化、丰富多元的文旅产品以及暖心务实的惠民举措，持续做强“请到广东过端午”省级文旅IP，全力打造全省统一的“龙舟竞渡”品牌。 活动现场开设“一水同舟·湾区非遗墟”端午市集，统筹省、市
 
 ## 正文
 
-美国总统特朗普与伊朗达成为期两周停火协议，以敲定结束这场扰乱全球市场的战争的谈判，金价随之上涨。
+中新网佛山6月19日电 (记者 程景伟)“龙舟竞渡-2026‘请到广东过端午’主会场活动”19日在佛山南海西樵山天湖公园启幕。
 
-黄金价格一度上涨3.2%，升至每盎司4850美元以上，延续了前一交易日1.2%的涨幅。
+本次活动整合文旅、赛事、商贸等优质资源，集中展现广东源远流长的端午民俗文化、丰富多元的文旅产品以及暖心务实的惠民举措，持续做强“请到广东过端午”省级文旅IP，全力打造全省统一的“龙舟竞渡”品牌。
 
-特朗普在社交媒体发文称，在他设定的摧毁伊朗“整个文明”的最后期限前不到两小时，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是此次停火的关键条件。
+活动现场开设“一水同舟·湾区非遗墟”端午市集，统筹省、市、区、镇四级资源，设置超50个摊位，汇聚广东各地的特色好物。
 
-伊朗方面表示，未来两周内，船只“有可能”安全通过该海峡。
+市集以“广货行天下”为牵引，业态涵盖岭南美食、传统非遗、潮流文创、农特产品等多元品类。
 
-原油价格暴跌至每桶100美元以下，美元也走软，这为以美元计价的黄金提供了支撑。
+现场设置龙舟文化展示打卡区，配套包粽子、制香包、旱地龙舟等民俗互动体验，让游客在观赛之余沉浸式感受端午烟火气。
 
-股市大幅上涨，摩根士丹利资本国际亚太指数触及三周高点。
+活动设置传统民俗、现代文艺、文旅发布、全域联动等板块，集观赏性、互动性、实用性于一体。
 
-自中东战争爆发以来，黄金价格走势与股市大体同步，由于部分投资者需要弥补投资组合中其他领域的损失，黄金传统的避险吸引力有所减弱。
+庄重古朴的醒狮开场、意蕴悠长的主题文艺展演、干货满满的文旅惠民礼包与观赛地图发布依次呈现。
 
-Pepperstone集团策略师艾哈迈德・阿西里表示：“金价突破4800美元，反映出市场对风险的重新评估，而非整体格局的转变。
+随后，西樵山特色“半山扒龙船”锦龙盛会拉开帷幕。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 23:57 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 23:42 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 00:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 00:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 00:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 23:44 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 00:01 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 00:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 00:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 23:43 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 23:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 23:44 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 23:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 23:48 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 00:11 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 23:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 23:57 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 00:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 00:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 00:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 00:14 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 00:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 23:58 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 23:59 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 00:10 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/7765533.shtml)
-- 2026-06-29 23:51 - [明星大侦探第一季](https://www.share.minike.top/Article/details/75868497.shtml)
-- 2026-06-29 23:44 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/0048504.shtml)
-- 2026-06-29 23:56 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/43969518.shtml)
-- 2026-06-30 00:01 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/94918086932.shtml)
-- 2026-06-30 00:02 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/512205553875.shtml)
-- 2026-06-29 23:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/038360834.shtml)
-- 2026-06-29 23:55 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/395013310143.shtml)
-- 2026-06-29 23:49 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/13022616021.shtml)
-- 2026-06-29 23:44 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/75171.shtml)
-- 2026-06-29 23:54 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/58420475.shtml)
-- 2026-06-30 00:07 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/556986140871.shtml)
-- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/19802.shtml)
-- 2026-06-29 23:58 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/961554.shtml)
-- 2026-06-29 23:42 - [女心理师](http://www.share.kurohicncr.top/Article/details/60266646062.shtml)
+- 2026-06-29 23:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/307472813341.shtml)
+- 2026-06-29 23:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/143331178324.shtml)
+- 2026-06-30 00:05 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/94264.shtml)
+- 2026-06-30 00:02 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/63624.shtml)
+- 2026-06-29 23:58 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/6207760578.shtml)
+- 2026-06-30 00:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/589459.shtml)
+- 2026-06-29 23:55 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/5774076075.shtml)
+- 2026-06-30 00:11 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/21191.shtml)
+- 2026-06-30 00:13 - [金牌调解](https://www.share.minike.top/Article/details/5715502.shtml)
+- 2026-06-30 00:02 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/53228532.shtml)
+- 2026-06-29 23:54 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/881929.shtml)
+- 2026-06-30 00:10 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/935229.shtml)
+- 2026-06-29 23:51 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/65180708550.shtml)
+- 2026-06-30 00:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/290014929351.shtml)
+- 2026-06-29 23:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/231245183.shtml)

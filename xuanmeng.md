@@ -1,49 +1,59 @@
-# 法拉帝：接纳期内KKCG Maritime已接获合共2.8万股股份的有效接纳要约
+# 龙蟠科技午前涨近11% 磷酸铁锂价格翻倍需求依然旺盛
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-法拉帝（09638）发布公告，截至3月31日下午5时30分（中欧时间）（下午11时30分（香港时间））：于3月31日，KKCG Maritime并无接获有效接纳要约；及于接纳期内，KKCG Maritime已接获合共2.8万股股份（占截至本公告日期已发行股份约 0.008283%及占最高数目约0.053778%）的有效接纳要约。 KKCG Maritime将于接纳期内刊发有关要
+龙蟠科技（02465）午前涨超10%，截至发稿，股价上涨10.78%，现报13.67港元，成交额2.54亿港元。 据央视财经报道，磷酸铁、磷酸铁锂是新能源和储能电池的重要原材料，今年以来价格一路走高，市场热度居高不下。记者了解到，一包约400公斤的磷酸铁锂，现在的价格超过25000元，一年前的价格仅有10000元。尽管价格已翻倍，但需求依然旺盛。 龙蟠科技此前公布，拟在印度尼西
 
 ## 正文
 
-法拉帝（09638）发布公告，截至3月31日下午5时30分（中欧时间）（下午11时30分（香港时间））：于3月31日，KKCG Maritime并无接获有效接纳要约；及于接纳期内，KKCG Maritime已接获合共2.8万股股份（占截至本公告日期已发行股份约 0.008283%及占最高数目约0.053778%）的有效接纳要约。
+龙蟠科技（02465）午前涨超10%，截至发稿，股价上涨10.78%，现报13.67港元，成交额2.54亿港元。
 
-KKCG Maritime将于接纳期内刊发有关要约接纳程度的进一步公告。
+据央视财经报道，磷酸铁、磷酸铁锂是新能源和储能电池的重要原材料，今年以来价格一路走高，市场热度居高不下。
 
-此外，KKCG Maritime将：于截止日期后首个交易日上午7时29分（中欧时间）（下午1时29分（香港时间））前透过要约初步结果通告公布要约的暂定结果及（倘适用）暂定分配率；及于付款日期前的交易日上午7时29分（中欧时间）（下午1时29分（香港时间））前透过要约最终结果通告公布要约最终结果及（倘适用）最终分配率。
+记者了解到，一包约400公斤的磷酸铁锂，现在的价格超过25000元，一年前的价格仅有10000元。
+
+尽管价格已翻倍，但需求依然旺盛。
+
+龙蟠科技此前公布，拟在印度尼西亚投资建设“新能源汽车动力与储能电池正极材料规模化生产项目”。
+
+项目总投资金额约1.6亿美元，约合人民币10.88亿元，三期项目全面投产后，龙蟠科技印尼基地总产能将从当前的3万吨跃升至12万吨，成为海外规模最大的磷酸铁锂正极材料工厂。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 23:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 00:11 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 23:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 00:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 00:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 00:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 23:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:42 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 23:59 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 23:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 00:01 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 23:52 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 00:16 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 00:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 00:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 23:58 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 00:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 00:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 00:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 00:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 23:58 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 23:49 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/93169284533.shtml)
-- 2026-06-29 23:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/1987534679.shtml)
-- 2026-06-29 23:43 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/01782163104.shtml)
-- 2026-06-29 23:56 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/4681947501.shtml)
-- 2026-06-29 23:51 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/5608218.shtml)
-- 2026-06-30 00:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/247660263506.shtml)
-- 2026-06-29 23:50 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3879882.shtml)
-- 2026-06-30 00:07 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/368373135113.shtml)
-- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/929678133.shtml)
-- 2026-06-30 00:03 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/475547311954.shtml)
-- 2026-06-29 23:48 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/139536955.shtml)
-- 2026-06-30 00:04 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/1638631.shtml)
-- 2026-06-29 23:50 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/3625955809.shtml)
-- 2026-06-29 23:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/02048.shtml)
-- 2026-06-30 00:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/444698.shtml)
+- 2026-06-29 23:50 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/936858.shtml)
+- 2026-06-30 00:09 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/269424.shtml)
+- 2026-06-29 23:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/443368086609.shtml)
+- 2026-06-29 23:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/10832234659.shtml)
+- 2026-06-29 23:51 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/761349088763.shtml)
+- 2026-06-29 23:52 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/49048.shtml)
+- 2026-06-30 00:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/1604173960.shtml)
+- 2026-06-29 23:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/89621.shtml)
+- 2026-06-29 23:53 - [爱很美味](http://www.share.kurohicncr.top/Article/details/2858984.shtml)
+- 2026-06-30 00:14 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/63116900.shtml)
+- 2026-06-29 23:54 - [我们的少年时代2](http://www.share.minike.top/Article/details/165972639.shtml)
+- 2026-06-30 00:01 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/901373378581.shtml)
+- 2026-06-29 23:49 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/213201.shtml)
+- 2026-06-30 00:11 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/813846.shtml)
+- 2026-06-30 00:17 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/72538.shtml)

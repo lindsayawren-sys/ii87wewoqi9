@@ -1,56 +1,57 @@
-# 中国团队全球率先攻克钠离子电池热失控难题 加速商业化应用
+# 中原建业拟发行7.73亿股认购股份
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月7日电 (记者 孙自法)中国科学院4月7日向媒体发布消息说，中国科学家团队最近在全球首次实现安时级(与手机电池容量相当)钠离子电池“无热失控”，成功研发具备自保护功能的可聚合不燃电解质(PNE)，从根源破解新能源电池安全核心瓶颈，为钠离子电池商业化应用按下“加速键”。 扫清核心障碍 这项新能源领域钠离子电池研发重大突破，由中国科学院物理研究所胡勇胜研究员团队完成，
+中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。 认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣
 
 ## 正文
 
-中新网北京4月7日电 (记者 孙自法)中国科学院4月7日向媒体发布消息说，中国科学家团队最近在全球首次实现安时级(与手机电池容量相当)钠离子电池“无热失控”，成功研发具备自保护功能的可聚合不燃电解质(PNE)，从根源破解新能源电池安全核心瓶颈，为钠离子电池商业化应用按下“加速键”。
+中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。
 
-扫清核心障碍 这项新能源领域钠离子电池研发重大突破，由中国科学院物理研究所胡勇胜研究员团队完成，相关成果论文近日在国际专业学术期刊《自然-能源》(Nature Energy)发表。
+认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣除本公司产生的相关开支后）将为6920万港元，相当于净认购价0.09港元。
 
-业内专家称，此次原创技术突破，不仅刷新全球电池安全研究认知，更以中国科研实力为钠离子电池商业化扫清核心障碍，为新能源产业高质量发展、助力“双碳”(碳达峰、碳中和)目标实现注入强劲动能。
+本公司一直积极监察行业内的结构性机遇，并探索与资产管理公司及地方不良资产纾困基金合作以发挥协同效应，为盘活不良资产及困境项目提供综合解决方案，同时发展困境项目管理的专业能力。
 
-研究团队表示，他们研发的钠离子电池已顺利通过针刺测试和300℃热箱测试，展现极致安全可靠性。
+因此，认购人A的认购是一项策略性举措，透过将本集团的房地产代建专业知识与认购人A在不良资产领域的经验及交易寻源能力相结合，促进双方合作。
 
-同时，这一突破性安全性能并未牺牲电化学表现，电池具备-40℃至60℃宽温适配能力与超4.3伏特耐高压稳定性，兼顾高安全与高能量密度。
+凭藉此潜在战略合作伙伴关係，本集团可获得更多接触中国及香港困境项目机遇的渠道，并增强其提供增值重组及盘活服务的能力。
 
-同时，这次研发的具备自保护功能的可聚合不燃电解质体系所用原料均为工业化常规产品，成本可控、易规模化生产，产业化落地价值极高。
+认购事项筹集的资金将支持本集团扩展困境房地产代建业务，并投资于技术创新，以提高其房地产代建服务的效率及生产力。
 
-未来，该技术将为高能量密度、高安全电池领域提供全新解决方案。
+因此，认购事项的投资可增强本集团的竞争地位，使其收入来源多元化，并推动长期可持续增长。
 
-开辟全新方向 研究团队指出，电池安全一直是制约新能源产业规模化发展的核心难题。
+其亦表明认购人对本集团未来发展及前景的信心。
 
 ## 相关推荐
 
-- 2026-06-30 00:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 23:53 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 00:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:10 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 23:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 00:03 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 00:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 00:08 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 23:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 23:54 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 00:15 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 00:16 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 00:13 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 00:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 00:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 23:55 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 00:04 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 00:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 23:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 23:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 00:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/2117450.shtml)
-- 2026-06-30 00:08 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/167998300.shtml)
-- 2026-06-29 23:53 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/732006323438.shtml)
-- 2026-06-30 00:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/2759571.shtml)
-- 2026-06-29 23:57 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/918228981.shtml)
-- 2026-06-30 00:00 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/612241.shtml)
-- 2026-06-29 23:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/263775046.shtml)
-- 2026-06-29 23:59 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/23952206328.shtml)
-- 2026-06-29 23:57 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/1579024.shtml)
-- 2026-06-30 00:01 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/9720739.shtml)
-- 2026-06-29 23:58 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/47499.shtml)
-- 2026-06-30 00:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/85831100.shtml)
-- 2026-06-30 00:10 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/93140467727.shtml)
-- 2026-06-29 23:47 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/9409342.shtml)
-- 2026-06-30 00:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/357812039402.shtml)
+- 2026-06-29 23:57 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/3982624303.shtml)
+- 2026-06-29 23:48 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/322518759747.shtml)
+- 2026-06-29 23:57 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/44237681.shtml)
+- 2026-06-30 00:01 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/12251.shtml)
+- 2026-06-30 00:17 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/051811324.shtml)
+- 2026-06-29 23:54 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/9155927.shtml)
+- 2026-06-29 23:48 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/42192966088.shtml)
+- 2026-06-29 23:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/81318.shtml)
+- 2026-06-29 23:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/82734.shtml)
+- 2026-06-30 00:08 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/8960683473.shtml)
+- 2026-06-29 23:50 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/327316.shtml)
+- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/31524229703.shtml)
+- 2026-06-30 00:13 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/32797.shtml)
+- 2026-06-30 00:08 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/6401989.shtml)
+- 2026-06-29 23:55 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/6281994.shtml)

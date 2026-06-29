@@ -1,58 +1,56 @@
-# 鸣鸣很忙发布上市后首份业绩：经营稳健，高质量增长
+# （投资中国）西门子医疗大中华区总裁：中国是全球创新与智造核心枢纽
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年3月31日，中国最大的休闲食品饮料连锁零售商鸣鸣很忙（股票代码：01768.HK）发布2025年度业绩公告。数据显示，2025年门店商品交易总额（GMV）达935.69亿元，同比增长68.5%；公司实现营业收入661.70亿元，同比增长68.2%，实现净利润23.29亿元，同比增长180.9%，实
+中新社北京6月22日电 (记者 尹倩芸)西门子医疗大中华区总裁、全球领导委员会成员王皓22日接受中新社记者专访时表示，中国不仅是举足轻重的市场，更是企业全球创新与智造的核心枢纽。 第四届中国国际供应链促进博览会(“链博会”)当日在北京开幕，今年是西门子医疗首次参展。王皓表示，中国具备从原材料采购到生产制造、销售和售后服务的完整产业链，供应链规模大且多元全面。同时，中国产业链正迈
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京6月22日电 (记者 尹倩芸)西门子医疗大中华区总裁、全球领导委员会成员王皓22日接受中新社记者专访时表示，中国不仅是举足轻重的市场，更是企业全球创新与智造的核心枢纽。
 
-2026年3月31日，中国最大的休闲食品饮料连锁零售商鸣鸣很忙（股票代码：01768.HK）发布2025年度业绩公告。
+第四届中国国际供应链促进博览会(“链博会”)当日在北京开幕，今年是西门子医疗首次参展。
 
-数据显示，2025年门店商品交易总额（GMV）达935.69亿元，同比增长68.5%；公司实现营业收入661.70亿元，同比增长68.2%，实现净利润23.29亿元，同比增长180.9%，实现经调整净利润26.92亿元，同比增长194.9%。
+王皓表示，中国具备从原材料采购到生产制造、销售和售后服务的完整产业链，供应链规模大且多元全面。
 
-截至2025年末，公司旗下“零食很忙”“赵一鸣零食”门店总数达21，948家，覆盖全国30个省份及所有城市等级。
+同时，中国产业链正迈向高端化和绿色化，为企业在华发展提供有力支持。
 
-作为港股上市后的首份年度业绩，鸣鸣很忙集团2025年稳健经营与高质量增长并进。
+王皓说，目前西门子医疗在华已构建起供应链本土化率超80%的完整价值链，拥有六大研发生产基地，累计150余款产品实现国产并出口全球150多个国家和地区。
 
-公告显示，公司盈利能力进一步增强，毛利率提升至9.8%，经调净利率提升至4.1%，反映出经营结构的持续优化。
+其中，西门子医疗北京肿瘤医学基地打通了从核心部件到整机、从硬件到软件的完整闭环，成为西门子医疗全球品类最全的放疗研发制造中心；西门子医疗深圳基地是其全球磁共振业务中唯一具有完整价值链的基地，实现了全线磁共振系统的国产化，成为西门子医疗全球高端磁共振设备的核心供给源头。
 
-截至期末，货币资金同比增长93.0%至37.44亿元，为业务发展提供了稳固资金支撑。
+供应链协同也是企业在华布局的重要内容。
 
-业绩的稳健增长，源于大众市场坚实的日常消费需求与公司运营效率的持续提升。
+王皓介绍，公司不仅将整机生产落地中国，更将核心技术零部件的研发与制造环节植根本土，同时推动供应链向“高端、智能、绿色”转型，带动上下游供应商共同成长。
 
 ## 相关推荐
 
-- 2026-06-30 00:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 00:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 23:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 23:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 23:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 00:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 00:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 00:10 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 23:51 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 23:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 23:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 23:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 23:51 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 00:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 00:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 23:52 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 23:56 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 23:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 23:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 00:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 23:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/080750.shtml)
-- 2026-06-29 23:50 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/2748207172.shtml)
-- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/285578508693.shtml)
-- 2026-06-29 23:50 - [千香](http://www.blog.minike.top/Article/details/029047037.shtml)
-- 2026-06-29 23:43 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/95752691.shtml)
-- 2026-06-30 00:11 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/827490355.shtml)
-- 2026-06-30 00:01 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/60842559996.shtml)
-- 2026-06-30 00:05 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/201809.shtml)
-- 2026-06-30 00:07 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/172788.shtml)
-- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/7606781.shtml)
-- 2026-06-29 23:51 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/5141062.shtml)
-- 2026-06-29 23:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/046390.shtml)
-- 2026-06-29 23:44 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/413433337.shtml)
-- 2026-06-30 00:10 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/928440696.shtml)
-- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/3971599.shtml)
+- 2026-06-30 00:04 - [小娘惹](https://www.share.kurohicncr.top/Article/details/289025.shtml)
+- 2026-06-30 00:12 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/1872235.shtml)
+- 2026-06-30 00:14 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/01214598.shtml)
+- 2026-06-30 00:07 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/8798927795.shtml)
+- 2026-06-30 00:16 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/5191277.shtml)
+- 2026-06-30 00:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/16517378.shtml)
+- 2026-06-30 00:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/81636774.shtml)
+- 2026-06-30 00:04 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/89010716.shtml)
+- 2026-06-30 00:11 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/13698725135.shtml)
+- 2026-06-29 23:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/71610.shtml)
+- 2026-06-30 00:11 - [逃狱兄弟](http://www.blog.minike.top/Article/details/974336626.shtml)
+- 2026-06-30 00:17 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/795128760561.shtml)
+- 2026-06-30 00:11 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/194773.shtml)
+- 2026-06-30 00:09 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/41518088.shtml)
+- 2026-06-30 00:14 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/367024404083.shtml)

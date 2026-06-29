@@ -1,58 +1,58 @@
-# 宁德时代斥资41亿入股中恒投资科技 后者实控人朱国锭已被判刑
+# 今年端午档上映影片数量创近十年同期新高
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷递 雷递网 雷建平 4月8日 杭州中恒电气股份有限公司（证券代码：002364 证券简称：中恒电气）今日发布公告，称公司股东朱国锭、包晓茹女士拟引进宁德时代对中恒科技投资进行投资（简称“拟议增资”）。 各方发挥各自在相关领域的核心竞争力和资源优势，促进宁德时代与中恒电气围绕绿色 ICT 基础设施、交
+截至目前，2026年度电影总票房已超165亿元。《给阿嬷的情书》6月18日全球上映，端午档20部新片云集，创近十年同期新高。影片类型丰富，满足多样化观影需求。 总台央视记者 曹岩：今年的端午档可以说是格外热闹，短短3天假期，近20部影片集中上映，创下近十年来同期新高。影片类型从谍战、爱情、悬疑到动画、动作、青春题材，几乎覆盖全年龄段观众的观影需求。 科幻爱情电影《我看见两朵一样
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+截至目前，2026年度电影总票房已超165亿元。
 
-来源：雷递 雷递网 雷建平 4月8日 杭州中恒电气股份有限公司（证券代码：002364 证券简称：中恒电气）今日发布公告，称公司股东朱国锭、包晓茹女士拟引进宁德时代对中恒科技投资进行投资（简称“拟议增资”）。
+《给阿嬷的情书》6月18日全球上映，端午档20部新片云集，创近十年同期新高。
 
-各方发挥各自在相关领域的核心竞争力和资源优势，促进宁德时代与中恒电气围绕绿色 ICT 基础设施、交通电动化、新型电力系统（算电协同）等领域开展相关业务及战略合作，整合资源禀赋，赋能公司发展。
+影片类型丰富，满足多样化观影需求。
 
-宁德时代拟以41亿认购中恒科技投资新增注册资本人民币1，441.176471 万元，出资方式为货币及股权。
+总台央视记者 曹岩：今年的端午档可以说是格外热闹，短短3天假期，近20部影片集中上映，创下近十年来同期新高。
 
-拟议增资前，中恒科技投资注册资本为1500万元，朱国锭和包晓茹女士分别持有中恒科技投资 70%股权（对应中恒科技投资注册资本1，050万元）和30%股权（对应中恒科技投资注册资本 450 万元）； 拟议增资完成后，中恒科技投资注册资本将变更为2，941.176471万元，朱国锭、包晓茹女士和宁德时代分别持有中恒科技投资 35.70%股权（对应中恒科技投资注册资本1，050万元）和 15.30%股权（对应中恒科技投资注册资本450万元）、49.00%股权（对应中恒科技投资注册资本 1，441.176471 万元）。
+影片类型从谍战、爱情、悬疑到动画、动作、青春题材，几乎覆盖全年龄段观众的观影需求。
 
-拟议增资前中恒科技投资的控股股东、实际控制人为朱国锭。
+科幻爱情电影《我看见两朵一样的云》由王源饰演的阿志坚信自己活在虚拟世界里，不断寻找逃离现实的证据。
 
-拟议增资完成后，中恒科技投资的控股股东、实际控制人保持不变，仍为朱国锭。
+科幻设定遇上青春爱情，也让这部电影成为端午档最具想象力的一部作品。
 
-中恒投资科技控制中恒电气41.4%股权 截至本公告披露日，中恒科技投资持有公司200，389，724 股股份（占公司总股本的35.56%），朱国锭系中恒投资科技的控股股东； 朱国锭直接持有公司 25，696，305 股股份（占公司总股本的4.56%），朱国锭的配偶包晓茹女士直接持有公司 7，210，700 股股份（占公司总股本的1.28%），系朱国锭先生的一致行动人。
+《爱是愤怒》聚焦小镇青年的爱情故事，探讨情绪、成长与和解。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 00:02 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 00:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 23:54 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 00:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 23:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 00:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 00:05 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 23:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 23:42 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 23:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 00:09 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 23:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 00:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 23:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 00:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 00:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 00:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 23:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 00:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 23:57 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 23:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 23:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:58 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/8500619.shtml)
-- 2026-06-29 23:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/35533.shtml)
-- 2026-06-30 00:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/77100391.shtml)
-- 2026-06-29 23:49 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/23711265.shtml)
-- 2026-06-29 23:54 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/99116578.shtml)
-- 2026-06-30 00:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/32881098522.shtml)
-- 2026-06-30 00:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/201706686.shtml)
-- 2026-06-29 23:53 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/3197182.shtml)
-- 2026-06-30 00:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/921942.shtml)
-- 2026-06-30 00:02 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/826217.shtml)
-- 2026-06-29 23:43 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/40888.shtml)
-- 2026-06-29 23:55 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/94459905969.shtml)
-- 2026-06-29 23:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/07521348.shtml)
-- 2026-06-29 23:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/106146124.shtml)
-- 2026-06-30 00:09 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/39057.shtml)
+- 2026-06-30 00:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/96708211322.shtml)
+- 2026-06-30 00:09 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/3303309971.shtml)
+- 2026-06-30 00:17 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/924823368435.shtml)
+- 2026-06-29 23:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/486698.shtml)
+- 2026-06-29 23:58 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/29271733255.shtml)
+- 2026-06-29 23:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/661474.shtml)
+- 2026-06-29 23:54 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/69387.shtml)
+- 2026-06-30 00:06 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/0410410.shtml)
+- 2026-06-29 23:59 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/033406355.shtml)
+- 2026-06-30 00:07 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/2959448971.shtml)
+- 2026-06-29 23:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/98358977265.shtml)
+- 2026-06-30 00:03 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/095061870368.shtml)
+- 2026-06-30 00:03 - [沙丘](https://www.blog.minike.top/Article/details/5766773521.shtml)
+- 2026-06-30 00:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/406967461.shtml)
+- 2026-06-30 00:06 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/88496992.shtml)

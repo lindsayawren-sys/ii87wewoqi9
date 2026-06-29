@@ -1,60 +1,58 @@
-# 高盛：2400亿美元抛售潮或转为550亿美元买入
+# 航运数据显示周日仅有5艘船只通过霍尔木兹海峡
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-全球金融市场被动平仓的压力可能正在接近衰竭，头寸状况似乎正开始在边际上发生转变。在系统性策略主导了近期抛售中股票敞口的急剧削减之后，资金流动开始趋于稳定，这表明如果价格走势能够维持，此前对市场构成拖累的机械性压力可能开始缓解。 根据高盛交易台的估计，在过去一个月里，随着市场对部分由油价上涨和与伊朗战争相关的地缘政治紧张局势引发的下跌做出反应，包括商品交易顾问和波动率目标策略在内
+航运数据显示，在伊朗宣布再次关闭霍尔木兹海峡后，周日通过该海峡的船只数量急剧下降。伊朗称此举是因以色列和美国违反了临时停火协议。 分析公司Kpler的数据显示，周日仅有5艘船只通过了霍尔木兹海峡，而前一天则观测到26艘。这5艘船只包括3艘超大型原油运输船，每艘都载有200万桶沙特原油和燃料油，其中一艘正驶往日本。该数据可能不包括在海湾航行期间关闭应答器的船只。 上周，伊朗与美国
 
 ## 正文
 
-全球金融市场被动平仓的压力可能正在接近衰竭，头寸状况似乎正开始在边际上发生转变。
+航运数据显示，在伊朗宣布再次关闭霍尔木兹海峡后，周日通过该海峡的船只数量急剧下降。
 
-在系统性策略主导了近期抛售中股票敞口的急剧削减之后，资金流动开始趋于稳定，这表明如果价格走势能够维持，此前对市场构成拖累的机械性压力可能开始缓解。
+伊朗称此举是因以色列和美国违反了临时停火协议。
 
-根据高盛交易台的估计，在过去一个月里，随着市场对部分由油价上涨和与伊朗战争相关的地缘政治紧张局势引发的下跌做出反应，包括商品交易顾问和波动率目标策略在内的快钱投资者已卖出约2400亿美元的全球股票。
+分析公司Kpler的数据显示，周日仅有5艘船只通过了霍尔木兹海峡，而前一天则观测到26艘。
 
-这种抛售压力似乎正在减弱，高盛估计，这些策略可能在未来一个月转为净买入约550亿美元，其中包括约200亿美元的美国股票。
+这5艘船只包括3艘超大型原油运输船，每艘都载有200万桶沙特原油和燃料油，其中一艘正驶往日本。
 
-预计买入将是渐进式的，未来一周仅有约50亿美元的买入预期，这意味着近期的买盘可能逐步累积，而非立即提供支撑。
+该数据可能不包括在海湾航行期间关闭应答器的船只。
 
-此后的路径可能取决于市场方向。
+上周，伊朗与美国达成协议，将4月份的停火协议延长60天，以便进行和平谈判，随后伊朗解除了对霍尔木兹海峡的实际封锁。
 
-高盛的模型显示，如果标普500指数在未来一个月上涨约8%，系统性策略可能会进行多达2200亿美元的全球股票买入，其中超过一半将配置于美国市场。
+但周六，德黑兰伊斯兰革命卫队宣布再次关闭该水道，以回应以色列对黎巴嫩的空袭。
 
-相比之下，如果进一步下跌约10%，则可能引发额外的1100亿美元抛售。
+美国军方则表示，商船仍在航行。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 23:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 23:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 23:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 00:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 23:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 23:59 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 00:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 00:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 23:58 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 00:08 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 23:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 23:42 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 00:17 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 00:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 23:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 00:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 23:55 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 23:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 00:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 23:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 00:09 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 00:10 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 00:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/9381769.shtml)
-- 2026-06-30 00:04 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/827529427917.shtml)
-- 2026-06-29 23:57 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/5574370392.shtml)
-- 2026-06-29 23:47 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/27885611967.shtml)
-- 2026-06-29 23:46 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/29241.shtml)
-- 2026-06-29 23:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/6259375.shtml)
-- 2026-06-29 23:54 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/853282291.shtml)
-- 2026-06-30 00:11 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/3614891.shtml)
-- 2026-06-29 23:46 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/463438654.shtml)
-- 2026-06-29 23:52 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/38056494.shtml)
-- 2026-06-29 23:50 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/6989500140.shtml)
-- 2026-06-29 23:47 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/27287225.shtml)
-- 2026-06-30 00:09 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/1753804.shtml)
-- 2026-06-30 00:01 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/2448677649.shtml)
-- 2026-06-29 23:59 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/3389409190.shtml)
+- 2026-06-30 00:09 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/351269640.shtml)
+- 2026-06-30 00:13 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/143449471751.shtml)
+- 2026-06-29 23:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/58736705.shtml)
+- 2026-06-30 00:12 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/517091891441.shtml)
+- 2026-06-30 00:08 - [千香](https://www.blog.kurohicncr.top/Article/details/00682.shtml)
+- 2026-06-30 00:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/82127.shtml)
+- 2026-06-29 23:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/05155.shtml)
+- 2026-06-30 00:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/391621876.shtml)
+- 2026-06-29 23:54 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/108637155298.shtml)
+- 2026-06-30 00:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/760548104568.shtml)
+- 2026-06-30 00:05 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/5008985394.shtml)
+- 2026-06-29 23:52 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/94124.shtml)
+- 2026-06-30 00:10 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/6711220791.shtml)
+- 2026-06-29 23:51 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/5048430822.shtml)
+- 2026-06-30 00:10 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/627346460342.shtml)

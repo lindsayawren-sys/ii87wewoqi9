@@ -1,57 +1,61 @@
-# 603182、300736，拟易主！
+# 酒价内参6月22日价格发布：飞天茅台下跌2元
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！两家A股公司或易主。 3月31日晚，嘉华股份（603182）公告，公司近日收到实控人张冠玲出具的通知，张冠玲及公司主要股东正筹划公司股份转让事宜，可能导致公司实际控制人发生变更，公司股票将自2026年4月1日开市起停牌，预计停牌时间不超过2个交易日。 嘉华股份是国内最早的大豆蛋白生产企业之一，主要产品有大豆
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。
 
-两家A股公司或易主。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。
 
-3月31日晚，嘉华股份（603182）公告，公司近日收到实控人张冠玲出具的通知，张冠玲及公司主要股东正筹划公司股份转让事宜，可能导致公司实际控制人发生变更，公司股票将自2026年4月1日开市起停牌，预计停牌时间不超过2个交易日。
+今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
 
-嘉华股份是国内最早的大豆蛋白生产企业之一，主要产品有大豆蛋白、大豆油、大豆膳食纤维、低温食用豆粕等。
+今日11大白酒单品四涨七跌，输家占据明显优势。
 
-大豆蛋白产品广泛应用于肉制品、休闲豆制品、乳制品、营养制品、火锅料、烘焙制品、宠物食品、特医膳食和医药等多个领域。
+上涨方面，青花汾20涨幅居前，上涨6元/瓶，低位四连涨，平进入六月以来最高价纪录；习酒君品上涨5元/瓶，重新逼近630元关口；五粮液1618与古井贡古20均上涨2元/瓶，其中自昨日创下的近一月最低价小幅反弹，仍处于近一月次低位。
 
-2025年前三季度，嘉华股份实现营业收入10.27亿元，同比下降7.19%；实现归母净利润8217万元，同比增长7.46%。
+下跌方面，精品茅台与国窖1573跌幅居前，均下跌4元/瓶，其中前者回落至近一月次低位，后者结束此前两日反弹，但仍守住880元关口；水晶剑南春下跌3元/瓶；飞天茅台与青花郎均下跌2元/瓶；五粮液普五八代与洋河梦之蓝M6+均小幅下跌1元/瓶，其中前者已五连阴，失守800元关口后继续下探，创今年2月2日以来最低价，后者结束此前连续三日上扬走势，但价格回落后仍处于近一月次高位。
 
-2025年三季报显示，嘉华股份第一大股东为张冠玲，其直接持股比例为13.6%。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-截至3月31日，嘉华股份市值约27亿元。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 23:43 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 23:46 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 00:01 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 23:44 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 23:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 00:06 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 00:07 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 23:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 23:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 00:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 00:12 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 23:51 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 23:55 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 23:49 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 00:15 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 23:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 00:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 00:15 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 00:03 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 23:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 00:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 23:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 00:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 00:08 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/347829.shtml)
-- 2026-06-30 00:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/09016279.shtml)
-- 2026-06-29 23:51 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/136967303.shtml)
-- 2026-06-29 23:57 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/072200277.shtml)
-- 2026-06-29 23:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/75198895.shtml)
-- 2026-06-29 23:52 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/22901885701.shtml)
-- 2026-06-29 23:43 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/25727682.shtml)
-- 2026-06-29 23:56 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/0619059.shtml)
-- 2026-06-29 23:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/0177894.shtml)
-- 2026-06-30 00:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/0406314959.shtml)
-- 2026-06-29 23:59 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/52522.shtml)
-- 2026-06-30 00:08 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/632826590978.shtml)
-- 2026-06-30 00:04 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/0055045.shtml)
-- 2026-06-29 23:46 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/9160288875.shtml)
-- 2026-06-30 00:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/7580215876.shtml)
+- 2026-06-30 00:15 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/888694616.shtml)
+- 2026-06-30 00:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/1706876295.shtml)
+- 2026-06-29 23:54 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/047985244.shtml)
+- 2026-06-29 23:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/47765608376.shtml)
+- 2026-06-30 00:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/07301824269.shtml)
+- 2026-06-29 23:49 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/11448739659.shtml)
+- 2026-06-29 23:50 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/7653466042.shtml)
+- 2026-06-30 00:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/111841.shtml)
+- 2026-06-30 00:04 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/8062539.shtml)
+- 2026-06-30 00:08 - [金刚川](http://www.blog.kurohicncr.top/Article/details/40633011948.shtml)
+- 2026-06-29 23:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/3938401613.shtml)
+- 2026-06-30 00:06 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/899754.shtml)
+- 2026-06-30 00:02 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/2821814.shtml)
+- 2026-06-29 23:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/238990084236.shtml)
+- 2026-06-30 00:00 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/228594.shtml)

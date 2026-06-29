@@ -1,61 +1,56 @@
-# OpenAI提出面向超级智能的产业政策建议
+# 起底618电商“保价”套路：“拒保”理由五花八门
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-该公司称，未来或有必要对人工智能企业设立审计要求 OpenAI 提出了一系列潜在产业政策，包括可能的税收改革与四天工作制，以应对其正在研发的超越人类智能的人工智能系统的到来。 这些构想出自该公司周一发布的一份 13 页文件。OpenAI 同时宣布，将为相关政策研究设立最高 10 万美元的科研补助金，以及价值最高 100 万美元的 API 调用额度。 文件指出：“除非政策能够跟上
+原标题：消费者通过“12345”热线反映，电商保价规则成套路频发“重灾区” “618保价”满天飞，真退差价才发现处处设限 本报记者 唐乙隽 “保价618，买贵退差价，保价全平台”“价保30天，买贵补差价”……今年618电商大促期间，“保价”成为各大平台与商家宣传页的高频词。不少消费者冲着这份“兜底承诺”，提前入手货物。然而近期，不少消费者通过12345上海市民服务热线反映，商家
 
 ## 正文
 
-该公司称，未来或有必要对人工智能企业设立审计要求 OpenAI 提出了一系列潜在产业政策，包括可能的税收改革与四天工作制，以应对其正在研发的超越人类智能的人工智能系统的到来。
+原标题：消费者通过“12345”热线反映，电商保价规则成套路频发“重灾区” “618保价”满天飞，真退差价才发现处处设限 本报记者 唐乙隽 “保价618，买贵退差价，保价全平台”“价保30天，买贵补差价”……今年618电商大促期间，“保价”成为各大平台与商家宣传页的高频词。
 
-这些构想出自该公司周一发布的一份 13 页文件。
+不少消费者冲着这份“兜底承诺”，提前入手货物。
 
-OpenAI 同时宣布，将为相关政策研究设立最高 10 万美元的科研补助金，以及价值最高 100 万美元的 API 调用额度。
+然而近期，不少消费者通过12345上海市民服务热线反映，商家承诺保价，真到消费者申请退差价时却处处设卡。
 
-文件指出：“除非政策能够跟上技术变革的步伐，应对这一转型所需的制度与安全保障体系都可能滞后。
+本该保障消费者权益的保价规则，反倒成了套路频发的“重灾区”。
 
-” 文中将必要的政策应对类比为罗斯福新政。
+“拒保”理由五花八门 5月中旬，市民董先生在某电商平台“九阳家居日用旗舰店”直播间内下单了一台豆浆机。
 
-OpenAI 表示，过往的政策举措曾让电力、飞机等技术实现广泛安全应用，但鉴于人工智能发展速度极快，为超级智能做好准备的时间要短于以往技术。
+“当时实付940元。
 
-在一系列经济与人工智能安全干预措施中，OpenAI 倡导劳动者借助人工智能创办自己的企业，并推动税收改革，为福利项目提供资金、激励劳动者再培训。
+”他回忆道，“直播间内，主播多次强调全年保价，从618一直保价到双十一。
 
-该公司称，人工智能对劳动生产率的提升，有望为试行四天工作制创造条件。
+”然而，不到一个月，董先生便发现豆浆机降价了，“这几天我重新点进购买链接，发现价格是835元。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 23:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 00:10 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 23:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 00:01 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:53 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 00:05 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 23:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 23:59 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 23:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 00:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 23:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 00:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 00:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 00:09 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 23:50 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 23:56 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 23:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 00:02 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 23:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 00:16 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 00:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 00:07 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/326422055641.shtml)
-- 2026-06-30 00:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/4208355.shtml)
-- 2026-06-29 23:59 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/667801978.shtml)
-- 2026-06-29 23:50 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/277551.shtml)
-- 2026-06-29 23:49 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/8406185.shtml)
-- 2026-06-29 23:48 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/68769759494.shtml)
-- 2026-06-29 23:50 - [炽夏](http://www.share.minike.top/Article/details/941274.shtml)
-- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/62809551.shtml)
-- 2026-06-29 23:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/41590.shtml)
-- 2026-06-30 00:11 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/4381898631.shtml)
-- 2026-06-29 23:50 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/79239856.shtml)
-- 2026-06-30 00:00 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/687076.shtml)
-- 2026-06-29 23:43 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/164610971109.shtml)
-- 2026-06-29 23:53 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/873862.shtml)
-- 2026-06-29 23:46 - [世界杯](https://www.share.minike.top/Article/details/84120.shtml)
+- 2026-06-30 00:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/449765.shtml)
+- 2026-06-30 00:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/20393023.shtml)
+- 2026-06-29 23:55 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/250736367355.shtml)
+- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/045231.shtml)
+- 2026-06-30 00:12 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/248994827.shtml)
+- 2026-06-30 00:14 - [千与千寻](http://www.blog.minike.top/Article/details/34046.shtml)
+- 2026-06-30 00:11 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/94499.shtml)
+- 2026-06-29 23:52 - [张凌赫 客串](https://www.share.minike.top/Article/details/2788271.shtml)
+- 2026-06-29 23:51 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/9477010471.shtml)
+- 2026-06-30 00:17 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/710503871202.shtml)
+- 2026-06-30 00:07 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/525545063240.shtml)
+- 2026-06-29 23:51 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/71786050492.shtml)
+- 2026-06-30 00:10 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/87154842.shtml)
+- 2026-06-29 23:52 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/0959614.shtml)
+- 2026-06-30 00:16 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/8945388.shtml)

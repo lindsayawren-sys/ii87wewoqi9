@@ -1,56 +1,58 @@
-# 加密货币市场惨烈下行愈演愈烈
+# 主持人施可莹去世，年仅29岁
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-市场抛售令部分企业陷入生存困境，另有企业启动裁员 加密货币市场惨烈下行愈演愈烈 加密货币市场的持续下跌即将迈入第六个月，且仍看不到尽头，迫使企业裁员、转向股票交易与预测市场等业务。 比特币自去年 10 月初触及 126，080 美元高点以来已腰斩，其他加密资产跌幅更大。CoinGecko 数据显示，加密货币月度交易量或将创 2024 年 1 月以来新低，仅为总统大选后峰值的不到
+6月21日，香港主持人施可莹亲友通过其社交账号发布消息称，施可莹当天凌晨因癌症离世，年仅29岁。 今年5月，施可莹在社交平台公开自己患卵巢癌的消息，并分享了自己的“抗癌日记”。 2025年10月，施可莹在检查中发现10cm卵巢肿瘤，并在短时间内长到17cm，肚子胀得像“怀孕5个月”大。为不影响工作，施可莹买大码衣服遮住身形继续完成各类宣传活动。 2026年2月，施可莹在肿瘤切除
 
 ## 正文
 
-市场抛售令部分企业陷入生存困境，另有企业启动裁员 加密货币市场惨烈下行愈演愈烈 加密货币市场的持续下跌即将迈入第六个月，且仍看不到尽头，迫使企业裁员、转向股票交易与预测市场等业务。
+6月21日，香港主持人施可莹亲友通过其社交账号发布消息称，施可莹当天凌晨因癌症离世，年仅29岁。
 
-比特币自去年 10 月初触及 126，080 美元高点以来已腰斩，其他加密资产跌幅更大。
+今年5月，施可莹在社交平台公开自己患卵巢癌的消息，并分享了自己的“抗癌日记”。
 
-CoinGecko 数据显示，加密货币月度交易量或将创 2024 年 1 月以来新低，仅为总统大选后峰值的不到三分之一。
+2025年10月，施可莹在检查中发现10cm卵巢肿瘤，并在短时间内长到17cm，肚子胀得像“怀孕5个月”大。
 
-加密咨询公司 Architect Partners 数据显示，一季度加密初创企业融资额约 29 亿美元，环比暴跌 69%。
+为不影响工作，施可莹买大码衣服遮住身形继续完成各类宣传活动。
 
-“眼下形势相当惨淡。
+2026年2月，施可莹在肿瘤切除手术后确诊卵巢癌，且癌细胞已扩散到盲肠区域。
 
-”Coinbase Institutional 战略主管约翰・达戈斯蒂诺表示，该部门服务于加密交易所的大型投资者。
+4月，她接受子宫切除手术及化疗，需要通过人工造口完成日常排泄。
 
-他认为，当市场情绪跌至如此低迷时，往往意味着市场已触底。
+6月，医生表示其“身体太差”已经不适合做化疗，她申请做“大体老师”，希望以此帮到更多医学生。
 
-“如今许多加密项目创始人能做的，就是想方设法活下去。
+施可莹离世消息发出后，众多网友表示悼念和叹息，其男友、歌手陈章棨亦在社交平台发文悼念“永远记住活泼的你”。
 
 ## 相关推荐
 
-- 2026-06-29 23:47 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 00:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 00:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 23:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 00:09 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 00:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 23:44 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 23:55 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 00:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 00:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 00:13 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 00:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 00:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 23:57 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 00:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 23:55 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 00:02 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:54 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 23:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 23:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 23:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/48962.shtml)
-- 2026-06-29 23:52 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/841061090007.shtml)
-- 2026-06-29 23:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/00890445.shtml)
-- 2026-06-29 23:44 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/726989146009.shtml)
-- 2026-06-29 23:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/100131.shtml)
-- 2026-06-30 00:04 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/252340760597.shtml)
-- 2026-06-29 23:51 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/0128202000.shtml)
-- 2026-06-30 00:00 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/37003706.shtml)
-- 2026-06-29 23:47 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/682478.shtml)
-- 2026-06-30 00:08 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/1964473.shtml)
-- 2026-06-30 00:10 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/93530546368.shtml)
-- 2026-06-29 23:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/96612.shtml)
-- 2026-06-30 00:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/5290471169.shtml)
-- 2026-06-29 23:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/1308687.shtml)
-- 2026-06-30 00:11 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/8303341.shtml)
+- 2026-06-29 23:54 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/6589299966.shtml)
+- 2026-06-30 00:00 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/224176507940.shtml)
+- 2026-06-30 00:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/00303616234.shtml)
+- 2026-06-29 23:56 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/152743610.shtml)
+- 2026-06-29 23:57 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/417772.shtml)
+- 2026-06-29 23:59 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/644497.shtml)
+- 2026-06-30 00:13 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/03507.shtml)
+- 2026-06-29 23:54 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/026547.shtml)
+- 2026-06-29 23:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/241517074778.shtml)
+- 2026-06-30 00:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/68109664.shtml)
+- 2026-06-30 00:03 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/197800463.shtml)
+- 2026-06-29 23:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/008188787546.shtml)
+- 2026-06-30 00:09 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/924016.shtml)
+- 2026-06-29 23:56 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/70892318831.shtml)
+- 2026-06-29 23:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/7538601.shtml)

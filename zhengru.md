@@ -1,56 +1,48 @@
-# 叙乡情促产业振兴 汕头市邀海内外乡贤共话发展
+# 奥地利外长赖辛格将访华
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。 香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。汕头医
+中新社北京6月21日电 中国外交部发言人21日宣布，应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。(完)
 
 ## 正文
 
-中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。
+中新社北京6月21日电 中国外交部发言人21日宣布，应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。
 
-香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。
-
-汕头医疗资源底蕴深厚，香港则具有国际临床试验学院(筹备)和生物医药融资中心优势。
-
-他希望通过“研发在港、转化在汕”模式，吸引专业人才回乡设立实验室或生产基地。
-
-上海潮汕联谊会荣誉会长蔡彤说，汕头正规划建设绿色新材料产业园区，重点发展高端储能化学品、电子化学品、高端精细化学品等方向。
-
-其将通过该联谊会桥梁，推动“上海研发、汕头制造”的协同模式。
-
-现场，汕头相关负责人进行该市重点园区招商推介，汕头高新区、汕头综合保税区、汕头华侨经济文化合作试验区(下称“汕头华侨试验区”)代表分别介绍汕头科学城与六合产业园、临港经济区、跨境数字经济产业园的产业优势与合作机遇。
-
-其中，汕头华侨试验区依托中国最大的国际海缆登陆站、海上风电绿能等核心优势，叠加开展“来数加工”业务试点，重点打造900亩跨境数字经济产业园，为海内外潮商布局总部经济、算力建设等领域提供重要载体与发展支撑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 23:48 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 23:51 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:09 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 00:06 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 00:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 00:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 00:10 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 23:42 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 23:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 00:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 00:14 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 00:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 23:58 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 00:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 00:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 23:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 00:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 00:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 00:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 00:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 00:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/372734954.shtml)
-- 2026-06-29 23:44 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/878057792.shtml)
-- 2026-06-30 00:06 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/71484.shtml)
-- 2026-06-29 23:55 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9600975161.shtml)
-- 2026-06-29 23:55 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/78962691.shtml)
-- 2026-06-29 23:47 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/07890.shtml)
-- 2026-06-29 23:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/72496749009.shtml)
-- 2026-06-30 00:08 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/11674936.shtml)
-- 2026-06-30 00:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/308235013.shtml)
-- 2026-06-29 23:51 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/64323455.shtml)
-- 2026-06-30 00:07 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/816270.shtml)
-- 2026-06-30 00:11 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/7711239.shtml)
-- 2026-06-29 23:43 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/0086949.shtml)
-- 2026-06-30 00:03 - [刘宇宁 好听](https://www.share.minike.top/Article/details/181559.shtml)
-- 2026-06-30 00:04 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/0872001.shtml)
+- 2026-06-30 00:12 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/724446.shtml)
+- 2026-06-29 23:57 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/77412842700.shtml)
+- 2026-06-29 23:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/1221115025.shtml)
+- 2026-06-30 00:00 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/5301384251.shtml)
+- 2026-06-30 00:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7791865778.shtml)
+- 2026-06-30 00:14 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/14062735.shtml)
+- 2026-06-29 23:55 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/454115480497.shtml)
+- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/033728.shtml)
+- 2026-06-30 00:11 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/30955892948.shtml)
+- 2026-06-29 23:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9640699012.shtml)
+- 2026-06-29 23:49 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/752873079.shtml)
+- 2026-06-30 00:04 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/624338.shtml)
+- 2026-06-30 00:03 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/30432.shtml)
+- 2026-06-29 23:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/8504053.shtml)
+- 2026-06-30 00:12 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/8819398049.shtml)

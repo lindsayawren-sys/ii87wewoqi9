@@ -1,58 +1,58 @@
-# 助贷新规落地半年，行业如何应对监管大考？深度拆解5家头部公司2025年年报
+# 【好评中国】龙舟竞渡里的中国，藏着最鲜活的民俗力量
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-2025年，对于中国金融科技行业而言，注定是被载入史册、被严监管与强技术深刻重塑的“转折之年”。随着2025年10月1日《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下文简称“助贷新规”）的正式落地，延续多年的粗放扩张逻辑被彻底改写，行业转而进入一场关于“合规、质量与利润”的大考。 如今这场新规“大考”已过半年，奇富科技、乐信、信也科技、小赢科技、宜人智科等5家
+榴花灼灼，艾香悠悠，端午的氛围随着鼓点洒满神州。6月18日，2026中华龙舟大赛首站在四川巴中恩阳开赛。54支劲旅、1100余名运动员齐聚恩阳河，在碧波之上挥桨劈浪。从专业赛场的极速角逐，到乡野河道的特色竞渡，大江南北的龙舟民俗褪去陈旧滤镜，尽显蓬勃生气，让我们在桨声里读懂了这片土地上深厚的文化底气。龙舟竞渡，是流传千年的端午习俗，更是刻在中国人骨子里的文化印记。古人以此寄情思
 
 ## 正文
 
-2025年，对于中国金融科技行业而言，注定是被载入史册、被严监管与强技术深刻重塑的“转折之年”。
+榴花灼灼，艾香悠悠，端午的氛围随着鼓点洒满神州。
 
-随着2025年10月1日《关于加强商业银行互联网助贷业务管理提升金融服务质效的通知》（下文简称“助贷新规”）的正式落地，延续多年的粗放扩张逻辑被彻底改写，行业转而进入一场关于“合规、质量与利润”的大考。
+6月18日，2026中华龙舟大赛首站在四川巴中恩阳开赛。
 
-如今这场新规“大考”已过半年，奇富科技、乐信、信也科技、小赢科技、宜人智科等5家美国上市的头部金融科技公司也于近日陆续交出2025年的全年成绩单。
+54支劲旅、1100余名运动员齐聚恩阳河，在碧波之上挥桨劈浪。
 
-透过这些财报，我们看到的不仅是头部金融科技公司营收与利润的增减，更是行业在“挤水分”过程中，各家公司不同的生存逻辑与突围路径。
+从专业赛场的极速角逐，到乡野河道的特色竞渡，大江南北的龙舟民俗褪去陈旧滤镜，尽显蓬勃生气，让我们在桨声里读懂了这片土地上深厚的文化底气。
 
-稳健的基本盘：营收结构优化，利润彰显韧性 虽然在去年第四季度普遍经历了助贷新规落地的“阵痛”，但从全年的维度来看，五家金融科技公司的业绩“底盘”依然稳固，展现出穿越周期的强大韧性。
+龙舟竞渡，是流传千年的端午习俗，更是刻在中国人骨子里的文化印记。
 
-整体来看，2025年，5家金融科技公司总营收规模持续扩大，头部效应显著，且在盈利层面展现了不同的增长动能。
+古人以此寄情思、祭先贤，今人以此传精神、聚人心。
 
-其中，奇富科技以192.05亿元营收继续稳坐“铁王座”，乐信与信也科技紧随其后，构成百亿阵营；小赢科技与宜人智科则处于第二梯队。
+作为端午核心民俗，如今的龙舟赛，可不只是民间的“玩意儿”，而是兼顾专业竞技与全民参与的文化盛会。
 
-具体来看，2025年，奇富科技全年净收入192.05亿元，同比增长11.88%，规模位居行业头把交椅。
+一艘龙舟，一根鼓槌，几十支船桨必须同频共振，稍有差池便会整体掉队，这直观诠释了中华民族同舟共济、团结拼搏的精神内核。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 23:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 23:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 23:44 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 00:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 00:01 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 00:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 23:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 00:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 23:58 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 00:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 00:08 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 00:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 00:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 00:11 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 00:10 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:07 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 00:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 00:05 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 23:54 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 00:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 00:00 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/8174720.shtml)
-- 2026-06-29 23:51 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/913782991193.shtml)
-- 2026-06-29 23:54 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/170997.shtml)
-- 2026-06-30 00:05 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/8941367462.shtml)
-- 2026-06-29 23:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/36388.shtml)
-- 2026-06-29 23:47 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/997866974.shtml)
-- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/650174401106.shtml)
-- 2026-06-29 23:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/628150.shtml)
-- 2026-06-29 23:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/139631.shtml)
-- 2026-06-29 23:43 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/411997549.shtml)
-- 2026-06-29 23:58 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/96088539050.shtml)
-- 2026-06-29 23:46 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/49013619324.shtml)
-- 2026-06-29 23:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/150541592671.shtml)
-- 2026-06-29 23:58 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/36353849363.shtml)
-- 2026-06-29 23:44 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/71467.shtml)
+- 2026-06-29 23:52 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/030158970428.shtml)
+- 2026-06-29 23:49 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/030442564.shtml)
+- 2026-06-30 00:03 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/755091029.shtml)
+- 2026-06-30 00:11 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/6667925.shtml)
+- 2026-06-30 00:01 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/685317.shtml)
+- 2026-06-29 23:52 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/074096250.shtml)
+- 2026-06-30 00:09 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/425266516.shtml)
+- 2026-06-30 00:05 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/333984.shtml)
+- 2026-06-30 00:10 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/01538.shtml)
+- 2026-06-29 23:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/33821200.shtml)
+- 2026-06-29 23:58 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/543158860.shtml)
+- 2026-06-30 00:09 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/25578857.shtml)
+- 2026-06-30 00:17 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/55687.shtml)
+- 2026-06-30 00:10 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/394833623005.shtml)
+- 2026-06-29 23:58 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/948227201223.shtml)

@@ -1,61 +1,57 @@
-# 美股风险溢价指标跃升 市场担忧美国陷入上世纪70年代式的滞胀
+# 美国副总统万斯：美伊会谈顺利 取得了大量进展
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-一项指标显示，投资者要求持有股票而非债券的风险溢价升至两年多来最高水平，随着伊朗战争引发油价飙升，市场担忧美国经济可能陷入类似上世纪70年代的滞胀环境。 这一指标是股票风险溢价的一种变体，用于衡量投资者持有股票而非无风险美国国债时期望获得的额外补偿。纽约大学金融学教授Aswath Damodaran以估值研究见长，他计算的这一指标在4月初接近4.8%，为2023年末以来最高水平
+美国副总统JD·万斯表示，昨天是美伊会谈“非常、非常顺利的一天”，双方取得了“大量积极进展”。 万斯表示，本轮与伊朗会谈的目标之一，是建立一套确保霍尔木兹海峡保持开放的机制，而这一目标已经实现。 万斯表示，伊朗已同意邀请国际原子能机构核查人员进入该国进行检查。 不过，伊朗方面尚未证实已邀请国际原子能机构核查人员入境。 万斯称，任何获得解冻的伊朗资产实际上都将用于购买美国大豆、美
 
 ## 正文
 
-一项指标显示，投资者要求持有股票而非债券的风险溢价升至两年多来最高水平，随着伊朗战争引发油价飙升，市场担忧美国经济可能陷入类似上世纪70年代的滞胀环境。
+美国副总统JD·万斯表示，昨天是美伊会谈“非常、非常顺利的一天”，双方取得了“大量积极进展”。
 
-这一指标是股票风险溢价的一种变体，用于衡量投资者持有股票而非无风险美国国债时期望获得的额外补偿。
+万斯表示，本轮与伊朗会谈的目标之一，是建立一套确保霍尔木兹海峡保持开放的机制，而这一目标已经实现。
 
-纽约大学金融学教授Aswath Damodaran以估值研究见长，他计算的这一指标在4月初接近4.8%，为2023年末以来最高水平。
+万斯表示，伊朗已同意邀请国际原子能机构核查人员进入该国进行检查。
 
-随着中东冲突迅速升级，投资者风险偏好减弱，标普500指数较高点一度下跌9%，同时油价飙升，通胀反弹担忧升温，市场因而更加关注这一指标。
+不过，伊朗方面尚未证实已邀请国际原子能机构核查人员入境。
 
-对一些人而言，这种背景正开始令人不安地联想到上世纪70年代。
+万斯称，任何获得解冻的伊朗资产实际上都将用于购买美国大豆、美国玉米和美国小麦，以惠及伊朗人民。
 
-当时，美国经历能源危机、经济增长停滞、消费价格飙升，股市回报也表现低迷。
+万斯在瑞士向记者发表上述讲话。
 
-22V Research LLC总裁兼首席市场策略师Dennis DeBusschere表示，当前的股票风险溢价“与上世纪70年代的滞胀环境相符”。
-
-他的公司使用Damodaran的这一指标。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 23:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 00:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 23:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 23:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 00:10 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 23:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 00:00 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 00:11 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 23:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 23:58 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 23:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 00:02 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 23:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 23:53 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 00:01 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:50 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 23:51 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 23:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 00:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 23:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 00:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 23:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 00:06 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/26090.shtml)
-- 2026-06-29 23:43 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/448149215.shtml)
-- 2026-06-29 23:48 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/24015370.shtml)
-- 2026-06-29 23:52 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/105820976599.shtml)
-- 2026-06-29 23:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/18177093010.shtml)
-- 2026-06-30 00:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/669280.shtml)
-- 2026-06-30 00:08 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/59904294303.shtml)
-- 2026-06-29 23:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/091450869.shtml)
-- 2026-06-29 23:50 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/050498.shtml)
-- 2026-06-30 00:05 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/38358.shtml)
-- 2026-06-29 23:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/05042764.shtml)
-- 2026-06-30 00:07 - [金牌调解](http://www.blog.minike.top/Article/details/64948.shtml)
-- 2026-06-30 00:01 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/763781.shtml)
-- 2026-06-30 00:01 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/975829.shtml)
-- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/656846.shtml)
+- 2026-06-29 23:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/4326377.shtml)
+- 2026-06-30 00:00 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/33209778.shtml)
+- 2026-06-30 00:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/326274861.shtml)
+- 2026-06-30 00:04 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/511079311.shtml)
+- 2026-06-30 00:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/2917518287.shtml)
+- 2026-06-30 00:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/912836.shtml)
+- 2026-06-30 00:09 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/08986.shtml)
+- 2026-06-29 23:56 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/2749172.shtml)
+- 2026-06-30 00:14 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/011889457029.shtml)
+- 2026-06-30 00:12 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/6290643262.shtml)
+- 2026-06-29 23:49 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/709709.shtml)
+- 2026-06-29 23:55 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/77687996.shtml)
+- 2026-06-30 00:15 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/921504.shtml)
+- 2026-06-29 23:51 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/014229.shtml)
+- 2026-06-29 23:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/809909.shtml)

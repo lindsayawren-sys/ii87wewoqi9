@@ -1,50 +1,61 @@
-# 清明祭英魂 吴石、何遂将军后人福州以乡味寄哀思
+# 不靠贷款了，银行决定换个“活法”
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月07日 18:20 来源：中国新闻网 “清明祭英魂·家国共长怀”主题活动4月7日在福建福州三山人文纪念园举行，吴石、何遂将军后人，以及从事吴石将军事迹研究与宣传工作的专家学者齐聚现场，追思革命先辈，共话精神传承。 9时30分左右，在吴石、何遂将军塑像前，吴石将军孙女吴红、何遂将军长孙何代宁担任主祭人，手持白色毛巾，蘸取清水，轻轻擦拭吴石、何遂将军雕像，
+来源：柒财经 不靠贷款活，渐成趋势。 杭州银行董事长宋剑斌在2026年一季度业绩会上称，“未来银行的增长点不在信贷，如果死磕信贷，或许不行。” 6月17日，央行行长潘功胜在在2026陆家嘴论坛上表示：贷款“降速提质”或将成为宏观运行的新常态之一。 潘功胜行长进一步指出，2025年的社会融资规模增量中，贷款占比45%；债券和股票融资合计占比47%，首次超过贷款。 种种迹象释放出强
 
 ## 正文
 
-发布时间：2026年04月07日 18:20 来源：中国新闻网 “清明祭英魂·家国共长怀”主题活动4月7日在福建福州三山人文纪念园举行，吴石、何遂将军后人，以及从事吴石将军事迹研究与宣传工作的专家学者齐聚现场，追思革命先辈，共话精神传承。
+来源：柒财经 不靠贷款活，渐成趋势。
 
-9时30分左右，在吴石、何遂将军塑像前，吴石将军孙女吴红、何遂将军长孙何代宁担任主祭人，手持白色毛巾，蘸取清水，轻轻擦拭吴石、何遂将军雕像，以最质朴的仪式寄托对革命先辈的追思。
+杭州银行董事长宋剑斌在2026年一季度业绩会上称，“未来银行的增长点不在信贷，如果死磕信贷，或许不行。
 
-供桌上，荔枝肉、鱼丸、芋泥、清明粿等多道福州特色风味菜肴整齐摆放。
+” 6月17日，央行行长潘功胜在在2026陆家嘴论坛上表示：贷款“降速提质”或将成为宏观运行的新常态之一。
 
-吴红、何代宁分别斟上3杯家乡老酒，以饱含乡愁的味道敬献两位将军，传递“后人未忘、家乡未忘”的深情。
+潘功胜行长进一步指出，2025年的社会融资规模增量中，贷款占比45%；债券和股票融资合计占比47%，首次超过贷款。
 
-(叶秋云 制作 刘鹏） 责任编辑：【于晓】
+种种迹象释放出强烈信号：那个长达十几年、以工业化和城镇化为核心驱动力的信贷高增时代，正在落幕。
+
+而一个与当下高质量发展更加匹配，更能满足多样化经济需求的“新银行”，开始展露雏形。
+
+01 不靠贷款，银行想换个“活法” 低利率、低息差环境中，银行放贷也在变难。
+
+根据央行4月数据，今年前四个月，我国人民币贷款累计增加8.59万亿元，4月新增人民币贷款录得-100亿元，环比、同比分别少增3.0万亿元、2900亿元。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 23:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 23:51 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 23:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 23:43 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:42 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 23:43 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 00:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 23:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:52 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 23:53 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 00:08 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 00:17 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 00:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 23:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 23:59 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 23:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 23:58 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 00:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 00:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 00:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 00:15 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 23:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/01509.shtml)
-- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/02118914.shtml)
-- 2026-06-30 00:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/493125751.shtml)
-- 2026-06-29 23:57 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/509575.shtml)
-- 2026-06-29 23:57 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/5439269.shtml)
-- 2026-06-30 00:02 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/3138409330.shtml)
-- 2026-06-29 23:58 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/302312.shtml)
-- 2026-06-30 00:03 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/07596668.shtml)
-- 2026-06-29 23:55 - [急先锋](http://www.share.kurohicncr.top/Article/details/992795866527.shtml)
-- 2026-06-30 00:11 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/879973872420.shtml)
-- 2026-06-29 23:51 - [小娘惹](http://www.share.minike.top/Article/details/236992.shtml)
-- 2026-06-29 23:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/496822332026.shtml)
-- 2026-06-29 23:52 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/842564355846.shtml)
-- 2026-06-30 00:05 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/41686606.shtml)
-- 2026-06-29 23:46 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/643715923.shtml)
+- 2026-06-29 23:49 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/2462322.shtml)
+- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/938528819.shtml)
+- 2026-06-30 00:17 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/522909549082.shtml)
+- 2026-06-29 23:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/848819795756.shtml)
+- 2026-06-29 23:49 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/26214.shtml)
+- 2026-06-30 00:05 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/23831175485.shtml)
+- 2026-06-30 00:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/614135741.shtml)
+- 2026-06-29 23:50 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/021433281.shtml)
+- 2026-06-29 23:54 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/6224660.shtml)
+- 2026-06-30 00:04 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/3901182.shtml)
+- 2026-06-30 00:15 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4349734068.shtml)
+- 2026-06-29 23:56 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/727730409325.shtml)
+- 2026-06-30 00:14 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/586121.shtml)
+- 2026-06-30 00:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/9607358753.shtml)
+- 2026-06-30 00:00 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/65052583480.shtml)

@@ -1,49 +1,59 @@
-# 天孚通信：2025年净利同比增长50%
+# 光大期货：6月22日农产品日报
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，4月7日，天孚通信(300394.SZ)公告，2025年营业收入51.63亿元，同比增长58.79%。净利润20.17亿元，同比增长50.15%。
+油脂油料：原油跌跌不休 油粕相对抗跌 （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 本周油脂油料市场分化态势加剧。国际方面，BMD棕榈油表现偏强，交易逻辑围绕产地供需边际改善展开；而CBOT豆类则受原油低迷及需求忧虑压制，一度触及阶段低点，随后虽凭借大额出口销售订单获得支撑企稳，但反弹乏力。国内方面，油粕整体维持震荡格局，品种间强弱分化明显：菜油走
 
 ## 正文
 
-每经AI快讯，4月7日，天孚通信(300394.SZ)公告，2025年营业收入51.63亿元，同比增长58.79%。
+油脂油料：原油跌跌不休 油粕相对抗跌 （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 本周油脂油料市场分化态势加剧。
 
-净利润20.17亿元，同比增长50.15%。
+国际方面，BMD棕榈油表现偏强，交易逻辑围绕产地供需边际改善展开；而CBOT豆类则受原油低迷及需求忧虑压制，一度触及阶段低点，随后虽凭借大额出口销售订单获得支撑企稳，但反弹乏力。
+
+国内方面，油粕整体维持震荡格局，品种间强弱分化明显：菜油走势偏弱，棕榈油相对坚挺。
+
+宏观层面，随着市场逐步计价“霍尔木兹海峡通航恢复”，原油回吐地缘溢价，油价跌至近四个月低点。
+
+受此影响，当前植物油制生柴的商业利润陷入亏损，生柴消费高度依赖政策支持。
+
+此外，美联储会议纪要暗示未来货币政策路径双向波动，加剧了金融市场的整体波动率。
+
+基本面来看，南美丰产继续限制上方空间：阿根廷大豆丰收如期兑现，产量预估维持在5150万吨附近；巴西6月出口预计高达1531万吨，同比增逾150万吨。
+
+与之相对，美豆产区天气良好，丰产预期较强，市场静待月底种植面积报告，主流预期将上调种植意向。
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 23:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 23:51 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 00:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 00:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 00:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 23:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 23:56 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 23:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 23:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 23:53 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 23:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 00:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 23:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 00:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:58 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 00:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 00:05 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:00 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 00:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 00:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 23:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 23:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 00:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 23:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:51 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 00:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/2588574.shtml)
-- 2026-06-29 23:45 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/665042248.shtml)
-- 2026-06-30 00:06 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/150803025749.shtml)
-- 2026-06-29 23:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/69057480.shtml)
-- 2026-06-30 00:05 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/27227525008.shtml)
-- 2026-06-29 23:56 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/605317934911.shtml)
-- 2026-06-29 23:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/4261550089.shtml)
-- 2026-06-29 23:50 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/6274439.shtml)
-- 2026-06-30 00:07 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/11580253.shtml)
-- 2026-06-29 23:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/596136.shtml)
-- 2026-06-29 23:44 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/926575.shtml)
-- 2026-06-30 00:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/7540382992.shtml)
-- 2026-06-30 00:07 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/000985786.shtml)
-- 2026-06-30 00:11 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/266274.shtml)
-- 2026-06-29 23:54 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/29267071.shtml)
+- 2026-06-30 00:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/85297.shtml)
+- 2026-06-30 00:17 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/159348913.shtml)
+- 2026-06-29 23:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/61065633921.shtml)
+- 2026-06-29 23:48 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/226659.shtml)
+- 2026-06-30 00:13 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/67681861.shtml)
+- 2026-06-29 23:53 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/89499972.shtml)
+- 2026-06-30 00:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/13779238909.shtml)
+- 2026-06-29 23:48 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/4120355.shtml)
+- 2026-06-30 00:07 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/96411549.shtml)
+- 2026-06-30 00:16 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/613720.shtml)
+- 2026-06-29 23:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/6068491208.shtml)
+- 2026-06-30 00:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/214105422786.shtml)
+- 2026-06-30 00:05 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/9884909.shtml)
+- 2026-06-30 00:08 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/04499837.shtml)
+- 2026-06-30 00:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/438939803.shtml)

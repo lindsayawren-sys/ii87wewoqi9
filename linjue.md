@@ -1,49 +1,57 @@
-# 保利联合：董事长刘文生辞职
+# 老牌百亿私募遇冷！周应波、童驯旗下管理规模跌破50亿元，量化新贵成行业扩容主力
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，3月31日，保利联合（维权）公告，公司董事长刘文生因工作变动，申请辞去公司第七届董事会董事长、董事、董事会战略决策委员会召集人及公司法定代表人职务。辞职后，其不再担任公司其他职务。
+每经记者|杨建 每经编辑|肖芮冬 2026年以来，A股结构性行情持续演绎，彻底重塑私募行业格局，行业头部机构呈现罕见的极端分化态势。 截至2026年5月，国内百亿私募（管理规模超过100亿元的私募，下同）总数增至139家，持续刷新历史纪录。其中，年内新晋28家百亿私募中，量化私募为行业扩容绝对主力。 与之形成鲜明对比的是，多家老牌主观百亿私募管理规模持续缩水，包括周应波等知名基
 
 ## 正文
 
-每经AI快讯，3月31日，保利联合（维权）公告，公司董事长刘文生因工作变动，申请辞去公司第七届董事会董事长、董事、董事会战略决策委员会召集人及公司法定代表人职务。
+每经记者|杨建 每经编辑|肖芮冬 2026年以来，A股结构性行情持续演绎，彻底重塑私募行业格局，行业头部机构呈现罕见的极端分化态势。
 
-辞职后，其不再担任公司其他职务。
+截至2026年5月，国内百亿私募（管理规模超过100亿元的私募，下同）总数增至139家，持续刷新历史纪录。
+
+其中，年内新晋28家百亿私募中，量化私募为行业扩容绝对主力。
+
+与之形成鲜明对比的是，多家老牌主观百亿私募管理规模持续缩水，包括周应波等知名基金经理创办的私募机构。
+
+此轮行业分化中，中欧基金前知名基金经理周应波创办的运舟资本，规模缩水情况较为典型。
+
+中国证券投资基金业协会（以下简称协会）最新数据显示，上海运舟私募基金（以下简称运舟资本）最新管理规模已回落至20亿~50亿元，较巅峰百亿规模近乎腰斩。
+
+公开资料显示，运舟资本于2022年7月11日在协会完成备案，2022年底管理规模突破百亿元，为私募行业内为数不多的“一年内速成百亿私募”。
+
+从业履历来看，周应波深耕权益市场多年，2014年10月~2022年3月任职于中欧基金，历任研究员、投资经理、基金经理、投资总监、权益投资决策委员会委员等核心岗位，专业能力曾备受市场认可。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 23:43 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 23:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 00:00 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 00:11 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 23:53 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 00:01 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:09 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:50 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 23:50 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 00:11 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 00:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 23:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 23:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 23:50 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 00:13 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 23:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 23:57 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 00:09 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 00:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 00:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 00:15 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 00:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 23:48 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/557492.shtml)
-- 2026-06-30 00:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/24569261267.shtml)
-- 2026-06-29 23:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/81645261.shtml)
-- 2026-06-30 00:01 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/929262.shtml)
-- 2026-06-29 23:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/4192787.shtml)
-- 2026-06-29 23:58 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/6504464870.shtml)
-- 2026-06-29 23:58 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/45082247.shtml)
-- 2026-06-30 00:05 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/1293627.shtml)
-- 2026-06-29 23:52 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/58744.shtml)
-- 2026-06-30 00:03 - [田曦薇没招了](https://www.share.minike.top/Article/details/778168.shtml)
-- 2026-06-29 23:43 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/857218.shtml)
-- 2026-06-29 23:56 - [东方风云榜直播](http://www.share.minike.top/Article/details/69643169892.shtml)
-- 2026-06-29 23:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/76512857497.shtml)
-- 2026-06-30 00:03 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/71682428903.shtml)
-- 2026-06-29 23:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/398685902.shtml)
+- 2026-06-30 00:11 - [扬名立万](http://www.share.minike.top/Article/details/77616236.shtml)
+- 2026-06-29 23:48 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/92457619680.shtml)
+- 2026-06-29 23:55 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/15368754.shtml)
+- 2026-06-29 23:54 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/2363724306.shtml)
+- 2026-06-29 23:50 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/04690851.shtml)
+- 2026-06-29 23:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/7722150790.shtml)
+- 2026-06-30 00:02 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/930144.shtml)
+- 2026-06-30 00:07 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/30298637755.shtml)
+- 2026-06-29 23:52 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/0579643.shtml)
+- 2026-06-30 00:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/9079109.shtml)
+- 2026-06-30 00:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/965967.shtml)
+- 2026-06-30 00:12 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/1544528241.shtml)
+- 2026-06-30 00:12 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/667938596.shtml)
+- 2026-06-29 23:52 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/13038.shtml)
+- 2026-06-30 00:06 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/50159535.shtml)

@@ -1,46 +1,51 @@
-# 贝克微遭VALUE PARTNERS GROUP LIMITED减持5.47万股 每股作价35.1422港元
+# 伊朗媒体：伊朗副外长将率团在瑞士举行技术性会谈
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，3月27日，VALUE PARTNERS GROUP LIMITED减持贝克微（02149）5.47万股，每股作价35.1422港元，总金额约为192.23万港元。减持后最新持股数目为89.13万股，最新持股比例为4.95%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月22日电据伊朗媒体22日报道，从22日开始，由伊朗外交部副部长加里巴巴迪率领的伊朗团队在瑞士同美方举行技术性会谈。伊朗主要谈判团队已离开瑞士回国。（完）责任编辑：宋雅芳
 
 ## 正文
 
-香港联交所最新数据显示，3月27日，VALUE PARTNERS GROUP LIMITED减持贝克微（02149）5.47万股，每股作价35.1422港元，总金额约为192.23万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-减持后最新持股数目为89.13万股，最新持股比例为4.95%。
+新华社德黑兰6月22日电据伊朗媒体22日报道，从22日开始，由伊朗外交部副部长加里巴巴迪率领的伊朗团队在瑞士同美方举行技术性会谈。
 
-责任编辑：卢昱君
+伊朗主要谈判团队已离开瑞士回国。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 00:07 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 00:10 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 23:58 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 23:51 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 00:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 23:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 00:11 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 23:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 00:09 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 00:01 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 00:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 23:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 23:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 00:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 00:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 23:52 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 00:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 00:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 00:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 23:55 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/254605330.shtml)
-- 2026-06-30 00:02 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/5863128662.shtml)
-- 2026-06-30 00:07 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/79454.shtml)
-- 2026-06-30 00:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/34369.shtml)
-- 2026-06-29 23:59 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/02645.shtml)
-- 2026-06-30 00:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/18092649663.shtml)
-- 2026-06-30 00:05 - [明星大侦探第四季](http://www.share.minike.top/Article/details/933504641598.shtml)
-- 2026-06-29 23:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/714409.shtml)
-- 2026-06-29 23:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/351509373.shtml)
-- 2026-06-29 23:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/82439770805.shtml)
-- 2026-06-30 00:11 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/3269827947.shtml)
-- 2026-06-29 23:56 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/85085555428.shtml)
-- 2026-06-29 23:55 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/69930938.shtml)
-- 2026-06-29 23:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/49193178875.shtml)
-- 2026-06-30 00:10 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/66596303807.shtml)
+- 2026-06-30 00:06 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/2850347.shtml)
+- 2026-06-29 23:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/84285.shtml)
+- 2026-06-29 23:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/153762245275.shtml)
+- 2026-06-30 00:15 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/62855.shtml)
+- 2026-06-29 23:53 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/082868.shtml)
+- 2026-06-30 00:07 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/0654951.shtml)
+- 2026-06-29 23:59 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/2221230.shtml)
+- 2026-06-29 23:49 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/93359.shtml)
+- 2026-06-30 00:16 - [《贺子珍》](http://www.share.minike.top/Article/details/28011103.shtml)
+- 2026-06-30 00:17 - [啊啊啊](https://www.share.minike.top/Article/details/1693554546.shtml)
+- 2026-06-30 00:11 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/389944016908.shtml)
+- 2026-06-29 23:53 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/9877490554.shtml)
+- 2026-06-29 23:49 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/02802.shtml)
+- 2026-06-30 00:11 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/565392429.shtml)
+- 2026-06-30 00:08 - [时光音乐会](https://www.blog.minike.top/Article/details/5031217.shtml)

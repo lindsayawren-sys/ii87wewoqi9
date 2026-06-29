@@ -1,61 +1,57 @@
-# A股油气板块全线大跌，美布两油双双跌破100美元/桶
+# 王沪宁主持召开全国政协主席会议
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间4月8日，美伊双方在巴基斯坦的斡旋下达成为期两周的临时停火协议，引发国际原油期货暴跌。 4月8日早盘，A股油气板块大幅低开，准油股份（维权）（002207.SZ）、蓝焰控股（000968.SZ）、贝肯能源（002828.SZ）、中曼石油（603619.SH）一字跌停，潜能恒信（300191.SZ）、
+新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。中共中央政治局常委、全国政协主席王沪宁主持并讲话。 会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。
 
-北京时间4月8日，美伊双方在巴基斯坦的斡旋下达成为期两周的临时停火协议，引发国际原油期货暴跌。
+中共中央政治局常委、全国政协主席王沪宁主持并讲话。
 
-4月8日早盘，A股油气板块大幅低开，准油股份（维权）（002207.SZ）、蓝焰控股（000968.SZ）、贝肯能源（002828.SZ）、中曼石油（603619.SH）一字跌停，潜能恒信（300191.SZ）、科力股份（301552.SZ）、通源石油（300164.SZ）、首华燃气（300483.SZ）跌超10%，中国海油（600938.SH）、中国石油（601857.SH）跌超6%。
+会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。
 
-下午开盘后，A股油气板块仍整体维持弱势。
+王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政协性质定位、充分发挥专门协商机构作用、聚焦党和国家中心任务履职尽责的实际行动和工作成效上。
 
-其中权重股中国海油下跌6.94%、中国石油下跌4.3%；而其他小盘油服股跌幅显著大于权重股，准油股份、蓝焰控股、贝肯能源、中曼石油等跌停。
+要深入学习贯彻习近平总书记对常态化做好东西部协作工作的重要指示精神，围绕促进区域协调发展、推进乡村全面振兴、推动全体人民共同富裕等积极建言献策。
 
-消息面上，北京时间4月8日，美伊双方达成为期两周的临时停火协议，引发国际原油期货暴跌，WTI原油期货早盘一度跌近20%。
+要深入学习贯彻习近平总书记关于前瞻布局和发展未来产业的重要论述，引导经济界、科技界等相关界别政协委员通过视察考察调研、提案、社情民意信息等提出意见和建议。
 
-截至今日13点10分，国际油价跌幅收窄，但仍保持暴跌状态，双双跌破100美元/桶，WTI原油报96.82美元/桶，日内下跌14.3%，布伦特原油报94.43美元/桶，日内跌13.6%。
+要深入学习贯彻习近平总书记关于一体推进教育科技人才发展的重要论述，聚焦建立健全教育科技人才一体推进协调机制、加快建设国家战略人才力量等重点问题，深入调查研究、协商议政，助力推动科技自主创新和人才自主培养。
 
-“当前的原油市场已呈现‘冲突预期降温、海峡船货运输流量有恢复预期’的双重利空逻辑。
+会议审议通过政协第十四届全国委员会常务委员会第十八次会议议程(草案)和日程，决定8月下旬在北京召开全国政协十四届常委会第十八次会议。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 00:09 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 23:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 00:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 23:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 00:07 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 23:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 23:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 00:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 23:46 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 23:46 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 00:00 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 23:46 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 23:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 00:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:49 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 00:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 00:03 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 00:17 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 23:53 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 23:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:15 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:12 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 00:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/899290671.shtml)
-- 2026-06-29 23:54 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/040286.shtml)
-- 2026-06-29 23:59 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/49976098159.shtml)
-- 2026-06-30 00:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/477593504819.shtml)
-- 2026-06-30 00:03 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/90575276774.shtml)
-- 2026-06-30 00:09 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/9508224595.shtml)
-- 2026-06-29 23:49 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/70566.shtml)
-- 2026-06-29 23:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/226274.shtml)
-- 2026-06-29 23:43 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5791991.shtml)
-- 2026-06-30 00:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/442964694.shtml)
-- 2026-06-29 23:42 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/1786549.shtml)
-- 2026-06-29 23:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/38503186776.shtml)
-- 2026-06-30 00:11 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/42760.shtml)
-- 2026-06-30 00:00 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/2847719.shtml)
-- 2026-06-30 00:08 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/857423.shtml)
+- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/3118510265.shtml)
+- 2026-06-30 00:13 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/6421495.shtml)
+- 2026-06-29 23:58 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/217859.shtml)
+- 2026-06-30 00:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/967699025228.shtml)
+- 2026-06-30 00:08 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/9265536.shtml)
+- 2026-06-30 00:05 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/0546357.shtml)
+- 2026-06-30 00:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/7302808.shtml)
+- 2026-06-30 00:14 - [金刚川](http://www.blog.kurohicncr.top/Article/details/2360534966.shtml)
+- 2026-06-30 00:02 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7404421424.shtml)
+- 2026-06-29 23:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4955453.shtml)
+- 2026-06-29 23:51 - [周生如故](http://www.share.minike.top/Article/details/0740209.shtml)
+- 2026-06-29 23:58 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/4905240518.shtml)
+- 2026-06-30 00:13 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/4610098.shtml)
+- 2026-06-29 23:58 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/463473769611.shtml)
+- 2026-06-29 23:51 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/590278442637.shtml)

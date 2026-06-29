@@ -1,56 +1,57 @@
-# 会员条款侵害消费者权益 洲际酒店被京津冀消协组织联合约谈
+# 恒润股份（603985）股票操纵索赔案再提交法院立案，凯撒旅业（000796）索赔案股民申报债权
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 据“北京市场监管”微信公众号消息，针对国际酒店集团“洲际酒店”在其会员计划《洲际优悦会会员条款与附则》(以下简称“会员条款”)中，设置排除中国法律管辖、强制中国消费者赴境外仲裁、限制消费者集体维权权利、可随意变更合同条款、对使用商品造成的损失概不负责等多项涉嫌侵害消费者合法权益的条款，4月8日，京津冀三地消协组织依据《中华人民共和国消费者权益保护法实施条例》第
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。 许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律
 
 ## 正文
 
-中新网4月8日电 据“北京市场监管”微信公众号消息，针对国际酒店集团“洲际酒店”在其会员计划《洲际优悦会会员条款与附则》(以下简称“会员条款”)中，设置排除中国法律管辖、强制中国消费者赴境外仲裁、限制消费者集体维权权利、可随意变更合同条款、对使用商品造成的损失概不负责等多项涉嫌侵害消费者合法权益的条款，4月8日，京津冀三地消协组织依据《中华人民共和国消费者权益保护法实施条例》第四十条“消费者协会可以就消费者投诉的损害消费者合法权益的行为开展调查，与有关经营者核实情况，约请有关经营者到场陈述事实意见、提供证据资料等”规定，按照中国消费者协会《消协组织消费维权约谈经营者办法(试行)》，对洲际酒店集团国内运营方——六洲酒店管理(上海)有限公司进行联合约谈，并提出明确整改要求。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。
 
-格式条款涉嫌违法违规，限制消费者权利 京津冀三地消协组织指出，调查发现洲际酒店集团在其网站及APP的会员条款中设置了多项涉嫌侵害消费者合法权益的内容，主要集中在以下两个方面： 其一，强制仲裁、排除诉讼选择及中国法律适用，剥夺消费者集体维权权利。
+许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-根据会员条款第9、11、16项规定，涉及会员计划相关的金钱赔偿等争议，需提交美国仲裁协会仲裁，放弃在法院申诉、行政诉讼等权利，且不得集体、团体、共同和代表诉讼。
+（许峰律师专栏） 2024年12月6日，证监会对江阴市恒润重工股份有限公司第二大股东、法定代表人、董事长承立新等作出行政处罚。
 
-同时，会员条款强行规定其解释与执行适用美国乔治亚州法律，未纳入仲裁的争议亦只能向该州法院提起诉讼。
+经查明，承立新、丁键、张亚洲存在以下违法事实： 一、承立新、丁键和张亚洲商议合谋操纵股价。
 
-京津冀三地消协组织指出： 上述规定排除了我国法律管辖，中国消费者在主张权利时，将面临争议解决在时间、经济、地域障碍等方面带来的较高成本与不确定性，不合理地增加了中国消费者的维权成本，限制了消费者便利、高效寻求法律救济的渠道，涉嫌违反《中华人民共和国消费者权益保护法》第二十六条、《中华人民共和国消费者权益保护法实施条例》第十七条、《合同行政监督管理办法》第八条关于经营者不得利用格式条款排除或限制消费者主要权利的规定，相关条款依法应属无效。
+二、承立新、丁键和张亚洲合谋操纵股价过程 （一）承立新以他人名义代持“恒润股份” 承立新计划在2023年卖出“恒润股份”股票，2023年7月16日，承立新与阮某签订《代持协议书》，以某私募产品受让上述24，952，563股“恒润股份”。
 
-其二，侵害消费者选择权、公平交易权、求偿权等核心权利。
+（二）承立新、丁键和张亚洲信息发布情况 2023年7月29日至11月8日，承立新、丁键、张亚洲等人操控上市公司发布4份利好信息，拉抬“恒润股份”股价。
 
-会员条款第6项赋予了经营者较为宽泛的单方决定权，规定洲际酒店集团有权随时单方面修改或取消会员计划的全部或部分内容，而将会员“继续保留会员资格”的行为单方、默示地推定为同意所有更新，这实质上将随时关注并理解格式条款变动的责任完全转移至消费者一方。
+上述期间，“恒润股份”股价上涨96.65%，同期上证指数下跌6.86%，偏离103.51%，中证风电产业指数下跌10.30%，偏离106.95%，“恒润股份”股价涨幅明显优于同期上证指数和行业指数。
 
-此外，会员条款第21项声明对商品、服务不作任何保证，对因其缺陷或故障造成的任何损失概不负责(仅对新泽西州居民例外)。
+（三）丁键控制使用相关证券账户维持“恒润股份”股价 许峰律师认为，在2023年7月10日到12月27日期间交易恒润股份股票而受损的投资者，目前已可发起索赔，最终索赔条件法院依法认定。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 00:07 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 00:02 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 23:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 00:11 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 00:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 00:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 23:55 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 23:59 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 23:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 23:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 00:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:07 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 00:05 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 23:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 00:13 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 23:54 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 23:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 00:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 23:53 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8211122887.shtml)
-- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/558995.shtml)
-- 2026-06-29 23:50 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/95945476.shtml)
-- 2026-06-29 23:55 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/046545666.shtml)
-- 2026-06-29 23:50 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/515784522215.shtml)
-- 2026-06-29 23:52 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/63750097387.shtml)
-- 2026-06-30 00:04 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/01979.shtml)
-- 2026-06-29 23:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/1377411785.shtml)
-- 2026-06-30 00:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/7485329568.shtml)
-- 2026-06-29 23:47 - [我和我的家乡](http://www.share.minike.top/Article/details/23851152091.shtml)
-- 2026-06-29 23:48 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/928484.shtml)
-- 2026-06-30 00:01 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/831696907494.shtml)
-- 2026-06-29 23:48 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/058626324.shtml)
-- 2026-06-29 23:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/26624707700.shtml)
-- 2026-06-29 23:57 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/628113991096.shtml)
+- 2026-06-30 00:00 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/496471084.shtml)
+- 2026-06-29 23:59 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/6671248.shtml)
+- 2026-06-29 23:49 - [起风了](https://www.blog.kurohicncr.top/Article/details/1288689.shtml)
+- 2026-06-30 00:09 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/7848724.shtml)
+- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/14407.shtml)
+- 2026-06-29 23:52 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/480711.shtml)
+- 2026-06-30 00:16 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/946998507566.shtml)
+- 2026-06-30 00:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/644987.shtml)
+- 2026-06-29 23:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/130299.shtml)
+- 2026-06-29 23:57 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/86405.shtml)
+- 2026-06-30 00:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/9482873515.shtml)
+- 2026-06-29 23:54 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/3902226642.shtml)
+- 2026-06-29 23:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/456270559779.shtml)
+- 2026-06-29 23:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/2921886.shtml)
+- 2026-06-29 23:52 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/568914.shtml)

@@ -1,58 +1,51 @@
-# 财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日
+# 伊朗、美国和卡塔尔开会讨论黎巴嫩局势
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-【重磅】不惧波动！把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。 特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月21日电据伊朗媒体21日报道，伊朗、美国和卡塔尔三方会议正在瑞士比尔根山举行，议题涉及黎巴嫩局势及被冻结的伊朗资产。（完）责任编辑：宋雅芳
 
 ## 正文
 
-【重磅】不惧波动！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-把握A股T+0交易机会，当天买卖，赚了就跑（附精选股票池） 【头条要闻】 最后期限到来前一刻，特朗普宣布同意停火两周 央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，在与巴基斯坦总理夏巴兹·谢里夫及陆军参谋长阿西姆·穆尼尔通话后，应巴方请求，美方决定暂缓原计划针对伊朗的军事打击行动。
+新华社德黑兰6月21日电据伊朗媒体21日报道，伊朗、美国和卡塔尔三方会议正在瑞士比尔根山举行，议题涉及黎巴嫩局势及被冻结的伊朗资产。
 
-特朗普表示，前提是伊朗同意全面、立即且安全地开放霍尔木兹海峡，美方将暂停对伊朗的轰炸和攻击，为期两周，并称该安排将构成“双向停火”。
-
-他表示，目前已完成并超额实现既定军事目标，同时在推动与伊朗达成长期和平协议及中东地区和平方面取得重要进展。
-
-伊朗：我方几乎已实现全部战争目标 同意停火两周 伊朗人民必须知晓，得益于本国儿女的不懈努力及其在战场上的历史性表现，一个多月以来，敌人一直在乞求伊朗停止猛烈攻势。
-
-但伊朗自始至终决意将战争持续至实现既定目标——包括让敌人追悔莫及、陷入绝望，并消除对伊朗的长期威胁，因此拒绝了所有此类请求，战争也持续至今，已进入第四十天。
-
-此外，伊朗迄今已多次拒绝美国总统提出的最后期限，并始终强调，不会重视敌人提出的任何形式的最后通牒。
-
-此刻，我们向伟大的伊朗人民宣告喜讯：我方几乎已实现全部战争目标，英勇的伊朗儿女已将敌人逼入历史性的绝境，使其遭遇永久性失败。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 23:47 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 00:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 23:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 00:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 23:52 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 00:07 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:07 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 00:07 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 23:44 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 00:08 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 00:13 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 23:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 23:59 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 23:55 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 00:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 00:04 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 23:59 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 23:55 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 23:50 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 23:53 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 23:51 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 23:51 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 00:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 00:01 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/1545120037.shtml)
-- 2026-06-29 23:59 - [金刚川](http://www.share.minike.top/Article/details/5775644.shtml)
-- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/286715.shtml)
-- 2026-06-30 00:09 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/082217193239.shtml)
-- 2026-06-29 23:47 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/95922402.shtml)
-- 2026-06-29 23:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/69545321.shtml)
-- 2026-06-29 23:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/6199453468.shtml)
-- 2026-06-29 23:58 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/36972066133.shtml)
-- 2026-06-29 23:55 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/95269575.shtml)
-- 2026-06-30 00:12 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/8340377647.shtml)
-- 2026-06-30 00:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/25148.shtml)
-- 2026-06-29 23:46 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/585640627183.shtml)
-- 2026-06-30 00:11 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/48979570.shtml)
-- 2026-06-29 23:46 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/890045.shtml)
-- 2026-06-30 00:07 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/494962.shtml)
+- 2026-06-30 00:00 - [急先锋](http://www.blog.minike.top/Article/details/416557895.shtml)
+- 2026-06-30 00:06 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/39112193885.shtml)
+- 2026-06-29 23:54 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/766482107769.shtml)
+- 2026-06-29 23:57 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/6878175377.shtml)
+- 2026-06-29 23:52 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/797533.shtml)
+- 2026-06-29 23:50 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/9843494576.shtml)
+- 2026-06-29 23:58 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/70474831.shtml)
+- 2026-06-30 00:07 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/9373807933.shtml)
+- 2026-06-29 23:50 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/1718540456.shtml)
+- 2026-06-30 00:02 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/50667113.shtml)
+- 2026-06-30 00:10 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/4885690715.shtml)
+- 2026-06-30 00:06 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/932608522776.shtml)
+- 2026-06-30 00:16 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/796354534317.shtml)
+- 2026-06-30 00:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/488303.shtml)
+- 2026-06-30 00:04 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/1746475113.shtml)

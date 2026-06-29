@@ -1,58 +1,61 @@
-# 营收创上市新低却成功扭亏，创梦天地“壮士断腕”迎来业绩拐点
+# 东风-17实战演练细节公开 专家详解三大亮点
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-2026年3月30日，港股游戏公司创梦天地（01119.HK）发布了2025年度业绩报告。数据显示，公司全年实现营业收入13.38亿元人民币，这一数字创下自上市以来的新低，且已连续三年呈现下滑态势。 然而，与收入走势形成鲜明对比的是，公司成功实现关键性扭亏为盈——净利润1992万元，经调整净利润达2.01亿元，经营性现金净流入6727万元，持续保持正向流入。这份“收入新低、利润
+军情时间到丨东风-17实战演练细节公开 专家详解三大亮点 总台记者 谭琳：我现在就在火箭军某野外训练场，在我身后数枚新型导弹正在起竖。在这次火力突击的过程中，我们可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。官兵们告诉我们，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。
 
 ## 正文
 
-2026年3月30日，港股游戏公司创梦天地（01119.HK）发布了2025年度业绩报告。
+军情时间到丨东风-17实战演练细节公开 专家详解三大亮点 总台记者 谭琳：我现在就在火箭军某野外训练场，在我身后数枚新型导弹正在起竖。
 
-数据显示，公司全年实现营业收入13.38亿元人民币，这一数字创下自上市以来的新低，且已连续三年呈现下滑态势。
+在这次火力突击的过程中，我们可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。
 
-然而，与收入走势形成鲜明对比的是，公司成功实现关键性扭亏为盈——净利润1992万元，经调整净利润达2.01亿元，经营性现金净流入6727万元，持续保持正向流入。
+官兵们告诉我们，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。
 
-这份“收入新低、利润转正”的成绩单背后，是创梦天地在战略聚焦与产品转型上交出的答卷。
+新装备的列装，也使得指挥链路更加精简，极大缩短了形成火力的时间。
 
-收入连续三年下滑、创上市新低 财报显示，2025年创梦天地实现收益13.38亿元，同比下降约20.7%。
+同时，也打破了地域、阵地、气象等条件的限制，使得一大批紧贴战场的战法训法不断涌现，真正实现了从固定点火到随机发射、从定点备战到全域慑战的跨越。
 
-此前，公司营收已从2022年的约24亿元连续下滑至2024年的约16.9亿元，2025年进一步跌破14亿元关口。
+装备的迭代升级，本质是科技实力的硬核落地。
 
-收入下滑的主要原因在于产品结构的主动调整。
+近年来，东风-17、东风-26D、东风-31、东风-61等一大批我国自主研发的新型主战装备列装、常态参训。
 
-从业务构成看，游戏业务贡献了公司97.5%的营收，达13.05亿元。
+这里是西北戈壁深处，一场多军兵种联合训练正在进行。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 00:03 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 23:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 23:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:45 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 00:00 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 00:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 23:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 23:59 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 23:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 23:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 00:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 00:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 23:57 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 00:04 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 00:00 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 00:16 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 00:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 00:00 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 23:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 23:54 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 23:57 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 23:55 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 00:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 23:52 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 00:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:11 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/79950152943.shtml)
-- 2026-06-30 00:03 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/48988.shtml)
-- 2026-06-29 23:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/03242.shtml)
-- 2026-06-29 23:48 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/229769394.shtml)
-- 2026-06-29 23:57 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/284357017.shtml)
-- 2026-06-30 00:01 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/11404.shtml)
-- 2026-06-29 23:52 - [周生如故](http://www.share.kurohicncr.top/Article/details/36705481.shtml)
-- 2026-06-29 23:45 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/54665158584.shtml)
-- 2026-06-30 00:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/6455264351.shtml)
-- 2026-06-30 00:09 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/81638.shtml)
-- 2026-06-30 00:01 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/261694878.shtml)
-- 2026-06-30 00:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/612134.shtml)
-- 2026-06-29 23:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/9724485.shtml)
-- 2026-06-29 23:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/18546183.shtml)
-- 2026-06-30 00:05 - [起风了](http://www.blog.kurohicncr.top/Article/details/728046.shtml)
+- 2026-06-30 00:06 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/422056.shtml)
+- 2026-06-30 00:06 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/7297998959.shtml)
+- 2026-06-29 23:52 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/83717221454.shtml)
+- 2026-06-29 23:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/7824272860.shtml)
+- 2026-06-30 00:00 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/02217160905.shtml)
+- 2026-06-30 00:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/66146881222.shtml)
+- 2026-06-30 00:02 - [美股](https://www.share.minike.top/Article/details/45833526240.shtml)
+- 2026-06-30 00:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/9093423.shtml)
+- 2026-06-30 00:15 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/192479908.shtml)
+- 2026-06-29 23:58 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/217118.shtml)
+- 2026-06-29 23:58 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/56564.shtml)
+- 2026-06-30 00:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/243260.shtml)
+- 2026-06-30 00:00 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/73122.shtml)
+- 2026-06-30 00:11 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/13148802.shtml)
+- 2026-06-30 00:12 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/70329.shtml)

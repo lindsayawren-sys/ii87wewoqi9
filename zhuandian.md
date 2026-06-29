@@ -1,59 +1,57 @@
-# 博时市场点评4月7日：两市震荡上涨，成交持续缩量
+# 第二十二届中国国际动漫节：科技赋能带来新体验
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。海外方面，美国3月新增非
+发布时间：2026年06月19日 17:24 来源：中国新闻网 第二十二届中国国际动漫节正在杭州举行，汇聚全球33个国家和地区的动漫游戏企业和机构参展参会。 本届动漫节以科技赋能点亮新体验，AIGC、VR等前沿技术应用成为亮点。观众不仅能通过AI续写网文、参与文化“新三样”出海互动，还能戴上VR设备沉浸式体验《大闹天宫》等经典IP，感受科技与动漫融合的独特魅力。 此外，动漫节还
 
 ## 正文
 
-🌟【博时市场点评4月7日】两市震荡上涨，成交持续缩量 📝每日观点 🎈今日沪深三大指数震荡收涨，两市成交较上周五继续缩量至1.62万亿。
+发布时间：2026年06月19日 17:24 来源：中国新闻网 第二十二届中国国际动漫节正在杭州举行，汇聚全球33个国家和地区的动漫游戏企业和机构参展参会。
 
-从基本面看，国内3月PMI指标重返扩展区间，供需指标均有所上行，显示经济景气度在春节后季节性回升的基础上，叠加政策发力，实现了超季节性的改善，后续需关注原材料价格大幅上行对中下游企业利润的挤压程度，以及价格能否向下游传导。
+本届动漫节以科技赋能点亮新体验，AIGC、VR等前沿技术应用成为亮点。
 
-海外方面，美国3月新增非农就业高于预期，失业率也超预期回落，由于统计变化使得1-3月非农就业数据波动较大，但从均值来看仍较去年四季度有所好转，整体仍有韧性，后续受到高油价对增长的拖累，就业市场中枢或有所回落。
+观众不仅能通过AI续写网文、参与文化“新三样”出海互动，还能戴上VR设备沉浸式体验《大闹天宫》等经典IP，感受科技与动漫融合的独特魅力。
 
-近期扰动全球市场的美伊冲突仍有不确定性，由此引发的类滞胀交易仍然难以消散。
+此外，动漫节还创新科普形式，通过趣味游戏普及消防知识。
 
-短期防御策略或仍是较好选择，权益上或可考虑红利低波+确定性成长的配置。
+作为国家级动漫盛会，动漫节正以“动漫+科技”为大众带来可触可感的动漫嘉年华。
 
-在中长期视角下，地缘冲突反复可能加速全球资本对安全资产的配置需求，国内更好的安全环境和基本面的逐步向好或吸引跨境资本布局。
-
-🔥消息面 🎈4月6日，交通运输部数据显示，清明假期（4月4日至6日），全社会跨区域人员流动量预计84537.8万人次，日均28179万人次，同比增长6%。
-
-铁路、公路、民航首日客运量均超历史同期峰值。
+吴君毅 浙江杭州报道 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 00:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 23:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 23:57 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:57 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 00:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 23:52 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 00:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 23:47 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 00:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 00:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 00:03 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 23:51 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 23:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 23:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 23:55 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 00:17 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 00:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 23:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 00:09 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 00:08 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 00:08 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 00:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:49 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:48 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/687331034.shtml)
-- 2026-06-30 00:06 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/32417811.shtml)
-- 2026-06-30 00:02 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/18332.shtml)
-- 2026-06-29 23:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/548868019163.shtml)
-- 2026-06-29 23:43 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/894931052939.shtml)
-- 2026-06-30 00:11 - [美股](https://www.blog.minike.top/Article/details/935022.shtml)
-- 2026-06-30 00:01 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/0094240.shtml)
-- 2026-06-29 23:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/173232037100.shtml)
-- 2026-06-30 00:04 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/03092.shtml)
-- 2026-06-30 00:02 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/18493.shtml)
-- 2026-06-29 23:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/980449243790.shtml)
-- 2026-06-29 23:56 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/01641050.shtml)
-- 2026-06-30 00:06 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/15982.shtml)
-- 2026-06-29 23:54 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/928759313.shtml)
-- 2026-06-29 23:48 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/18911216.shtml)
+- 2026-06-30 00:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/28339.shtml)
+- 2026-06-30 00:07 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/927298.shtml)
+- 2026-06-29 23:54 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/425924750445.shtml)
+- 2026-06-29 23:50 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/529963.shtml)
+- 2026-06-30 00:10 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/45966261151.shtml)
+- 2026-06-29 23:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/504161293606.shtml)
+- 2026-06-29 23:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/63919877556.shtml)
+- 2026-06-30 00:03 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/0535462.shtml)
+- 2026-06-30 00:12 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/199024014782.shtml)
+- 2026-06-30 00:06 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/973418785164.shtml)
+- 2026-06-30 00:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/3475342053.shtml)
+- 2026-06-30 00:08 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/219735.shtml)
+- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/537681666710.shtml)
+- 2026-06-29 23:56 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/663074043457.shtml)
+- 2026-06-29 23:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/7985131.shtml)

@@ -1,58 +1,56 @@
-# 停火协议生效后，美国两大海湾盟友仍称遭伊朗袭击
+# 梅雨季已全面开启，暴雨大暴雨区域成片，广东广西等地高温闷热发展增多
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-两个与美国结盟的阿拉伯国家表示，尽管伊朗已签署停火协议，但今晨仍遭到伊朗无人机与导弹袭击。 科威特军方称，伊朗无人机对科威特发动袭击，对石油设施、发电站及海水淡化厂造成重大物资损失。阿联酋国防部则表示，防空部队正在 “拦截来自伊朗的导弹与无人机袭击”。 伊朗官方媒体援引伊朗国家炼油与分销公司的声明报道，此次袭击是为报复针对伊朗能源基础设施的打击，声明称伊朗拉万岛的炼油设施 “遭
+端午假期就要结束了，新的一周又将开启，接下来天气怎么样？重点给你划好了。 ①今后三天，主雨带稳定在贵州到浙江北部、上海、江苏南部一带。24日起，雨带逐渐南落到贵州、广西北部至江南中南部一带。 ②受冷涡影响，今后4天华北、东北一带多阵雨、雷阵雨天气，并伴有强对流天气。 ③今后三天，海南、广西、广东、福建、浙江南部、江西中南部、湖南南部将出现成片高温。而长江中下游一带气温明显偏低，
 
 ## 正文
 
-两个与美国结盟的阿拉伯国家表示，尽管伊朗已签署停火协议，但今晨仍遭到伊朗无人机与导弹袭击。
+端午假期就要结束了，新的一周又将开启，接下来天气怎么样？
 
-科威特军方称，伊朗无人机对科威特发动袭击，对石油设施、发电站及海水淡化厂造成重大物资损失。
+重点给你划好了。
 
-阿联酋国防部则表示，防空部队正在 “拦截来自伊朗的导弹与无人机袭击”。
+①今后三天，主雨带稳定在贵州到浙江北部、上海、江苏南部一带。
 
-伊朗官方媒体援引伊朗国家炼油与分销公司的声明报道，此次袭击是为报复针对伊朗能源基础设施的打击，声明称伊朗拉万岛的炼油设施 “遭到敌人卑鄙袭击”。
+24日起，雨带逐渐南落到贵州、广西北部至江南中南部一带。
 
-声明并未明确所指的敌人是谁，但此前美国与以色列已对伊朗关键基础设施发动多轮打击。
+②受冷涡影响，今后4天华北、东北一带多阵雨、雷阵雨天气，并伴有强对流天气。
 
-过去一小时内，伊朗革命卫队表示将遵守停火协议，但同时警告美国 “他们的手指仍扣在扳机上”。
+③今后三天，海南、广西、广东、福建、浙江南部、江西中南部、湖南南部将出现成片高温。
 
-据信，革命卫队在此次冲突中基本处于独立行动状态。
+而长江中下游一带气温明显偏低，比较凉快。
 
-责任编辑：郭明煜
+梅雨季开启 长江沿线等地降雨不断 据国家气候中心消息，江南地区、长江中下游地区于6月18日进入梅雨期，江淮地区于19日入梅。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 00:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 00:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 00:11 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 00:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 00:04 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 23:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 00:07 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 00:02 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 23:51 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 23:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 00:06 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 00:06 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 00:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 23:48 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 00:03 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 23:50 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 00:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:52 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 23:53 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 00:15 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 00:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9752340.shtml)
-- 2026-06-30 00:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/176005981299.shtml)
-- 2026-06-29 23:47 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/484524370.shtml)
-- 2026-06-30 00:10 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/50524850978.shtml)
-- 2026-06-29 23:54 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/530624.shtml)
-- 2026-06-30 00:02 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/164913.shtml)
-- 2026-06-29 23:51 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/38915413.shtml)
-- 2026-06-30 00:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/2235312271.shtml)
-- 2026-06-29 23:53 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/4053245.shtml)
-- 2026-06-29 23:58 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/216900.shtml)
-- 2026-06-30 00:08 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/497739964.shtml)
-- 2026-06-29 23:42 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2783854472.shtml)
-- 2026-06-29 23:53 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/24844486015.shtml)
-- 2026-06-29 23:58 - [时光音乐会](https://www.share.minike.top/Article/details/093272049527.shtml)
-- 2026-06-30 00:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/373138500.shtml)
+- 2026-06-30 00:03 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/150841663804.shtml)
+- 2026-06-30 00:08 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/0451903751.shtml)
+- 2026-06-30 00:16 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/81226896844.shtml)
+- 2026-06-29 23:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/55963149.shtml)
+- 2026-06-29 23:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/210346127157.shtml)
+- 2026-06-30 00:13 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/410009.shtml)
+- 2026-06-30 00:16 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/56719.shtml)
+- 2026-06-30 00:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/02527375941.shtml)
+- 2026-06-30 00:14 - [乔家的儿女](http://www.blog.minike.top/Article/details/048137441378.shtml)
+- 2026-06-30 00:03 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/8826610146.shtml)
+- 2026-06-30 00:07 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/871459296888.shtml)
+- 2026-06-29 23:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/202028593574.shtml)
+- 2026-06-30 00:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/051112674203.shtml)
+- 2026-06-29 23:50 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/730748976.shtml)
+- 2026-06-30 00:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/006168472.shtml)

@@ -1,48 +1,53 @@
-# 零跑汽车获董事长朱江明及股东傅利泉增持合共508.02万股H股
+# 海外华人作家戴小华：中华文化指引“家”的方向
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集
+发布时间：2026年06月20日 14:47 来源：中国新闻网 6月19日，出生于台湾的马来西亚华文作家戴小华在北京举行《忽如归》《情随心旅踏歌行》双书分享暨签售会。 戴小华祖籍河北沧州，生在台湾，定居吉隆坡。其纪实文学作品《忽如归》，以母亲逝后归葬河北沧州为叙事起点，追述了一个家庭在动荡岁月中的曲折经历。新书《情随心旅踏歌行》是一部跨越三十年的散文精选集，分为“因为有情”“桑
 
 ## 正文
 
-零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。
+发布时间：2026年06月20日 14:47 来源：中国新闻网 6月19日，出生于台湾的马来西亚华文作家戴小华在北京举行《忽如归》《情随心旅踏歌行》双书分享暨签售会。
 
-紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集团合共持有公司2.11亿股H股及1.29亿股内资股，占公司已发行总股数的23.89%。
+戴小华祖籍河北沧州，生在台湾，定居吉隆坡。
 
-朱江明先生及傅利泉先生确认，本次增持符合相关法律法规以及《香港联合交易所有限公司证券上市规则》相关要求。
+其纪实文学作品《忽如归》，以母亲逝后归葬河北沧州为叙事起点，追述了一个家庭在动荡岁月中的曲折经历。
 
-责任编辑：卢昱君
+新书《情随心旅踏歌行》是一部跨越三十年的散文精选集，分为“因为有情”“桑梓之情”“寰宇风情”三辑。
+
+戴小华说，她曾对“何处是家”感到困惑，后来在文化工作中找到答案——家不是一种地域，而是一种精神。
+
+(姜姿屹 张杨彬 制作 侯诗蕊) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 23:47 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 00:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 00:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 00:01 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 23:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 23:45 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 23:56 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 23:54 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 00:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 23:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 00:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 00:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 23:48 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 00:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 00:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 00:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 23:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 23:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:48 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/399119.shtml)
-- 2026-06-30 00:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/1950799.shtml)
-- 2026-06-29 23:56 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/3407272.shtml)
-- 2026-06-30 00:05 - [沙丘](https://www.share.kurohicncr.top/Article/details/0366663.shtml)
-- 2026-06-29 23:53 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/222878.shtml)
-- 2026-06-29 23:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/25920427149.shtml)
-- 2026-06-30 00:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/11715321.shtml)
-- 2026-06-29 23:42 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/615057329331.shtml)
-- 2026-06-29 23:51 - [女心理师](https://www.share.minike.top/Article/details/4418687309.shtml)
-- 2026-06-29 23:59 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/71281336316.shtml)
-- 2026-06-30 00:08 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/971167611003.shtml)
-- 2026-06-29 23:43 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/6995321703.shtml)
-- 2026-06-29 23:50 - [流金岁月](http://www.share.kurohicncr.top/Article/details/438563.shtml)
-- 2026-06-29 23:48 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/305725590.shtml)
-- 2026-06-30 00:02 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/6701471276.shtml)
+- 2026-06-30 00:04 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/619489168652.shtml)
+- 2026-06-30 00:16 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/05115.shtml)
+- 2026-06-30 00:17 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/492764336254.shtml)
+- 2026-06-29 23:58 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/353766118522.shtml)
+- 2026-06-30 00:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/8919551.shtml)
+- 2026-06-30 00:02 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/810246978073.shtml)
+- 2026-06-30 00:09 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/19984098130.shtml)
+- 2026-06-29 23:55 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/41261.shtml)
+- 2026-06-30 00:01 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/3479979081.shtml)
+- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/93344.shtml)
+- 2026-06-30 00:02 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/402657.shtml)
+- 2026-06-30 00:07 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/5187133183.shtml)
+- 2026-06-30 00:11 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/30505.shtml)
+- 2026-06-30 00:15 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/84510.shtml)
+- 2026-06-29 23:53 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/9432407.shtml)

@@ -1,59 +1,61 @@
-# 息差回升6BP仍为股份行最低、不良率达1.66%：二十岁渤海银行任重而道远
+# 2026世界中学生排球锦标赛将于陕西商洛开赛
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 净息差回升6bp，渤海银行2025年表现如何？ 2026年，恰逢渤海银行成立二十周年，这家坐落于北洋口岸、渤海之滨的最年轻全国性股份行，在行业深度变革的周期中，交出了一份喜忧参半的年度答卷。 一方面，渤海银行自2023年触底后连续第二年营利双增，2025年实现营收259.7亿元、净利润54.98亿元，同比增长1.92%、4.61%，还是唯二净息差回升股份行之一；
+中新网西安6月22日电 (记者 党田野 张一辰)“本届赛事参赛队伍、参与国家和地区数量较上届明显增加，我们统筹各相关单位细化竞赛、场地、后勤各项保障工作，全力办好国际赛事，搭建中外青少年交流互动平台，充分展现商洛城市风貌。”商洛市体育局副局长孟军22日在发布会上表示。 当日，2026世界中学生排球锦标赛新闻发布会在陕西省商洛市举行。世界中学生排球锦标赛1972年创办，是国际中学
 
 ## 正文
 
-来源：今日行长 净息差回升6bp，渤海银行2025年表现如何？
+中新网西安6月22日电 (记者 党田野 张一辰)“本届赛事参赛队伍、参与国家和地区数量较上届明显增加，我们统筹各相关单位细化竞赛、场地、后勤各项保障工作，全力办好国际赛事，搭建中外青少年交流互动平台，充分展现商洛城市风貌。
 
-2026年，恰逢渤海银行成立二十周年，这家坐落于北洋口岸、渤海之滨的最年轻全国性股份行，在行业深度变革的周期中，交出了一份喜忧参半的年度答卷。
+”商洛市体育局副局长孟军22日在发布会上表示。
 
-一方面，渤海银行自2023年触底后连续第二年营利双增，2025年实现营收259.7亿元、净利润54.98亿元，同比增长1.92%、4.61%，还是唯二净息差回升股份行之一；但另一方面，增长后的营利规模仍不及2022年末水平，净息差1.37%仍处于10家上市股份行低位、不良率1.66%则在上市股份行中居首，此外，该行非息净收入同比下滑13.99%，中间业务对营收支撑作用仍显不足。
+当日，2026世界中学生排球锦标赛新闻发布会在陕西省商洛市举行。
 
-在利率市场化持续深化、行业盈利整体承压背景下，这家近2万亿元资产规模的最年轻全国性股份行，虽实现企稳回升，但依旧面临盈利结构优化、资产质量待提升等多重考验，转型之路已然步入深水区。
+世界中学生排球锦标赛1972年创办，是国际中学生体育联合会主办的全球中学生顶级排球赛事。
 
-利息净收入同比增长12.08%，净息差回升6bp仍居同业尾部 2025年，仅有两家上市股份行净息差实现回升，渤海银行便是其中之一。
+2025年至2028年连续四年在商洛举办，今年为第二届，由中国学生体育联合会、商洛市人民政府承办，商洛市体育局、商州区政府、丹凤县政府配合协办。
 
-随着2025年财报季收官，各股份行业绩细况浮出水面。
+据介绍，该赛事将于7月2日20时举行开幕式，7月2日至5日、7月7日至9日开展正式比赛，7月9日举办闭幕式。
 
-到去年末，在同业息差整体承压背景下，渤海银行净息差较上年末提升6bp至1.37%，与民生银行成为唯二净息差回升的上市股份行。
+本次赛事共有法国、德国、美国等29个国家和地区、31个代表团、62支队伍参赛，运动员、教练员、国际技术官员总人数近2000人。
 
-不过就绝对水平而言，渤海银行仍为上市股份行息差最低，盈利支撑仍需进一步巩固。
+商洛市官方表示，全市多部门协同推进赛事筹备，面向社会招募164名赛事志愿者。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 23:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 23:50 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 00:07 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 23:56 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 23:47 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:59 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 00:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 23:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 00:02 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 23:56 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 23:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 00:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 00:09 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 00:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 00:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 00:00 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 00:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 23:57 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 00:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 00:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 23:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 00:06 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 00:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 00:11 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 23:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/320068.shtml)
-- 2026-06-30 00:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/39542800750.shtml)
-- 2026-06-29 23:50 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/1457386.shtml)
-- 2026-06-29 23:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/50188567.shtml)
-- 2026-06-29 23:47 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/306292527533.shtml)
-- 2026-06-29 23:54 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/0871938.shtml)
-- 2026-06-29 23:49 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/902000769.shtml)
-- 2026-06-30 00:02 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/684325.shtml)
-- 2026-06-30 00:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/888539516.shtml)
-- 2026-06-29 23:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/088046818791.shtml)
-- 2026-06-29 23:44 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/62329377535.shtml)
-- 2026-06-29 23:44 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/781077.shtml)
-- 2026-06-29 23:51 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/81019049.shtml)
-- 2026-06-30 00:02 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/036127045455.shtml)
-- 2026-06-29 23:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/670636.shtml)
+- 2026-06-30 00:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/26074611.shtml)
+- 2026-06-29 23:53 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/09973389785.shtml)
+- 2026-06-30 00:06 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/788216.shtml)
+- 2026-06-30 00:07 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/405673142121.shtml)
+- 2026-06-30 00:11 - [逃狱兄弟](https://www.share.minike.top/Article/details/938649451542.shtml)
+- 2026-06-30 00:11 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/40636.shtml)
+- 2026-06-30 00:08 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/913293072.shtml)
+- 2026-06-30 00:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/6890976.shtml)
+- 2026-06-30 00:11 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/146589.shtml)
+- 2026-06-30 00:17 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/6640666534.shtml)
+- 2026-06-30 00:08 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/598136800.shtml)
+- 2026-06-29 23:55 - [世界杯](http://www.blog.minike.top/Article/details/05272058.shtml)
+- 2026-06-29 23:56 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/3026486.shtml)
+- 2026-06-30 00:08 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/8073392394.shtml)
+- 2026-06-30 00:15 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/539042408565.shtml)

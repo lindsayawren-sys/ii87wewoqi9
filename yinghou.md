@@ -1,60 +1,51 @@
-# 湘南山村“茶香”飘世界：一片茶叶的35国旅程
+# 辽宁舰编队完成远海实战化训练
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网衡阳4月7日电 题：湘南山村“茶香”飘世界：一片茶叶的35国旅程 作者 鲁毅 廖晶 文雅婷 清明时节的清晨，湖南衡山上的薄雾还未散尽，山脚下的衡山县开云镇双全新村6800余亩皇茶园已是一片忙碌。翠绿的茶树吐露金黄的新芽，采茶工舒晓春手指轻提，一枚饱满的嫩芽便落入掌心。“不能用指甲掐，要像这样轻轻提起来，这样采出来的茶品质更好。”她告诉来访者采茶的讲究。 时下正是春茶采摘的
+中新网6月22日电 据“人民海军”微信公众号消息，6月22日，海军辽宁舰编队圆满完成远海实战化训练，安全顺利返回青岛母港。40余天的训练中，编队赴南海、西太平洋等海空域，深入开展实战运用验证，有力提升了航母编队履行使命任务能力。编队出航以来，坚持走一路、研一路、练一路，连续转战多个训练海空域，严密构建预警探测体系，精心筹划组织岸海联合体系对抗、舰载机战术飞行、编队搜救等多项科目
 
 ## 正文
 
-中新网衡阳4月7日电 题：湘南山村“茶香”飘世界：一片茶叶的35国旅程 作者 鲁毅 廖晶 文雅婷 清明时节的清晨，湖南衡山上的薄雾还未散尽，山脚下的衡山县开云镇双全新村6800余亩皇茶园已是一片忙碌。
+中新网6月22日电 据“人民海军”微信公众号消息，6月22日，海军辽宁舰编队圆满完成远海实战化训练，安全顺利返回青岛母港。
 
-翠绿的茶树吐露金黄的新芽，采茶工舒晓春手指轻提，一枚饱满的嫩芽便落入掌心。
+40余天的训练中，编队赴南海、西太平洋等海空域，深入开展实战运用验证，有力提升了航母编队履行使命任务能力。
 
-“不能用指甲掐，要像这样轻轻提起来，这样采出来的茶品质更好。
+编队出航以来，坚持走一路、研一路、练一路，连续转战多个训练海空域，严密构建预警探测体系，精心筹划组织岸海联合体系对抗、舰载机战术飞行、编队搜救等多项科目训练，练指挥、研战法、摸底数、强能力，不断打磨提升编队实战化训练水平。
 
-”她告诉来访者采茶的讲究。
+训练中，编队坚持实战实训，立足远海实战要求，设实情、进实景、练实案，筹划组织制空防空、对海打击、支援掩护、远海综合救援、实际使用武器等演练，跨昼夜开展多批次舰机攻防对抗，持续深化主战模块专攻精练，有效检验了航母编队远海体系作战运用。
 
-时下正是春茶采摘的黄金时节，在舒晓春身后，200多名采茶工人正穿梭于茶垄之间，指尖翻飞。
-
-高峰期，上山采茶者可达千余人。
-
-鲜叶离枝，争分夺秒。
-
-在数公里外的茶叶加工车间里，12台杀青理条一体机正全速运转。
+在西太平洋某海域，辽宁舰编队与两栖攻击舰编队开展联合演练，双方精心筹划组织体系融合训练，充分锤炼了航母编队联动两栖攻击舰编队远海实战行动效能。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 23:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 00:01 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 00:08 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 00:02 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 23:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 00:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 23:45 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 23:57 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 23:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 23:46 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 00:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 23:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:05 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:57 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:53 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 00:00 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 23:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 23:52 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 23:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 00:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 00:09 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 00:05 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 23:58 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/1219717.shtml)
-- 2026-06-30 00:09 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/350069342557.shtml)
-- 2026-06-29 23:54 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/62459728.shtml)
-- 2026-06-30 00:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/183402916.shtml)
-- 2026-06-29 23:47 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/062631852068.shtml)
-- 2026-06-30 00:03 - [沙丘](https://www.share.kurohicncr.top/Article/details/4462225.shtml)
-- 2026-06-29 23:51 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/3082307.shtml)
-- 2026-06-29 23:47 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/7267913872.shtml)
-- 2026-06-30 00:06 - [炽夏](https://www.blog.kurohicncr.top/Article/details/77431.shtml)
-- 2026-06-30 00:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/8658353312.shtml)
-- 2026-06-30 00:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/1968687806.shtml)
-- 2026-06-29 23:56 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/9891814314.shtml)
-- 2026-06-30 00:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/907133.shtml)
-- 2026-06-29 23:47 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/85852801937.shtml)
-- 2026-06-29 23:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/4198986807.shtml)
+- 2026-06-30 00:17 - [世界杯](https://www.blog.minike.top/Article/details/993306617394.shtml)
+- 2026-06-29 23:52 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/127570839.shtml)
+- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/78671439307.shtml)
+- 2026-06-29 23:51 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/61677936.shtml)
+- 2026-06-30 00:06 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/9641725.shtml)
+- 2026-06-30 00:15 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/9608370392.shtml)
+- 2026-06-30 00:10 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/86495.shtml)
+- 2026-06-30 00:16 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/231607234.shtml)
+- 2026-06-30 00:05 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/630403.shtml)
+- 2026-06-29 23:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/68792959.shtml)
+- 2026-06-29 23:58 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/17922187380.shtml)
+- 2026-06-30 00:10 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/83540.shtml)
+- 2026-06-30 00:07 - [斗破苍穹](https://www.share.minike.top/Article/details/805193980.shtml)
+- 2026-06-29 23:58 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/834501715343.shtml)
+- 2026-06-30 00:12 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/841381451.shtml)

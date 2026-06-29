@@ -1,60 +1,60 @@
-# “琴瑟和鸣——马小虎、纪根墨伉俪画展”在京举办
+# 评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月7日电 (记者 高凯)“琴瑟和鸣——马小虎、纪根墨伉俪画展”日前在北京金石博物馆开幕。展览展出二人60余幅山水和人物画作，涵盖不同尺幅作品，呈现了两位画家近年来的探索面貌。 据介绍，在艺术创作上，马小虎、纪根墨各有所长，形成了互补共生的艺术格局。马小虎深耕青绿山水，在传统青绿山水的基础上大胆创新，融入西方色彩美学与构成手法，打造出古意新韵的视觉效果。纪根墨依托深厚
+中新社北京6月19日电 题：“张凌赫现象”凸显两岸同胞可以“双向奔赴” 中新社记者 容海升 从电视剧《逐玉》在台热播，到岛内青年“只要叫张凌赫来台湾就好”的呼声，大陆演员张凌赫引发一系列跨圈层的社会讨论和文化效应，成为两岸交流不可忽视的一个现象。“张凌赫现象”表层是台湾观众对青年演艺人员的喜爱，其根本仍是交流中“双向奔赴”。 这种“双向奔赴”有其文化脉络。早年间，台湾言情剧、偶
 
 ## 正文
 
-中新网北京4月7日电 (记者 高凯)“琴瑟和鸣——马小虎、纪根墨伉俪画展”日前在北京金石博物馆开幕。
+中新社北京6月19日电 题：“张凌赫现象”凸显两岸同胞可以“双向奔赴” 中新社记者 容海升 从电视剧《逐玉》在台热播，到岛内青年“只要叫张凌赫来台湾就好”的呼声，大陆演员张凌赫引发一系列跨圈层的社会讨论和文化效应，成为两岸交流不可忽视的一个现象。
 
-展览展出二人60余幅山水和人物画作，涵盖不同尺幅作品，呈现了两位画家近年来的探索面貌。
+“张凌赫现象”表层是台湾观众对青年演艺人员的喜爱，其根本仍是交流中“双向奔赴”。
 
-据介绍，在艺术创作上，马小虎、纪根墨各有所长，形成了互补共生的艺术格局。
+这种“双向奔赴”有其文化脉络。
 
-马小虎深耕青绿山水，在传统青绿山水的基础上大胆创新，融入西方色彩美学与构成手法，打造出古意新韵的视觉效果。
+早年间，台湾言情剧、偶像剧给大陆观众留下深刻印象，大陆早期偶像剧从中汲取不少创作技巧。
 
-纪根墨依托深厚家学，潜心研习传统水墨，在山水与人物画领域皆有建树，她的水墨山水空灵雅致，人物画则写实传神。
+近年来，《甄嬛传》《琅琊榜》《繁花》等大陆剧集相继成为台湾社交媒体热门话题，剧中台词也流行一时。
 
-两位画家皆秉持严谨的创作态度，始终重视写生，常年行走于山水之间，被认为将自然万象融入笔墨，践行了“以形写神、气韵生动”的中国画精髓。
+观看同一剧集时，两岸观众能共同理解台词。
 
-据悉，本次展览将持续至4月12日。
+这种默契，源自两岸同根同源的传统文化积淀。
 
-(完)
+这种“双向奔赴”体现市场选择。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 23:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 23:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 00:07 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 23:50 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 23:53 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 23:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 00:03 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 23:47 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 00:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 23:56 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 23:48 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 00:04 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 23:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 00:00 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 23:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:53 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 00:11 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 00:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 00:15 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 00:10 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 00:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 00:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 00:03 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 23:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 23:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 00:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 23:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/16308.shtml)
-- 2026-06-30 00:10 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/659292.shtml)
-- 2026-06-29 23:49 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/20236.shtml)
-- 2026-06-30 00:00 - [月亮](http://www.share.minike.top/Article/details/565281302494.shtml)
-- 2026-06-29 23:59 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/74480975.shtml)
-- 2026-06-30 00:01 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/129700995770.shtml)
-- 2026-06-29 23:50 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/01255939277.shtml)
-- 2026-06-30 00:06 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/3337544293.shtml)
-- 2026-06-29 23:59 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/202449876648.shtml)
-- 2026-06-29 23:47 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/656094625.shtml)
-- 2026-06-29 23:45 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/197874708.shtml)
-- 2026-06-29 23:57 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/294942041152.shtml)
-- 2026-06-29 23:47 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/2495331680.shtml)
-- 2026-06-30 00:06 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/77240439.shtml)
-- 2026-06-29 23:58 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/103731850.shtml)
+- 2026-06-30 00:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/611881444541.shtml)
+- 2026-06-30 00:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/27255.shtml)
+- 2026-06-30 00:02 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/518365070322.shtml)
+- 2026-06-29 23:56 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/41663676.shtml)
+- 2026-06-30 00:05 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/175458329480.shtml)
+- 2026-06-29 23:57 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/67331474.shtml)
+- 2026-06-30 00:10 - [逃狱兄弟](http://www.blog.minike.top/Article/details/210442480.shtml)
+- 2026-06-30 00:07 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/2420727440.shtml)
+- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/027792381.shtml)
+- 2026-06-29 23:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/9212680834.shtml)
+- 2026-06-30 00:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/5973962.shtml)
+- 2026-06-30 00:05 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/6842022.shtml)
+- 2026-06-30 00:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/765590555.shtml)
+- 2026-06-29 23:50 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/70973638.shtml)
+- 2026-06-30 00:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/2251146978.shtml)

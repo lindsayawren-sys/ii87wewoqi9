@@ -1,56 +1,59 @@
-# 6年3次夺冠！南方基金投资猛人刘文良14年磨一剑
+# 超百亿主力资金狂涌！有色金属掀涨停潮！锡业股份等5股涨停，华宝基金有色ETF（159876）盘中涨超1.5%
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-来源：资市会 “可转债的盾+景气成长的矛”。 作者 | 资市分子 2025年以来，A股市场波动上行，结构性分化日益明显，叠加债市转入震荡的环境，可转债基金兼具稳健与弹性特性，凭借亮眼表现，逐步打破投资者对债券型基金收益偏低的传统认知。 2025年，南方昌元可转债、民生加银增强收益和博时转债增强分别居前三名，其表现较不少主动权益类基金还出色。 翻开冠军产品南方昌元可转债基金经理的
+今日（6月22日）主力资金涌入有色金属板块，截至发稿，有色金属板块获主力资金净流入超102亿元，板块吸金额高居31个申万一级行业首位！，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中涨超1.5%，现涨1.05%，日k线或已走出震荡上行台阶。 成份股方面，驰宏锌锗、有研新材、云南锗业、株冶集团、锡业股份5股涨停，盛和资源涨超8%，金钼股份涨逾7%，权重股洛阳钼业
 
 ## 正文
 
-来源：资市会 “可转债的盾+景气成长的矛”。
+今日（6月22日）主力资金涌入有色金属板块，截至发稿，有色金属板块获主力资金净流入超102亿元，板块吸金额高居31个申万一级行业首位！
 
-作者 | 资市分子 2025年以来，A股市场波动上行，结构性分化日益明显，叠加债市转入震荡的环境，可转债基金兼具稳健与弹性特性，凭借亮眼表现，逐步打破投资者对债券型基金收益偏低的传统认知。
+，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中涨超1.5%，现涨1.05%，日k线或已走出震荡上行台阶。
 
-2025年，南方昌元可转债、民生加银增强收益和博时转债增强分别居前三名，其表现较不少主动权益类基金还出色。
+成份股方面，驰宏锌锗、有研新材、云南锗业、株冶集团、锡业股份5股涨停，盛和资源涨超8%，金钼股份涨逾7%，权重股洛阳钼业涨超4%，北方稀土涨逾3%。
 
-翻开冠军产品南方昌元可转债基金经理的业绩，可谓战绩显赫。
+锂方面，磷酸铁锂价格一年翻倍，需求依然旺盛。
 
-过去六年，他所管理的可转债基金3次夺得同类产品年度冠军。
+国金证券表示，锂电板块2026年将延续补库与涨价趋势。
 
-突出的阿尔法获取能力，让刘文良成为当前市场上兼具专业深度与实战成效的稀缺型可转债投资业界翘楚。
+动力电池库存下降，储能库存回升，行业整体进入主动补库阶段。
 
-他的成功背后，是14年磨一剑锤炼出的深厚功底与投研体系。
+碳酸锂、氢氧化锂等资源品价格受供给收缩影响上涨。
 
-01 深耕领域14年 刘文良为北京大学金融学硕士，2012年7月加入南方基金，从固定收益部转债研究员、宏观研究员、信用分析师逐步成长，2016年起正式担任基金经理，至今深耕固收+领域14年，是南方基金内部培养的资深投研人才。
+钨方面，需求增长叠加供给受限提升钨价，章源钨业上调6月下半月长单采购报价。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 23:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 00:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 23:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 23:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 00:07 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 23:48 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 23:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 23:50 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 00:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 23:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 23:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 00:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 00:03 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 23:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 23:54 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 00:09 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 23:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 00:14 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:56 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 00:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/001310793.shtml)
-- 2026-06-29 23:45 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/0793468.shtml)
-- 2026-06-29 23:49 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/4639092096.shtml)
-- 2026-06-29 23:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/4383188.shtml)
-- 2026-06-29 23:44 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/141860256994.shtml)
-- 2026-06-29 23:57 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/58676535.shtml)
-- 2026-06-29 23:47 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/980413.shtml)
-- 2026-06-29 23:45 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/7260121343.shtml)
-- 2026-06-30 00:11 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/4157899257.shtml)
-- 2026-06-29 23:54 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0107966.shtml)
-- 2026-06-29 23:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/207409.shtml)
-- 2026-06-29 23:44 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/266836386628.shtml)
-- 2026-06-29 23:53 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/4829779.shtml)
-- 2026-06-29 23:58 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/7005601278.shtml)
-- 2026-06-30 00:09 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/726222570.shtml)
+- 2026-06-30 00:17 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/401429391621.shtml)
+- 2026-06-30 00:16 - [起风了](https://www.share.minike.top/Article/details/20278684414.shtml)
+- 2026-06-30 00:00 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/97049.shtml)
+- 2026-06-29 23:57 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/4510978.shtml)
+- 2026-06-30 00:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/752698942.shtml)
+- 2026-06-30 00:00 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/9006372435.shtml)
+- 2026-06-29 23:49 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/35251305889.shtml)
+- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/55947954.shtml)
+- 2026-06-29 23:54 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/45448.shtml)
+- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/6417537.shtml)
+- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/86813.shtml)
+- 2026-06-30 00:03 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/420005163205.shtml)
+- 2026-06-29 23:57 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/13920.shtml)
+- 2026-06-30 00:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/4719141444.shtml)
+- 2026-06-30 00:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/87656594873.shtml)

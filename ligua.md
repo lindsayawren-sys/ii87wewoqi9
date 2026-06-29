@@ -1,56 +1,57 @@
-# 房企年报：亏损的还在裸泳，盈利的换了泳姿
+# 陈旭：充分挖掘亚太产业互补优势，积极维护区域产业链供应链稳定畅通
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-地产行业的上一个时代，规模就是通行证。排行榜上前进一位，那是真金白银砸出来的。金融机构看排名给额度，额度决定来年的弹药，弹药又决定下一年的座次——一个完美的循环。没人觉得这个游戏会停，直到它真的停了。2025年的年报季，像是潮水退去后的一次点名。有人迟到了，有人缺席了，有人穿着救生衣浮在水面上，还有人不知道什么时候已经爬上了岸。万科交出的成绩单，归母净利润-885.6亿元，比上
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 2026年APEC高官会主席，中国公共外交协会会长陈旭在演讲中表示，亚太工商界是推动区域经济合作，深化经贸合作的主力军。今年以来，作为工商界参与APEC合作的主渠道，APEC工商咨询理事会已经成功举办过两次会议，有力的凝聚了各
 
 ## 正文
 
-地产行业的上一个时代，规模就是通行证。
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-排行榜上前进一位，那是真金白银砸出来的。
+2026年APEC高官会主席，中国公共外交协会会长陈旭在演讲中表示，亚太工商界是推动区域经济合作，深化经贸合作的主力军。
 
-金融机构看排名给额度，额度决定来年的弹药，弹药又决定下一年的座次——一个完美的循环。
+今年以来，作为工商界参与APEC合作的主渠道，APEC工商咨询理事会已经成功举办过两次会议，有力的凝聚了各方的共识，发出了支持亚太开放发展，支持区域经济一体化和亚太自贸区建设，支持互联互通和创新发展的强有力的呼声。
 
-没人觉得这个游戏会停，直到它真的停了。
+针对当前世界不稳定性因素增多的复杂形势，陈旭表示，中方将以承办2026年APEC系列会议为重要契机，携手亚太工商界凝心聚力、务实笃行，共同守护区域繁荣发展大局，为亚太经济稳定复苏贡献智慧与力量。
 
-2025年的年报季，像是潮水退去后的一次点名。
+陈旭提出四点合作方向：一是旗帜鲜明的支持自由贸易和开放型经济。
 
-有人迟到了，有人缺席了，有人穿着救生衣浮在水面上，还有人不知道什么时候已经爬上了岸。
+维护以世界贸易组织为核心的多边贸易体制，坚定支持亚太自贸区建设，积极促进区域经济的联动发展。
 
-万科交出的成绩单，归母净利润-885.6亿元，比上一年又多亏了一大截。
+二是要充分挖掘亚太产业的互补优势。
 
-保利发展守住了盈利的底线，但归母净利润缩水到只剩10.26亿元。
+要积极维护区域产业链、供应链稳定畅通，抵制将产业链、供应链政治化、工具化的做法，持续增强区域产业体系的韧性。
 
 ## 相关推荐
 
-- 2026-06-29 23:57 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 23:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 23:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 00:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 00:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 00:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 23:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 00:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 23:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 00:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 00:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 00:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 23:57 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 00:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 00:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 00:14 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 00:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 00:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 00:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 23:55 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 23:58 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/9340485494.shtml)
-- 2026-06-30 00:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/543402.shtml)
-- 2026-06-29 23:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/6737421094.shtml)
-- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/6742878.shtml)
-- 2026-06-29 23:55 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/11283683.shtml)
-- 2026-06-29 23:50 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/8287391595.shtml)
-- 2026-06-29 23:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/29129998.shtml)
-- 2026-06-30 00:03 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/93901532054.shtml)
-- 2026-06-29 23:42 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/902063152518.shtml)
-- 2026-06-30 00:05 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/84995765.shtml)
-- 2026-06-30 00:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/7355701448.shtml)
-- 2026-06-29 23:49 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/55195.shtml)
-- 2026-06-30 00:04 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/5772932.shtml)
-- 2026-06-30 00:11 - [速度与激情9](https://www.blog.minike.top/Article/details/294090730803.shtml)
-- 2026-06-30 00:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/59734.shtml)
+- 2026-06-29 23:58 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/51410.shtml)
+- 2026-06-30 00:03 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/3047891.shtml)
+- 2026-06-30 00:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/86041377.shtml)
+- 2026-06-30 00:08 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/972661127679.shtml)
+- 2026-06-29 23:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/3370696.shtml)
+- 2026-06-30 00:05 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/3629318.shtml)
+- 2026-06-30 00:12 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/383732625327.shtml)
+- 2026-06-29 23:57 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/27595732085.shtml)
+- 2026-06-30 00:14 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/85854608981.shtml)
+- 2026-06-30 00:11 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/21230039229.shtml)
+- 2026-06-30 00:03 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/54494.shtml)
+- 2026-06-29 23:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/66940.shtml)
+- 2026-06-29 23:49 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/96428523498.shtml)
+- 2026-06-29 23:56 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/07837270.shtml)
+- 2026-06-30 00:01 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/4750151207.shtml)

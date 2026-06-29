@@ -1,58 +1,60 @@
-# 花海美景成为富民效益 “花卉+旅游+文化”让乡村振兴“开”出新活力
+# 端午假期三天中国跨区域人员流动量预计超6.5亿人次
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-央视网消息：在安徽芜湖市南陵县，那里的凤丹花海已进入最佳观赏期。洁白素雅、轻盈飘逸的凤丹花缀满山野，让春天多了一抹清新淡雅的韵味。 在安徽芜湖市南陵县何湾镇，5000多亩凤丹花进入最佳观赏期。花瓣层层舒展，花心晕染淡紫，春风拂过，花浪翻滚，尽显春日灵动之美。 凤丹是牡丹的一个品种，兼具观赏与药用价值。相较于普通牡丹，凤丹花期更早，植株挺拔俊秀，单瓣花型清丽素雅。2026年，气温
+中新社北京6月21日电 (记者 刘文文)记者21日从中国交通运输部获悉，端午假期三天(2026年6月19日至21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。 其中：铁路客运总量4945.1万人次，日均1648.4万人次，同比增长2.97%。公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)594
 
 ## 正文
 
-央视网消息：在安徽芜湖市南陵县，那里的凤丹花海已进入最佳观赏期。
+中新社北京6月21日电 (记者 刘文文)记者21日从中国交通运输部获悉，端午假期三天(2026年6月19日至21日)，预计全社会跨区域人员流动总量为65278万人次，日均为21759.3万人次，同比持平。
 
-洁白素雅、轻盈飘逸的凤丹花缀满山野，让春天多了一抹清新淡雅的韵味。
+其中：铁路客运总量4945.1万人次，日均1648.4万人次，同比增长2.97%。
 
-在安徽芜湖市南陵县何湾镇，5000多亩凤丹花进入最佳观赏期。
+公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)59489万人次，日均19830万人次，同比下降0.4%。
 
-花瓣层层舒展，花心晕染淡紫，春风拂过，花浪翻滚，尽显春日灵动之美。
+水路客运总量276.3万人次，日均92.1万人次，同比增长1.16%。
 
-凤丹是牡丹的一个品种，兼具观赏与药用价值。
+民航客运总量567.6万人次，日均189.2万人次，同比增长0.6%。
 
-相较于普通牡丹，凤丹花期更早，植株挺拔俊秀，单瓣花型清丽素雅。
+6月21日(端午假期第三天)，全社会跨区域人员流动量预计为22018万人次，环比增长9.4%，同比增长1.1%。
 
-2026年，气温平稳回升，凤丹开花较早，花势繁茂，预计花期可延续至4月中下旬。
+其中：铁路客运量1794万人次，环比增长47.7%，同比下降0.4%。
 
-近年来，当地依托特色花卉资源，探索“农旅融合”发展路径，打造花间民宿、非遗展销、手工体验等多元化新业态，解锁农文旅融合新玩法，让花海美景真正转化为富民效益。
+公路人员流动量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)19929万人次，环比增长6.9%，同比增长1.1%。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 00:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 23:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:46 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 23:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 23:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 00:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 23:44 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 00:00 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 23:50 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 23:44 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 23:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 23:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 00:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 00:09 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 00:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:14 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 00:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 00:01 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 00:04 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 00:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 00:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 00:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 00:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 00:08 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/550240763234.shtml)
-- 2026-06-30 00:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/5302181.shtml)
-- 2026-06-30 00:05 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/22163.shtml)
-- 2026-06-29 23:44 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/96114809.shtml)
-- 2026-06-30 00:09 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/7866829.shtml)
-- 2026-06-30 00:09 - [绘画区你赢了](https://www.share.minike.top/Article/details/21223250198.shtml)
-- 2026-06-30 00:07 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/8580603764.shtml)
-- 2026-06-30 00:04 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/97912.shtml)
-- 2026-06-29 23:53 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/556595.shtml)
-- 2026-06-29 23:52 - [沙丘](https://www.blog.minike.top/Article/details/80837567.shtml)
-- 2026-06-29 23:42 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/90625.shtml)
-- 2026-06-30 00:00 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/969695851.shtml)
-- 2026-06-30 00:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/888834.shtml)
-- 2026-06-29 23:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/81862712.shtml)
-- 2026-06-30 00:03 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/06107745321.shtml)
+- 2026-06-29 23:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/967572049.shtml)
+- 2026-06-30 00:14 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/5227265.shtml)
+- 2026-06-29 23:55 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/51839359.shtml)
+- 2026-06-30 00:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/37178734.shtml)
+- 2026-06-29 23:54 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/5531406.shtml)
+- 2026-06-30 00:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/311775.shtml)
+- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/555940740377.shtml)
+- 2026-06-30 00:12 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/457254191.shtml)
+- 2026-06-30 00:09 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/3321156621.shtml)
+- 2026-06-30 00:03 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/173024500.shtml)
+- 2026-06-29 23:59 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/27997.shtml)
+- 2026-06-29 23:51 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/079789853.shtml)
+- 2026-06-29 23:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3597858469.shtml)
+- 2026-06-29 23:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/5139781.shtml)
+- 2026-06-29 23:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/609962394278.shtml)

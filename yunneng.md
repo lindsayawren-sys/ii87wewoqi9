@@ -1,46 +1,55 @@
-# 南京银行：衣志强董事的任职资格获核准
+# 香港黄金产业集团拟配售最多2320万股 净筹约9320万港元
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，南京银行发布公告称，近日收到《江苏金融监管局关于衣志强南京银行董事任职资格的批复》（苏金复〔2026〕79号），核准衣志强担任公司董事的任职资格。衣志强的董事任期自监管核准任职资格之日起生效，至南京银行第十届董事会任期届满之日止。 责任编辑：王馨茹
+香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。配售价为每股配售股份4.08港元。假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事
 
 ## 正文
 
-3月31日金融一线消息，南京银行发布公告称，近日收到《江苏金融监管局关于衣志强南京银行董事任职资格的批复》（苏金复〔2026〕79号），核准衣志强担任公司董事的任职资格。
+香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。
 
-衣志强的董事任期自监管核准任职资格之日起生效，至南京银行第十届董事会任期届满之日止。
+配售价为每股配售股份4.08港元。
 
-责任编辑：王馨茹
+假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事项的所得款项净额估计约为9320万港元。
+
+公司拟将配售事项的全部所得款项净额用于寻求由董事会不时评估的合适投资及╱或收购机会，例如从事贵金属采矿业务的目标公司。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 00:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 23:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 23:56 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 00:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 23:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 00:09 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 00:04 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 23:49 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 00:09 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 23:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 00:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 00:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 00:05 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 00:09 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 00:16 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 00:16 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 23:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:10 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 23:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 23:50 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 23:53 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/302549699305.shtml)
-- 2026-06-29 23:47 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/750355038806.shtml)
-- 2026-06-30 00:07 - [金刚川](http://www.share.kurohicncr.top/Article/details/90191574174.shtml)
-- 2026-06-30 00:00 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/44305420.shtml)
-- 2026-06-30 00:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/3328703727.shtml)
-- 2026-06-30 00:07 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/8127630747.shtml)
-- 2026-06-30 00:03 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/58721903095.shtml)
-- 2026-06-30 00:04 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/3980586882.shtml)
-- 2026-06-30 00:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/78864.shtml)
-- 2026-06-30 00:01 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/04340116.shtml)
-- 2026-06-30 00:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/01228.shtml)
-- 2026-06-30 00:04 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/1417227422.shtml)
-- 2026-06-30 00:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/32081231857.shtml)
-- 2026-06-29 23:42 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/04448606.shtml)
-- 2026-06-29 23:58 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/89508.shtml)
+- 2026-06-30 00:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/54616.shtml)
+- 2026-06-29 23:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/50916.shtml)
+- 2026-06-29 23:58 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/691604770.shtml)
+- 2026-06-30 00:15 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/11957161.shtml)
+- 2026-06-30 00:11 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/0739506.shtml)
+- 2026-06-30 00:14 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/8618671640.shtml)
+- 2026-06-30 00:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/87684676734.shtml)
+- 2026-06-29 23:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/0375747254.shtml)
+- 2026-06-30 00:16 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/160108800947.shtml)
+- 2026-06-29 23:50 - [东方风云榜直播](http://www.blog.minike.top/Article/details/415768.shtml)
+- 2026-06-30 00:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/355675146004.shtml)
+- 2026-06-30 00:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/5707527891.shtml)
+- 2026-06-30 00:01 - [女心理师](https://www.blog.kurohicncr.top/Article/details/8470854213.shtml)
+- 2026-06-30 00:07 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/72619622.shtml)
+- 2026-06-29 23:52 - [乔家的儿女](https://www.share.minike.top/Article/details/38333.shtml)

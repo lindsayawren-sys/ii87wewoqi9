@@ -1,46 +1,59 @@
-# GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者
+# 2026中俄跨境马拉松吸引海内外约6000名跑者参赛
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-诺和诺德的口服Wegovy正在吸引那些原本不愿接受注射治疗的新患者，而礼来正准备推出口服药参与竞争；早期需求表明该品类正在实现超越患者转换的自然增长。责任编辑：张俊 SF065
+中新网黑河6月20日电 (王琳 温浩)2026中俄跨境马拉松暨2026黑河马拉松于20日在黑龙江黑河开赛，海内外数千名跑者齐聚“中俄双子城”黑河，踏界江赛道、览两岸风光，奔赴一场跨境体育运动盛会。 本次赛事由黑龙江省体育局、黑河市人民政府、阿穆尔州体育部联合主办，依托黑河独特的中俄边境区位优势，打造中国极具特色的跨境特色马拉松赛事。赛道起终点设于瑷珲·腾冲中国人口地理分界线主题
 
 ## 正文
 
-诺和诺德的口服Wegovy正在吸引那些原本不愿接受注射治疗的新患者，而礼来正准备推出口服药参与竞争；早期需求表明该品类正在实现超越患者转换的自然增长。
+中新网黑河6月20日电 (王琳 温浩)2026中俄跨境马拉松暨2026黑河马拉松于20日在黑龙江黑河开赛，海内外数千名跑者齐聚“中俄双子城”黑河，踏界江赛道、览两岸风光，奔赴一场跨境体育运动盛会。
 
-责任编辑：张俊 SF065
+本次赛事由黑龙江省体育局、黑河市人民政府、阿穆尔州体育部联合主办，依托黑河独特的中俄边境区位优势，打造中国极具特色的跨境特色马拉松赛事。
+
+赛道起终点设于瑷珲·腾冲中国人口地理分界线主题公园，沿途串联城市核心主干道，跨越黑河—布拉戈维申斯克黑龙江公路大桥、经俄罗斯卡尼库尔干口岸区域折返。
+
+赛事全程马拉松报名人数为1815人、半程马拉松4000人，参赛选手覆盖俄罗斯及中国32个省、市、自治区。
+
+其中，俄罗斯参赛选手71人；中国黑龙江省外参赛选手占总报名人数的77.3%，赛事跨区域号召力不断扩大。
+
+李子成、朱卿、黄菲等中国顶尖跑者亮相黑河，让这场边境马拉松兼具全民参与性与专业观赏性。
+
+为契合端午佳节氛围，组委会为参赛选手定制端午赛事手环，同时为运动员、志愿者、一线执勤工作人员免费发放端午粽子。
+
+组委会将黑河全域特色美食搬上赛道补给站，北安有机豆制品、嫩江网红长蛋糕、五大连池矿泉鱼宴、逊克江鲜、孙吴烤全牛、爱辉区道地江鲜与蓝莓制品、自贸区大豆冰激凌等本土特色美食悉数亮相。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 00:10 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 23:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 23:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:45 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 23:43 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 23:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 00:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 23:47 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 00:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 00:07 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 23:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 23:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 23:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 00:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 00:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 23:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 00:13 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 23:57 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:13 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 00:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 23:57 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/6812947051.shtml)
-- 2026-06-30 00:09 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/162668651.shtml)
-- 2026-06-30 00:11 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0182363540.shtml)
-- 2026-06-30 00:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/982588.shtml)
-- 2026-06-29 23:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/41523.shtml)
-- 2026-06-29 23:44 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/433200301354.shtml)
-- 2026-06-29 23:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/138361.shtml)
-- 2026-06-29 23:44 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/5811625.shtml)
-- 2026-06-30 00:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/1596282109.shtml)
-- 2026-06-30 00:00 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/4519961377.shtml)
-- 2026-06-29 23:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/286861.shtml)
-- 2026-06-30 00:04 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/380583.shtml)
-- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/5282589.shtml)
-- 2026-06-30 00:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/388466.shtml)
-- 2026-06-29 23:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/7943421.shtml)
+- 2026-06-30 00:02 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/372353037753.shtml)
+- 2026-06-30 00:15 - [刘念回应](https://www.share.kurohicncr.top/Article/details/820076784.shtml)
+- 2026-06-30 00:04 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/09312840577.shtml)
+- 2026-06-30 00:01 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/57206890.shtml)
+- 2026-06-30 00:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/01472641.shtml)
+- 2026-06-30 00:10 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/71289.shtml)
+- 2026-06-30 00:03 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/3652423.shtml)
+- 2026-06-30 00:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/1544121.shtml)
+- 2026-06-29 23:49 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/26165332471.shtml)
+- 2026-06-29 23:50 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/05129.shtml)
+- 2026-06-30 00:09 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/09858.shtml)
+- 2026-06-29 23:53 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/74184760.shtml)
+- 2026-06-30 00:11 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/3136192.shtml)
+- 2026-06-30 00:00 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/2166861959.shtml)
+- 2026-06-29 23:53 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/7631685.shtml)

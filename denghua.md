@@ -1,57 +1,61 @@
-# 多只创新药概念股涨停，津药药业回应七连板：“炒作”系误读
+# 广西21条河流24个水文站出现超警洪水
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-4月8日开盘，津药药业股价再度触及涨停后回落，截至收盘为7.36元/股。3月27日-4月7日，津药药业股价历经7连涨，区间累计涨幅94.67%。目前津药药业无创新药在研项目，却在近日被列为创新药概念在炒作，且最近一期业绩大幅下滑，津药药业已发布5次交易风险提示非理性炒作。 被贴创新药标签，股价猛涨 3月27日开始，津药药业股价七连板，股价从3月27日的3.94元/股疯涨至4月7
+中新网南宁6月21日电(陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，6月20日8时至21日8时，受持续强降雨及上游来水影响，柳江、龙江、洛清江及西江干流等江河，出现1米至7米的涨水过程。其中，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等21条河流24个水文站出现超警0.10米至3.70米的洪水。21日8时，广西仍有柳江上游及支流龙江、古宜
 
 ## 正文
 
-4月8日开盘，津药药业股价再度触及涨停后回落，截至收盘为7.36元/股。
+中新网南宁6月21日电(陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，6月20日8时至21日8时，受持续强降雨及上游来水影响，柳江、龙江、洛清江及西江干流等江河，出现1米至7米的涨水过程。
 
-3月27日-4月7日，津药药业股价历经7连涨，区间累计涨幅94.67%。
+其中，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等21条河流24个水文站出现超警0.10米至3.70米的洪水。
 
-目前津药药业无创新药在研项目，却在近日被列为创新药概念在炒作，且最近一期业绩大幅下滑，津药药业已发布5次交易风险提示非理性炒作。
+21日8时，广西仍有柳江上游及支流龙江、古宜河，红水河部分支流等15条河流17个水文站超警0.07米至3.70米。
 
-被贴创新药标签，股价猛涨 3月27日开始，津药药业股价七连板，股价从3月27日的3.94元/股疯涨至4月7日的7.76元/股，在连续发布5个交易风险提示后，4月8日开盘依然触及涨停，股价为8.44元/股，但很快开始回落。
+柳江柳州水文站水位82.49米(警戒水位82.5米)；龙江金城江水文站水位191.70米(警戒水位188.0米)，超警3.70米；西江梧州水文站水位13.94米(警戒水位18.5米)。
 
-津药药业主营业务为甾体激素类、氨基酸类原料药及制剂的研发、生产和销售。
+柳江柳州水文站于2026年6月21日8时05分水位涨至82.50米(警戒水位82.50米)，根据《广西壮族自治区主要江河洪水编号规定》，此次洪水编号为“柳江2026年第1号洪水”。
 
-在4月4日和4月7日发布的风险提示公告中，津药药业澄清，关注到市场将公司列为创新药概念并进行炒作，但公司目前研发以仿制药为主，无在研创新药项目，相关炒作存在明显误读。
+广西壮族自治区水文中心预测，未来24小时，柳江及支流龙江、洛清江、古宜河，西江干流等江河将继续上涨1米至3米，其中龙江金城江城区河段将超警4米左右，本次洪水淹没范围、致灾情势与2025年6月21日龙江干流洪水相似，龙江宜州区三岔镇河段将超警1米左右；柳江柳州市城区河段及柳江上游都柳江三江县洋溪乡河段将超警2米左右，融江融水县城河段将超警1米左右，融江融安县城河段将出现警戒水位左右的洪水。
 
-此外，津药药业也关注到了市场对激素原料药产品价格的讨论，称目前公司甾体激素原料药价格总体保持平稳，对公司业绩无明显影响。
+河池、柳州及桂林等市部分中小河流可能出现超警洪水。
 
-截至4月7日，津药药业最新市盈率已经达到513.94倍，而其所属中上协行业分类“C27医药制造业”对应的行业滚动市盈率为29.26倍，津药药业相关指标已严重偏离行业合理估值水平，呈现出泡沫化。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 00:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 23:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 23:43 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 00:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 00:00 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 23:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 23:52 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 23:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:55 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 00:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 23:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 00:12 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 00:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 23:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 00:05 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 23:58 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 23:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:00 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 00:00 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 23:58 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 23:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 00:02 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 00:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:49 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/416117.shtml)
-- 2026-06-30 00:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/139394305.shtml)
-- 2026-06-29 23:53 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/178430.shtml)
-- 2026-06-29 23:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/010808017776.shtml)
-- 2026-06-29 23:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/0903697.shtml)
-- 2026-06-29 23:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/497875934903.shtml)
-- 2026-06-30 00:04 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/165021.shtml)
-- 2026-06-29 23:46 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/895900054.shtml)
-- 2026-06-29 23:54 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/84303.shtml)
-- 2026-06-29 23:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/20012765580.shtml)
-- 2026-06-29 23:49 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/581350363.shtml)
-- 2026-06-30 00:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/67531439752.shtml)
-- 2026-06-30 00:07 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/954674194.shtml)
-- 2026-06-29 23:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/060265091430.shtml)
-- 2026-06-30 00:07 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/39578875.shtml)
+- 2026-06-29 23:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/33164467309.shtml)
+- 2026-06-30 00:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/6681732178.shtml)
+- 2026-06-29 23:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/1200809.shtml)
+- 2026-06-29 23:59 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/077280026.shtml)
+- 2026-06-29 23:55 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/5164467.shtml)
+- 2026-06-30 00:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/4072473.shtml)
+- 2026-06-30 00:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/083474.shtml)
+- 2026-06-30 00:12 - [千香](https://www.share.minike.top/Article/details/624693985951.shtml)
+- 2026-06-30 00:02 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/942392.shtml)
+- 2026-06-29 23:54 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/56185.shtml)
+- 2026-06-30 00:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/2918985950.shtml)
+- 2026-06-29 23:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/1468092.shtml)
+- 2026-06-30 00:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/68703227826.shtml)
+- 2026-06-29 23:59 - [扬名立万](http://www.share.kurohicncr.top/Article/details/362107.shtml)
+- 2026-06-29 23:53 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/9366149192.shtml)

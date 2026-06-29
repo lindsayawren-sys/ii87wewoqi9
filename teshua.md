@@ -1,48 +1,58 @@
-# ADP：截至3月21日四周美国私营部门就业人数平均每周增加2.6万
+# 特朗普特使与伊朗外长均将前往瑞士举行会谈
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-根据ADP Research和斯坦福数字经济实验室的初步估计，截至3月21日的四周，美国私营部门就业人数平均每周增加2.6万人。 ADP此前报告称，3月份就业人数变动为增加6.2万人。 ADP与斯坦福数字经济实验室于10月28日启动了每周就业数据发布计划。责任编辑：何云
+据报道，美国特使威特科夫（Steve Witkoff）和伊朗外长阿拉格齐均将前往瑞士进行会谈。此前以色列和真主党同意在黎巴嫩停火，似乎重振了将结束伊朗战争的临时协议转化为中东持久和平协议的努力。 据报道，随着停火协议生效，威特科夫正前往瑞士，与已抵达当地的特朗普女婿库什纳会合。报道还称，阿拉格齐计划于周六启程前往瑞士。 这一进展可能表明，双方有意启动技术性谈判，以争取达成永久停
 
 ## 正文
 
-根据ADP Research和斯坦福数字经济实验室的初步估计，截至3月21日的四周，美国私营部门就业人数平均每周增加2.6万人。
+据报道，美国特使威特科夫（Steve Witkoff）和伊朗外长阿拉格齐均将前往瑞士进行会谈。
 
-ADP此前报告称，3月份就业人数变动为增加6.2万人。
+此前以色列和真主党同意在黎巴嫩停火，似乎重振了将结束伊朗战争的临时协议转化为中东持久和平协议的努力。
 
-ADP与斯坦福数字经济实验室于10月28日启动了每周就业数据发布计划。
+据报道，随着停火协议生效，威特科夫正前往瑞士，与已抵达当地的特朗普女婿库什纳会合。
 
-责任编辑：何云
+报道还称，阿拉格齐计划于周六启程前往瑞士。
+
+这一进展可能表明，双方有意启动技术性谈判，以争取达成永久停火协议。
+
+白宫未回应关于威特科夫此次行程的置评请求。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 00:00 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 00:07 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 23:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 23:57 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 00:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 00:10 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 23:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:04 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 00:04 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 00:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 00:03 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 23:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 00:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 23:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 23:59 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 00:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 23:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 00:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 00:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 00:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 00:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 23:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 00:14 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/770421109232.shtml)
-- 2026-06-30 00:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/7063813521.shtml)
-- 2026-06-30 00:00 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/92428247.shtml)
-- 2026-06-30 00:02 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/634370.shtml)
-- 2026-06-29 23:45 - [小娘惹](https://www.share.kurohicncr.top/Article/details/707230321.shtml)
-- 2026-06-29 23:45 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/021431802387.shtml)
-- 2026-06-29 23:50 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/589263.shtml)
-- 2026-06-29 23:51 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/8006112.shtml)
-- 2026-06-30 00:04 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/222390415.shtml)
-- 2026-06-30 00:01 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/00062169205.shtml)
-- 2026-06-29 23:56 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/368498.shtml)
-- 2026-06-29 23:54 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/1872551740.shtml)
-- 2026-06-29 23:58 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/57250204.shtml)
-- 2026-06-29 23:57 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/28940507.shtml)
-- 2026-06-29 23:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/382848844833.shtml)
+- 2026-06-29 23:53 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/32826467.shtml)
+- 2026-06-30 00:00 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8262613850.shtml)
+- 2026-06-30 00:06 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/2086381171.shtml)
+- 2026-06-30 00:02 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/2012698353.shtml)
+- 2026-06-29 23:48 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5625153399.shtml)
+- 2026-06-30 00:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/015066316.shtml)
+- 2026-06-30 00:04 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/250839.shtml)
+- 2026-06-30 00:12 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/072920271660.shtml)
+- 2026-06-30 00:11 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/000868.shtml)
+- 2026-06-30 00:09 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/18905914482.shtml)
+- 2026-06-30 00:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/550180226.shtml)
+- 2026-06-30 00:16 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/20964849211.shtml)
+- 2026-06-30 00:08 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/508765532.shtml)
+- 2026-06-30 00:10 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/5098294.shtml)
+- 2026-06-29 23:51 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/5217244756.shtml)

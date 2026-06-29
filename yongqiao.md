@@ -1,58 +1,58 @@
-# 特朗普认为是中国促使伊朗同意停火？中方回应
+# 演出经济点亮端午假日消费 “演艺+文旅”释放乘数效应
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？如中方参与其中，能否提供更多细节？ 毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。王毅外长同相关国家外长先后26次通话。中国政府中东问题特使赴海湾和中东地区穿梭访问。中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和
+中新网青岛6月21日电 (王禹)端午假期，全国文旅消费市场稳步升温。在民俗体验、清凉避暑等传统出游方式之外，大型演唱会、音乐节等演艺活动密集落地，成为拉动假期经济的重要增长极。 假期内，全国演出市场供给丰富多元，核心城市与下沉市场同步发力。北京全市安排营业性演出超1100场；山东枣庄台儿庄音乐节拉动当地民宿预订量同比上涨2.8倍；青岛则凭借两场大型演唱会的集中上演，不仅跻身多家
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+中新网青岛6月21日电 (王禹)端午假期，全国文旅消费市场稳步升温。
 
-有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？
+在民俗体验、清凉避暑等传统出游方式之外，大型演唱会、音乐节等演艺活动密集落地，成为拉动假期经济的重要增长极。
 
-如中方参与其中，能否提供更多细节？
+假期内，全国演出市场供给丰富多元，核心城市与下沉市场同步发力。
 
-毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。
+北京全市安排营业性演出超1100场；山东枣庄台儿庄音乐节拉动当地民宿预订量同比上涨2.8倍；青岛则凭借两场大型演唱会的集中上演，不仅跻身多家旅游平台发布的全国端午出游热门目的地前十榜单，更以“演艺+文旅”的深度融合模式，为城市假期经济注入新活力。
 
-王毅外长同相关国家外长先后26次通话。
+旅游平台携程发布的数据显示，今年端午出游热门目的地前十榜单中，青岛出游人次及消费金额同比增幅均位列前十城市首位。
 
-中国政府中东问题特使赴海湾和中东地区穿梭访问。
+除海滨避暑的属性外，演唱会、脱口秀等演艺活动带来的演出流量成为青岛文旅数据攀升的核心推力之一。
 
-中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和平稳定的五点倡议。
+20日，张韶涵演唱会与CAISSA“一声有你”演唱会同日在青岛开唱，两场演出共吸引近7万名观众，其中跨城观众占比可观，带动了住宿、交通、餐饮等关联消费增长；《一起笑嘛！
 
-作为负责任大国，中国将继续发挥建设性作用，为恢复海湾和中东地区和平安全作出贡献。
+》喜剧巡演在青岛大剧院上演，近1600名观众现场观演。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 23:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 23:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 23:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 23:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 23:42 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 00:09 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 23:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 00:06 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 00:00 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 00:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 23:54 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 23:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 23:51 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 23:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 23:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 23:50 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 23:58 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:12 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 00:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 00:03 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:05 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/08317.shtml)
-- 2026-06-29 23:43 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/66485291102.shtml)
-- 2026-06-29 23:48 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/35051.shtml)
-- 2026-06-29 23:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/750128413447.shtml)
-- 2026-06-29 23:45 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5737187468.shtml)
-- 2026-06-29 23:51 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/7969046794.shtml)
-- 2026-06-29 23:49 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/28354022.shtml)
-- 2026-06-29 23:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/83205344.shtml)
-- 2026-06-30 00:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/6616336.shtml)
-- 2026-06-29 23:52 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/68502.shtml)
-- 2026-06-29 23:59 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/36966.shtml)
-- 2026-06-30 00:07 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/85975.shtml)
-- 2026-06-29 23:42 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/655325.shtml)
-- 2026-06-29 23:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/2515322.shtml)
-- 2026-06-29 23:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/74359315.shtml)
+- 2026-06-30 00:08 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/600901749.shtml)
+- 2026-06-30 00:11 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/5207790.shtml)
+- 2026-06-30 00:02 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/5878930474.shtml)
+- 2026-06-30 00:06 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/470835287604.shtml)
+- 2026-06-29 23:59 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/1203332.shtml)
+- 2026-06-29 23:54 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/6344629.shtml)
+- 2026-06-30 00:09 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/130215.shtml)
+- 2026-06-29 23:57 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/898555729.shtml)
+- 2026-06-29 23:59 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/44057.shtml)
+- 2026-06-30 00:17 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/669886895.shtml)
+- 2026-06-30 00:07 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/217669561.shtml)
+- 2026-06-29 23:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/515919201782.shtml)
+- 2026-06-29 23:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/7377636.shtml)
+- 2026-06-30 00:06 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/70351858011.shtml)
+- 2026-06-30 00:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/02744.shtml)

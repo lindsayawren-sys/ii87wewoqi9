@@ -1,57 +1,59 @@
-# 化工行业迎来更新机遇，当前化工板块如何布局？
+# 梅西家族发表声明，抨击侵犯隐私行为
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。市场上
+中新网6月20日电 据“今日美国”18日报道，阿根廷球员梅西的家人近日发表声明，称梅西父亲豪尔赫正面临健康问题，但同时抨击了有关豪尔赫健康状况的不实报道，并要求外界尊重他们的隐私。 声明开头写道：“梅西家族告知，豪尔赫正面临健康状况方面的问题。目前，他正在接受医疗护理，恢复情况良好，病情正在向好的方向发展。” 声明表示，“关于流传的各种说法、谣言和猜测，梅西家族对某些人处理这一
 
 ## 正文
 
-近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。
+中新网6月20日电 据“今日美国”18日报道，阿根廷球员梅西的家人近日发表声明，称梅西父亲豪尔赫正面临健康问题，但同时抨击了有关豪尔赫健康状况的不实报道，并要求外界尊重他们的隐私。
 
-化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。
+声明开头写道：“梅西家族告知，豪尔赫正面临健康状况方面的问题。
 
-市场上主流的化工行业指数有两只：中证石化产业指数与中证细分化工产业主题指数。
+目前，他正在接受医疗护理，恢复情况良好，病情正在向好的方向发展。
 
-它们同属化工行业指数，有什么区别？
+” 声明表示，“关于流传的各种说法、谣言和猜测，梅西家族对某些人处理这一严格属于私人和家庭事务时缺乏敏感性、尊重和谨慎的态度深表不满。
 
-中证石化产业指数目前有39只成份股，中证细分化工产业主题指数有50只成份股，两只指数的成份股重合度约80%。
+” 声明继续写道：“梅西家族希望澄清，只有其最亲近的家人才能获得关于豪尔赫状况的真实、准确信息。
 
-不过，中证石化产业指数的化工纯度更高，石油石化和基础化工行业占比93%，比细分化工产业主题指数高出11个百分点，而且其特有成份股包含中国石化、中国海油、中国石油这“三桶油”，因而对油价上涨更为敏感，加之传统高耗能化工含量更高，更能受益于行业供给端的改善，且随着老旧装置改造持续推进，化工行业供给格局有望进一步优化。
+因此，任何非来自梅西家族及其相应渠道的版本、引述或信息都不应被视为有效或准确。
 
-中证细分化工产业主题指数成份股中，主要多了天赐材料、龙佰集团等电池化学品公司，因而与电池材料细分赛道的景气度相关性高一些。
+在此刻，我们请求大家保持责任感、谨慎和人道主义精神。
 
-从历史表现来看，中证石化产业指数在产业周期确认反转、进入景气度右侧上行、产品价格上涨利润兑现阶段，凭借龙头公司的定价权和规模效应，往往展现出更强的行情持续性和超额收益。
+”报道称，阿根廷电视主持人佩尼亚当地时间18日上午在当地一档电视节目中称“梅西的父亲已经去世”。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 23:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 23:42 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 00:04 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 00:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 00:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 23:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:10 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 00:08 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:02 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 00:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 00:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 00:08 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 00:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 00:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 23:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 00:09 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 00:00 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 00:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 00:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 00:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/28222310544.shtml)
-- 2026-06-30 00:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/36419.shtml)
-- 2026-06-29 23:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/98523.shtml)
-- 2026-06-30 00:00 - [斗破苍穹](http://www.blog.minike.top/Article/details/4023858341.shtml)
-- 2026-06-29 23:49 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/871837.shtml)
-- 2026-06-30 00:03 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/293658056470.shtml)
-- 2026-06-30 00:02 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/6799952565.shtml)
-- 2026-06-29 23:44 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/446904.shtml)
-- 2026-06-30 00:01 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/1362782140.shtml)
-- 2026-06-29 23:49 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/640827831.shtml)
-- 2026-06-30 00:11 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/42148.shtml)
-- 2026-06-29 23:42 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/863591.shtml)
-- 2026-06-30 00:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/97491997.shtml)
-- 2026-06-29 23:44 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/270026.shtml)
-- 2026-06-30 00:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/98956311.shtml)
+- 2026-06-29 23:49 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/3516839530.shtml)
+- 2026-06-30 00:09 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/70527.shtml)
+- 2026-06-29 23:53 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/42631962.shtml)
+- 2026-06-30 00:11 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/828871633.shtml)
+- 2026-06-29 23:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/21640.shtml)
+- 2026-06-30 00:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/60637.shtml)
+- 2026-06-29 23:53 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/493295138.shtml)
+- 2026-06-30 00:17 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/654880807414.shtml)
+- 2026-06-29 23:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/704139.shtml)
+- 2026-06-30 00:13 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/255283206.shtml)
+- 2026-06-29 23:52 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9869748.shtml)
+- 2026-06-30 00:03 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/543203428.shtml)
+- 2026-06-30 00:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/9325788991.shtml)
+- 2026-06-30 00:00 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/4701248614.shtml)
+- 2026-06-30 00:00 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/13325698.shtml)

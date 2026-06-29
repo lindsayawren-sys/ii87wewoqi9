@@ -1,57 +1,57 @@
-# 飞依诺二闯IPO：GE旧部奚水前妻、妻子、女儿同现股权版图，老股东IPO前密集套现超亿元 | 长三角资本局
+# 民调：李在明施政差评率超过好评率，上任以来首次
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一家医疗器械公司再度冲刺IPO，最先被市场盯上的，往往是业绩、估值和赛道。但飞依诺这一次，真正让人挪不开眼的，显然不止这些。 为什么是递表前一年，老股东突然密集转让股份？为什么一家以“国产高端超声”讲述成长故事的公司，身后却始终拖着一场与老东家GE未决的官司？ 更耐人寻味的是，在持股平台穿透之后，奚水的前妻、现任妻子、女儿，又一同出现在这家公司的股权版
+中新网6月22日电 据韩国《京乡新闻》报道，根据Realmeter于22日公布的民调结果，韩国总统李在明的施政好评率为46.7%，已连续五周下降，这是他上任以来首次出现差评率超过好评率的情况。 这项于15日至19日进行的民调，调查对象为全国2517名成年人。结果显示，李在明的好评率为46.7%，较前一周下降4.8%，差评率较前一周上升5.5%，达到49.7%。尽管在误差范围内，
 
 ## 正文
 
-文|新浪财经上海站 十里 一家医疗器械公司再度冲刺IPO，最先被市场盯上的，往往是业绩、估值和赛道。
+中新网6月22日电 据韩国《京乡新闻》报道，根据Realmeter于22日公布的民调结果，韩国总统李在明的施政好评率为46.7%，已连续五周下降，这是他上任以来首次出现差评率超过好评率的情况。
 
-但飞依诺这一次，真正让人挪不开眼的，显然不止这些。
+这项于15日至19日进行的民调，调查对象为全国2517名成年人。
 
-为什么是递表前一年，老股东突然密集转让股份？
+结果显示，李在明的好评率为46.7%，较前一周下降4.8%，差评率较前一周上升5.5%，达到49.7%。
 
-为什么一家以“国产高端超声”讲述成长故事的公司，身后却始终拖着一场与老东家GE未决的官司？
+尽管在误差范围内，但这标志着自李在明上任以来，差评率首次超过好评率。
 
-更耐人寻味的是，在持股平台穿透之后，奚水的前妻、现任妻子、女儿，又一同出现在这家公司的股权版图里。
+Realmeter指出：“选举舞弊丑闻和执政党内部权力斗争引发的问责呼声日益高涨，对整体政治格局产生了负面影响。
 
-走到资本市场门口，飞依诺面对的，显然不只是一个“成长性”问题。
+尽管有欧洲访问的成功以及韩国综合股价指数(KOSPI)突破9000点大关等积极因素，但随着对资产市场两极分化的担忧加剧，支持率下降的趋势似乎仍在持续，导致以温和派和首尔都市圈为中心的选民支持率下降。
 
-时隔近三年，飞依诺再次向资本市场发起冲击。
-
-2026年3月30日，飞依诺的IPO申请获深交所创业板受理，保荐机构为华泰联合证券。
+”
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 00:01 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 00:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 23:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 00:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 23:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 23:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 23:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 23:46 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 00:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 23:59 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 00:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 23:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 00:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 00:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 00:06 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 00:00 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 23:54 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 23:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 23:59 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 00:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/464467551174.shtml)
-- 2026-06-29 23:45 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/27503115583.shtml)
-- 2026-06-29 23:52 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/119311.shtml)
-- 2026-06-29 23:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/5725213798.shtml)
-- 2026-06-29 23:56 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/67466365.shtml)
-- 2026-06-29 23:58 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/25333181.shtml)
-- 2026-06-29 23:59 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/273711920.shtml)
-- 2026-06-30 00:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/633968112353.shtml)
-- 2026-06-29 23:46 - [沙丘](http://www.share.kurohicncr.top/Article/details/8224197.shtml)
-- 2026-06-29 23:47 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/764176060342.shtml)
-- 2026-06-29 23:54 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/110412603871.shtml)
-- 2026-06-30 00:04 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/814197457.shtml)
-- 2026-06-29 23:49 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/47879.shtml)
-- 2026-06-30 00:09 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/885136949.shtml)
-- 2026-06-29 23:43 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/5970079842.shtml)
+- 2026-06-30 00:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/7195146.shtml)
+- 2026-06-30 00:07 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/8345096644.shtml)
+- 2026-06-29 23:49 - [东方风云榜直播](https://www.blog.minike.top/Article/details/7219318.shtml)
+- 2026-06-29 23:55 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/02981307308.shtml)
+- 2026-06-30 00:04 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/0962940.shtml)
+- 2026-06-30 00:01 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/724695.shtml)
+- 2026-06-30 00:06 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/872261647624.shtml)
+- 2026-06-29 23:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/499035002.shtml)
+- 2026-06-30 00:00 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/45596070462.shtml)
+- 2026-06-29 23:49 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/87991272414.shtml)
+- 2026-06-29 23:53 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/205620508.shtml)
+- 2026-06-30 00:12 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/063606852.shtml)
+- 2026-06-29 23:56 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/385234360079.shtml)
+- 2026-06-30 00:14 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/04544534666.shtml)
+- 2026-06-29 23:54 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/124599935.shtml)

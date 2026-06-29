@@ -1,60 +1,58 @@
-# 马来西亚总理：能源供应至少6月前有保障
+# 以色列再次发动袭击！巴基斯坦突发连环爆炸！伊朗：正在做两手准备！原油怎么走
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新社吉隆坡4月7日电 据马新社7日报道，马来西亚总理安瓦尔7日表示，受全球能源危机影响，马来西亚能源供应预计至少在今年6月前保持充足。 安瓦尔表示，目前对5月和6月的预测显示，市场可能会出现一些价格波动，但就未来几个月而言，仍有把握保证供应。当前全球能源局势的不确定性导致的价格波动难以避免。 安瓦尔强调，尽管马来西亚是能源生产国，但同时也是净进口国。能源供应的稳定，得益于马来
+期货日报 大家好，来看一下最新消息。 以色列再次袭击黎巴嫩南部奈拜提耶 据新华社援引黎巴嫩真主党旗下灯塔电视台20日报道，以色列炮击并空袭了黎巴嫩南部奈拜提耶地区哈布什镇，并对附近一个城镇发动空袭。 以色列空袭黎南部致至少5人死亡 据新华社援引黎巴嫩国家通讯社20日报道，以色列当天凌晨开始对黎南部奈拜提耶地区发动多轮空袭，已造成至少5人死亡。 伊朗称不信任美国 正在做两手准备
 
 ## 正文
 
-中新社吉隆坡4月7日电 据马新社7日报道，马来西亚总理安瓦尔7日表示，受全球能源危机影响，马来西亚能源供应预计至少在今年6月前保持充足。
+期货日报 大家好，来看一下最新消息。
 
-安瓦尔表示，目前对5月和6月的预测显示，市场可能会出现一些价格波动，但就未来几个月而言，仍有把握保证供应。
+以色列再次袭击黎巴嫩南部奈拜提耶 据新华社援引黎巴嫩真主党旗下灯塔电视台20日报道，以色列炮击并空袭了黎巴嫩南部奈拜提耶地区哈布什镇，并对附近一个城镇发动空袭。
 
-当前全球能源局势的不确定性导致的价格波动难以避免。
+以色列空袭黎南部致至少5人死亡 据新华社援引黎巴嫩国家通讯社20日报道，以色列当天凌晨开始对黎南部奈拜提耶地区发动多轮空袭，已造成至少5人死亡。
 
-安瓦尔强调，尽管马来西亚是能源生产国，但同时也是净进口国。
+伊朗称不信任美国 正在做两手准备 据央视报道，伊朗议会国家安全和外交政策委员会发言人易卜拉欣·雷扎伊日前表示，黎巴嫩停火问题是伊朗的红线，伊朗不会在相关问题上退让。
 
-能源供应的稳定，得益于马来西亚国家石油公司(Petronas)的全球布局及与主要产油国的长期合作，使其在地缘紧张局势下未出现供应短缺。
+关于伊美关系，雷扎伊表示，伊朗不信任美国，不会与其实现关系正常化。
 
-据安瓦尔介绍，马来西亚拥有庞大的液化天然气产能，加上从澳大利亚进口以及国家石油公司在加拿大项目的成功运营，保障了国家能源安全。
+雷扎伊强调，目前伊美处于敌对状态，伊朗正在为可能的另一场战争做准备，“我们不相信美国人说的话，而是基于自己的考量行事”，并表示伊朗也在采用谈判和外交的选项，将继续与美国进行谈判。
 
-此外，马来西亚正积极拓展与土耳其在液化天然气、半导体方面的合作。
+巴基斯坦开伯尔-普什图省发生连环爆炸 至少造成7人死亡 据央视报道，根据巴基斯坦警方通报，当地时间20日，巴基斯坦开伯尔-普什图省发生连环爆炸，造成至少7人死亡，另有人员受伤。
 
-2025年，土耳其石油产量增长 26%，天然气产量增长39%。
+当地警方称，安全部队和执法机构已经立即赶到现场收集证据，并对这些事件展开调查。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 00:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 00:11 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 00:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 00:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 23:52 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 23:47 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 23:51 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 00:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 23:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 23:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:43 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 00:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 23:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 00:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 23:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 00:07 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 23:51 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 23:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 00:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 23:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 23:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 00:01 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 23:51 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 23:53 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/8470519869.shtml)
-- 2026-06-30 00:10 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/43141327635.shtml)
-- 2026-06-30 00:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/0447228.shtml)
-- 2026-06-30 00:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/7076233.shtml)
-- 2026-06-30 00:07 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/84565161.shtml)
-- 2026-06-30 00:00 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/47184486489.shtml)
-- 2026-06-30 00:09 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/9090718.shtml)
-- 2026-06-29 23:59 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/682850647.shtml)
-- 2026-06-30 00:00 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/8291868.shtml)
-- 2026-06-29 23:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/9548800688.shtml)
-- 2026-06-30 00:10 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/344382999258.shtml)
-- 2026-06-30 00:09 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/194131703372.shtml)
-- 2026-06-29 23:46 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/63166.shtml)
-- 2026-06-29 23:46 - [一见倾心](https://www.share.minike.top/Article/details/433394.shtml)
-- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/752567717472.shtml)
+- 2026-06-29 23:49 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/49095208.shtml)
+- 2026-06-30 00:07 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/7746039.shtml)
+- 2026-06-30 00:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2261687997.shtml)
+- 2026-06-29 23:51 - [沙丘](http://www.share.kurohicncr.top/Article/details/44516.shtml)
+- 2026-06-30 00:07 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/6782065.shtml)
+- 2026-06-30 00:03 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/9314670.shtml)
+- 2026-06-29 23:54 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/453817163.shtml)
+- 2026-06-30 00:15 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/133619813097.shtml)
+- 2026-06-29 23:54 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/518812148.shtml)
+- 2026-06-29 23:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/02682749.shtml)
+- 2026-06-30 00:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/844404541414.shtml)
+- 2026-06-30 00:17 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/8130759.shtml)
+- 2026-06-29 23:57 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/122476.shtml)
+- 2026-06-30 00:09 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/245318742704.shtml)
+- 2026-06-30 00:17 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/798529.shtml)

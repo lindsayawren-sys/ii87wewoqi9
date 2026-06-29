@@ -1,59 +1,56 @@
-# 侨见海南自贸港：“政策红利是海外侨胞最坚实的‘确定性’”
+# 山西万荣：小香包里绣乡愁
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网海口4月8日电 题：侨见海南自贸港：“政策红利是海外侨胞最坚实的‘确定性’” 中新网记者 符宇群 “海南自贸港封关不是终点，而是全球琼籍乡亲深化合作的新起点。”印尼海南总商会荣誉会长符之帅近日接受中新网记者采访时表示，在当前国际环境复杂多变、全球经济不确定性上升的背景下，海南自贸港封关运作带来的政策红利，正是海外侨胞最坚实的“确定性”。 海南自贸港启动全岛封关以来，备受海
+中新网运城6月19日电 题：山西万荣：小香包里绣乡愁 作者 高雨晴 张笙云 王新武 五月初五，端午又至。在山西省万荣县南张乡太赵村的映山红刺绣坊里，虎头、葫芦、石榴等造型的香包成品摆满案板，吸引邻里乡亲前来购买。 “端午戴香包，是我们万荣多年的老习俗。一针一线缝出来的小包，藏着老辈人祈福保平安的心思，也带着过节的亲情乡情。”刺绣坊主人、万荣县手艺人薛转心告诉记者。 在万荣当地，
 
 ## 正文
 
-中新网海口4月8日电 题：侨见海南自贸港：“政策红利是海外侨胞最坚实的‘确定性’” 中新网记者 符宇群 “海南自贸港封关不是终点，而是全球琼籍乡亲深化合作的新起点。
+中新网运城6月19日电 题：山西万荣：小香包里绣乡愁 作者 高雨晴 张笙云 王新武 五月初五，端午又至。
 
-”印尼海南总商会荣誉会长符之帅近日接受中新网记者采访时表示，在当前国际环境复杂多变、全球经济不确定性上升的背景下，海南自贸港封关运作带来的政策红利，正是海外侨胞最坚实的“确定性”。
+在山西省万荣县南张乡太赵村的映山红刺绣坊里，虎头、葫芦、石榴等造型的香包成品摆满案板，吸引邻里乡亲前来购买。
 
-海南自贸港启动全岛封关以来，备受海外琼籍乡亲关注。
+“端午戴香包，是我们万荣多年的老习俗。
 
-今年清明时节，符之帅专程返乡参加海南文昌南洋文化节，借此深入了解海南自贸港政策动向，对接封关运作新机遇，推动印尼与家乡深化产业合作。
+一针一线缝出来的小包，藏着老辈人祈福保平安的心思，也带着过节的亲情乡情。
 
-作为土生土长的文昌人，符之帅对家乡怀有深厚乡情。
+”刺绣坊主人、万荣县手艺人薛转心告诉记者。
 
-这是他首次返乡参加南洋文化节，亲切感扑面而来。
+在万荣当地，端午习俗丰富而古朴。
 
-“最直观的感受就是环境更好了、国际航班更多了，整座岛屿处处焕发蓬勃生机。
+家家户户门楣悬艾以驱虫避疫，用黍米和红枣蒸制晋糕用于祭祖祈福，还会捏制形态各异的老虎馍互赠祈福，给孩童额间点朱砂、手腕系五色绳、用凤仙花染指甲等老讲究也沿袭至今。
 
-”他感慨道，印尼海南总商会愿当好连接海外侨胞与家乡的桥梁，携手各方抢抓封关机遇，共绘海南自贸港高质量发展新蓝图。
+这些习俗连同佩戴香包的传统，共同构成当地人的端午记忆。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 23:46 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 23:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 23:44 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 00:02 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 23:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 23:54 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 23:54 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 00:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 00:05 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 00:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 23:43 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 00:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 23:56 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 00:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 23:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 23:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 23:52 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 00:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 23:51 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 23:53 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 23:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 23:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/41068160.shtml)
-- 2026-06-30 00:08 - [TOP Prada](http://www.blog.minike.top/Article/details/61645.shtml)
-- 2026-06-29 23:44 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/977332812.shtml)
-- 2026-06-30 00:10 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/35953.shtml)
-- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/32021406993.shtml)
-- 2026-06-29 23:44 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/7035775.shtml)
-- 2026-06-29 23:54 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2726781.shtml)
-- 2026-06-29 23:50 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/2367844.shtml)
-- 2026-06-29 23:42 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/590161.shtml)
-- 2026-06-29 23:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/21148244496.shtml)
-- 2026-06-30 00:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/82879065044.shtml)
-- 2026-06-29 23:48 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/44576617028.shtml)
-- 2026-06-29 23:57 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/125786562153.shtml)
-- 2026-06-29 23:52 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/216757.shtml)
-- 2026-06-30 00:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/57545770.shtml)
+- 2026-06-30 00:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/613620015859.shtml)
+- 2026-06-30 00:02 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/97412529.shtml)
+- 2026-06-29 23:58 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/52041.shtml)
+- 2026-06-30 00:16 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/53694.shtml)
+- 2026-06-30 00:00 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/79169892.shtml)
+- 2026-06-30 00:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/426269733.shtml)
+- 2026-06-29 23:59 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/203053440588.shtml)
+- 2026-06-30 00:17 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/902074.shtml)
+- 2026-06-30 00:03 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6933477405.shtml)
+- 2026-06-29 23:54 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/03092268.shtml)
+- 2026-06-30 00:01 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/064437678726.shtml)
+- 2026-06-29 23:57 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/91308.shtml)
+- 2026-06-29 23:57 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/33656102.shtml)
+- 2026-06-30 00:02 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/6993921.shtml)
+- 2026-06-30 00:01 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/45180649835.shtml)

@@ -1,56 +1,58 @@
-# 银行科技战略升维：从“支撑工具”到“生死存亡之战”
+# （寻味中华丨节令）食面尝新祈丰岁 日长之至盛夏始
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-从15家上市国有行及股份行2025年年报来看，一个最直观的变化是金融科技的战略“语态”发生了根本性跃迁。过去，科技常被描述为“支撑业务发展”“提升运营效率”的赋能者；而今，它已站上C位，被定位为驱动银行未来竞争格局的核心引擎。 兴业银行在财报中用了一个极具冲击力的表述：“将数智化转型作为生死存亡之战”。这或许在一定程度上反映出，在当前息差收窄、传统增长模式见顶的背景下，科技驱动
+中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。 夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。 夏至，农人更加忙碌：华北忙着晒冬小
 
 ## 正文
 
-从15家上市国有行及股份行2025年年报来看，一个最直观的变化是金融科技的战略“语态”发生了根本性跃迁。
+中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。
 
-过去，科技常被描述为“支撑业务发展”“提升运营效率”的赋能者；而今，它已站上C位，被定位为驱动银行未来竞争格局的核心引擎。
+”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。
 
-兴业银行在财报中用了一个极具冲击力的表述：“将数智化转型作为生死存亡之战”。
+太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。
 
-这或许在一定程度上反映出，在当前息差收窄、传统增长模式见顶的背景下，科技驱动的数智化正被赋予拯救利润、重塑模式的战略使命。
+夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。
 
-除兴业银行之外，多家银行也将科技相关表述持续升维。
+夏至，农人更加忙碌：华北忙着晒冬小麦，东北夏播接近尾声，高原牧区迎来畜牧旺季。
 
-如招商银行行长王良在致辞中提到，践行“AI First”理念，招商银行在战略重点明确深入实施“AI+”行动，打造智能银行。
+在成都平原，岷江水滋养的万顷稻田上正除去杂草；川北丘陵，冬小麦刚收镰，玉米、红薯的夏管接踵而至。
 
-平安银行行长冀光恒表示，把握科技革命时代机遇，深化科技战略，强化数字底座，深化数字化转型和科技赋能，将科技打造成为驱动银行发展的核心竞争力。
+成都市蒲江县农技员王建华说，“夏至不锄根边草，如同养下毒蛇咬”这句农谚，至今是庄稼人的铁律。
 
-中信银行在财报中提及，将全力打造“领先的数字化银行”。
+“随着社会发展，更科学的方式逐渐代替人工，但乡土记忆一直在。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 23:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 00:00 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 00:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 00:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 23:46 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 00:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 00:11 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 23:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 00:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 23:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:05 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 23:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 00:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 23:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 00:01 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 00:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 00:09 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 00:04 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/9653915631.shtml)
-- 2026-06-29 23:50 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/1126250203.shtml)
-- 2026-06-29 23:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/2617899554.shtml)
-- 2026-06-29 23:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/946367111348.shtml)
-- 2026-06-29 23:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/90578958794.shtml)
-- 2026-06-30 00:02 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/5589151574.shtml)
-- 2026-06-30 00:01 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/732921.shtml)
-- 2026-06-30 00:08 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/3635688.shtml)
-- 2026-06-29 23:56 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/05165.shtml)
-- 2026-06-29 23:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/566374114.shtml)
-- 2026-06-29 23:42 - [金刚川](http://www.share.kurohicncr.top/Article/details/7036235.shtml)
-- 2026-06-29 23:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/44032815.shtml)
-- 2026-06-29 23:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/57639293.shtml)
-- 2026-06-29 23:57 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/6004579628.shtml)
-- 2026-06-30 00:04 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/19743474215.shtml)
+- 2026-06-29 23:56 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/4163738.shtml)
+- 2026-06-30 00:00 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/992981232544.shtml)
+- 2026-06-29 23:56 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/482647491.shtml)
+- 2026-06-30 00:16 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/3059065627.shtml)
+- 2026-06-29 23:49 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/113433250285.shtml)
+- 2026-06-30 00:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/72119954.shtml)
+- 2026-06-29 23:52 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/0197843.shtml)
+- 2026-06-29 23:54 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/727534558.shtml)
+- 2026-06-30 00:12 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/449527179419.shtml)
+- 2026-06-30 00:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/5829217987.shtml)
+- 2026-06-30 00:09 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/16229123051.shtml)
+- 2026-06-30 00:16 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/26317710.shtml)
+- 2026-06-29 23:53 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/182752.shtml)
+- 2026-06-29 23:48 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/636116.shtml)
+- 2026-06-30 00:04 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/64609.shtml)

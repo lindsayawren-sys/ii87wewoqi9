@@ -1,57 +1,52 @@
-# 油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声
+# 湖北阳新：路口遇4岁走失女童，11岁小学生一路背到派出所
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-油价在涨跌之间震荡，美国总统唐纳德·特朗普对伊朗设定最后期限，要求其重新开放霍尔木兹海峡，否则将摧毁伊朗的关键基础设施。 布伦特原油在每桶110美元附近波动，WTI油价则有所走高。特朗普周一表示，与伊朗的谈判“进展顺利”，同时明确指出，如果伊朗未能在周二东部时间晚8点截止期限前达成协议，该国将面临的后果。 欧洲交易日伊始，市场走势显示投资者对冲突缓和的预期一度有所升温，原油期货
+发布时间：2026年06月19日 09:25 来源：中国新闻网 近日，湖北阳新，11岁女学生朱紫淇放学途中，在红绿灯口发现4岁走失女童，主动照看、买水，背行十余分钟送到派出所。民警联系家长后，专程到校为她颁发警察小熊和奖状，表扬其善良担当。稚心向善，榜样在身边！(来源：黄石公安 阳新公安） 责任编辑：【魏聪聪】
 
 ## 正文
 
-油价在涨跌之间震荡，美国总统唐纳德·特朗普对伊朗设定最后期限，要求其重新开放霍尔木兹海峡，否则将摧毁伊朗的关键基础设施。
+发布时间：2026年06月19日 09:25 来源：中国新闻网 近日，湖北阳新，11岁女学生朱紫淇放学途中，在红绿灯口发现4岁走失女童，主动照看、买水，背行十余分钟送到派出所。
 
-布伦特原油在每桶110美元附近波动，WTI油价则有所走高。
+民警联系家长后，专程到校为她颁发警察小熊和奖状，表扬其善良担当。
 
-特朗普周一表示，与伊朗的谈判“进展顺利”，同时明确指出，如果伊朗未能在周二东部时间晚8点截止期限前达成协议，该国将面临的后果。
+稚心向善，榜样在身边！
 
-欧洲交易日伊始，市场走势显示投资者对冲突缓和的预期一度有所升温，原油期货回吐了早盘涨幅。
-
-随后，伊朗半官方的迈赫尔通讯社报道称，该国主要石油出口码头所在地哈尔克岛传出爆炸声，油价随即飙升。
-
-该报道未说明岛上具体哪些目标遭到袭击。
-
-特朗普表示，美军可以在“明晚12点前摧毁伊朗所有桥梁”。
-
-他还威胁称，发电厂将会“燃烧、爆炸，再也无法使用”。
+(来源：黄石公安 阳新公安） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 00:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 23:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 23:58 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 00:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 23:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 00:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 00:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 00:02 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 00:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 23:54 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 23:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 00:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 00:08 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 00:07 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 00:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 23:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 00:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 23:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 00:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 00:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 23:55 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 00:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/308121035474.shtml)
-- 2026-06-29 23:42 - [一生一世](http://www.blog.minike.top/Article/details/43627.shtml)
-- 2026-06-30 00:11 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/299591.shtml)
-- 2026-06-29 23:49 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/08201110.shtml)
-- 2026-06-29 23:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/206648.shtml)
-- 2026-06-29 23:46 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/1930317.shtml)
-- 2026-06-29 23:47 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/02697996.shtml)
-- 2026-06-29 23:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/25393170.shtml)
-- 2026-06-29 23:58 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/77728301832.shtml)
-- 2026-06-29 23:50 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/967210305.shtml)
-- 2026-06-29 23:47 - [金刚川](https://www.blog.minike.top/Article/details/641967.shtml)
-- 2026-06-29 23:54 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/716147779.shtml)
-- 2026-06-30 00:08 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/45220262.shtml)
-- 2026-06-30 00:11 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/16069.shtml)
-- 2026-06-30 00:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/51368.shtml)
+- 2026-06-29 23:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/6023040.shtml)
+- 2026-06-29 23:51 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/0854322962.shtml)
+- 2026-06-29 23:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/251356890866.shtml)
+- 2026-06-30 00:04 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/20587387.shtml)
+- 2026-06-29 23:48 - [扬名立万](http://www.blog.minike.top/Article/details/680361850.shtml)
+- 2026-06-29 23:52 - [蔚来车主罚站](http://www.share.minike.top/Article/details/975312732004.shtml)
+- 2026-06-30 00:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/78462.shtml)
+- 2026-06-29 23:51 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/6781855391.shtml)
+- 2026-06-29 23:58 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/444517164993.shtml)
+- 2026-06-29 23:49 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/9376248.shtml)
+- 2026-06-29 23:51 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/68617.shtml)
+- 2026-06-29 23:58 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/43246346.shtml)
+- 2026-06-30 00:05 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/09663.shtml)
+- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/254910000.shtml)
+- 2026-06-30 00:10 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/6867878825.shtml)

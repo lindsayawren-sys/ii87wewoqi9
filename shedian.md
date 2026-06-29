@@ -1,59 +1,61 @@
-# 一年少刷3300亿，招行信用卡等待筑底
+# 特朗普发出威胁 伊朗暂停谈判
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-总资产13万亿，银行零售之王正经历阵痛。 “这几年零售业务受到的外部政策、市场变化冲击最大。”3月30日，招商银行行长王良在业绩会坦言。 压力最直观的是信用卡。 这一招行引以为傲的“王牌”业务，也在进入缩量时代。截至2025年末，其信用卡贷款余额9391亿元，微降87亿元，收入800亿元，亦下降一成左右。 尤其明显的是，其交易额连续两年少刷3000亿元以上。 变局之际，管理层新
+当地时间21日正在瑞士比尔根山进行美伊谈判的伊朗代表团突然暂停谈判，以抗议美国总统特朗普当天对伊朗发出的威胁言论。 特朗普当天在社交媒体上警告伊朗立即停止在黎巴嫩的“代理人”行动，否则美国将再次对伊朗发起打击，“而且会更猛烈”。 消息人士称美伊谈判仍处于暂停状态 据伊朗方面22日消息，一位消息人士称，伊朗与美国在瑞士进行的谈判于当地时间21日15时左右开始，在持续约一个半小时后
 
 ## 正文
 
-总资产13万亿，银行零售之王正经历阵痛。
+当地时间21日正在瑞士比尔根山进行美伊谈判的伊朗代表团突然暂停谈判，以抗议美国总统特朗普当天对伊朗发出的威胁言论。
 
-“这几年零售业务受到的外部政策、市场变化冲击最大。
+特朗普当天在社交媒体上警告伊朗立即停止在黎巴嫩的“代理人”行动，否则美国将再次对伊朗发起打击，“而且会更猛烈”。
 
-”3月30日，招商银行行长王良在业绩会坦言。
+消息人士称美伊谈判仍处于暂停状态 据伊朗方面22日消息，一位消息人士称，伊朗与美国在瑞士进行的谈判于当地时间21日15时左右开始，在持续约一个半小时后，因各代表团需要内部磋商而暂停休会30分钟。
 
-压力最直观的是信用卡。
+但由于特朗普发表了威胁性言论，伊朗代表团拒绝返回继续谈判。
 
-这一招行引以为傲的“王牌”业务，也在进入缩量时代。
+尽管如此，卡塔尔方和巴基斯坦方仍在持续进行斡旋，伊朗美国通过中间方传递信息。
 
-截至2025年末，其信用卡贷款余额9391亿元，微降87亿元，收入800亿元，亦下降一成左右。
+目前调解努力仍在继续，但尚未取得最终结果。
 
-尤其明显的是，其交易额连续两年少刷3000亿元以上。
+在谈判过程中，伊朗代表团对美方违反承诺的行为、特别是违反谅解备忘录第一条的内容，提出了明确抗议。
 
-变局之际，管理层新老交替。
+伊朗代表团还要求美国加快履行承诺，包括解冻伊朗被冻结资产以及签发伊朗石油出口的制裁豁免。
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 23:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 23:43 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 23:43 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 00:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 23:45 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 23:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:56 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 23:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 23:48 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 23:56 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 00:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 23:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 00:03 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 00:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 00:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 00:13 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 23:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 00:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 00:03 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 23:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 00:00 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 00:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 00:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 23:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 23:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 00:05 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 23:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/040106084605.shtml)
-- 2026-06-29 23:59 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/44244378321.shtml)
-- 2026-06-29 23:57 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/578874.shtml)
-- 2026-06-29 23:56 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/500215.shtml)
-- 2026-06-29 23:46 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/3583226902.shtml)
-- 2026-06-29 23:52 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/956987504257.shtml)
-- 2026-06-30 00:06 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/116815.shtml)
-- 2026-06-30 00:01 - [美股](http://www.blog.kurohicncr.top/Article/details/212621.shtml)
-- 2026-06-30 00:05 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/000947697865.shtml)
-- 2026-06-30 00:04 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/4406157.shtml)
-- 2026-06-30 00:11 - [女心理师](https://www.blog.minike.top/Article/details/669654256.shtml)
-- 2026-06-29 23:42 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/857675.shtml)
-- 2026-06-29 23:50 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/14580809.shtml)
-- 2026-06-30 00:08 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/337421.shtml)
-- 2026-06-29 23:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/12503105.shtml)
+- 2026-06-30 00:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/040373179988.shtml)
+- 2026-06-30 00:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/2792004.shtml)
+- 2026-06-29 23:49 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/17510061451.shtml)
+- 2026-06-30 00:05 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/640710458.shtml)
+- 2026-06-30 00:06 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/495550081298.shtml)
+- 2026-06-29 23:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/41407.shtml)
+- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/34465228.shtml)
+- 2026-06-30 00:16 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/5355513.shtml)
+- 2026-06-29 23:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/53514.shtml)
+- 2026-06-30 00:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/39545.shtml)
+- 2026-06-30 00:02 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/95405.shtml)
+- 2026-06-30 00:12 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/25156.shtml)
+- 2026-06-30 00:15 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/07701915771.shtml)
+- 2026-06-30 00:07 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/95530.shtml)
+- 2026-06-29 23:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/791944883189.shtml)

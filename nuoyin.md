@@ -1,58 +1,57 @@
-# 中越边境友谊关口岸一季度整车出口量同比增超两倍
+# 忘证丢物先别慌 铁路部门这些服务让你从容有方
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-【东盟专线】中越边境友谊关口岸一季度整车出口量同比增超两倍 中新社广西凭祥4月7日电 (记者 杨陈)友谊关海关7日介绍，今年一季度，该关监管出口整车超13000辆，同比增长224.4%。 地处中越边境广西凭祥市的友谊关口岸是中国通往东盟重要陆路口岸之一。记者当天在口岸看到，一辆辆中国国产重卡、自卸车整齐列队，通关后将驶向越南各地的项目施工现场、在建园区以及物流枢纽。 “现在申报
+出门在外经常有些尴尬瞬间，比如到了车站忘带身份证，又或者不小心丢了东西。别着急，这些小难题，铁路部门都替您想到了。一起来看铁路出行小技巧。 多数人可能不知道，电子临时乘车身份证明的开具，其实一点都不麻烦，12306就能秒出，打开软件找到临时身份证明，进入到“人脸核验”，它的有效期为24小时，单月可申领3次。 除了忘带证件，旅客遗失物品也很常见。万一丢了东西，该怎么办？ 深圳北站
 
 ## 正文
 
-【东盟专线】中越边境友谊关口岸一季度整车出口量同比增超两倍 中新社广西凭祥4月7日电 (记者 杨陈)友谊关海关7日介绍，今年一季度，该关监管出口整车超13000辆，同比增长224.4%。
+出门在外经常有些尴尬瞬间，比如到了车站忘带身份证，又或者不小心丢了东西。
 
-地处中越边境广西凭祥市的友谊关口岸是中国通往东盟重要陆路口岸之一。
+别着急，这些小难题，铁路部门都替您想到了。
 
-记者当天在口岸看到，一辆辆中国国产重卡、自卸车整齐列队，通关后将驶向越南各地的项目施工现场、在建园区以及物流枢纽。
+一起来看铁路出行小技巧。
 
-“现在申报出境的车辆，最快1天到2天就能办完所有手续，有时候当天申报当天就能出境。
+多数人可能不知道，电子临时乘车身份证明的开具，其实一点都不麻烦，12306就能秒出，打开软件找到临时身份证明，进入到“人脸核验”，它的有效期为24小时，单月可申领3次。
 
-”中外运广西有限公司凭祥分公司口岸交接员李健霖介绍，该公司长期代理多家中国品牌重卡出口越南业务，年经手数万台车辆。
+除了忘带证件，旅客遗失物品也很常见。
 
-李健霖称，过去整车出口通关周期长，一批车从申报到出境要一周左右。
+万一丢了东西，该怎么办？
 
-现在海关推出新政，企业线上即可完成申报、审核及放行，单日最高能放行上百台重卡出境。
+深圳北站值班站长 罗帅：如果在车站内丢失物品，及时联系客运人员，就会有人立即协助查找。
 
-当前，越南南北高速、工业园区、矿山开发、港口物流等重大项目密集开工，对重型运输车辆需求强劲。
+如果已经离开车站，可通过12306线上登记或拨打电话咨询。
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 23:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 00:07 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 23:43 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 00:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 23:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 00:06 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 00:00 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 23:44 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:07 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 00:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 00:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 00:16 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 00:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 23:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 00:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 23:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 00:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 23:50 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 23:51 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/9931564584.shtml)
-- 2026-06-29 23:47 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/975714.shtml)
-- 2026-06-29 23:51 - [起风了](http://www.share.minike.top/Article/details/166266.shtml)
-- 2026-06-29 23:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/65795634.shtml)
-- 2026-06-30 00:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/51685799.shtml)
-- 2026-06-29 23:46 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/693214225.shtml)
-- 2026-06-29 23:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/1780956.shtml)
-- 2026-06-29 23:42 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/19749.shtml)
-- 2026-06-30 00:05 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/764392522109.shtml)
-- 2026-06-30 00:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/353912487.shtml)
-- 2026-06-30 00:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/02611.shtml)
-- 2026-06-29 23:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/9056962.shtml)
-- 2026-06-30 00:04 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/031251.shtml)
-- 2026-06-29 23:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/02423.shtml)
-- 2026-06-29 23:52 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/08233046.shtml)
+- 2026-06-30 00:06 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/828180999.shtml)
+- 2026-06-30 00:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/275304483.shtml)
+- 2026-06-29 23:50 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/195033724.shtml)
+- 2026-06-29 23:53 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/56434.shtml)
+- 2026-06-30 00:01 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/45483139123.shtml)
+- 2026-06-29 23:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/098122566164.shtml)
+- 2026-06-30 00:03 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/97877353.shtml)
+- 2026-06-30 00:12 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/63288797906.shtml)
+- 2026-06-29 23:58 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/89674236.shtml)
+- 2026-06-29 23:51 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/1377543.shtml)
+- 2026-06-30 00:06 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/83991253.shtml)
+- 2026-06-29 23:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/991200548.shtml)
+- 2026-06-29 23:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/9804094880.shtml)
+- 2026-06-30 00:09 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/3045651.shtml)
+- 2026-06-29 23:55 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/197267.shtml)

@@ -1,60 +1,60 @@
-# 光伏“退税时代”正式落幕！对多晶硅市场影响几何？
+# 赏民俗技艺、探石刻艺术 北京五塔寺端午文化嘉年华举办
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 光伏“退税时代”正式落幕！ 4月1日起，光伏产品9%的增值税出口退税正式取消。业内人士认为，此次政策调整，体现了国家对新能源产业支持方式的优化与转型，将进一步助推光伏、锂电等产业迈向高质量发展新阶段。 市场人士：政策变化或给行业带来短期压力 据悉，我国光伏行业出口退税政策始于2013年10月，企业可享受高达50%的增值税退税比例。随着行业竞争力提升，出口退税政策
+中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。 本次活动由北京市文物局主办，北京石刻艺术博物馆承办。当天，多项非遗展演轮番登场、热闹纷呈。舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙
 
 ## 正文
 
-来源：期货日报 光伏“退税时代”正式落幕！
+中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。
 
-4月1日起，光伏产品9%的增值税出口退税正式取消。
+本次活动由北京市文物局主办，北京石刻艺术博物馆承办。
 
-业内人士认为，此次政策调整，体现了国家对新能源产业支持方式的优化与转型，将进一步助推光伏、锂电等产业迈向高质量发展新阶段。
+当天，多项非遗展演轮番登场、热闹纷呈。
 
-市场人士：政策变化或给行业带来短期压力 据悉，我国光伏行业出口退税政策始于2013年10月，企业可享受高达50%的增值税退税比例。
+舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙绝伦，多样民俗技艺精彩呈现，让观众近距离感受传统文化的深厚底蕴与鲜活生命力。
 
-随着行业竞争力提升，出口退税政策逐步优化。
+互动体验项目融合传统与趣味。
 
-2024年11月15日，财政部、税务总局发布公告，将部分成品油、光伏、电池、部分非金属矿物制品的出口退税率由13%下调至9%。
+博物馆内设置“射五毒”“投好运”等端午民俗小游戏，开展汉服体验、通关文牒集章打卡兑奖等活动，观众可身着汉服游园打卡，集章赢取特色礼品。
 
-有市场人士表示，出口退税取消可能给光伏行业带来短期压力。
+现场展示端午手工艺品与文创产品，兼具实用性与文化性。
 
-据业内测算，取消9%的出口退税，预计将使光伏产品成本每瓦上升0.06元至0.07元。
+活动期间还开展即兴相声、魔术、快板等快闪演出和演员巡游，打造移步换景的游园体验，让各年龄段观众都能乐在其中。
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 23:50 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 23:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 00:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 23:52 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 00:10 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 23:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 23:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 23:51 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 23:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 23:55 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 23:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 23:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 23:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 23:49 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 23:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 00:12 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 00:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 00:03 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 00:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 23:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 00:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:17 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 23:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 23:54 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 23:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/105279341.shtml)
-- 2026-06-30 00:07 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/62751537.shtml)
-- 2026-06-29 23:53 - [青春环游记第三季](http://www.blog.minike.top/Article/details/425762807295.shtml)
-- 2026-06-30 00:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/976878.shtml)
-- 2026-06-30 00:08 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/802960.shtml)
-- 2026-06-30 00:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/0554371373.shtml)
-- 2026-06-30 00:11 - [东方风云榜](https://www.share.minike.top/Article/details/84235820478.shtml)
-- 2026-06-30 00:03 - [一生一世](http://www.share.kurohicncr.top/Article/details/4059173.shtml)
-- 2026-06-30 00:06 - [请回答王牌2019](https://www.blog.minike.top/Article/details/759817652.shtml)
-- 2026-06-29 23:56 - [炽夏](https://www.share.minike.top/Article/details/20469134093.shtml)
-- 2026-06-30 00:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/297739100579.shtml)
-- 2026-06-29 23:58 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/562363079939.shtml)
-- 2026-06-29 23:46 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/38874765687.shtml)
-- 2026-06-29 23:51 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/15659727732.shtml)
-- 2026-06-29 23:57 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/2032456.shtml)
+- 2026-06-30 00:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4563898.shtml)
+- 2026-06-29 23:55 - [刘念回应](https://www.blog.minike.top/Article/details/64023658.shtml)
+- 2026-06-30 00:01 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/390800790136.shtml)
+- 2026-06-29 23:50 - [金牌调解](https://www.blog.minike.top/Article/details/7077766031.shtml)
+- 2026-06-30 00:09 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/6313853.shtml)
+- 2026-06-29 23:59 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/07018847.shtml)
+- 2026-06-29 23:49 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/134602380245.shtml)
+- 2026-06-30 00:01 - [美人鱼](http://www.blog.minike.top/Article/details/6180794.shtml)
+- 2026-06-29 23:52 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/47864680.shtml)
+- 2026-06-29 23:52 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/41127162.shtml)
+- 2026-06-29 23:52 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/1392493.shtml)
+- 2026-06-30 00:08 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/3649962.shtml)
+- 2026-06-30 00:16 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/8279289.shtml)
+- 2026-06-30 00:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/751439.shtml)
+- 2026-06-30 00:10 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/045777961.shtml)

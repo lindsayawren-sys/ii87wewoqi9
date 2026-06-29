@@ -1,57 +1,54 @@
-# 大摩：降新城发展目标价至2.88港元 评级为“增持”
+# 河南郑州宏达国际车业广场火灾致2人遇难
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。 更新新城发展的风险回报分析。该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，
+新华社郑州6月20日电(记者牛少杰)6月19日21时许，河南省郑州市金水区宏达国际车业广场发生火灾。记者从郑州市金水区相关部门获悉，截至6月20日凌晨1时，火灾导致2人遇难，2人轻伤。当前所有明火已扑灭，救援工作已经结束。目前，公安机关已对宏达国际车业广场实际控制人采取强制措施，相关善后工作已在开展，起火原因正在调查之中。 据了解，宏达国际车业广场为汽车用品专业批发市场，起火建
 
 ## 正文
 
-摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。
+新华社郑州6月20日电(记者牛少杰)6月19日21时许，河南省郑州市金水区宏达国际车业广场发生火灾。
 
-该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。
+记者从郑州市金水区相关部门获悉，截至6月20日凌晨1时，火灾导致2人遇难，2人轻伤。
 
-更新新城发展的风险回报分析。
+当前所有明火已扑灭，救援工作已经结束。
 
-该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，以反映：一）更新后的开发物业入账及完工时间表；二）物业销售疲弱；三）较佳的开发物业毛利率。
+目前，公安机关已对宏达国际车业广场实际控制人采取强制措施，相关善后工作已在开展，起火原因正在调查之中。
 
-该行表示，考虑到重资产模式下新开业商场数量减少，下调中期商场租金增长预测，由原来的7%至8%年复合增长率降至5%至6%。
-
-但因融资成本下降及流动性显著改善，将加权平均资本成本由10.4%下调至9%。
-
-责任编辑：史丽君
+据了解，宏达国际车业广场为汽车用品专业批发市场，起火建筑为混凝土框架结构，主体4层，单层建筑面积4000余平方米，楼顶有少量临时加盖建筑，起火部位位于3层西侧商铺，着火物质为橡胶材料、汽车饰品和配件等。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 23:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 23:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:43 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 23:50 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 23:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 00:10 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 00:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 00:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 23:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 23:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 00:02 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 00:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 00:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 00:14 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 00:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 23:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 00:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 00:17 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 00:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 00:11 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 00:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 00:07 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 23:55 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 23:59 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/67515886.shtml)
-- 2026-06-29 23:44 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/808266.shtml)
-- 2026-06-30 00:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/80833690.shtml)
-- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/42522677.shtml)
-- 2026-06-30 00:04 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/7465278.shtml)
-- 2026-06-29 23:42 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/6181938307.shtml)
-- 2026-06-29 23:59 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/1381937.shtml)
-- 2026-06-29 23:51 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/2786339712.shtml)
-- 2026-06-29 23:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/7108501119.shtml)
-- 2026-06-29 23:43 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/30381979049.shtml)
-- 2026-06-30 00:06 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/743003746547.shtml)
-- 2026-06-29 23:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/6600710387.shtml)
-- 2026-06-29 23:59 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/8747098.shtml)
-- 2026-06-29 23:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/53099759590.shtml)
-- 2026-06-29 23:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/836128194.shtml)
+- 2026-06-29 23:57 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/25976.shtml)
+- 2026-06-29 23:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/8027417.shtml)
+- 2026-06-30 00:07 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/1044247402.shtml)
+- 2026-06-30 00:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/2604715263.shtml)
+- 2026-06-29 23:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/75382362757.shtml)
+- 2026-06-30 00:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/13965.shtml)
+- 2026-06-30 00:03 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/306495864976.shtml)
+- 2026-06-30 00:03 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/840091085553.shtml)
+- 2026-06-30 00:15 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0538786.shtml)
+- 2026-06-30 00:14 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/10175.shtml)
+- 2026-06-30 00:02 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/19322847042.shtml)
+- 2026-06-29 23:57 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/923766.shtml)
+- 2026-06-29 23:51 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/868449942.shtml)
+- 2026-06-29 23:51 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/29989494.shtml)
+- 2026-06-29 23:57 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/5833556656.shtml)

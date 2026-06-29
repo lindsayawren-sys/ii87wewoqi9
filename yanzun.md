@@ -1,48 +1,61 @@
-# OpenAI要求加利福尼亚州和特拉华州调查马斯克
+# 1分钱外卖要凉了
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：财联社） 财联社4月7日电，OpenAI敦促加利福尼亚州和特拉华州的总检察长调查马斯克可能存在的“不当和反竞争行为”。
+监管思路转向盯住外卖平台背后的“唯低价”商业模式本身。 “0元购”“满18减18”“1分钱买外卖”……外卖平台脱离正常促销范畴的长期、大额补贴活动，将迎来监管红线。 6月17日，市场监管总局发布《外卖平台补贴行为规范十条（征求意见稿）》（以下简称“外卖十条”）。 “外卖十条”明确：外卖平台不得以长期、大额补贴扰乱市场秩序，不得强制或者变相强制平台内经营者参加平台开展的补贴活动，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+监管思路转向盯住外卖平台背后的“唯低价”商业模式本身。
 
-（来源：财联社） 财联社4月7日电，OpenAI敦促加利福尼亚州和特拉华州的总检察长调查马斯克可能存在的“不当和反竞争行为”。
+“0元购”“满18减18”“1分钱买外卖”……外卖平台脱离正常促销范畴的长期、大额补贴活动，将迎来监管红线。
+
+6月17日，市场监管总局发布《外卖平台补贴行为规范十条（征求意见稿）》（以下简称“外卖十条”）。
+
+“外卖十条”明确：外卖平台不得以长期、大额补贴扰乱市场秩序，不得强制或者变相强制平台内经营者参加平台开展的补贴活动，不得利用资本优势实施垄断、不正当竞争等行为。
+
+回顾近年来外卖行业的补贴大战，各大平台宣布投入百亿甚至上千亿元。
+
+然而，在平台“烧钱”、消费者“薅羊毛”的热闹表象下，深层隐患急剧凸显。
+
+中小餐饮商户被剥夺定价自主权，被迫卷入低效内卷竞争，利润被压榨，甚至出现倒贴钱的负收入订单；骑手则在订单洪峰与算法极限压缩下疲于奔命，交通违法成为普遍现象。
+
+疯狂的“补贴”扭曲了正常的市场价格形成机制，扰乱了正常的市场秩序。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:53 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 23:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 23:56 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 23:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 23:47 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 23:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 00:10 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 23:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 00:09 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 00:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 23:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 00:08 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 00:15 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 23:50 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 23:49 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 23:49 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 23:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 23:53 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 23:55 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 00:16 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 00:00 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 23:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 00:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 23:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 00:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/294457892.shtml)
-- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/78912.shtml)
-- 2026-06-29 23:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/062306.shtml)
-- 2026-06-30 00:04 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/99883.shtml)
-- 2026-06-29 23:57 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/320752.shtml)
-- 2026-06-30 00:11 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/79423002129.shtml)
-- 2026-06-29 23:46 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/217228.shtml)
-- 2026-06-29 23:52 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/47520929.shtml)
-- 2026-06-29 23:54 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/373658046.shtml)
-- 2026-06-29 23:47 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/99610.shtml)
-- 2026-06-29 23:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/26599360198.shtml)
-- 2026-06-29 23:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/23045.shtml)
-- 2026-06-29 23:48 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9358776351.shtml)
-- 2026-06-29 23:51 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/19165658.shtml)
-- 2026-06-30 00:01 - [流金岁月](https://www.blog.minike.top/Article/details/588166.shtml)
+- 2026-06-30 00:01 - [美股](https://www.share.kurohicncr.top/Article/details/422298902.shtml)
+- 2026-06-29 23:58 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/37448962.shtml)
+- 2026-06-30 00:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/9422597.shtml)
+- 2026-06-29 23:55 - [刘念回应](https://www.share.minike.top/Article/details/486216870571.shtml)
+- 2026-06-29 23:52 - [金刚川](http://www.blog.kurohicncr.top/Article/details/093054.shtml)
+- 2026-06-29 23:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/1556500.shtml)
+- 2026-06-29 23:51 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/9515186031.shtml)
+- 2026-06-30 00:07 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/94265107120.shtml)
+- 2026-06-30 00:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/6813117358.shtml)
+- 2026-06-29 23:58 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/8351955.shtml)
+- 2026-06-30 00:05 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/656611.shtml)
+- 2026-06-30 00:08 - [炽夏](https://www.share.kurohicncr.top/Article/details/718273.shtml)
+- 2026-06-30 00:11 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/459211246030.shtml)
+- 2026-06-29 23:57 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/8307027836.shtml)
+- 2026-06-30 00:04 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/782306308.shtml)

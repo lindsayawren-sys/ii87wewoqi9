@@ -1,56 +1,61 @@
-# 美防长罢免陆军参谋长：“辞职并立即退休”
+# 发射倒计时1天！长征七号甲即将升空
 
-> 更新时间：2026-06-30 00:12:03 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-中新网4月3日电 据美国哥伦比亚广播公司(CBS)报道，美国国防部长赫格塞思已要求美国陆军参谋长兰迪·乔治辞职并立即退休。 报道称，消息人士透露，赫格塞思希望由一位能够实现美国总统特朗普和他本人对陆军愿景的人来担任这一职务。 美国国防部发言人肖恩·帕内尔在一份声明中表示，乔治“将立即卸任陆军第41任参谋长一职。美国陆军部感谢乔治将军数十年来为国家做出的贡献。我们祝愿他退休生活一
+截至6月22日收盘，市场震荡反弹，沪深两市成交额3.74万亿，创历史第二。航天ETF(159267)低开，最终收涨0.10%，成交额1.47亿。成分股方面，博云新材、中兵红箭涨停，航发动力上涨6.61%，海特高新上涨5.40%。据文昌航天观礼中心官网消息，2026年6月23日上午，长征七号甲运载火箭将在文昌航天发射场点火升空，发射进入一天倒计时。机构认为，随着可回收火箭密集验证
 
 ## 正文
 
-中新网4月3日电 据美国哥伦比亚广播公司(CBS)报道，美国国防部长赫格塞思已要求美国陆军参谋长兰迪·乔治辞职并立即退休。
+截至6月22日收盘，市场震荡反弹，沪深两市成交额3.74万亿，创历史第二。
 
-报道称，消息人士透露，赫格塞思希望由一位能够实现美国总统特朗普和他本人对陆军愿景的人来担任这一职务。
+航天ETF(159267)低开，最终收涨0.10%，成交额1.47亿。
 
-美国国防部发言人肖恩·帕内尔在一份声明中表示，乔治“将立即卸任陆军第41任参谋长一职。
+成分股方面，博云新材、中兵红箭涨停，航发动力上涨6.61%，海特高新上涨5.40%。
 
-美国陆军部感谢乔治将军数十年来为国家做出的贡献。
+据文昌航天观礼中心官网消息，2026年6月23日上午，长征七号甲运载火箭将在文昌航天发射场点火升空，发射进入一天倒计时。
 
-我们祝愿他退休生活一切顺利。
+机构认为，随着可回收火箭密集验证、卫星互联网建设提速以及发射能力持续提升，中国商业航天正在从“探索验证期”迈向“成长爆发期”。
 
-” 报道称，现任陆军副参谋长克里斯托弗·拉内夫将军(曾任赫格塞思的军事助理)将担任代理陆军参谋长。
+未来行业竞争的重点将逐步从技术验证转向工程兑现能力。
 
-据三位知情人士透露，另有两名陆军军官被免职：分别是领导陆军转型与训练司令部的戴维·霍德内将军和主管陆军牧师团的威廉·格林少将。
+相关机构表示，国产链在火箭、测控、激光通信及星敏器等领域已形成完整布局，相关企业具备技术优势，将持续受益于航天产业快速发展。
 
-赫格塞思就任防长后，包括时任美军参谋长联席会议主席查尔斯·布朗、海军作战部长莉萨·弗兰凯蒂和空军副参谋长詹姆斯·斯莱夫等美军高官相继被解职或提前退休。
+另机构指出，全球太空竞赛加速推进，商业航天产业链迎来发展机遇，可回收火箭技术进步将带动行业整体提升，通信行业作为核心受益领域值得关注，相关基础设施建设需求将持续释放。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 23:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 23:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 23:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 23:48 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 23:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 23:56 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 23:56 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 23:57 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 00:09 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 00:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 00:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 00:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 23:54 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 00:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 23:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 00:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 00:11 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 00:01 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 00:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 23:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 00:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 23:54 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 23:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/5133341.shtml)
-- 2026-06-29 23:43 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/969393.shtml)
-- 2026-06-29 23:54 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/1503734.shtml)
-- 2026-06-29 23:55 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/690500658.shtml)
-- 2026-06-29 23:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/22266.shtml)
-- 2026-06-29 23:46 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/30717.shtml)
-- 2026-06-29 23:48 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/179847102832.shtml)
-- 2026-06-30 00:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/18954986.shtml)
-- 2026-06-29 23:48 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/6235677922.shtml)
-- 2026-06-29 23:52 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/73691728966.shtml)
-- 2026-06-29 23:51 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/29712.shtml)
-- 2026-06-29 23:59 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/639105914.shtml)
-- 2026-06-30 00:07 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/5431349858.shtml)
-- 2026-06-29 23:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/956236619.shtml)
-- 2026-06-29 23:42 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/634499099110.shtml)
+- 2026-06-29 23:49 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/4146067.shtml)
+- 2026-06-30 00:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/60069597239.shtml)
+- 2026-06-29 23:55 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/88931334189.shtml)
+- 2026-06-30 00:09 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/64297609906.shtml)
+- 2026-06-29 23:52 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/02543171571.shtml)
+- 2026-06-30 00:15 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/8088250.shtml)
+- 2026-06-30 00:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/686479.shtml)
+- 2026-06-29 23:55 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/478331.shtml)
+- 2026-06-29 23:57 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/94475954.shtml)
+- 2026-06-30 00:06 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/1364612950.shtml)
+- 2026-06-30 00:15 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/286840701.shtml)
+- 2026-06-30 00:09 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/322389847.shtml)
+- 2026-06-30 00:08 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/2939440373.shtml)
+- 2026-06-30 00:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/25052.shtml)
+- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/230117.shtml)

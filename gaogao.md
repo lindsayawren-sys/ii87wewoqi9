@@ -1,56 +1,54 @@
-# 中东局势缓和，A股大科技集体走强，创业板软件 ETF 富国（159107）盘中涨幅达5.49%
+# “90后”快递员倾心守护传承花鼓灯
 
-> 更新时间：2026-06-30 00:12:02 UTC+8
+> 更新时间：2026-06-30 00:18:02 UTC+8
 
 ## 摘要
 
-今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。 消息面，美伊在巴基斯坦斡旋下达成两周临
+发布时间：2026年06月19日 22:08 来源：中国新闻网 在安徽省阜阳市颍上县，“90后”的韩琪在2016年退伍后，回到家乡经营了一家快递服务中心，每天为周边的居民提供邮件收发工作。十年来，他的客户好评率连续十年位居全省前列，始终保持零投诉、零差评。但工作之余，他心中始终牵挂着颍上花鼓灯的非遗传承。 韩琪自幼受乡土文化熏陶，13岁便拜师学艺，苦练兰花表演、锣鼓演奏与道具制
 
 ## 正文
 
-今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。
+发布时间：2026年06月19日 22:08 来源：中国新闻网 在安徽省阜阳市颍上县，“90后”的韩琪在2016年退伍后，回到家乡经营了一家快递服务中心，每天为周边的居民提供邮件收发工作。
 
-其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。
+十年来，他的客户好评率连续十年位居全省前列，始终保持零投诉、零差评。
 
-消息面，美伊在巴基斯坦斡旋下达成两周临时停火，局势骤然缓和。
+但工作之余，他心中始终牵挂着颍上花鼓灯的非遗传承。
 
-另据工信部最新发布数据显示，前2个月，信息技术服务收入14474亿元，同比增长13.1%，占全行业收入的67.2%。
+韩琪自幼受乡土文化熏陶，13岁便拜师学艺，苦练兰花表演、锣鼓演奏与道具制作，这份热爱一守就是二十年。
 
-其中，云计算、大数据服务共实现收入2809亿元，同比增长11.4%，占信息技术服务收入的19.4%；集成电路设计收入636亿元，同比增长15.7%；电子商务平台技术服务收入1793亿元，同比增长10.5%。
+眼见老一辈艺人日渐老去，不少传统曲目、表演技法濒临失传，他暗下决心做花鼓灯的“守护者”。
 
-机构分析指出，两会首提 “智能经济新形态” 与 “算电协同”，明确 2027 年 AI 与 6 大重点领域融合普及率超 70%，政策催化国产算力与电力基础设施深度融合。
-
-短期需关注 5-6 月多模态模型迭代与 Agent 规模化商用进展，中长期看好算力基建 + 行业应用双轮驱动，算力租赁、IDC、边缘算力等细分赛道业绩确定性较强。
-
-创业板软件 ETF 富国（159107）跟踪创业板软件指数（399264），精选 50 只创业板软件核心标的，覆盖基础软件、应用软件、IT 服务全链条，自带 20CM 高弹性属性。
+刘鸿鹤 安徽阜阳报道 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 23:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 23:55 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 00:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 00:05 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 23:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 23:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:11 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 00:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 00:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 23:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 00:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 00:15 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 00:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 23:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 23:56 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 23:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 00:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 00:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 00:00 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 23:50 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/288722459686.shtml)
-- 2026-06-30 00:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6488520.shtml)
-- 2026-06-30 00:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/829559.shtml)
-- 2026-06-30 00:03 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/71252601264.shtml)
-- 2026-06-30 00:06 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/12575.shtml)
-- 2026-06-29 23:57 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/9859239766.shtml)
-- 2026-06-29 23:55 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/356915865470.shtml)
-- 2026-06-29 23:42 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/48051.shtml)
-- 2026-06-30 00:04 - [炽夏](http://www.share.kurohicncr.top/Article/details/692713521.shtml)
-- 2026-06-30 00:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/086611145.shtml)
-- 2026-06-29 23:55 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/85565395.shtml)
-- 2026-06-29 23:44 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/09723240759.shtml)
-- 2026-06-29 23:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/0246616.shtml)
-- 2026-06-30 00:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/497528453723.shtml)
-- 2026-06-29 23:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/55340492060.shtml)
+- 2026-06-29 23:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/930560085014.shtml)
+- 2026-06-29 23:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/89610739571.shtml)
+- 2026-06-30 00:04 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/05630.shtml)
+- 2026-06-30 00:07 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/8666548067.shtml)
+- 2026-06-30 00:17 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/44743425391.shtml)
+- 2026-06-30 00:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/504625916.shtml)
+- 2026-06-30 00:17 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/7666416.shtml)
+- 2026-06-30 00:11 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/96727.shtml)
+- 2026-06-29 23:53 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/60107068.shtml)
+- 2026-06-30 00:02 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/556618.shtml)
+- 2026-06-30 00:00 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/6533492323.shtml)
+- 2026-06-29 23:56 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/00256.shtml)
+- 2026-06-30 00:08 - [世界杯](http://www.blog.kurohicncr.top/Article/details/1154132.shtml)
+- 2026-06-30 00:05 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/123415693450.shtml)
+- 2026-06-29 23:54 - [小娘惹](https://www.blog.minike.top/Article/details/129475502.shtml)
