@@ -1,57 +1,61 @@
-# 李书福董事长与我们围坐谈心：关于教育、人工智能与未来
+# ATFX:特朗普升级对伊朗威胁 周二是最后期限
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-三亚学院 走进校园 是为了更好地走向社会 6月15日，吉利控股集团董事长、三亚学院永久名誉校长李书福与师生、校友代表围坐在科学与艺术馆，从自身的创业历程到吉利控股集团《台州宣言》，从“三个校园组合”的教育理念到芯位教育的未来布局，与大家探讨了关于教育本质、人工智能、人才培养的时代之问。 谈人工智能时代的教育 “三个校园组合”，构建未来教育新范式 面对人工智能时代的机遇与挑战，李
+专题：ATFX外汇专栏投稿 4月7日，ATFX：美伊冲突自2月28日开始，至今已经有一个多月时间，虽然战争仍在持续，但市场上的避险情绪似乎越来越衰弱。国际油价只是在美伊冲突开始的第一周有明显反应，随后的时间里国际油价表现出稳定的横盘走势。国际金价甚至在美伊战争期间不涨反跌，说明国际资金并没有因为恐慌而疯狂涌入黄金市场。 本周一，特朗普表示，如果伊朗不在周二东部时间晚上8点前重新
 
 ## 正文
 
-三亚学院 走进校园 是为了更好地走向社会 6月15日，吉利控股集团董事长、三亚学院永久名誉校长李书福与师生、校友代表围坐在科学与艺术馆，从自身的创业历程到吉利控股集团《台州宣言》，从“三个校园组合”的教育理念到芯位教育的未来布局，与大家探讨了关于教育本质、人工智能、人才培养的时代之问。
+专题：ATFX外汇专栏投稿 4月7日，ATFX：美伊冲突自2月28日开始，至今已经有一个多月时间，虽然战争仍在持续，但市场上的避险情绪似乎越来越衰弱。
 
-谈人工智能时代的教育 “三个校园组合”，构建未来教育新范式 面对人工智能时代的机遇与挑战，李书福系统阐释了 “三个校园组合” 的教育理念： 第一，跨线校园是突破口。
+国际油价只是在美伊冲突开始的第一周有明显反应，随后的时间里国际油价表现出稳定的横盘走势。
 
-通过芯位算法、AI智能体，将教育教学的业务能力在线上汇集，为教师实现 “千人千面” 的因材施教奠定基础； 第二，跨区校园真实场景是基础。
+国际金价甚至在美伊战争期间不涨反跌，说明国际资金并没有因为恐慌而疯狂涌入黄金市场。
 
-让学生在真实的项目、真实的产品中历练，在实践中成长； 第三，跨界校园企业场景是延伸。
+本周一，特朗普表示，如果伊朗不在周二东部时间晚上8点前重新开放霍尔木兹海峡，美国将摧毁伊朗的发电站和桥梁。
 
-吉利全球产业链为同学们全面开放，为学生提供最真实的产业实践平台。
+发电站和桥梁属于民用设施，如果美国的轰炸导致伊朗的电力和运输中断，可能间接导致人道主义灾难。
 
-未来，芯位教育致力于打造全球有影响力的人工智能教育机构。
+这种轰炸民用设施的行为，并不能算作是局势升级，反而透露出一种不择手段的策略。
 
-以人工智能辅助线下教育，代表着未来高等教育的发展趋势。
+美国越是想要通过特殊手段迅速结束和伊朗之间的战争，越是意味着美伊之间可能很快走和平协议。
 
-谈教育本质：在实践的深水区学会 “游泳” 李书福强调项目制教学的核心逻辑：不同于传统教育的被动接受，项目制是主动先投身实践，在真实场景中遇到问题、产生困惑，再带着强烈的求知欲反过来去翻书、去请教、去探究原理。
+巴基斯坦作为中间方，正在拟定美伊之间的停战协议。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 15:56 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 15:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 16:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 15:50 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 15:50 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 16:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 15:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:41 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 15:41 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 15:56 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 16:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 15:53 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 15:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 16:11 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 15:50 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 15:57 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 16:03 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 15:44 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 15:50 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 16:02 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 15:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 15:57 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [斛珠夫人](https://www.share.minike.top/Article/details/85331311.shtml)
-- 2026-06-29 15:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/66875245086.shtml)
-- 2026-06-29 15:50 - [105年初心滚烫](https://www.blog.minike.top/Article/details/0460442.shtml)
-- 2026-06-29 15:44 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/65966277.shtml)
-- 2026-06-29 15:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/2560325.shtml)
-- 2026-06-29 15:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/07589251.shtml)
-- 2026-06-29 15:58 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/93388301842.shtml)
-- 2026-06-29 15:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/69013076.shtml)
-- 2026-06-29 15:43 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/95735.shtml)
-- 2026-06-29 15:56 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/58238761.shtml)
-- 2026-06-29 15:43 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/392973.shtml)
-- 2026-06-29 15:55 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/968958.shtml)
-- 2026-06-29 15:54 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/731301229288.shtml)
-- 2026-06-29 15:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/95916123.shtml)
-- 2026-06-29 15:42 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/118830993.shtml)
+- 2026-06-29 15:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/754869.shtml)
+- 2026-06-29 15:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/2459887901.shtml)
+- 2026-06-29 15:46 - [速度与激情9](https://www.share.minike.top/Article/details/7094228.shtml)
+- 2026-06-29 15:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/482195834.shtml)
+- 2026-06-29 16:10 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/96388973515.shtml)
+- 2026-06-29 15:51 - [斛珠夫人](https://www.blog.minike.top/Article/details/048298461814.shtml)
+- 2026-06-29 16:05 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/4074766213.shtml)
+- 2026-06-29 15:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/617442.shtml)
+- 2026-06-29 15:49 - [新能源车能当外接空调用吗](https://www.share.minike.top/Article/details/20403367.shtml)
+- 2026-06-29 15:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/0117728816.shtml)
+- 2026-06-29 16:08 - [金牌调解](http://www.blog.minike.top/Article/details/486815698345.shtml)
+- 2026-06-29 16:03 - [斛珠夫人](https://www.blog.minike.top/Article/details/6513791.shtml)
+- 2026-06-29 15:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/9328340.shtml)
+- 2026-06-29 15:56 - [T1零封KC MSI](http://www.share.minike.top/Article/details/5644481.shtml)
+- 2026-06-29 15:42 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/830202829.shtml)

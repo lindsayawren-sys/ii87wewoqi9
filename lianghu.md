@@ -1,61 +1,44 @@
-# 长江有色：16日氧化铝期价收跌0.68% 节前交投转弱
+# AI将重塑美国大多数工作岗位
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江有色网6月16日讯，今日氧化铝所有合约联袂走软，主力2609合约偏弱震荡；截止当日15：00收盘，氧化铝主力月2609合约报2907元，跌20元，跌幅0.68%；加权合约累计成交368699手，比前一交易日减少72671手，跌幅16.46%；持仓量410578手减少10580手，跌幅2.51%。 今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，
+波士顿咨询集团预计，人工智能将在三年内影响50%至55%的职位，随着微软等公司扩大应用，这将促使员工进行技能重塑。责任编辑：张俊 SF065
 
 ## 正文
 
-长江有色金属网 长江有色网6月16日讯，今日氧化铝所有合约联袂走软，主力2609合约偏弱震荡；截止当日15：00收盘，氧化铝主力月2609合约报2907元，跌20元，跌幅0.68%；加权合约累计成交368699手，比前一交易日减少72671手，跌幅16.46%；持仓量410578手减少10580手，跌幅2.51%。
+波士顿咨询集团预计，人工智能将在三年内影响50%至55%的职位，随着微软等公司扩大应用，这将促使员工进行技能重塑。
 
-今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，6月16日氧化铝华南地区每吨报2700-2750元之间，与前一交易日报价涨10元；华东地区氧化铝每吨报2720-2760元之间，与前一交易日报价持平；西南地区氧化铝每吨2755-2795元之间，与前一交易日报价持平；西北地区氧化铝每吨报3060-3100元之间，与前一交易日报价涨20元。
-
-今日上期所氧化铝期货主力2609合约震荡走弱，日间交易收跌0.68%，国内氧化铝现货价格部分地区上涨； 宏观层面，特朗普宣布美伊达成初步停战协议，霍尔木兹海峡将重开、停火60天，导致油价崩跌，通胀担忧大幅缓解、美元指数震荡下跌，全球股指走强、风险偏好升温。
-
-但有色不涨反跌，原因是：此前铜铝受“战争→供应中断/能源通胀”微弱避险买盘与铝受海湾缺货预期支撑，停火消息触发该部分溢价回吐；叠加端午前资金锁利、国内铜铝处淡季累库期，主力选择节前减仓而非追多，故铜铝联袂回调，氧化铝因自身过剩也高位回落。
-
-基本面多空交织。
-
-供给端：前期检修产能部分恢复叠加新投爬坡，全国氧化铝运行产能增至9230万吨/年，周产量169.8万吨，总库存环比大增13.9万吨至702.4万吨（港口同步累积），过剩压力未消。
-
-几内亚铝土矿出口配额传闻（上限1.5亿吨/年）及山西非煤矿山、赤泥库隐患排查（涉及约200万吨/年产能）提供低位情绪支撑，但短期难改宽松格局。
-
-需求端：国内电解铝运行产能逼近4500万吨天花板、开工率近99%，对氧化铝形成刚性消耗托底；但受铝价高位震荡、冶炼利润环比收窄影响，铝厂采购趋保守，以执行长单刚需为主，现货无集中补库。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 15:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 15:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:45 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 15:52 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 15:40 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 16:04 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 16:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 16:05 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 16:02 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 15:44 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 16:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 15:43 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 15:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 15:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 15:55 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 15:45 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 15:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 16:07 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:43 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 15:48 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 15:50 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 16:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 15:43 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 15:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/035278.shtml)
-- 2026-06-29 15:38 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/25958558.shtml)
-- 2026-06-29 15:58 - [扬名立万](https://www.blog.minike.top/Article/details/57775987.shtml)
-- 2026-06-29 15:54 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/1219191993.shtml)
-- 2026-06-29 15:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/614488.shtml)
-- 2026-06-29 15:56 - [女心理师](https://www.blog.minike.top/Article/details/621953665.shtml)
-- 2026-06-29 15:38 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/096199984.shtml)
-- 2026-06-29 16:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/5537925.shtml)
-- 2026-06-29 15:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/9105270.shtml)
-- 2026-06-29 15:47 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/8615198.shtml)
-- 2026-06-29 15:41 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/486540546947.shtml)
-- 2026-06-29 15:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/425233.shtml)
-- 2026-06-29 16:01 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/4692506.shtml)
-- 2026-06-29 16:05 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/815256208.shtml)
-- 2026-06-29 15:43 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/64919387.shtml)
+- 2026-06-29 16:06 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/913437.shtml)
+- 2026-06-29 15:43 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/2010175.shtml)
+- 2026-06-29 16:04 - [人形机器人](http://www.share.minike.top/Article/details/0393581079.shtml)
+- 2026-06-29 15:58 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6849587040.shtml)
+- 2026-06-29 16:06 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/364057482.shtml)
+- 2026-06-29 15:51 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/70698.shtml)
+- 2026-06-29 15:58 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/363216241949.shtml)
+- 2026-06-29 16:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/912725158.shtml)
+- 2026-06-29 16:07 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/140221107171.shtml)
+- 2026-06-29 15:57 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/0488603.shtml)
+- 2026-06-29 16:01 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/1119529603.shtml)
+- 2026-06-29 15:50 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/74901083297.shtml)
+- 2026-06-29 15:54 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/6621464624.shtml)
+- 2026-06-29 16:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/9343796393.shtml)
+- 2026-06-29 15:44 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/99742103.shtml)

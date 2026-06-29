@@ -1,58 +1,55 @@
-# 山海情，正青春
+# 美国2月耐用品订单下降1.4%，降幅超预期
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-人民日报记者 朱 磊 徐元锋 叶 琦 秦瑞杰 好的机制，要经历时与效的双重检验。跨越4000多里的闽宁协作，已走过三十载。 “外婆，这儿没沙，怎么都叫这儿‘金沙滩’？” “我们去镇史馆找答案。”81岁的原福建省扶贫办主任林月婵，不久前带着外孙女回到宁夏银川市闽宁镇。即便来过40多次，林月婵依然心潮起伏。1997年，闽宁协作助力闽宁村奠基，时任福建省闽宁办常务副主任的林月婵铲下了
+美国商务部周二报告称，2月份国防和运输设备、计算机及家电等耐用品的订单降幅超过预期。 经季节性调整后，所谓的耐用品订单当月下降1.4%，高于1月份0.5%的降幅，也低于道琼斯普遍预期的1.1%降幅。 然而，剔除运输项目后，订单增长了0.8%；但剔除国防项目后，订单下降了1.2%。运输设备订单下降5.4%，即61亿美元。责任编辑：张俊 SF065
 
 ## 正文
 
-人民日报记者 朱 磊 徐元锋 叶 琦 秦瑞杰 好的机制，要经历时与效的双重检验。
+美国商务部周二报告称，2月份国防和运输设备、计算机及家电等耐用品的订单降幅超过预期。
 
-跨越4000多里的闽宁协作，已走过三十载。
+经季节性调整后，所谓的耐用品订单当月下降1.4%，高于1月份0.5%的降幅，也低于道琼斯普遍预期的1.1%降幅。
 
-“外婆，这儿没沙，怎么都叫这儿‘金沙滩’？
+然而，剔除运输项目后，订单增长了0.8%；但剔除国防项目后，订单下降了1.2%。
 
-” “我们去镇史馆找答案。
+运输设备订单下降5.4%，即61亿美元。
 
-”81岁的原福建省扶贫办主任林月婵，不久前带着外孙女回到宁夏银川市闽宁镇。
-
-即便来过40多次，林月婵依然心潮起伏。
-
-1997年，闽宁协作助力闽宁村奠基，时任福建省闽宁办常务副主任的林月婵铲下了第一锹土。
-
-当时闽宁村是个啥样子啊：戈壁滩上，风沙不断；没黑板，学生用树枝在地上写字；第一批移民群众，只能挖地洞住…… 时任福建省委副书记的习近平同志，却在贺信中展望：“闽宁村现在是个干沙滩，将来会是一个金沙滩。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 15:37 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 15:44 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 15:45 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 15:37 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 15:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 16:04 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 15:52 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 15:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 15:42 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 15:41 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 15:54 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 15:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 15:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 15:43 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 16:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 15:57 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 16:00 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 15:57 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 16:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 15:58 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 15:49 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 15:44 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/7078967.shtml)
-- 2026-06-29 16:03 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/953145338.shtml)
-- 2026-06-29 15:41 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/306913230.shtml)
-- 2026-06-29 15:50 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/350252188.shtml)
-- 2026-06-29 15:54 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/87773920717.shtml)
-- 2026-06-29 15:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/53669.shtml)
-- 2026-06-29 15:38 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/587831808.shtml)
-- 2026-06-29 15:45 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/23492204263.shtml)
-- 2026-06-29 15:39 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/699896434.shtml)
-- 2026-06-29 15:48 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/625296.shtml)
-- 2026-06-29 15:52 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/93200.shtml)
-- 2026-06-29 15:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/57841.shtml)
-- 2026-06-29 15:52 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/34317.shtml)
-- 2026-06-29 15:53 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2867696975.shtml)
-- 2026-06-29 16:00 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/041176.shtml)
+- 2026-06-29 15:52 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/438370112.shtml)
+- 2026-06-29 16:07 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/420367.shtml)
+- 2026-06-29 15:47 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/06490.shtml)
+- 2026-06-29 16:08 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/610841030.shtml)
+- 2026-06-29 15:51 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/840700181100.shtml)
+- 2026-06-29 15:58 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/1518403585.shtml)
+- 2026-06-29 16:00 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/7339817089.shtml)
+- 2026-06-29 16:08 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/101851644990.shtml)
+- 2026-06-29 16:01 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/141318935334.shtml)
+- 2026-06-29 15:51 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/79164.shtml)
+- 2026-06-29 15:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/53225955746.shtml)
+- 2026-06-29 15:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/661104.shtml)
+- 2026-06-29 15:51 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/636718.shtml)
+- 2026-06-29 15:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/08528806.shtml)
+- 2026-06-29 15:53 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/58198536.shtml)

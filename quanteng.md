@@ -1,46 +1,49 @@
-# “数爱无疆”数字公益故事展播 | 一颗耙耙柑的数字公益与生态守望
+# 04月08日锌23812.00元/吨 20天上涨4.27%
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“
+据生意社监测，锌04月08日最新价格23812.00元/吨，最近20天上涨4.27%。相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(002716)飞南资源
 
 ## 正文
 
-发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
+据生意社监测，锌04月08日最新价格23812.00元/吨，最近20天上涨4.27%。
 
-2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“一颗耙耙柑的数字公益与生态守望”作品入选。
-
-责任编辑：【李季】
+相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(002716)飞南资源(301500)华锡有色(600301)宏达股份(600331)西藏珠峰(600338)驰宏锌锗(600497)豫光金铅(600531)盛屯矿业（维权）(600711)株冶集团(600961)华钰矿业(601020)西部矿业(601168)白银有色（维权）(601212)紫金矿业(601899)金钼股份(601958)金徽股份(603132)等。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 15:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 15:39 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 16:05 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 15:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 15:43 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 15:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 16:00 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 15:59 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 15:47 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 16:03 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 15:56 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 16:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 16:10 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 15:51 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 16:04 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 15:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 15:59 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 15:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 16:02 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 16:03 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 15:50 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 15:55 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 16:00 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/757657353392.shtml)
-- 2026-06-29 15:50 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/0539428.shtml)
-- 2026-06-29 16:00 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/7210765114.shtml)
-- 2026-06-29 15:58 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/383959644.shtml)
-- 2026-06-29 15:58 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/45885098458.shtml)
-- 2026-06-29 16:04 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/7599425.shtml)
-- 2026-06-29 16:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/528061199.shtml)
-- 2026-06-29 15:45 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/452289.shtml)
-- 2026-06-29 15:36 - [四川宜宾地震](https://www.share.minike.top/Article/details/756015247774.shtml)
-- 2026-06-29 15:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/3792951.shtml)
-- 2026-06-29 15:40 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/273398674497.shtml)
-- 2026-06-29 15:47 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/319878328223.shtml)
-- 2026-06-29 15:42 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/3072371.shtml)
-- 2026-06-29 15:55 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/68885.shtml)
-- 2026-06-29 15:41 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/586596.shtml)
+- 2026-06-29 15:52 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/420645331119.shtml)
+- 2026-06-29 15:54 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/99254786279.shtml)
+- 2026-06-29 16:07 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/31635.shtml)
+- 2026-06-29 15:51 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/7596257.shtml)
+- 2026-06-29 15:49 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/866107255.shtml)
+- 2026-06-29 15:52 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/129928.shtml)
+- 2026-06-29 15:43 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/026109485321.shtml)
+- 2026-06-29 15:54 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/635489.shtml)
+- 2026-06-29 16:04 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/258881332101.shtml)
+- 2026-06-29 16:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/781950.shtml)
+- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/75417420895.shtml)
+- 2026-06-29 15:56 - [女心理师](http://www.blog.kurohicncr.top/Article/details/07789.shtml)
+- 2026-06-29 16:02 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/305830.shtml)
+- 2026-06-29 15:56 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/74783322333.shtml)
+- 2026-06-29 15:51 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/90326313008.shtml)

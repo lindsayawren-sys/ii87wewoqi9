@@ -1,44 +1,57 @@
-# 《上海国际金融中心发展离岸金融行动方案》正式发布
+# 黑芝麻智能午后涨逾8% 华泰证券看好公司中长期成长空间
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 在2026陆家嘴论坛上，《上海国际金融中心发展离岸金融行动方案》正式发布。 （总台央视记者 孙艳）责任编辑：秦艺
+黑芝麻智能（02533）盘中涨超10%，截至发稿，股价上涨7.71%，报16.48港元，成交额1.11亿港元。 黑芝麻智能2025年业绩显示，公司全年营收高达8.22亿元，同比增长73.4%，营收连续三年实现⾼增⻓，其中具身智能解决方案营收高达9630万元；⽑利从1.95亿元稳步增⻓至3.37亿元；经调整净亏损缩窄17.5%，盈利能力明显改善。报告期内，黑芝麻智能在智能汽车计算
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 在2026陆家嘴论坛上，《上海国际金融中心发展离岸金融行动方案》正式发布。
+黑芝麻智能（02533）盘中涨超10%，截至发稿，股价上涨7.71%，报16.48港元，成交额1.11亿港元。
 
-（总台央视记者 孙艳）责任编辑：秦艺
+黑芝麻智能2025年业绩显示，公司全年营收高达8.22亿元，同比增长73.4%，营收连续三年实现⾼增⻓，其中具身智能解决方案营收高达9630万元；⽑利从1.95亿元稳步增⻓至3.37亿元；经调整净亏损缩窄17.5%，盈利能力明显改善。
+
+报告期内，黑芝麻智能在智能汽车计算芯片领域持续巩固领先地位的同时，已在具身智能、端侧AI等创新业务上实现了战略性突破。
+
+华泰证券认为，2025年公司三大业务板块均实现不同程度进展。
+
+在智能驾驶业务方面，实现收入6.87亿元，同比增长56.8%，为核心收入来源。
+
+在具身智能业务方面，公司实现从0到1突破，全年实现收入约0.96亿元。
+
+展望2026年，公司具身智能业务将进入放量初期，同时随着高阶智能驾驶芯片放量及产品结构优化，汽车业务毛利率有望逐步修复，整体收入增速有望明显快于出货量增长。
+
+该行持续看好公司中长期成长空间。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 15:43 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 15:43 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 16:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 16:00 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:46 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 15:57 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:01 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 15:54 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 15:56 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 16:08 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 15:47 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 16:07 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 15:42 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 16:03 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 16:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 15:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 16:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 15:51 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 15:52 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/740473261852.shtml)
-- 2026-06-29 15:59 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/196616.shtml)
-- 2026-06-29 15:50 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/53264512540.shtml)
-- 2026-06-29 15:39 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/9131300206.shtml)
-- 2026-06-29 15:43 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/68568646665.shtml)
-- 2026-06-29 15:44 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/76320.shtml)
-- 2026-06-29 15:45 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/096018170591.shtml)
-- 2026-06-29 15:56 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/29273073992.shtml)
-- 2026-06-29 16:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/178195270.shtml)
-- 2026-06-29 15:41 - [一生一世](http://www.blog.kurohicncr.top/Article/details/6451547193.shtml)
-- 2026-06-29 15:49 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/94070.shtml)
-- 2026-06-29 15:59 - [绘画区你赢了](https://www.share.minike.top/Article/details/605924.shtml)
-- 2026-06-29 16:01 - [四川宜宾地震](https://www.share.minike.top/Article/details/70771.shtml)
-- 2026-06-29 15:58 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/25910992.shtml)
-- 2026-06-29 15:58 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/158429.shtml)
+- 2026-06-29 15:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/6886560.shtml)
+- 2026-06-29 15:46 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/12816393088.shtml)
+- 2026-06-29 15:54 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/63268.shtml)
+- 2026-06-29 15:57 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/608524.shtml)
+- 2026-06-29 16:00 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/50982997185.shtml)
+- 2026-06-29 15:58 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/54026288274.shtml)
+- 2026-06-29 15:58 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/2218394.shtml)
+- 2026-06-29 15:47 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/30143809.shtml)
+- 2026-06-29 16:04 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/84607.shtml)
+- 2026-06-29 15:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/319310828.shtml)
+- 2026-06-29 16:09 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/2307656859.shtml)
+- 2026-06-29 15:57 - [爸爸当家](https://www.blog.minike.top/Article/details/032070003.shtml)
+- 2026-06-29 15:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/781807191.shtml)
+- 2026-06-29 16:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/79457414694.shtml)
+- 2026-06-29 15:52 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/81303.shtml)

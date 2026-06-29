@@ -1,60 +1,54 @@
-# 中国驻英国使馆举办“文明对话”文化交流体验活动
+# 伊朗最高国家安全委员会确认停火协议
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网伦敦6月17日电(记者 欧阳开宇)中国驻英国大使郑泽光和夫人华梅参赞日前举办“文明对话之敦煌雅韵·千年端午”中外文化交流体验活动，邀请英国政府官员、妇女组织代表、驻英外交使节等各界人士参加。 郑泽光致辞表示，中华民族在5000多年历史演进中创造了灿烂文明。我们愿与英国以及世界各国加强对话交流，加深相互了解，增进人民友谊，为动荡不安的世界注入稳定性和正能量，携手推动构建人类
+中新网4月8日电 综合卡塔尔半岛电视台等最新报道，伊朗最高国家安全委员会发表声明，确认了经巴基斯坦斡旋达成的为期两周的停火协议。 声明表示，该协议对伊朗而言是一场“胜利”，并补充说有关达成永久性协议的谈判将在伊斯兰堡举行。 美国总统特朗普稍早前表示，他已同巴基斯坦总理夏巴兹和陆军参谋长穆尼尔对话，对方请求美方暂缓空袭伊朗，“我同意暂停对伊朗的轰炸和袭击两周，前提是伊朗伊斯兰共和
 
 ## 正文
 
-中新网伦敦6月17日电(记者 欧阳开宇)中国驻英国大使郑泽光和夫人华梅参赞日前举办“文明对话之敦煌雅韵·千年端午”中外文化交流体验活动，邀请英国政府官员、妇女组织代表、驻英外交使节等各界人士参加。
+中新网4月8日电 综合卡塔尔半岛电视台等最新报道，伊朗最高国家安全委员会发表声明，确认了经巴基斯坦斡旋达成的为期两周的停火协议。
 
-郑泽光致辞表示，中华民族在5000多年历史演进中创造了灿烂文明。
+声明表示，该协议对伊朗而言是一场“胜利”，并补充说有关达成永久性协议的谈判将在伊斯兰堡举行。
 
-我们愿与英国以及世界各国加强对话交流，加深相互了解，增进人民友谊，为动荡不安的世界注入稳定性和正能量，携手推动构建人类命运共同体。
+美国总统特朗普稍早前表示，他已同巴基斯坦总理夏巴兹和陆军参谋长穆尼尔对话，对方请求美方暂缓空袭伊朗，“我同意暂停对伊朗的轰炸和袭击两周，前提是伊朗伊斯兰共和国同意全面、立即且安全地开放霍尔木兹海峡”。
 
-活动现场安排了关于敦煌文化和端午节文化习俗的讲座。
+“这将是一次双向停火。
 
-中国敦煌研究院专家祁晓庆、英国敦煌研究学者弗朗西斯·伍德作了深入讲解、开展了对话，让来宾们加深了对敦煌文化的悠久历史、艺术形象、文明交融以及文保工作的认识。
-
-使馆工作人员介绍了端午节的历史文化传统以及英国举办划龙舟比赛情况，生动展示了中西方文化交流的活力与魅力。
-
-来宾们还品尝了粽子等中国美食，体验了编彩绳、做香囊技艺，感受寓于其中的中华文明深厚底蕴和精神内涵，尽享文化交流乐趣。
-
-(完)
+”
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 15:54 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:48 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 15:47 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 15:59 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 15:52 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 16:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 15:59 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 15:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 15:46 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 15:47 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:47 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 16:02 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 15:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 16:00 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 16:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 15:42 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:52 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 16:04 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 16:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 15:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 16:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 16:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 15:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 15:56 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/64017.shtml)
-- 2026-06-29 15:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/296559090.shtml)
-- 2026-06-29 15:54 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/46147017.shtml)
-- 2026-06-29 15:43 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/19429947994.shtml)
-- 2026-06-29 15:40 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/435828.shtml)
-- 2026-06-29 15:59 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/911110914.shtml)
-- 2026-06-29 15:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/20489736538.shtml)
-- 2026-06-29 15:43 - [沙丘](http://www.share.kurohicncr.top/Article/details/04511864.shtml)
-- 2026-06-29 15:48 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/829140356.shtml)
-- 2026-06-29 15:39 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/002086780.shtml)
-- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/5461923.shtml)
-- 2026-06-29 16:01 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/666038343.shtml)
-- 2026-06-29 15:41 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/333320964.shtml)
-- 2026-06-29 15:45 - [送你一朵小红花](https://www.blog.minike.top/Article/details/02088.shtml)
-- 2026-06-29 15:44 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/726000799025.shtml)
+- 2026-06-29 15:53 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/28578708717.shtml)
+- 2026-06-29 15:55 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/5654723201.shtml)
+- 2026-06-29 16:02 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/81096.shtml)
+- 2026-06-29 15:50 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/148856933.shtml)
+- 2026-06-29 16:02 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/06281435.shtml)
+- 2026-06-29 15:49 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/992424.shtml)
+- 2026-06-29 15:56 - [啊啊啊](http://www.blog.minike.top/Article/details/51599263.shtml)
+- 2026-06-29 16:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/8858536291.shtml)
+- 2026-06-29 16:06 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/92820.shtml)
+- 2026-06-29 15:54 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/836879751.shtml)
+- 2026-06-29 15:48 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/83552068266.shtml)
+- 2026-06-29 16:11 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/86042753.shtml)
+- 2026-06-29 16:04 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/13048890.shtml)
+- 2026-06-29 16:08 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/926121623715.shtml)
+- 2026-06-29 15:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/79501558161.shtml)

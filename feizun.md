@@ -1,60 +1,51 @@
-# 创业板第四套上市标准企业再添一例！腾盾科创IPO申请获受理
+# 伊朗伊斯兰革命卫队称将打击以色列所有军事和基础设施
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 时娜）6月16日，四川腾盾科创股份有限公司（以下简称“腾盾科创”）创业板IPO获深交所受理，适用创业板第四套上市标准企业再添一例。 业内人士认为，当前深化创业板改革政策正处于快速落地实施阶段，创业板服务优质创新企业能力持续增强。 腾盾科创主要从事高端无人机系统的研发、生产、销售及相关服务，致力于为低空经济及通用航空等领域提供智能化、模块化、集群化的无人
+伊朗伊斯兰革命卫队当地时间7日发表声明称，自当天凌晨起，作为“真实承诺-4”行动第99波行动的一部分，伊斯兰革命卫队使用“海巴尔·谢坎”导弹等，对以色列中部、南部及内陆地区实施打击。 声明称，此轮打击覆盖超过30个目标，包括以色列中部的里雄莱锡安和佩塔提克瓦、内盖夫地区的贝尔谢巴、迪莫纳和阿拉德，以及特拉维夫地区近10个点位。 声明强调，伊朗方面的火力反击将持续加强，所有以色列
 
 ## 正文
 
-上证报中国证券网讯（记者 时娜）6月16日，四川腾盾科创股份有限公司（以下简称“腾盾科创”）创业板IPO获深交所受理，适用创业板第四套上市标准企业再添一例。
+伊朗伊斯兰革命卫队当地时间7日发表声明称，自当天凌晨起，作为“真实承诺-4”行动第99波行动的一部分，伊斯兰革命卫队使用“海巴尔·谢坎”导弹等，对以色列中部、南部及内陆地区实施打击。
 
-业内人士认为，当前深化创业板改革政策正处于快速落地实施阶段，创业板服务优质创新企业能力持续增强。
+声明称，此轮打击覆盖超过30个目标，包括以色列中部的里雄莱锡安和佩塔提克瓦、内盖夫地区的贝尔谢巴、迪莫纳和阿拉德，以及特拉维夫地区近10个点位。
 
-腾盾科创主要从事高端无人机系统的研发、生产、销售及相关服务，致力于为低空经济及通用航空等领域提供智能化、模块化、集群化的无人机系统产品及多场景应用的整体解决方案。
+声明强调，伊朗方面的火力反击将持续加强，所有以色列工业、基础设施及军事中心都将成为打击对象。
 
-作为国内大型智能无人机系统领军企业、国内极少数具备大型无人机全系统自主研发能力及多场景应用技术储备的企业，公司以科技创新为驱动构建了涵盖大型固定翼无人机、无人直升机、水陆两栖无人机、蜂群无人子机等多元产品谱系，产品覆盖滑跑起降、垂直起降、水上起降、地面发射、空中投放等多种部署方式。
-
-招股说明书显示，腾盾科创已掌握25项关键核心技术，覆盖了大型固定翼无人机、无人直升机、水陆两栖无人机、蜂群无人机等不同产品类型，以及设计研发、生产制造和服务等主营业务环节。
-
-公司大型多发固定翼无人机总体设计技术、面向复杂环境的综合设计技术、智能飞行管理与控制技术、空天地融合“机-站-链”协同指挥控制与通信网络构建技术等技术达到国际先进水平。
-
-公司3吨级中高空固定翼无人机系统、三发长航时固定翼无人机系统等产品达到国际先进水平，高原型无人直升机系统达到国内领先水平。
-
-责任编辑：宋雅芳
+(总台记者 李健南 李曌)
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 15:58 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 15:50 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 15:37 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 15:55 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 15:52 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 15:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 15:58 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:53 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 15:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 15:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 15:45 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 15:45 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 16:03 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:04 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 15:48 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 16:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 15:47 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 16:08 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 15:55 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 15:43 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 15:43 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 15:52 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 15:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 15:55 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 16:11 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/278023636751.shtml)
-- 2026-06-29 15:56 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/152043663.shtml)
-- 2026-06-29 15:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/26336711849.shtml)
-- 2026-06-29 16:04 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/715746428153.shtml)
-- 2026-06-29 16:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/8597801681.shtml)
-- 2026-06-29 15:48 - [毒液2](https://www.blog.kurohicncr.top/Article/details/8138555419.shtml)
-- 2026-06-29 15:40 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/1158323139.shtml)
-- 2026-06-29 15:51 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/95469361.shtml)
-- 2026-06-29 15:37 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/5090946.shtml)
-- 2026-06-29 15:53 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/66427.shtml)
-- 2026-06-29 15:59 - [金刚川](https://www.share.minike.top/Article/details/854809414650.shtml)
-- 2026-06-29 15:53 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/015673.shtml)
-- 2026-06-29 15:58 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/71370.shtml)
-- 2026-06-29 16:04 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/8029476.shtml)
-- 2026-06-29 15:50 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/2342274.shtml)
+- 2026-06-29 15:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/6871409.shtml)
+- 2026-06-29 15:51 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/64366.shtml)
+- 2026-06-29 15:53 - [普京介绍前线战事](http://www.share.minike.top/Article/details/96430065447.shtml)
+- 2026-06-29 16:01 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/654986138707.shtml)
+- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://www.blog.kurohicncr.top/Article/details/81456107.shtml)
+- 2026-06-29 16:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/566479.shtml)
+- 2026-06-29 16:08 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/3072872.shtml)
+- 2026-06-29 15:52 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/77407518.shtml)
+- 2026-06-29 15:53 - [欧盟为什么越来越倾向贸易保护](https://www.blog.minike.top/Article/details/5055495590.shtml)
+- 2026-06-29 16:00 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/27327960.shtml)
+- 2026-06-29 15:55 - [起风了](https://www.blog.kurohicncr.top/Article/details/3409223829.shtml)
+- 2026-06-29 15:50 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/267005.shtml)
+- 2026-06-29 15:42 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/46574250.shtml)
+- 2026-06-29 15:49 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/244999843763.shtml)
+- 2026-06-29 16:04 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/3175307.shtml)

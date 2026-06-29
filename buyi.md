@@ -1,47 +1,58 @@
-# 财政部在香港成功发行2026年第三期150亿元人民币国债
+# 海致科技集团午前涨超13% 去年Atlas智能体收入同比激增68.4%
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据财政部网站消息，6月16日，中华人民共和国财政部在香港特别行政区，面向机构投资者招标发行2026年第三期150亿元人民币国债，受到投资者广泛欢迎，认购倍数3.86倍。其中，2年期45亿元，发行利率1.29%；3年期45亿元，发行利率1.33%；5年期35亿元，发行利率1.49%；10年期25亿元，发行利率1.80%。
+海致科技集团（02706）午前涨超13%，截至发稿，股价上涨13.14%，现报52.95港元，成交额4660.13万港元。 海致科技2025年业绩显示，公司实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。报告期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。更值得关注的是质量指标：智能体客
 
 ## 正文
 
-中新网6月16日电 据财政部网站消息，6月16日，中华人民共和国财政部在香港特别行政区，面向机构投资者招标发行2026年第三期150亿元人民币国债，受到投资者广泛欢迎，认购倍数3.86倍。
+海致科技集团（02706）午前涨超13%，截至发稿，股价上涨13.14%，现报52.95港元，成交额4660.13万港元。
 
-其中，2年期45亿元，发行利率1.29%；3年期45亿元，发行利率1.33%；5年期35亿元，发行利率1.49%；10年期25亿元，发行利率1.80%。
+海致科技2025年业绩显示，公司实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。
+
+报告期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。
+
+更值得关注的是质量指标：智能体客单价达360万元，高于图谱解决方案的280万元；智能体毛利率提升至53.2%，拉动公司整体毛利率跃升7.1个百分点至43.3%。
+
+此外，截至2025年末，公司累计服务产业级客户超400家，覆盖多个行业领域。
+
+公司已在四家大型国有商业银行实现图数据库国产替代，并围绕底层能力持续向上拓展图应用和智能体产品。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 16:01 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 15:49 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 15:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 16:05 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:00 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 15:46 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 15:41 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 16:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 15:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 15:50 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 16:11 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 16:00 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:07 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:08 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:42 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 16:06 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 15:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 15:59 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 16:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 15:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 16:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 15:54 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 15:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/31294495034.shtml)
-- 2026-06-29 15:58 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/39785203.shtml)
-- 2026-06-29 15:40 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/79088.shtml)
-- 2026-06-29 15:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/81216657.shtml)
-- 2026-06-29 15:39 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/2070279.shtml)
-- 2026-06-29 15:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/5865915311.shtml)
-- 2026-06-29 15:44 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/79573445722.shtml)
-- 2026-06-29 15:48 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/20250020.shtml)
-- 2026-06-29 15:49 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/3064896.shtml)
-- 2026-06-29 16:02 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/038150.shtml)
-- 2026-06-29 15:36 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/0231160099.shtml)
-- 2026-06-29 16:03 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/052073.shtml)
-- 2026-06-29 15:55 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/16181.shtml)
-- 2026-06-29 15:44 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/41817406819.shtml)
-- 2026-06-29 15:50 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/25766942303.shtml)
+- 2026-06-29 16:10 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/50408876326.shtml)
+- 2026-06-29 15:51 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/897043.shtml)
+- 2026-06-29 15:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/4474534.shtml)
+- 2026-06-29 15:57 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/472323.shtml)
+- 2026-06-29 16:08 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/6523150.shtml)
+- 2026-06-29 16:05 - [吴建豪老婆](http://www.share.minike.top/Article/details/90763825699.shtml)
+- 2026-06-29 15:48 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/376461011.shtml)
+- 2026-06-29 16:10 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/8790121633.shtml)
+- 2026-06-29 15:50 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/15707.shtml)
+- 2026-06-29 16:02 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/5593480.shtml)
+- 2026-06-29 15:59 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/20929889172.shtml)
+- 2026-06-29 15:53 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/6024194245.shtml)
+- 2026-06-29 16:05 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/9656070446.shtml)
+- 2026-06-29 16:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/12554155.shtml)
+- 2026-06-29 16:11 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/10174756721.shtml)

@@ -1,56 +1,48 @@
-# 第四届法国国际龙舟嘉年华举行
+# 4月9日隔夜要闻：美股三大指数涨超2% 油价暴跌 伊朗称谈判基础已被破坏 霍尔木兹海峡已再次关闭
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网巴黎6月17日电 当地时间6月14日，第四届法国国际龙舟嘉年华在巴黎近郊城镇吕埃-马尔迈松举行。 本次活动由法国龙舟委员会主办，法国青田同乡会协办，以“屈原邂逅拿破仑”为核心创意，通过融合中国端午龙舟文化与法国深厚的历史底蕴，打造一场联通东西方文明的文体活动，为中法人文合作注入全新活力。 嘉年华期间的文艺展演环节，杨氏太极表演、民俗舞蹈、黄梅戏、说唱脸谱表演、潮州英歌舞等
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月9日收盘：美股大涨道指涨逾1300点 美伊停火后原油价格暴跌 4月9日美股成交额前20：Meta发布其宣称迄今最强大的AI模型 4月9日热门中概股普涨 富途控股涨11.47%，中国新城农村跌5.32% 伊朗同意停火期间安全通过霍尔木兹海峡后油价暴跌 欧洲股市创出2022年以来最大涨幅 美伊停火促使投资者争相入市
 
 ## 正文
 
-中新网巴黎6月17日电 当地时间6月14日，第四届法国国际龙舟嘉年华在巴黎近郊城镇吕埃-马尔迈松举行。
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月9日收盘：美股大涨道指涨逾1300点 美伊停火后原油价格暴跌 4月9日美股成交额前20：Meta发布其宣称迄今最强大的AI模型 4月9日热门中概股普涨 富途控股涨11.47%，中国新城农村跌5.32% 伊朗同意停火期间安全通过霍尔木兹海峡后油价暴跌 欧洲股市创出2022年以来最大涨幅 美伊停火促使投资者争相入市 宏观 白宫称美伊首轮会谈将于11日在巴基斯坦举行 白宫声称伊朗提议移交高浓缩铀 白宫：特朗普认为北约未通过“考验” 将与吕特讨论“退群” 美伊停火首日现分歧：霍尔木兹海峡通行管控、加密货币收费引博弈，全球能源运输添忧 万斯：卡利巴夫关于停火协议遭违反的帖子“很有意思” 美政府被曝考虑从部分北约国家撤出军事部署 伊朗武装部队宣布对美以战事取得胜利 伊朗外长：美国必须在停火和“继
 
-本次活动由法国龙舟委员会主办，法国青田同乡会协办，以“屈原邂逅拿破仑”为核心创意，通过融合中国端午龙舟文化与法国深厚的历史底蕴，打造一场联通东西方文明的文体活动，为中法人文合作注入全新活力。
+扎克伯格押注超千亿AI投入 Meta发布首款AI模型Muse Spark 埃克森美孚披露战争造成第一季度全球产量损失6% 何时恢复仍未知 亚马逊将停止对旧款 Kindle 设备提供支持 甲骨文在加州裁员超700人——这只是“血洗”的第一波，或波及全美数万员工 摩根士丹利推出新的比特币投资工具ETP以追踪加密货币表现 周三美股大涨，Palantir Technologies股价为何逆市下跌？
 
-嘉年华期间的文艺展演环节，杨氏太极表演、民俗舞蹈、黄梅戏、说唱脸谱表演、潮州英歌舞等节目先后登场。
-
-开幕演出的核心亮点节目《塞纳河与龙舟节：屈原与拿破仑》由法国龙舟委员会主席蔡景瑞担任总策划和编导。
-
-该节目中，由迪迪埃·加诺特演绎的“拿破仑主题龙舟”与卢宇演绎的“屈原主题龙舟”在塞纳河中央实现象征性的“跨时空握手”，寓意中法文明在历史长河中的相知与共鸣。
-
-本届嘉年华共有来自中国、法国、丹麦、意大利、西班牙的11支龙舟队伍参赛。
-
-在混合组比赛中，中国苏州青商龙舟队夺得冠军，法国商合会龙舟队获得亚军，西班牙龙舟队获得季军。
-
-在女子组比赛中，意大利托斯卡纳健康女子队夺冠，西班牙女子龙舟队荣获亚军，法国兰斯女子龙舟队获得季军。
+美光与SiMa.ai达成合作深化AI布局，重心转向边缘计算与机器人技术 Wedbush看好苹果股价上涨，称OpenClaw热潮推动Mac需求 OpenAI对阵Anthropic：营收之争对二者IPO意味着什么 苹果转向三星供应可折叠屏幕 独家协议反映出供应商准备不足 星巴克拓展咖啡以外业务，进军能量饮料领域 花旗集团称人工智能助力加快开户流程与系统升级 美联储拟拓展银行和信用社转移资金的方式 评论 布伦特原油现货价格突破 120 美元，凸显伊朗停火无法解决深层供应中断 美联储3月会议纪要：中东冲突推高通胀，降息进程或放缓 白宫经济顾问哈塞特：周五公布的CPI数据将反映能源价格飙升 大宗商品综述：油价大幅回落 铜价升至三周高点 黄金抹去涨幅 纽约汇市：美元跌至约四周低点 停火提振风险偏好 美国债市：国债在美盘交易时段回落 抹去隔夜涨幅 美联储戴利：现在
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:50 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 15:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 15:37 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 15:43 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 15:54 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:02 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 16:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 15:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 15:43 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:50 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 16:09 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 16:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 15:53 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 15:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 15:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 15:45 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 16:06 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 15:54 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:59 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 15:58 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/1443279761.shtml)
-- 2026-06-29 15:58 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/36663.shtml)
-- 2026-06-29 15:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/02336042.shtml)
-- 2026-06-29 15:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/096896602.shtml)
-- 2026-06-29 15:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/977962.shtml)
-- 2026-06-29 16:03 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/102805218.shtml)
-- 2026-06-29 15:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/92870636.shtml)
-- 2026-06-29 15:51 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/84851.shtml)
-- 2026-06-29 15:56 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/39459890.shtml)
-- 2026-06-29 16:02 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/756300478133.shtml)
-- 2026-06-29 16:04 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/77436254.shtml)
-- 2026-06-29 16:01 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/90461221668.shtml)
-- 2026-06-29 16:02 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/1213554.shtml)
-- 2026-06-29 15:37 - [我和我的家乡](http://www.blog.minike.top/Article/details/2336327.shtml)
-- 2026-06-29 15:46 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/8078895993.shtml)
+- 2026-06-29 16:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/41090.shtml)
+- 2026-06-29 15:52 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/7354323087.shtml)
+- 2026-06-29 16:09 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/0222047.shtml)
+- 2026-06-29 16:06 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/6856810210.shtml)
+- 2026-06-29 15:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/6646850839.shtml)
+- 2026-06-29 16:06 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/203112830.shtml)
+- 2026-06-29 16:11 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/21800744749.shtml)
+- 2026-06-29 16:04 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/61546440.shtml)
+- 2026-06-29 15:55 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/591121.shtml)
+- 2026-06-29 15:51 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/852219633.shtml)
+- 2026-06-29 16:06 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/243903702.shtml)
+- 2026-06-29 15:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/340621.shtml)
+- 2026-06-29 15:50 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/171792396524.shtml)
+- 2026-06-29 16:07 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/02849403.shtml)
+- 2026-06-29 16:08 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/97858490.shtml)

@@ -1,61 +1,61 @@
-# 辽宁省民族和宗教委召开全省少数民族发展资金调度会
+# 广深港高铁单日跨境北上客流创历史新高
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-6月16日，全省少数民族发展资金调度会在营口市鲅鱼圈区召开。省民族和宗教委党组书记、主任张智明出席会议并讲话。会议由省民族和宗教委党组成员、副主任邓荔主持。会议通报了全省少数民族发展资金预算执行整体情况。各市依次汇报辖区内项目实施、资金拨付进展及下一步工作安排。会议充分肯定去年全省少数民族发展任务取得的优异绩效，要求各地认真总结经验、巩固既有成果。当前年度工作进程过半，部分地区
+中新网深圳4月8日电 (索有为 岳千琳)为期5天的清明假期铁路运输4月7日落幕。深圳铁路部门8日发布的统计数据显示，其间，深圳铁路累计运输旅客374.1万人次，同比增幅11.7%。其中，发送旅客190.5万人次，到达旅客183.6万人次；广深港高铁单日跨境北上客流创历史新高。 今年清明假期，祭扫、踏青、探亲等多股客流交织叠加，深圳铁路旅客到发量保持高位运行。深圳北站累计运输旅客
 
 ## 正文
 
-6月16日，全省少数民族发展资金调度会在营口市鲅鱼圈区召开。
+中新网深圳4月8日电 (索有为 岳千琳)为期5天的清明假期铁路运输4月7日落幕。
 
-省民族和宗教委党组书记、主任张智明出席会议并讲话。
+深圳铁路部门8日发布的统计数据显示，其间，深圳铁路累计运输旅客374.1万人次，同比增幅11.7%。
 
-会议由省民族和宗教委党组成员、副主任邓荔主持。
+其中，发送旅客190.5万人次，到达旅客183.6万人次；广深港高铁单日跨境北上客流创历史新高。
 
-会议通报了全省少数民族发展资金预算执行整体情况。
+今年清明假期，祭扫、踏青、探亲等多股客流交织叠加，深圳铁路旅客到发量保持高位运行。
 
-各市依次汇报辖区内项目实施、资金拨付进展及下一步工作安排。
+深圳北站累计运输旅客252.7万人次，同比增幅9.4%，日均客流50.5万人次；深圳站、福田站、深圳东站、深圳坪山站、光明城站分别运输旅客54.3万人次、24.1万人次、22.3万人次、14.6万人次、6.1万人次。
 
-会议充分肯定去年全省少数民族发展任务取得的优异绩效，要求各地认真总结经验、巩固既有成果。
+今年香港公众假期与清明节无缝衔接，形成了5天“超级长假”，港人祭祖、出游、购物热情高涨，高铁成为跨境出行的首选。
 
-当前年度工作进程过半，部分地区项目开工、资金拨付工作推进滞后，与国家考核标准、省委省政府工作要求存在较大差距，形势严峻，务必高度重视、立即行动。
+据统计，4月3日至7日，广深港高铁累计开行跨境旅客列车近1200列，运送跨境旅客达64.2万人次，同比增幅22.5%。
 
-会议对下一步重点任务作出部署。
+其中，4月3日从香港发往内地的客流达8.6万人次，创下历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 15:39 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 15:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 15:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 15:45 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 15:36 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 15:56 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 16:03 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 15:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 16:04 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 16:03 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 16:00 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 16:01 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 15:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 16:07 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 16:09 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 16:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 16:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 16:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 16:09 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 15:43 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 15:57 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 16:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 15:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 16:07 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 16:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 15:45 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:56 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/37147092.shtml)
-- 2026-06-29 16:02 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/528858282.shtml)
-- 2026-06-29 15:50 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/96107.shtml)
-- 2026-06-29 15:41 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/2275690867.shtml)
-- 2026-06-29 15:41 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/065136055.shtml)
-- 2026-06-29 15:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/14693446591.shtml)
-- 2026-06-29 15:58 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/637947435467.shtml)
-- 2026-06-29 16:01 - [T1 KC](https://www.blog.minike.top/Article/details/930554835.shtml)
-- 2026-06-29 15:46 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/59564328644.shtml)
-- 2026-06-29 16:00 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/33693703952.shtml)
-- 2026-06-29 16:05 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/528115188551.shtml)
-- 2026-06-29 16:01 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/56222762.shtml)
-- 2026-06-29 15:37 - [这一刀 会很帅](http://www.share.minike.top/Article/details/8953311783.shtml)
-- 2026-06-29 15:36 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/128216714383.shtml)
-- 2026-06-29 15:55 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/55957449.shtml)
+- 2026-06-29 15:46 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/261848399.shtml)
+- 2026-06-29 15:49 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/0511734804.shtml)
+- 2026-06-29 15:59 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/734112407904.shtml)
+- 2026-06-29 15:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/0640407226.shtml)
+- 2026-06-29 16:10 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/62908.shtml)
+- 2026-06-29 16:00 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/03747.shtml)
+- 2026-06-29 15:56 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/349503.shtml)
+- 2026-06-29 15:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/0195009.shtml)
+- 2026-06-29 16:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/27387972582.shtml)
+- 2026-06-29 15:45 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/116041.shtml)
+- 2026-06-29 15:49 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/72078266.shtml)
+- 2026-06-29 15:50 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/67845992970.shtml)
+- 2026-06-29 15:45 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/966600013880.shtml)
+- 2026-06-29 16:11 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/384015.shtml)
+- 2026-06-29 15:44 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/53055587.shtml)

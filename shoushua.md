@@ -1,50 +1,54 @@
-# 6月16日增减持汇总：盛泰集团、新里程披露增持情况，播恩集团等4股拟减持（表）
+# 特斯拉上海超级工厂3月汽车交付量环比增46%
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，6月16日盘后，盛泰集团、新里程披露增持情况，播恩集团、福达合金、和远气体、百合花4家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
+中新社上海4月7日电 (谢梦圆)记者7日从特斯拉中国获悉，特斯拉上海超级工厂今年3月汽车交付量持续攀升，超8.56万辆，环比大涨46%，创年内新高。 该企业表示，在今年3月的韩国市场，特斯拉凭超1.1万辆的销量成绩刷新历史纪录，成为当地进口车市场首个单月销量突破万辆的品牌，且所有车型均由特斯拉上海超级工厂生产制造。聚焦第一季度，特斯拉销量同比增长335%，首次成为韩国进口车市场
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社上海4月7日电 (谢梦圆)记者7日从特斯拉中国获悉，特斯拉上海超级工厂今年3月汽车交付量持续攀升，超8.56万辆，环比大涨46%，创年内新高。
 
-据不完全统计，6月16日盘后，盛泰集团、新里程披露增持情况，播恩集团、福达合金、和远气体、百合花4家A股上市公司披露拟减持情况。
+该企业表示，在今年3月的韩国市场，特斯拉凭超1.1万辆的销量成绩刷新历史纪录，成为当地进口车市场首个单月销量突破万辆的品牌，且所有车型均由特斯拉上海超级工厂生产制造。
 
-责任编辑：宋雅芳
+聚焦第一季度，特斯拉销量同比增长335%，首次成为韩国进口车市场销量冠军。
+
+每个季度的第一个月，特斯拉上海超级工厂生产制造的大量新车会发往海外，在此过程中，中国制造车型的品质也收获海外车主的点赞。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:40 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 15:44 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 15:46 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 16:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 15:39 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 15:57 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 15:57 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 15:37 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 15:57 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 16:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 15:45 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 16:01 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 16:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 15:54 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 15:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 16:09 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 15:58 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 15:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 16:07 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 15:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 15:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 15:59 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 15:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 16:10 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 15:57 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 15:45 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/559616684225.shtml)
-- 2026-06-29 15:40 - [沉睡花园](https://www.share.minike.top/Article/details/45503.shtml)
-- 2026-06-29 15:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/7201688335.shtml)
-- 2026-06-29 15:57 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/968007754833.shtml)
-- 2026-06-29 15:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/450150801.shtml)
-- 2026-06-29 15:40 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/94942831.shtml)
-- 2026-06-29 15:52 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/076346729533.shtml)
-- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/507777624.shtml)
-- 2026-06-29 15:58 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/73998.shtml)
-- 2026-06-29 15:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/9005830923.shtml)
-- 2026-06-29 15:44 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/17783.shtml)
-- 2026-06-29 15:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/033054789877.shtml)
-- 2026-06-29 15:39 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/5781300.shtml)
-- 2026-06-29 15:41 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/7497908510.shtml)
-- 2026-06-29 15:52 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/22278.shtml)
+- 2026-06-29 15:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/9338246291.shtml)
+- 2026-06-29 16:07 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/217336.shtml)
+- 2026-06-29 15:57 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/41964.shtml)
+- 2026-06-29 15:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/3795825313.shtml)
+- 2026-06-29 15:50 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/658373989688.shtml)
+- 2026-06-29 15:49 - [周生如故](http://www.share.kurohicncr.top/Article/details/22816200364.shtml)
+- 2026-06-29 15:50 - [AG 宫斗](http://www.blog.minike.top/Article/details/0246277576.shtml)
+- 2026-06-29 16:04 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/21895.shtml)
+- 2026-06-29 15:54 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/116546.shtml)
+- 2026-06-29 15:59 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/92879.shtml)
+- 2026-06-29 16:09 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/95466.shtml)
+- 2026-06-29 16:03 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/83172046.shtml)
+- 2026-06-29 16:02 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/58406892.shtml)
+- 2026-06-29 16:11 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/635057669.shtml)
+- 2026-06-29 15:58 - [斗破苍穹](https://www.blog.minike.top/Article/details/398245740.shtml)

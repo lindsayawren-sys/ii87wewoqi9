@@ -1,57 +1,59 @@
-# 今年以来广东完成近9000艘次海洋渔船“体检”
+# 习近平在全军高级干部培训班开班式上发表重要讲话强调 开展思想整风 深化政治整训 以崭新政治面貌迎接建军一百周年
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网广州6月16日电 (记者 方伟彬)今年6月正值第25个全国“安全生产月”。广东省海洋综合执法总队16日在汕尾市海洋综合执法码头举行2026年全省渔船安全应急演练。 据通报，近年来，广东省海洋综合执法总队纵深推进安全生产治本攻坚三年行动，今年以来累计检验海洋渔船8874艘次、内陆渔船2132艘次，整改安全隐患4282处，处置海上险情31起，成功救助船舶31艘、人员68人，坚
+全军高级干部培训班8日上午在国防大学开班。中共中央总书记、国家主席、中央军委主席习近平出席开班式并发表重要讲话。他强调，要以新时代中国特色社会主义思想为指导，深入贯彻新时代强军思想，开展思想整风，深化政治整训，加强我军干部队伍革命性锻造，始终保持人民军队纯洁光荣，以崭新政治面貌迎接建军一百周年。 习近平指出，我党我军是用理想信念凝聚起来的，加入这个党、这支军队，就要笃信马克思主
 
 ## 正文
 
-中新网广州6月16日电 (记者 方伟彬)今年6月正值第25个全国“安全生产月”。
+全军高级干部培训班8日上午在国防大学开班。
 
-广东省海洋综合执法总队16日在汕尾市海洋综合执法码头举行2026年全省渔船安全应急演练。
+中共中央总书记、国家主席、中央军委主席习近平出席开班式并发表重要讲话。
 
-据通报，近年来，广东省海洋综合执法总队纵深推进安全生产治本攻坚三年行动，今年以来累计检验海洋渔船8874艘次、内陆渔船2132艘次，整改安全隐患4282处，处置海上险情31起，成功救助船舶31艘、人员68人，坚决守牢“不安全、不出海”底线，以高水平安全护航海洋经济高质量发展。
+他强调，要以新时代中国特色社会主义思想为指导，深入贯彻新时代强军思想，开展思想整风，深化政治整训，加强我军干部队伍革命性锻造，始终保持人民军队纯洁光荣，以崭新政治面貌迎接建军一百周年。
 
-当天的活动紧扣“人人讲安全、个个会应急——排查整治风险隐患”主题，结合新版《中华人民共和国渔业法》实施及“中国渔政亮剑2026”“商渔共治”等专项行动，统筹开展安全宣教与实操实训。
+习近平指出，我党我军是用理想信念凝聚起来的，加入这个党、这支军队，就要笃信马克思主义，就要忠诚于党的信仰、党的组织、党的事业。
 
-现场设立宣传咨询台，通过展板展示、专家答疑、有奖问答等形式，向渔民普及渔业法律法规、防灾减灾及自救互救知识，为100余人次解答疑难问题，赠送救生衣200余件、灭火器20余个，发放宣传资料千余份。
+要认真学习党的创新理论，掌握贯穿其中的马克思主义立场观点方法，以理论上的清醒保证政治上的坚定。
 
-在技能实训环节，授课老师现场演示了救生衣、救生筏、消防设备及通导设备的规范操作，并手把手指导渔民代表掌握心肺复苏术和AED除颤仪使用方法。
+军队领导干部特别是高级干部要带头严肃党内政治生活，当好讲真话的表率，涵养能容人的雅量，营造说实情、建诤言、敢斗争的浓厚氛围。
 
-随后的海上实景演练模拟渔船起火、人员落水等险情，执法人员与船东船长快速联动，高效完成消防灭火、释放救生筏及落水人员搜救等科目。
+习近平强调，我们党是始终代表最广大人民根本利益的马克思主义政党，没有任何自己的特殊利益，一切谋私贪腐的思想和行为都同党的性质宗旨格格不入。
 
-活动还组织商渔船船长面对面交流，共商防范商渔船碰撞风险举措。
+军队各级干部要自觉摆正位置，站稳群众立场，克服一切脱离群众的私心杂念。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 16:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 15:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 15:42 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 15:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 15:38 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:39 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 15:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 15:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 16:03 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:42 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 15:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 15:49 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 15:56 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:59 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:06 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 15:58 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 16:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 15:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 16:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 16:05 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 15:50 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/990086.shtml)
-- 2026-06-29 15:57 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/949327605360.shtml)
-- 2026-06-29 15:59 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/251109732879.shtml)
-- 2026-06-29 15:57 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/86506.shtml)
-- 2026-06-29 16:05 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/9283675164.shtml)
-- 2026-06-29 15:57 - [扫黑风暴](https://www.share.minike.top/Article/details/053235954896.shtml)
-- 2026-06-29 16:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/856027514.shtml)
-- 2026-06-29 15:51 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/0520238966.shtml)
-- 2026-06-29 15:44 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/7588728.shtml)
-- 2026-06-29 16:05 - [天道](https://www.share.kurohicncr.top/Article/details/64477739.shtml)
-- 2026-06-29 15:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/97217240.shtml)
-- 2026-06-29 15:58 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/05273078.shtml)
-- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/76779544.shtml)
-- 2026-06-29 15:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/16318920929.shtml)
-- 2026-06-29 15:36 - [东方风云榜](https://www.share.minike.top/Article/details/7306822863.shtml)
+- 2026-06-29 16:06 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/8714341444.shtml)
+- 2026-06-29 16:11 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/964781.shtml)
+- 2026-06-29 16:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/818716008161.shtml)
+- 2026-06-29 15:44 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/6719863.shtml)
+- 2026-06-29 15:43 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/57061154.shtml)
+- 2026-06-29 15:52 - [女心理师](http://www.share.minike.top/Article/details/78886.shtml)
+- 2026-06-29 15:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/794257.shtml)
+- 2026-06-29 15:47 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/1016490.shtml)
+- 2026-06-29 15:51 - [新一代影后杨紫](https://www.share.minike.top/Article/details/61038.shtml)
+- 2026-06-29 16:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/2021333672.shtml)
+- 2026-06-29 15:44 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/713712454.shtml)
+- 2026-06-29 16:07 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/441811769.shtml)
+- 2026-06-29 15:55 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/6235762.shtml)
+- 2026-06-29 15:59 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/943692192546.shtml)
+- 2026-06-29 16:04 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/25748021580.shtml)

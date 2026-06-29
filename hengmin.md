@@ -1,46 +1,58 @@
-# 浦江中国公布于今日上午起复牌
+# SK 海力士向戴尔供应 321 层 QLC 消费级固态硬盘：2230 尺寸，可选 1TB/2TB
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-浦江中国（01417）公布，公司股份将于2026年6月16日上午9点起复牌。责任编辑：卢昱君
+IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在
 
 ## 正文
 
-浦江中国（01417）公布，公司股份将于2026年6月16日上午9点起复牌。
+IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。
 
-责任编辑：卢昱君
+据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。
+
+QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在速度、耐久性方面有所下降。
+
+这款固态硬盘通过 321 层 4D 结构堆叠数千亿个 QLC 单元构建，采用 PUC（IT之家注：Periphery Under Cell）架构，可通过将外围电路放在存储单元阵列下方缩小芯片体积。
+
+同时，这款产品还采用 DP（Die Packaging）技术，可将多个 321 层 NAND 芯片封装为单一芯片，提升存储密度。
+
+配备 SLC 缓存技术，可以将部分数据先写入到速度更快的 SLC 区域，然后再转存至 QLC，从而提升写入性能。
+
+SK 海力士方面表示，这款产品本月已经向戴尔供货，计划扩展至全球更多客户。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 15:42 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 15:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 16:04 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:58 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 15:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 15:37 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 15:56 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 15:45 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 16:01 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 15:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 16:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 16:06 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 16:06 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 15:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:46 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 15:49 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 15:54 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 15:42 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 16:09 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 16:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 15:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 16:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 15:56 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/52376.shtml)
-- 2026-06-29 16:03 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/823438.shtml)
-- 2026-06-29 15:46 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/0451243.shtml)
-- 2026-06-29 15:38 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/945020882665.shtml)
-- 2026-06-29 15:37 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.minike.top/Article/details/8591239.shtml)
-- 2026-06-29 15:37 - [人形机器人](https://www.share.kurohicncr.top/Article/details/112656.shtml)
-- 2026-06-29 16:03 - [爱很美味](https://www.share.kurohicncr.top/Article/details/66520310.shtml)
-- 2026-06-29 15:56 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/0235945.shtml)
-- 2026-06-29 16:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/42871035.shtml)
-- 2026-06-29 15:45 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/269077668025.shtml)
-- 2026-06-29 16:05 - [AG 宫斗](https://www.blog.minike.top/Article/details/511816701.shtml)
-- 2026-06-29 16:03 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/7091030699.shtml)
-- 2026-06-29 15:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/370611605317.shtml)
-- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/03748588.shtml)
-- 2026-06-29 15:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/92368889045.shtml)
+- 2026-06-29 15:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/8444272.shtml)
+- 2026-06-29 15:49 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/465361707.shtml)
+- 2026-06-29 15:49 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/87444.shtml)
+- 2026-06-29 16:03 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/35688548.shtml)
+- 2026-06-29 16:10 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/252890373372.shtml)
+- 2026-06-29 16:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/31963.shtml)
+- 2026-06-29 16:01 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/11397967489.shtml)
+- 2026-06-29 15:51 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/864195704636.shtml)
+- 2026-06-29 15:51 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/119340.shtml)
+- 2026-06-29 15:46 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/102962699.shtml)
+- 2026-06-29 15:44 - [流金岁月](http://www.share.kurohicncr.top/Article/details/376322127994.shtml)
+- 2026-06-29 15:48 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/96542185.shtml)
+- 2026-06-29 16:10 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/417071.shtml)
+- 2026-06-29 15:55 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/3627647.shtml)
+- 2026-06-29 15:44 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/82994.shtml)

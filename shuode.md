@@ -1,59 +1,56 @@
-# 谁说矿山只有灰？河北赞皇藏着一座开满紫色花海的“矿山公园”
+# 50%关税！特朗普，突发威胁！黄金、白银拉升
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网石家庄6月16日电 (杨宏伟)初夏时节，“2026媒体走金隅”调研活动走进河北省石家庄市。作为传统高耗能建材行业，金隅冀东水泥石家庄区域锚定绿色低碳转型方向，依托矿山生态修复、布局光伏绿能、水泥窑协同处置固废等多元举措，走出一条“生态优先、绿色发展”的产业新路径。 走进赞皇金隅公司石灰石矿，全然不见传统矿山尘土飞扬的刻板模样，而是成片淡紫色苜蓿花海随风翻涌，空气中弥漫着草
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！突发。 据央视新闻报道，美国总统特朗普8日在社交媒体发文说，任何向伊朗提供军事武器的国家，其向美国销售的所有商品将被立即加征50%的关税，即刻生效且没有例外或豁免。 国际金银盘中拉升，截至发稿，现货黄金涨超2%，现货白银涨近6%。 稍早时候，美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对
 
 ## 正文
 
-中新网石家庄6月16日电 (杨宏伟)初夏时节，“2026媒体走金隅”调研活动走进河北省石家庄市。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为传统高耗能建材行业，金隅冀东水泥石家庄区域锚定绿色低碳转型方向，依托矿山生态修复、布局光伏绿能、水泥窑协同处置固废等多元举措，走出一条“生态优先、绿色发展”的产业新路径。
+突发。
 
-走进赞皇金隅公司石灰石矿，全然不见传统矿山尘土飞扬的刻板模样，而是成片淡紫色苜蓿花海随风翻涌，空气中弥漫着草木清香。
+据央视新闻报道，美国总统特朗普8日在社交媒体发文说，任何向伊朗提供军事武器的国家，其向美国销售的所有商品将被立即加征50%的关税，即刻生效且没有例外或豁免。
 
-这里正在建设的赞皇金隅石灰石矿矿山公园，彻底抚平了以往竖切式开采遗留的生态创伤。
+国际金银盘中拉升，截至发稿，现货黄金涨超2%，现货白银涨近6%。
 
-“我们采用横切式开采工艺，在国内处于领先地位。
+稍早时候，美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对伊朗的军事行动。
 
-”赞皇金隅公司矿山运行部部长姚飞介绍，企业坚持“边开采、边治理、边恢复”原则，将矿山综合治理纳入《石灰石矿矿山生态修复方案》。
+特朗普当天称，美伊两周停火“非常好”，在伊朗的所有军事目标都已经达成，“我们在军事上已经完成一切想做的事，美国在军事上取得了完全胜利”。
 
-开采形成的台阶平台经复垦植绿，由蜿蜒盘山公路串联成片，层层叠叠的生态园区雏形已然显现。
+另据报道，央视新闻记者当地时间8日获悉，伊朗海军已向霍尔木兹海峡附近的船只发出警告，要求所有船只必须获得许可后才能通过该海峡。
 
-据姚飞介绍，企业规划累计投入1.5亿元，用于矿山全周期生态修复治理。
+警告称，任何未经授权的通行尝试都将面临被摧毁的风险。
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 15:52 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 15:49 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 15:50 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 15:44 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 15:42 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 15:49 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 15:42 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 15:57 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 16:05 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 15:39 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:44 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 15:38 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 15:44 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 15:56 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 15:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 15:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 16:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 15:57 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 15:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 16:10 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/7775796304.shtml)
-- 2026-06-29 15:40 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2777229864.shtml)
-- 2026-06-29 15:41 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/409152.shtml)
-- 2026-06-29 15:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/24830.shtml)
-- 2026-06-29 15:39 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/90652982145.shtml)
-- 2026-06-29 16:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/129157955319.shtml)
-- 2026-06-29 16:00 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/168654671.shtml)
-- 2026-06-29 15:57 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/255996798.shtml)
-- 2026-06-29 15:56 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/23288211690.shtml)
-- 2026-06-29 15:44 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/705929029297.shtml)
-- 2026-06-29 15:57 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/162757570.shtml)
-- 2026-06-29 16:00 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/230370304.shtml)
-- 2026-06-29 15:58 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/546316.shtml)
-- 2026-06-29 15:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/9108726.shtml)
-- 2026-06-29 15:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7647988.shtml)
+- 2026-06-29 15:49 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/178584.shtml)
+- 2026-06-29 16:01 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/9979046825.shtml)
+- 2026-06-29 15:45 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/80435079.shtml)
+- 2026-06-29 16:03 - [存储三巨头被告了](http://www.share.minike.top/Article/details/46820219207.shtml)
+- 2026-06-29 15:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/53593049003.shtml)
+- 2026-06-29 16:08 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/7041568.shtml)
+- 2026-06-29 16:06 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/33961519889.shtml)
+- 2026-06-29 15:56 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/2132514.shtml)
+- 2026-06-29 15:57 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/1317121913.shtml)
+- 2026-06-29 16:02 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/100662734867.shtml)
+- 2026-06-29 16:10 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/2083458883.shtml)
+- 2026-06-29 16:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/5013519944.shtml)
+- 2026-06-29 15:54 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/923125551.shtml)
+- 2026-06-29 16:03 - [毒液2](http://www.blog.minike.top/Article/details/46388.shtml)
+- 2026-06-29 16:00 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/799062.shtml)

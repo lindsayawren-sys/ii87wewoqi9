@@ -1,59 +1,50 @@
-# 保险VIP尊享旅游团正在变大型“购物杀猪盘”！4家保险公司被文旅部点名
+# 心泰医疗建议H股回购计划
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-来源：险联社 “保险代理人变“导游”，打着VIP客户回馈旗号，把人推到购物店，洗脑、强迫，兜售一堆价值不明的玉石，一场对保险客户的大型围猎活动，正在愈演愈烈。” 部分保险机构和代理人给客户的“VIP尊享旅游团”正在变成对客户的一场大型“购物杀猪盘”围猎活动。 邀约VIP客户参加低价甚至免费旅行团，然后甩给当地旅行社，带到购物点强制购物，不是高价玉石，就是“野生动物制品”。 在销
+心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。 目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。责任编辑：卢昱君
 
 ## 正文
 
-来源：险联社 “保险代理人变“导游”，打着VIP客户回馈旗号，把人推到购物店，洗脑、强迫，兜售一堆价值不明的玉石，一场对保险客户的大型围猎活动，正在愈演愈烈。
+心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。
 
-” 部分保险机构和代理人给客户的“VIP尊享旅游团”正在变成对客户的一场大型“购物杀猪盘”围猎活动。
+目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。
 
-邀约VIP客户参加低价甚至免费旅行团，然后甩给当地旅行社，带到购物点强制购物，不是高价玉石，就是“野生动物制品”。
-
-在销售人员强迫、洗脑之下，本以为是“尊享旅游团”，到最后，买了几万甚至十几万价值不明的东西。
-
-保险机构或代理人负责拉人、旅行社负责行程、地接团队负责收割，已经变成一条完整的灰色产业链，大有愈演愈烈之势。
-
-最近，文化旅游部公布13个旅游市场强制消费问题典型案例，其中6个案例涉及中国人寿、人保人寿、合众人寿、平安人寿4家保险公司的代理人。
-
-具体来看： 1、关在港澳购物店内购物 中国人寿贵州万山支公司销售人员杨某荣在未取得旅行社业务经营许可证的情况下，以880元/人的团费组织招徕保险客户参加“港澳7日游”，高某在不具备领队条件的情况下为该团游客提供领队服务。
-
-游客反映在香港和澳门期间被关在购物店内购物。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 16:03 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 15:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 15:40 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 15:52 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:48 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 15:43 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 15:38 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 15:41 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 16:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 15:52 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 16:04 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 16:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 15:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:05 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 16:00 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:06 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 15:51 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 15:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:54 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 15:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:51 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 15:55 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 15:53 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/520826435969.shtml)
-- 2026-06-29 15:37 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/8070310.shtml)
-- 2026-06-29 15:45 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/353266906.shtml)
-- 2026-06-29 15:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/99621216132.shtml)
-- 2026-06-29 15:59 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/57145583.shtml)
-- 2026-06-29 16:04 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/5437350.shtml)
-- 2026-06-29 15:56 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/4424357.shtml)
-- 2026-06-29 15:36 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/9306123.shtml)
-- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/2277345.shtml)
-- 2026-06-29 16:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/290699260.shtml)
-- 2026-06-29 15:58 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/7201174788.shtml)
-- 2026-06-29 15:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/5489233064.shtml)
-- 2026-06-29 16:00 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/7255569.shtml)
-- 2026-06-29 15:59 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/430562437.shtml)
-- 2026-06-29 15:37 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/60736.shtml)
+- 2026-06-29 15:48 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/1346158375.shtml)
+- 2026-06-29 15:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/9466092.shtml)
+- 2026-06-29 15:49 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/36172.shtml)
+- 2026-06-29 16:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/20921367.shtml)
+- 2026-06-29 16:06 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/57681831728.shtml)
+- 2026-06-29 16:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/48946.shtml)
+- 2026-06-29 16:00 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/99773249951.shtml)
+- 2026-06-29 15:45 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/2684643693.shtml)
+- 2026-06-29 16:02 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/945405.shtml)
+- 2026-06-29 15:48 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/073462611083.shtml)
+- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/062166.shtml)
+- 2026-06-29 15:53 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/058651.shtml)
+- 2026-06-29 15:48 - [勇敢的心第二部](http://www.share.minike.top/Article/details/63439364.shtml)
+- 2026-06-29 16:04 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/882189100886.shtml)
+- 2026-06-29 16:10 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/02864173.shtml)

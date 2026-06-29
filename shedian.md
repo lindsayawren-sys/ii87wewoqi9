@@ -1,60 +1,46 @@
-# 以无我之心做事，以有我之姿尽责
+# 教育部：严禁城市高中违规面向县域掐尖招生
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-原标题：人民论坛实评 | 以无我之心做事，以有我之姿尽责 一张蓝图抓到底，不仅需科学决策，也要思想境界。什么样的思想境界？就是要有 " 功成不必在我 " 的胸襟。这是一种有宽阔胸怀的建功立业思想，实际上是大我和小我的关系，长远利益、根本利益和个人抱负、个人利益的关系。 习近平总书记强调，要 " 以功成不必在我、功成必定有我的精神境界，心无旁骛推进中国式现代化 "。把握好 " 功
+中新网4月3日电(记者 袁秀月)近日，教育部办公厅印发通知，对开展中小学阳光招生专项行动(2026年)作出部署。《通知》要求，普通高中学校全面落实属地招生要求，严格实行“公民同招”政策，严禁部属高校附中、省属高中、设区的城市高中违规面向县域掐尖招生，严格规范各类加分项目和分值。认真落实优质普通高中招生指标合理分配到区域内薄弱初中的政策，严禁以指标到校名义跨区域掐尖招生。
 
 ## 正文
 
-原标题：人民论坛实评 | 以无我之心做事，以有我之姿尽责 一张蓝图抓到底，不仅需科学决策，也要思想境界。
+中新网4月3日电(记者 袁秀月)近日，教育部办公厅印发通知，对开展中小学阳光招生专项行动(2026年)作出部署。
 
-什么样的思想境界？
+《通知》要求，普通高中学校全面落实属地招生要求，严格实行“公民同招”政策，严禁部属高校附中、省属高中、设区的城市高中违规面向县域掐尖招生，严格规范各类加分项目和分值。
 
-就是要有 " 功成不必在我 " 的胸襟。
-
-这是一种有宽阔胸怀的建功立业思想，实际上是大我和小我的关系，长远利益、根本利益和个人抱负、个人利益的关系。
-
-习近平总书记强调，要 " 以功成不必在我、功成必定有我的精神境界，心无旁骛推进中国式现代化 "。
-
-把握好 " 功成不必在我 " 与 " 功成必定有我 " 的辩证统一，是树立和践行正确政绩观的题中之义，也是党员干部干事创业须答好的考题。
-
-政贵有恒，治须有常。
-
-党员干部干事创业，要树立和践行正确政绩观，有功成不必在我的精神境界、功成必定有我的历史担当，既做显功，也做潜功。
+认真落实优质普通高中招生指标合理分配到区域内薄弱初中的政策，严禁以指标到校名义跨区域掐尖招生。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 16:01 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 15:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 15:37 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 15:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 15:39 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 15:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 15:43 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 15:39 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 16:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 15:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 15:38 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 15:45 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 15:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 15:44 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 15:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 16:11 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 16:01 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 16:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 16:06 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 15:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 15:51 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 15:52 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 15:50 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/451678176.shtml)
-- 2026-06-29 15:58 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/451259296778.shtml)
-- 2026-06-29 15:47 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/3566336127.shtml)
-- 2026-06-29 16:03 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/941613084.shtml)
-- 2026-06-29 15:36 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/92531422.shtml)
-- 2026-06-29 15:45 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/377185868.shtml)
-- 2026-06-29 15:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/38488147119.shtml)
-- 2026-06-29 15:37 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/449156750.shtml)
-- 2026-06-29 15:57 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/64737477872.shtml)
-- 2026-06-29 15:57 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/0083266903.shtml)
-- 2026-06-29 15:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/68313317.shtml)
-- 2026-06-29 15:39 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/701872.shtml)
-- 2026-06-29 15:51 - [金牌调解](http://www.share.kurohicncr.top/Article/details/784340024753.shtml)
-- 2026-06-29 15:47 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/7310655602.shtml)
-- 2026-06-29 15:58 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/27399224400.shtml)
+- 2026-06-29 15:53 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/5934349.shtml)
+- 2026-06-29 15:53 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/571313.shtml)
+- 2026-06-29 16:00 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/62492.shtml)
+- 2026-06-29 16:11 - [国家体育总局政策法规司原副司长获刑](http://www.blog.kurohicncr.top/Article/details/91543.shtml)
+- 2026-06-29 16:10 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6085856.shtml)
+- 2026-06-29 15:47 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/0258890864.shtml)
+- 2026-06-29 15:53 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/25600424.shtml)
+- 2026-06-29 15:47 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/69690906.shtml)
+- 2026-06-29 16:00 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/4027810.shtml)
+- 2026-06-29 16:00 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/2904322596.shtml)
+- 2026-06-29 15:49 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/51232610611.shtml)
+- 2026-06-29 15:52 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/669867.shtml)
+- 2026-06-29 15:46 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/017162980.shtml)
+- 2026-06-29 16:05 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/28828200055.shtml)
+- 2026-06-29 15:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/30735591636.shtml)

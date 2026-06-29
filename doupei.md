@@ -1,50 +1,56 @@
-# 特朗普：将与泽连斯基会面 俄罗斯应与乌克兰达成协议
+# 特斯拉股价大跌
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据美国有线电视新闻网(CNN)报道，美国总统特朗普16日在法国埃维昂莱班出席七国集团峰会期间表示，他将于当天晚些时候与乌克兰总统泽连斯基会面，并表示俄罗斯应该与乌克兰达成协议。 特朗普称，俄乌两国在冲突中伤亡惨重，他将“尽其所能”解决这一冲突。 七国集团峰会于15日至17日在法国埃维昂莱班举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！图片来源：界面图库 美东时间周四，美股三大指数收盘涨跌不一，道指跌0.13%，纳指涨0.18%，标普500指数涨0.11%。美股市场周五因假期休市，道指本周累涨2.96%，纳指本周累涨4.44%，标普500指数本周累涨3.36%并创去年11月以来最大单周涨幅。 其中，科技股涨跌互现，英特尔涨超4%，AMD、
 
 ## 正文
 
-中新网6月16日电 据美国有线电视新闻网(CNN)报道，美国总统特朗普16日在法国埃维昂莱班出席七国集团峰会期间表示，他将于当天晚些时候与乌克兰总统泽连斯基会面，并表示俄罗斯应该与乌克兰达成协议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-特朗普称，俄乌两国在冲突中伤亡惨重，他将“尽其所能”解决这一冲突。
+图片来源：界面图库 美东时间周四，美股三大指数收盘涨跌不一，道指跌0.13%，纳指涨0.18%，标普500指数涨0.11%。
 
-七国集团峰会于15日至17日在法国埃维昂莱班举行。
+美股市场周五因假期休市，道指本周累涨2.96%，纳指本周累涨4.44%，标普500指数本周累涨3.36%并创去年11月以来最大单周涨幅。
+
+其中，科技股涨跌互现，英特尔涨超4%，AMD、奈飞涨超3%，特斯拉跌超5%并创去年11月以来最大单日跌幅。
+
+消息面上，特斯拉一季度交付量不及预期。
+
+特斯拉最新公布的2026年第一季度产量、交付量和部署情况显示，第一季度交付量为358023辆，其中Model3/Y交付量为341893辆；第一季度汽车产量408386辆，其中Model3/Y产量394611辆。
+
+同期，特斯拉储能产品装机量达到8.8吉瓦时。
+
+一季度，特斯拉的交付量同比增长6.3%，但环比下降14.4%。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 15:38 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 15:40 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 15:39 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 15:47 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 15:59 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 15:49 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 15:37 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 15:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 15:53 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 15:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 16:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 15:48 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:04 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 16:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 16:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 16:09 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 16:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 15:53 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/62194.shtml)
-- 2026-06-29 15:44 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/36178217722.shtml)
-- 2026-06-29 15:49 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/09629.shtml)
-- 2026-06-29 15:46 - [链博会上的机器人太全能了](https://www.blog.kurohicncr.top/Article/details/221927566483.shtml)
-- 2026-06-29 15:39 - [千与千寻](http://www.share.kurohicncr.top/Article/details/803136.shtml)
-- 2026-06-29 15:42 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/759795460.shtml)
-- 2026-06-29 15:56 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/60360571328.shtml)
-- 2026-06-29 15:56 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/8240103.shtml)
-- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/494049.shtml)
-- 2026-06-29 15:39 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/93934069092.shtml)
-- 2026-06-29 15:41 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/76158.shtml)
-- 2026-06-29 16:05 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/64457069274.shtml)
-- 2026-06-29 15:45 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/50973675.shtml)
-- 2026-06-29 15:37 - [扬名立万](http://www.blog.minike.top/Article/details/813928339.shtml)
-- 2026-06-29 15:51 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/1955987892.shtml)
+- 2026-06-29 15:52 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/38349.shtml)
+- 2026-06-29 15:42 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/0524829947.shtml)
+- 2026-06-29 15:42 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/73302.shtml)
+- 2026-06-29 15:48 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/786455039221.shtml)
+- 2026-06-29 15:56 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/86072248.shtml)
+- 2026-06-29 16:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/89452.shtml)
+- 2026-06-29 16:07 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/56602602.shtml)
+- 2026-06-29 15:49 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/45584.shtml)
+- 2026-06-29 15:51 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/409724205820.shtml)
+- 2026-06-29 15:42 - [普京介绍前线战事](http://www.share.minike.top/Article/details/044261949.shtml)
+- 2026-06-29 15:45 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/8188170.shtml)
+- 2026-06-29 15:45 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/633353675352.shtml)
+- 2026-06-29 16:11 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/703033061.shtml)
+- 2026-06-29 15:47 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/053777963.shtml)
+- 2026-06-29 16:09 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/205019554562.shtml)

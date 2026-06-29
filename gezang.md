@@ -1,57 +1,53 @@
-# PCB全线爆发，我用可比公司分析Skill抓住了三家真龙头！
+# 郑丽文：只要坚持“九二共识”、反对“台独”，两岸就可交流对话，反之台海就会陷入动荡不安
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-（来源：ETF万亿指数） 6月15日，A股PCB（印制电路板）板块迎来全线爆发，PCB概念大涨近9%，相关的电子ETF华宝大涨超7%，资金加速涌入该板块。 01 为什么PCB行情如此火爆？ 主要有以下几点原因： 供给端，中东地缘冲突导致沙特朱拜勒工业区停产，直接冲击了全球约70%的高纯度聚苯醚（PPE）树脂供应。作为高端PCB及高速覆铜板的核心原材料，PPE的断供直接推升了全产
+发布时间：2026年04月08日 10:18 来源：中国新闻网 应中共中央和习近平总书记邀请，中国国民党主席郑丽文4月7日率国民党访问团经上海抵达南京，开始大陆参访行程。郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。此访是为了维护台海和平，增进人民福祉，意义重大。中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。(记者 路梅制作
 
 ## 正文
 
-（来源：ETF万亿指数） 6月15日，A股PCB（印制电路板）板块迎来全线爆发，PCB概念大涨近9%，相关的电子ETF华宝大涨超7%，资金加速涌入该板块。
+发布时间：2026年04月08日 10:18 来源：中国新闻网 应中共中央和习近平总书记邀请，中国国民党主席郑丽文4月7日率国民党访问团经上海抵达南京，开始大陆参访行程。
 
-01 为什么PCB行情如此火爆？
+郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。
 
-主要有以下几点原因： 供给端，中东地缘冲突导致沙特朱拜勒工业区停产，直接冲击了全球约70%的高纯度聚苯醚（PPE）树脂供应。
+此访是为了维护台海和平，增进人民福祉，意义重大。
 
-作为高端PCB及高速覆铜板的核心原材料，PPE的断供直接推升了全产业链的成本与产品价格。
+中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。
 
-市场逻辑迅速从“需求拉动”切换至“供给刚性收缩下的涨价弹性”。
-
-需求端，英伟达新一代Rubin架构升级，推动单机PCB价值量飙升。
-
-在Rubin VR200机柜中，由于PCB层数从20-24层升级至26-32层、材料等级从M7提升至M8，并新增了ConnectX模组和中板PCB，PCB价值量达到11.67万美元，较上一代GB300大增233%。
-
-大摩预计，2025-2028年全球AI光模块PCB市场年复合增速将达83%。
+(记者 路梅制作 王宁） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 16:01 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 15:36 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 15:47 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 16:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 15:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 15:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 15:50 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 15:40 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 15:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 16:01 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 16:07 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 15:54 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 15:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 15:43 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 15:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 15:55 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 16:05 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 15:45 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 15:45 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 15:55 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 16:03 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/562665.shtml)
-- 2026-06-29 15:37 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/95080020.shtml)
-- 2026-06-29 16:03 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/622820130797.shtml)
-- 2026-06-29 15:45 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/278813558335.shtml)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/3788322.shtml)
-- 2026-06-29 15:41 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/78556769.shtml)
-- 2026-06-29 15:39 - [天道](https://www.share.minike.top/Article/details/16193676786.shtml)
-- 2026-06-29 15:37 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/06765.shtml)
-- 2026-06-29 15:43 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3870220.shtml)
-- 2026-06-29 15:58 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/2556066.shtml)
-- 2026-06-29 15:56 - [金刚川](https://www.blog.minike.top/Article/details/68082.shtml)
-- 2026-06-29 15:53 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/795763582.shtml)
-- 2026-06-29 15:59 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/612753205.shtml)
-- 2026-06-29 15:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/4668287.shtml)
-- 2026-06-29 15:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8957519.shtml)
+- 2026-06-29 16:04 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/18111923.shtml)
+- 2026-06-29 15:53 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/6813949078.shtml)
+- 2026-06-29 15:42 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/11683.shtml)
+- 2026-06-29 16:04 - [斗破苍穹](http://www.share.minike.top/Article/details/83908553160.shtml)
+- 2026-06-29 15:56 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/406764312963.shtml)
+- 2026-06-29 15:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/644343452731.shtml)
+- 2026-06-29 16:02 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/419417474.shtml)
+- 2026-06-29 15:57 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/251344859471.shtml)
+- 2026-06-29 16:07 - [光与夜之恋](http://www.blog.minike.top/Article/details/41772.shtml)
+- 2026-06-29 16:07 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/182661507.shtml)
+- 2026-06-29 16:11 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/0018106277.shtml)
+- 2026-06-29 15:57 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/63085.shtml)
+- 2026-06-29 16:10 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/9284091308.shtml)
+- 2026-06-29 16:11 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/02453.shtml)
+- 2026-06-29 16:06 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/61715807462.shtml)

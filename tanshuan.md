@@ -1,61 +1,57 @@
-# 调仓信号？“公募一哥”张坤，持续新动作！
+# 金力永磁早盘涨超7% 机构看好稀土板块估值业绩双升
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。 易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？ 新搭档曾重仓广深
+金力永磁（06680）早盘涨超7%，截至发稿，股价上涨7.06%，现报20.62港元，成交额6850.93万港元。 近日稀土价格企稳回升，镨钕氧化物价格上涨至75万元/吨上方。在此前部分厂商公开看空后，近期下游采购积极性明显提升，市场预计主要厂商的库存降至1个月以内，或对价格形成明显支撑。国投证券认为，预计4月上旬包钢将上调稀土精矿价格，能源危机可能催化内外需求超预期，新一轮补
 
 ## 正文
 
-文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。
+金力永磁（06680）早盘涨超7%，截至发稿，股价上涨7.06%，现报20.62港元，成交额6850.93万港元。
 
-根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。
+近日稀土价格企稳回升，镨钕氧化物价格上涨至75万元/吨上方。
 
-易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。
+在此前部分厂商公开看空后，近期下游采购积极性明显提升，市场预计主要厂商的库存降至1个月以内，或对价格形成明显支撑。
 
-在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？
+国投证券认为，预计4月上旬包钢将上调稀土精矿价格，能源危机可能催化内外需求超预期，新一轮补库可能在二季度启动，看好26年稀土中枢价格上涨。
 
-新搭档曾重仓广深铁路 6月8日，广深铁路发布的公司前十大股东持股情况的公告显示，易方达蓝筹精选持有公司5000万股股票，持股比例约0.71%。
+国金证券表示，从年初至今来看，价格中枢不断上抬，该行认为或与2024-2025年发布的供给侧文件相关性较大，行业供改持续推进。
 
-这份持股数据的股权登记日为2026年6月5日。
+2025年出口全年同比-1%、2026年初至今出口增加显著，表明海外仍有较大补库需求。
 
-今年5月初，广深铁路公布过2026年4月29日登记在册的前十大股东，当时还没有易方达蓝筹精选的身影。
+稀土板块将继续演化估值业绩双升，2026年亦为重点标的同业竞争解决的关键一年。
 
-易方达蓝筹精选2025年年报中披露的全部持股明细、2026年一季报中披露的前十大重仓股，均没有广深铁路。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 16:01 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 15:57 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 15:53 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 15:52 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 15:51 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 15:51 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 15:57 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 15:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 15:58 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 15:44 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 15:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 16:00 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 15:39 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 15:36 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 15:55 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 16:11 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 15:58 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 16:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 15:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 15:56 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 16:06 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 15:45 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 15:51 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 15:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/23623576396.shtml)
-- 2026-06-29 15:49 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/4906108395.shtml)
-- 2026-06-29 15:45 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/0956608893.shtml)
-- 2026-06-29 15:52 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/01050199.shtml)
-- 2026-06-29 15:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/02996941.shtml)
-- 2026-06-29 15:40 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/7956824061.shtml)
-- 2026-06-29 15:50 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/244539029.shtml)
-- 2026-06-29 15:48 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/254267917.shtml)
-- 2026-06-29 15:38 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/5053416.shtml)
-- 2026-06-29 15:42 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/53300047086.shtml)
-- 2026-06-29 15:47 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/49746370184.shtml)
-- 2026-06-29 16:01 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/2033141808.shtml)
-- 2026-06-29 15:42 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/335417474527.shtml)
-- 2026-06-29 15:52 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/394224259031.shtml)
-- 2026-06-29 15:42 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/180516686673.shtml)
+- 2026-06-29 16:00 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/25090.shtml)
+- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/0578914.shtml)
+- 2026-06-29 16:07 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/8979689319.shtml)
+- 2026-06-29 15:59 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/67001049.shtml)
+- 2026-06-29 16:03 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/3299581497.shtml)
+- 2026-06-29 15:46 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/377113692551.shtml)
+- 2026-06-29 15:53 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/291721.shtml)
+- 2026-06-29 16:01 - [极限挑战第一季](https://www.share.minike.top/Article/details/27005391400.shtml)
+- 2026-06-29 15:56 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/2550819580.shtml)
+- 2026-06-29 15:59 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/13604.shtml)
+- 2026-06-29 15:57 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/63415002.shtml)
+- 2026-06-29 15:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/91068125.shtml)
+- 2026-06-29 16:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/821820.shtml)
+- 2026-06-29 15:59 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/0014926.shtml)
+- 2026-06-29 16:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/50881676.shtml)

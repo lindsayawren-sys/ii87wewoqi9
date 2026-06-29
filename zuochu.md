@@ -1,59 +1,52 @@
-# 防城海关综合技术服务中心2026年实验室仪器设备更新采购项目招标公告
+# 伊朗驻华大使：感谢中方促和努力
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-项目概况 防城海关综合技术服务中心2026年实验室仪器设备更新采购项目 招标项目的潜在投标人应在诚 E 招电子采购交易平台(https://www.chengezhao.com/)获取招标文件，并于2026年7月7日09时30分(北京时间)前递交投标文件。 一、项目基本情况 1.项目编号：07-15-04A-2026-D-F-E148692.项目名称：防城海关综合技术服务中心2
+发布时间：2026年04月08日 20:14 来源：中国新闻网 针对西方媒体称中国在伊美达成为期两周的停火协议中发挥了关键作用，伊朗驻华大使法兹里4月8日在北京答记者问时作出回应，感谢中方的不懈努力。 法兹里表示，伊朗和中国是友好国家，双方在不同领域一直都有非常积极的对话合作。从美以对伊朗的不合法战争开始的第一天，中方就从多个层面强调整个地区进一步恢复到和平状态的原则。 法兹里
 
 ## 正文
 
-项目概况 防城海关综合技术服务中心2026年实验室仪器设备更新采购项目 招标项目的潜在投标人应在诚 E 招电子采购交易平台(https://www.chengezhao.com/)获取招标文件，并于2026年7月7日09时30分(北京时间)前递交投标文件。
+发布时间：2026年04月08日 20:14 来源：中国新闻网 针对西方媒体称中国在伊美达成为期两周的停火协议中发挥了关键作用，伊朗驻华大使法兹里4月8日在北京答记者问时作出回应，感谢中方的不懈努力。
 
-一、项目基本情况 1.项目编号：07-15-04A-2026-D-F-E148692.项目名称：防城海关综合技术服务中心2026年实验室仪器设备更新采购项目 3.预算金额：人民币107万元 4.最高限价(如有)：107万元，本项目各仪器设备单价报价超出最高限价的，按无效投标处理；各仪器设备单价最高限价详见招标文件第二章采购需求。
+法兹里表示，伊朗和中国是友好国家，双方在不同领域一直都有非常积极的对话合作。
 
-5.采购需求：需采购防城海关综合技术服务中心2026年实验室仪器设备4台(其中：红外测氢仪1台、测汞仪1台、冷冻离心浓缩仪1台、原子荧光光度计1台)，具体技术参数及要求详见招标文件第二章采购需求。
+从美以对伊朗的不合法战争开始的第一天，中方就从多个层面强调整个地区进一步恢复到和平状态的原则。
 
-6.合同履约期限：自签订合同之日起30个日历日内完成交货。
+法兹里表示，美国有三次在跟伊朗进行对话期间或者达成协议之后，违背了协议。
 
-7.本项目(不接受)联合体投标。
+法兹里指出，一直以来，伊朗与中国、俄罗斯、巴基斯坦、土耳其、埃及等国保持密集磋商，希望通过磋商达成一个合理的对话基础，一个能保证伊朗权益的协议。
 
-二、投标人的资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定。
-
-2.落实政府采购政策需满足的资格要求：本项目属于专门面向小微企业采购的项目， 设备制造商须为小型或微型企业或监狱企业或残疾人福利性单位；供应商须提供中小企业声明函或者残疾人福利性单位声明函或者供应商属于监狱企业的证明材料。
-
-3.本项目的特定资格要求： (1)单位负责人为同一人或者存在直接控股、管理关系的不同供应商，不得参加同一合同项下的政府采购活动。
+(记者 王世博 张焕迪 制作 周璟） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 15:55 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 15:50 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 16:05 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 15:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 15:42 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 15:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 15:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 15:50 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 15:55 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 15:55 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:51 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 15:53 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 16:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 16:02 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 16:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 15:44 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 16:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 16:09 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 16:04 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 15:48 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 16:02 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/746994203.shtml)
-- 2026-06-29 16:04 - [爱很美味](https://www.blog.minike.top/Article/details/420058.shtml)
-- 2026-06-29 15:59 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/33689772.shtml)
-- 2026-06-29 16:01 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/28046220411.shtml)
-- 2026-06-29 15:46 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/2002858172.shtml)
-- 2026-06-29 15:57 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/235774805.shtml)
-- 2026-06-29 15:37 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/1622283.shtml)
-- 2026-06-29 15:56 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/559162058182.shtml)
-- 2026-06-29 15:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/17724.shtml)
-- 2026-06-29 16:02 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/06090426.shtml)
-- 2026-06-29 15:49 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/81898791882.shtml)
-- 2026-06-29 15:47 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/9094688.shtml)
-- 2026-06-29 15:38 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/973926208.shtml)
-- 2026-06-29 15:58 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/601545817578.shtml)
-- 2026-06-29 15:44 - [乔家的儿女](https://www.blog.minike.top/Article/details/677662966615.shtml)
+- 2026-06-29 16:10 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/784655705942.shtml)
+- 2026-06-29 16:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/0311803.shtml)
+- 2026-06-29 15:48 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/794648134.shtml)
+- 2026-06-29 15:46 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/36652854590.shtml)
+- 2026-06-29 15:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/048967.shtml)
+- 2026-06-29 16:08 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/77316.shtml)
+- 2026-06-29 15:47 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/6079329.shtml)
+- 2026-06-29 15:51 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/37808.shtml)
+- 2026-06-29 16:01 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/6851396.shtml)
+- 2026-06-29 16:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/0480923.shtml)
+- 2026-06-29 15:44 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/227805571.shtml)
+- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/39991970134.shtml)
+- 2026-06-29 15:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/288557547853.shtml)
+- 2026-06-29 15:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/13367071759.shtml)
+- 2026-06-29 16:02 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/7562283957.shtml)

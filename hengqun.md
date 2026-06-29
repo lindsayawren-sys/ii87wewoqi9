@@ -1,56 +1,52 @@
-# 从“老抠门”到“土专家”：灵丘科技小院让雁北农夫完成种植逆袭
+# TD Cowen上调Freshpet评级，看好销售和成本控制前景
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网大同6月17日电 (胡健 马静波 宋佳烨)初夏时节，山西省大同市灵丘县清泥涧村的梯田绿意盎然。一大早，64岁的有机蔬菜大棚种植户谢玉凯就在田间为村民讲解农用酵素的使用方法——这位曾经对有机种植心存疑虑的普通农户，如今已蜕变为十里八乡闻名的农技“土专家”。 走进老谢的蔬菜大棚，西红柿泛着红晕，豆角翠绿笔直，葡萄饱满圆润。喷施农用酵素近三年，他的作物根系又深又壮，叶片肥厚油亮
+TD Cowen周三将Freshpet的评级从持有上调至买入，称其零售销售增长好于预期，而竞争带来的销售威胁可能被市场过度担忧。 TD Cowen分析师Robert Moskow在一份报告中表示，此次上调反映了“年初至今零售销售额增长13%，好于2026年全年增长7%-10%的指引，并且我们认为，市场对Costco新自有品牌入局以及Farmer‘s Dog在Walmart.co
 
 ## 正文
 
-中新网大同6月17日电 (胡健 马静波 宋佳烨)初夏时节，山西省大同市灵丘县清泥涧村的梯田绿意盎然。
+TD Cowen周三将Freshpet的评级从持有上调至买入，称其零售销售增长好于预期，而竞争带来的销售威胁可能被市场过度担忧。
 
-一大早，64岁的有机蔬菜大棚种植户谢玉凯就在田间为村民讲解农用酵素的使用方法——这位曾经对有机种植心存疑虑的普通农户，如今已蜕变为十里八乡闻名的农技“土专家”。
+TD Cowen分析师Robert Moskow在一份报告中表示，此次上调反映了“年初至今零售销售额增长13%，好于2026年全年增长7%-10%的指引，并且我们认为，市场对Costco新自有品牌入局以及Farmer‘s Dog在Walmart.com上扩张所带来的竞争加剧的担忧将被证明是过度的。
 
-走进老谢的蔬菜大棚，西红柿泛着红晕，豆角翠绿笔直，葡萄饱满圆润。
+我们相信Freshpet拥有足够的规模和竞争优势来抵御此类威胁。
 
-喷施农用酵素近三年，他的作物根系又深又壮，叶片肥厚油亮，抗寒抗旱能力大幅提升，采摘期也显著延长。
+” 该机构对该股设定的目标价为80美元，意味着较周二收盘价有约27%的上涨空间。
 
-“喷酵素离太近不行，太远也不行，这里面的门道很多，一点都不能含糊。
-
-”老谢边说边示范着。
-
-改变始于2024年6月。
-
-全国首个依据全域有机农业科学理论体系打造的县域有机农业科技小院在灵丘县成立。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 15:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 15:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 15:49 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 15:59 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:37 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 15:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 15:39 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 15:44 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 15:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 15:47 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 15:43 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 15:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 15:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 15:50 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 16:01 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 15:56 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:53 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 15:54 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 16:02 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 16:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:44 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/184291354346.shtml)
-- 2026-06-29 15:48 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/223719.shtml)
-- 2026-06-29 15:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/351758313193.shtml)
-- 2026-06-29 16:03 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/213157.shtml)
-- 2026-06-29 15:52 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/598546.shtml)
-- 2026-06-29 15:59 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/637446280966.shtml)
-- 2026-06-29 15:52 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/335975358059.shtml)
-- 2026-06-29 15:37 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/99092669.shtml)
-- 2026-06-29 15:55 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/3203115150.shtml)
-- 2026-06-29 16:05 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/4282649453.shtml)
-- 2026-06-29 15:49 - [一见倾心](https://www.share.kurohicncr.top/Article/details/815546973.shtml)
-- 2026-06-29 16:00 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/42156.shtml)
-- 2026-06-29 15:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/25001.shtml)
-- 2026-06-29 15:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/25571402052.shtml)
-- 2026-06-29 15:47 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/3947191047.shtml)
+- 2026-06-29 15:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/5475639.shtml)
+- 2026-06-29 15:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/80517.shtml)
+- 2026-06-29 15:46 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/20601.shtml)
+- 2026-06-29 15:56 - [20年前的周杰伦](http://www.share.minike.top/Article/details/94703.shtml)
+- 2026-06-29 16:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/933147.shtml)
+- 2026-06-29 15:46 - [急先锋](https://www.blog.minike.top/Article/details/694728308291.shtml)
+- 2026-06-29 15:54 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/504900870908.shtml)
+- 2026-06-29 16:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/27972986.shtml)
+- 2026-06-29 16:05 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/408203209.shtml)
+- 2026-06-29 15:52 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/19897.shtml)
+- 2026-06-29 15:58 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/8655403621.shtml)
+- 2026-06-29 15:43 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/9975019.shtml)
+- 2026-06-29 16:07 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/71578236.shtml)
+- 2026-06-29 15:43 - [T1 KC](https://www.blog.minike.top/Article/details/928703142839.shtml)
+- 2026-06-29 15:48 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/17632257054.shtml)

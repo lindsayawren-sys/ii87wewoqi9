@@ -1,56 +1,59 @@
-# 拒绝“发布会通胀”，理想汽车李想：没重要消息的发布会一律不办
+# 大昌微线集团主要股东Spring Global出售17.36%股权
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-6月16日，理想汽车创始人、董事长兼CEO李想发文回应“理想为什么不多开发布会”。 李想表示，现在行业有一种“发布会通胀”的现象。 他认为，发布会越开越多，但每一场的信息密度越来越低。一款车从预热、亮相、预售、上市、改款，能开好几场发布会，但其实用户的耐心是有限的。 “我对发布会的标准很简单：如果你不开这场发布会，用户会少知道一件重要的事，那它就该开；如果开完又没有给用户更多有
+大昌微线集团（00567）发布公告，于2026年4月2日，本公司董事会获主要股东Spring Global告知，其（作为卖方）已与金安智能科技有限公司（金安智能）（作为买方）订立买卖协议，内容有关买卖2.8亿股股份（占本公司于本公告日期全部已发行股本约17.36%）（转让事项）。 股份转让事项在买卖协议签署当日已正式完成。 金安智能由孙景安博士（孙博士）及 马莹女士（马女士）实
 
 ## 正文
 
-6月16日，理想汽车创始人、董事长兼CEO李想发文回应“理想为什么不多开发布会”。
+大昌微线集团（00567）发布公告，于2026年4月2日，本公司董事会获主要股东Spring Global告知，其（作为卖方）已与金安智能科技有限公司（金安智能）（作为买方）订立买卖协议，内容有关买卖2.8亿股股份（占本公司于本公告日期全部已发行股本约17.36%）（转让事项）。
 
-李想表示，现在行业有一种“发布会通胀”的现象。
+股份转让事项在买卖协议签署当日已正式完成。
 
-他认为，发布会越开越多，但每一场的信息密度越来越低。
+金安智能由孙景安博士（孙博士）及 马莹女士（马女士）实益拥有。
 
-一款车从预热、亮相、预售、上市、改款，能开好几场发布会，但其实用户的耐心是有限的。
+马女士为孙博士的配偶。
 
-“我对发布会的标准很简单：如果你不开这场发布会，用户会少知道一件重要的事，那它就该开；如果开完又没有给用户更多有价值的信息，那它就不该存在。
+孙博士为金安智能的唯一董事及北京金安具身智能系统有限公司（北京金安）的法定代表。
 
-” 李想提到，最近理想汽车三场发布会的主题都是完全独立的。
+本集团已与北京金安及北京伟航奕宁健康管理集团有限公司共同成立金安奕宁（深圳）具身智能有限公司（合资公司）。
 
-“有人嫌我们发布会开太少、太短。
+合资公司为本公司 60%非全资附属公司及主要从事人工智能及智能机械人于医疗、康复及安老领域的商业应用与研发业务。
 
-说实话我宁愿用户觉得没看够，也不想让用户觉得‘怎么又来了？
+紧接转让事项完成前，Spring Global为本公司主要股东，且为吴文灿先生（吴先生）的全资附属公司。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 16:03 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 15:38 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 16:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 15:56 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 15:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 15:57 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 15:47 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 15:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 15:36 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 16:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 16:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 15:58 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 15:48 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 15:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 15:54 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 15:42 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 15:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 16:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 16:08 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 15:42 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 16:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 15:43 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [流金岁月](http://www.share.kurohicncr.top/Article/details/66172890859.shtml)
-- 2026-06-29 15:38 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/83927529.shtml)
-- 2026-06-29 15:40 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/6263899839.shtml)
-- 2026-06-29 15:52 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/0648843.shtml)
-- 2026-06-29 16:00 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/3156519777.shtml)
-- 2026-06-29 15:39 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/438479745953.shtml)
-- 2026-06-29 15:52 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/31214246.shtml)
-- 2026-06-29 15:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/400976619091.shtml)
-- 2026-06-29 15:47 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/6355967.shtml)
-- 2026-06-29 15:54 - [斛珠夫人](https://www.share.minike.top/Article/details/457159819447.shtml)
-- 2026-06-29 15:46 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/5092656.shtml)
-- 2026-06-29 15:47 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0968188.shtml)
-- 2026-06-29 15:49 - [吴建豪老婆](http://www.blog.minike.top/Article/details/502437170007.shtml)
-- 2026-06-29 15:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/523140754287.shtml)
-- 2026-06-29 15:42 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/978232.shtml)
+- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/7178527694.shtml)
+- 2026-06-29 15:51 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/7264621.shtml)
+- 2026-06-29 15:57 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/4568024.shtml)
+- 2026-06-29 15:50 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/9408650894.shtml)
+- 2026-06-29 15:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/54981744677.shtml)
+- 2026-06-29 16:07 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/98419776111.shtml)
+- 2026-06-29 15:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/14760668.shtml)
+- 2026-06-29 16:10 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/914319816872.shtml)
+- 2026-06-29 15:52 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/7427516.shtml)
+- 2026-06-29 15:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/5874354593.shtml)
+- 2026-06-29 15:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/25067.shtml)
+- 2026-06-29 15:44 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/69121101198.shtml)
+- 2026-06-29 16:02 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4540088061.shtml)
+- 2026-06-29 15:57 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/423094418453.shtml)
+- 2026-06-29 15:50 - [扬名立万](https://www.share.kurohicncr.top/Article/details/86620203.shtml)

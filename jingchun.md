@@ -1,56 +1,56 @@
-# 五省区联手 科研创新推动冬虫夏草产业发展
+# 碳酸锂价格突然大跌！市场情况是......
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海、四川、甘肃、云南、西藏五省区冬虫夏草资源保护与产业发展座谈会在青海玉树召开。五省区林草部门聚焦冬虫夏草资源保护、科研创新与产业发展展开交流。 冬虫夏草是青藏高原及其周边地区特有珍稀物种资源。中国青海、四川、云南、甘肃、西藏五省区冬虫夏草产量占全球总产量的98%以上。 记者梳理发现，科技创新成为冬虫夏草产业发展亮点。西藏
+来源：期货日报 3月31日，碳酸锂期货价格大幅回调，主力合约报收157200元/吨，下跌7.97%。现货价格也大幅回落，根据Mysteel数据，3月31日电池级碳酸锂均价报166300元/吨，单日下跌1200元/吨。 业内人士认为，碳酸锂价格回调，主要原因是供应扰动再度发酵，有市场消息称津巴布韦锂矿出口出现积极进展。 据了解，津巴布韦于2月25日全面停止原矿和锂精矿出口。该国锂
 
 ## 正文
 
-中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海、四川、甘肃、云南、西藏五省区冬虫夏草资源保护与产业发展座谈会在青海玉树召开。
+来源：期货日报 3月31日，碳酸锂期货价格大幅回调，主力合约报收157200元/吨，下跌7.97%。
 
-五省区林草部门聚焦冬虫夏草资源保护、科研创新与产业发展展开交流。
+现货价格也大幅回落，根据Mysteel数据，3月31日电池级碳酸锂均价报166300元/吨，单日下跌1200元/吨。
 
-冬虫夏草是青藏高原及其周边地区特有珍稀物种资源。
+业内人士认为，碳酸锂价格回调，主要原因是供应扰动再度发酵，有市场消息称津巴布韦锂矿出口出现积极进展。
 
-中国青海、四川、云南、甘肃、西藏五省区冬虫夏草产量占全球总产量的98%以上。
+据了解，津巴布韦于2月25日全面停止原矿和锂精矿出口。
 
-记者梳理发现，科技创新成为冬虫夏草产业发展亮点。
+该国锂矿产量占全球总产量的10%左右，若出口禁令持续，对我国锂矿供应的冲击较大。
 
-西藏开展种质研究，研发便携式智能鉴别设备，30秒即可完成无损检测；云南深耕成分研究，为产品品质把控提供科学依据；四川依托科研平台完成仿野生栽培等关键技术攻关。
+近日，有市场消息称津巴布韦锂矿出口有望恢复。
 
-据了解，五省区均严守生态保护底线，实施精细化采挖管控。
+业内人士预计，4月可能敲定出口细则。
 
-青海完成全域资源摸排，合理控制采挖规模，落实生态修复举措；四川分析基因并建立标本数据库，严控采集量；甘肃严管本地资源，持续打击非法交易。
+广发期货分析师林嘉旎表示，津巴布韦锂矿出口出现积极进展，打破了此前的市场预期，碳酸锂价格应声回落。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 15:45 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:52 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 15:38 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 15:40 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 15:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 15:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 15:47 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 15:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 15:55 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 16:06 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 16:05 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 15:52 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 15:53 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 15:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 16:01 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 16:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 15:59 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/34948731.shtml)
-- 2026-06-29 15:38 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/6776003959.shtml)
-- 2026-06-29 15:48 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/1664547500.shtml)
-- 2026-06-29 15:46 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/9512549.shtml)
-- 2026-06-29 15:52 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/10395.shtml)
-- 2026-06-29 15:51 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/26158571416.shtml)
-- 2026-06-29 15:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/192753094953.shtml)
-- 2026-06-29 15:58 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/40369620097.shtml)
-- 2026-06-29 15:47 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/4514240.shtml)
-- 2026-06-29 15:36 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/27260085871.shtml)
-- 2026-06-29 15:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/80917.shtml)
-- 2026-06-29 15:38 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/51039.shtml)
-- 2026-06-29 15:37 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/19436411261.shtml)
-- 2026-06-29 15:39 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/132080417072.shtml)
-- 2026-06-29 15:43 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/751631.shtml)
+- 2026-06-29 15:42 - [恋与深空 731](https://www.share.minike.top/Article/details/155989796132.shtml)
+- 2026-06-29 16:10 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/48528.shtml)
+- 2026-06-29 15:57 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/55565087830.shtml)
+- 2026-06-29 15:56 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/955168566169.shtml)
+- 2026-06-29 16:07 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/465162.shtml)
+- 2026-06-29 15:47 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/353797.shtml)
+- 2026-06-29 15:59 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/62184120.shtml)
+- 2026-06-29 16:01 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/19313.shtml)
+- 2026-06-29 16:08 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/76989579247.shtml)
+- 2026-06-29 16:11 - [沙丘](http://www.share.minike.top/Article/details/3108699457.shtml)
+- 2026-06-29 16:04 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/1606178013.shtml)
+- 2026-06-29 15:46 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/67339349856.shtml)
+- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/21466855.shtml)
+- 2026-06-29 15:52 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/8280354.shtml)
+- 2026-06-29 15:52 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/212290.shtml)

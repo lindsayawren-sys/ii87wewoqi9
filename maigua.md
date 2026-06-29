@@ -1,57 +1,49 @@
-# 只需三步 把外卖吃得更健康
+# 金川国际发布中期业绩 股东应占溢利552.1万美元
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-外卖快餐因便利和多样，已经成为很多人午餐的首选，甚至不少人用外卖解决一日三餐。那么，怎样才能让外卖吃得健康呢？专家支招，获得健康外卖，只需做好三个细节。 第一步 会挑 大家在点餐的时候要挑选“看得出原形”的食材，少选“看不出是什么”的菜品。比如说清炒时蔬、白灼大虾、卤鸡腿，我们知道自己吃的是什么。而像午餐肉、鱼豆腐、烤肠这些加工程度很高的食材，原料不容易把控。 此外，还有一些干
+金川国际（02362）发布截至2025年6月30日止6个月中期业绩，该集团取得收益1.82亿美元；公司拥有人应占溢利552.1万美元；每股盈利0.04美分。责任编辑：卢昱君
 
 ## 正文
 
-外卖快餐因便利和多样，已经成为很多人午餐的首选，甚至不少人用外卖解决一日三餐。
+金川国际（02362）发布截至2025年6月30日止6个月中期业绩，该集团取得收益1.82亿美元；公司拥有人应占溢利552.1万美元；每股盈利0.04美分。
 
-那么，怎样才能让外卖吃得健康呢？
-
-专家支招，获得健康外卖，只需做好三个细节。
-
-第一步 会挑 大家在点餐的时候要挑选“看得出原形”的食材，少选“看不出是什么”的菜品。
-
-比如说清炒时蔬、白灼大虾、卤鸡腿，我们知道自己吃的是什么。
-
-而像午餐肉、鱼豆腐、烤肠这些加工程度很高的食材，原料不容易把控。
-
-此外，还有一些干锅类、油炸类菜品，即使能看出原形是什么，但是油盐用量大多比较高，也不建议多吃。
-
-第二步 会搭 这里的“会搭”指的是合理搭配。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 16:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 15:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 16:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 16:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 15:58 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 15:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 15:58 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 15:56 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 15:50 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 15:40 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 15:50 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 15:59 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 15:44 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 16:00 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 16:06 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 16:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 15:49 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 15:51 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 15:44 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 15:51 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 15:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 16:06 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 15:46 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 15:47 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/88264398.shtml)
-- 2026-06-29 16:00 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/6533474.shtml)
-- 2026-06-29 15:40 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/891159700.shtml)
-- 2026-06-29 15:38 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/00154402239.shtml)
-- 2026-06-29 15:50 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/6854675669.shtml)
-- 2026-06-29 16:02 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/34063.shtml)
-- 2026-06-29 15:45 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/269626817.shtml)
-- 2026-06-29 15:47 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/401225.shtml)
-- 2026-06-29 15:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/3081013712.shtml)
-- 2026-06-29 15:56 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/16140583.shtml)
-- 2026-06-29 15:51 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/9009430.shtml)
-- 2026-06-29 15:47 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/27428127.shtml)
-- 2026-06-29 15:52 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/47548969781.shtml)
-- 2026-06-29 15:56 - [斛珠夫人](https://www.blog.minike.top/Article/details/1093764.shtml)
-- 2026-06-29 15:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/97584261.shtml)
+- 2026-06-29 15:49 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/24977504.shtml)
+- 2026-06-29 16:11 - [人形机器人](https://www.blog.minike.top/Article/details/840024330873.shtml)
+- 2026-06-29 15:59 - [NBA交易](https://www.share.kurohicncr.top/Article/details/56909.shtml)
+- 2026-06-29 16:07 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/720278.shtml)
+- 2026-06-29 15:53 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/18268250.shtml)
+- 2026-06-29 15:48 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/18827.shtml)
+- 2026-06-29 15:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/5257183707.shtml)
+- 2026-06-29 15:53 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/91090540.shtml)
+- 2026-06-29 16:05 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/258615781083.shtml)
+- 2026-06-29 15:54 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/2941881081.shtml)
+- 2026-06-29 16:07 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/751280768669.shtml)
+- 2026-06-29 15:52 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/505377310.shtml)
+- 2026-06-29 16:03 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/229773824201.shtml)
+- 2026-06-29 15:57 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/7384636.shtml)
+- 2026-06-29 16:00 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/64985.shtml)

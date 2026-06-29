@@ -1,61 +1,58 @@
-# 长江有色: 出口放量、价差扩大打开盈利空间+ 前补库提振 17日铝价或上涨
+# Anthropic携手科技巨头推出AI网络安全项目
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝收涨0.24%；新能源需求持续扩张、出口放量、价差扩大打开盈利空间，节前补库提振，今现铝或迎涨。 【铝期货市场】：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝超跌反弹，最新收盘报价3391美元/吨，收涨8美元，涨幅0.24%，成交量41806手减少6285手，持仓量634150手
+Anthropic于周二宣布启动一项与多家大型科技公司的合作倡议，允许合作伙伴预览其开发的一款具备网络安全能力的先进AI模型。 根据Anthropic公布的信息，这项名为“Project Glasswing”（玻璃翼计划）的项目将向特定组织开放其未公开发布的通用AI模型“Claude Mythos预览版”，用于防御性网络安全工作。合作伙伴包括亚马逊、微软、苹果、谷歌、英伟达、C
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝收涨0.24%；新能源需求持续扩张、出口放量、价差扩大打开盈利空间，节前补库提振，今现铝或迎涨。
+Anthropic于周二宣布启动一项与多家大型科技公司的合作倡议，允许合作伙伴预览其开发的一款具备网络安全能力的先进AI模型。
 
-【铝期货市场】：利空出尽及伦铝库存连降至低位提供支撑，隔夜伦铝超跌反弹，最新收盘报价3391美元/吨，收涨8美元，涨幅0.24%，成交量41806手减少6285手，持仓量634150手减少9244手。
+根据Anthropic公布的信息，这项名为“Project Glasswing”（玻璃翼计划）的项目将向特定组织开放其未公开发布的通用AI模型“Claude Mythos预览版”，用于防御性网络安全工作。
 
-晚间沪铝高开后偏强震荡；主力月2606合约最新收盘价报23895元/吨，涨65元，涨幅0.27%。
+合作伙伴包括亚马逊、微软、苹果、谷歌、英伟达、CrowdStrike和Palo Alto Networks等科技与网络安全公司。
 
-伦敦金属交易所（LME）6月16日伦铝最新库存量报318000吨，较上个交易日下降1500吨，跌幅0.47%。
+模型能力引发关注 Anthropic在博客文章中表示，Mythos预览版已在操作系统、网络浏览器和其他软件中发现了“数千个”重大漏洞。
 
-长江铝业网讯：6月16日现货铝价，长江现货A00铝锭价报23800元/吨，跌330元；广东现货A00铝锭价报23780元/吨，跌340元。
+据公司介绍，该模型发现的安全漏洞包括OpenBSD中一个存在27年的错误，以及FFmpeg中一个存在16年、在自动测试工具运行500万次后仍未被检测到的漏洞。
 
-宏观层面，美伊停战谅解备忘录完成电子签署——允许伊朗签后立即售油、停火延60天、霍尔木兹海峡重开，油价预期下修（高盛/大摩下调Brent预测），通胀担忧缓解，12月加息隐含概率从70%降至约60%，美元指数继续走弱，利多金属估值。
+值得注意的是，Mythos并非专门针对网络安全任务进行训练，但其“强大的智能体编程和推理能力”使其在网络安全领域表现出色。
 
-市场焦点转本周三美联储议息（沃什首秀），普遍预期维持3.50%-3.75%不变，声明及点阵图为下一阶段指引。
+Anthropic表示，该模型能够“完全自主地”识别漏洞并开发相关利用代码，“无需任何人工引导”。
 
-国内方面，5月PPI涨幅受国际输入性影响略有扩大但整体平稳；1-5月高技术产业投资+4.5%，集成电路制造+11%、锂电+24.9%、信息服务业+13.8%，设备工器具购置+9.3%，新质生产力投资持续放量。
+分阶段发布与安全考量 考虑到模型可能被滥用的风险，Anthropic采取了谨慎的分阶段发布策略。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 15:59 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 15:39 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 15:45 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 15:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 16:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 15:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 15:45 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 15:38 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 15:38 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 16:00 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 15:45 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 16:00 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 15:56 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:57 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 15:53 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 16:11 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 15:48 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 15:59 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 16:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 15:47 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:10 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 16:04 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 16:11 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/257970.shtml)
-- 2026-06-29 15:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/4125541.shtml)
-- 2026-06-29 15:37 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/69460.shtml)
-- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/16850993521.shtml)
-- 2026-06-29 15:52 - [光与夜之恋](http://www.blog.minike.top/Article/details/375713440.shtml)
-- 2026-06-29 15:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/08356.shtml)
-- 2026-06-29 15:41 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/876510.shtml)
-- 2026-06-29 15:53 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/70644.shtml)
-- 2026-06-29 15:54 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/482735261.shtml)
-- 2026-06-29 15:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/24219484216.shtml)
-- 2026-06-29 15:56 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/15451448.shtml)
-- 2026-06-29 15:44 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/255122.shtml)
-- 2026-06-29 15:48 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/96398645926.shtml)
-- 2026-06-29 15:39 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/396829715799.shtml)
-- 2026-06-29 16:03 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/211517686.shtml)
+- 2026-06-29 15:49 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/95783582.shtml)
+- 2026-06-29 16:09 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/12710.shtml)
+- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/4035163.shtml)
+- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/2473120047.shtml)
+- 2026-06-29 15:44 - [小娘惹](https://www.share.minike.top/Article/details/19574846325.shtml)
+- 2026-06-29 15:46 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/378421979090.shtml)
+- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/697485946233.shtml)
+- 2026-06-29 16:05 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/14186416.shtml)
+- 2026-06-29 15:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/386978075.shtml)
+- 2026-06-29 15:42 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/137037629.shtml)
+- 2026-06-29 15:57 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/553242980962.shtml)
+- 2026-06-29 15:59 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/7273209.shtml)
+- 2026-06-29 15:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/6785855642.shtml)
+- 2026-06-29 16:01 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/1317577.shtml)
+- 2026-06-29 16:06 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/09826832.shtml)

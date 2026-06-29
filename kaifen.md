@@ -1,58 +1,57 @@
-# 青海：多项核心技术保护冬虫夏草种质资源
+# 王者领跑！华宝基金创业板人工智能ETF放量飙升9.69%直逼前高，资金涌入超2亿元！光模块双雄齐创新高！
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。 “十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。 据介绍，青海省科研团队建立了冬虫夏草生态抚育
+周三（4月8日），外围局势逆转引发A股“狂欢” ，算力、AI应用成为市场共识最强反攻方向之一，创业板人工智能猛攻超9%领涨全市场！成份股全线大涨，AI应用概念股蓝色光标20CM涨停，光模块龙头中际旭创涨超11%创历史新高，新易盛涨超9%创历史新高，IDC算力租赁概念股网宿科技、奥飞数据等多股大涨超12%。 热门ETF方面，20CM高弹性的创业板人工智能ETF华宝（159363）
 
 ## 正文
 
-中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。
+周三（4月8日），外围局势逆转引发A股“狂欢” ，算力、AI应用成为市场共识最强反攻方向之一，创业板人工智能猛攻超9%领涨全市场！
 
-当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。
+成份股全线大涨，AI应用概念股蓝色光标20CM涨停，光模块龙头中际旭创涨超11%创历史新高，新易盛涨超9%创历史新高，IDC算力租赁概念股网宿科技、奥飞数据等多股大涨超12%。
 
-“十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。
+热门ETF方面，20CM高弹性的创业板人工智能ETF华宝（159363）跳空飙升，场内单边上扬收涨9.69%直逼前高，爆量成交超13亿元，交投居全市场AI主题类ETF首位！
 
-据介绍，青海省科研团队建立了冬虫夏草生态抚育技术，在不破坏原有生态环境的前提下，通过冬虫夏草繁育所需环境的保护和恢复，增加“菌-虫-草”资源，从而增加野生环境中冬虫夏草数量，实现青海道地冬虫夏草资源抚育；同时突破了野生与人工冬虫夏草的鉴别技术，建立了覆盖“光谱学-化学-影像学-遗传学”的四维冬虫夏草鉴定方法，解决了野生与人工繁育冬虫夏草鉴定技术难题；还建立了冬虫夏草追溯码系统，研究开发了野生、野生抚版、人工3个版本的溯源码。
+火热行情吸引资金布局，创业板人工智能ETF华宝（159363）单日净申购2.06亿份，按当日场内均价估算吸金超2亿元。
 
-浙江、上海等地科研机构、企业在青海省畜牧兽医科学院、珠峰药业等成果基础上，通过优化培养基配方，实现了冬虫夏草菌菌丝体的高密度发酵，满足《中国药典》冬虫夏草腺苷含量最低要求。
+站在当前时点，在光模块、算力租赁及AI应用三大方向共同驱动下，创业板人工智能布局机遇凸显。
 
-为守住技术与资源优势，青海省科技厅将进一步加强冬虫夏草菌虫品种保护研究和加快野生和人工冬虫夏草鉴别研究。
+光模块方面，国盛证券指出，光电路交换（OCS）技术正从谷歌的独家部署走向全行业AI基础设施的架构核心，在规模化能力、应用场景和客户生态三个维度实现突破性进展。
 
-(完)
+OCS规模化部署或将直接拉动两条主线：一是光模块环节，龙头厂商持续受益；二是光器件环节，相关供应商迎来从0到1的增量需求。
+
+* IDC算力租赁方面，中信证券表示，伴随Agent应用和多模态生态的爆发，资本开支与算力需求错配，全球Token用量正迎来新一轮加速增长，近两年云产业链有望进入量价齐升的发展大年。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 15:49 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 15:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 16:02 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 15:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 15:56 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 15:44 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 15:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:43 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 15:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 15:41 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 16:04 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:37 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 15:59 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 16:01 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 15:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 15:44 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 16:08 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 16:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 15:48 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 16:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 16:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 15:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/339448.shtml)
-- 2026-06-29 15:37 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/12700798.shtml)
-- 2026-06-29 15:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/274486.shtml)
-- 2026-06-29 15:43 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/02596935952.shtml)
-- 2026-06-29 15:52 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/88418324.shtml)
-- 2026-06-29 15:42 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/4157930.shtml)
-- 2026-06-29 15:43 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/925668186.shtml)
-- 2026-06-29 15:56 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/77065769.shtml)
-- 2026-06-29 15:40 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/970482085981.shtml)
-- 2026-06-29 15:40 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/50490813371.shtml)
-- 2026-06-29 15:59 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/309718306.shtml)
-- 2026-06-29 15:36 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/95095879779.shtml)
-- 2026-06-29 15:50 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/353102694367.shtml)
-- 2026-06-29 15:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/986437110379.shtml)
-- 2026-06-29 16:05 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/2424464507.shtml)
+- 2026-06-29 15:59 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/018137.shtml)
+- 2026-06-29 15:49 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/902435.shtml)
+- 2026-06-29 15:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/2231199501.shtml)
+- 2026-06-29 16:09 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/80918240405.shtml)
+- 2026-06-29 15:43 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/36155.shtml)
+- 2026-06-29 15:45 - [起风了](http://www.share.kurohicncr.top/Article/details/1058732474.shtml)
+- 2026-06-29 16:02 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/890659480300.shtml)
+- 2026-06-29 16:05 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/47638.shtml)
+- 2026-06-29 16:04 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/9451624.shtml)
+- 2026-06-29 15:56 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/7396654.shtml)
+- 2026-06-29 15:51 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/48654309053.shtml)
+- 2026-06-29 15:45 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/9657114205.shtml)
+- 2026-06-29 15:53 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/6058575670.shtml)
+- 2026-06-29 15:47 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/071786.shtml)
+- 2026-06-29 16:02 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/380996910.shtml)

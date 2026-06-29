@@ -1,58 +1,51 @@
-# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
+# 受结束伊朗战争的谈判希望提振 日经指数或上涨
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
+在有条件的停火之后，结束战争的美伊谈判希望延续，日本股市或将上涨。在新加坡交易所，日经指数期货上涨0.6%，报56705点。投资者正在关注中东和平谈判的任何进展，以及日本政府为帮助企业获得能源和石化产品而采取的任何措施。周三，日经指数上涨5.4%，至56308.42点。责任编辑：王永生
 
 ## 正文
 
-科技行情爆火背后，基金“上新”与“限购”并存。
+在有条件的停火之后，结束战争的美伊谈判希望延续，日本股市或将上涨。
 
-近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
+在新加坡交易所，日经指数期货上涨0.6%，报56705点。
 
-这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
+投资者正在关注中东和平谈判的任何进展，以及日本政府为帮助企业获得能源和石化产品而采取的任何措施。
 
-有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
+周三，日经指数上涨5.4%，至56308.42点。
 
-新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
-
-基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
-
-赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
-
-如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 15:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:54 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 15:40 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 15:40 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 16:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 16:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 15:50 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 15:46 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 15:46 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 15:46 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 15:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 15:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 16:07 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 15:43 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 15:43 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 16:03 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 16:01 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 15:52 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 15:47 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 15:42 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 15:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/96627752.shtml)
-- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/082844016.shtml)
-- 2026-06-29 15:41 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/3785729191.shtml)
-- 2026-06-29 15:36 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/1610481.shtml)
-- 2026-06-29 16:00 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/481437314782.shtml)
-- 2026-06-29 15:56 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/11821.shtml)
-- 2026-06-29 15:48 - [5万块的威力](https://www.blog.minike.top/Article/details/606816.shtml)
-- 2026-06-29 15:44 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/30990943582.shtml)
-- 2026-06-29 15:52 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/60404.shtml)
-- 2026-06-29 15:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/713739.shtml)
-- 2026-06-29 15:49 - [当我回母校教书](http://www.share.minike.top/Article/details/8351081062.shtml)
-- 2026-06-29 15:45 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/3475934113.shtml)
-- 2026-06-29 15:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/48766.shtml)
-- 2026-06-29 15:36 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/2991868.shtml)
-- 2026-06-29 15:54 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/712142163724.shtml)
+- 2026-06-29 16:04 - [人形机器人](https://www.share.kurohicncr.top/Article/details/128172057667.shtml)
+- 2026-06-29 16:06 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/00105859992.shtml)
+- 2026-06-29 15:44 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/388860655836.shtml)
+- 2026-06-29 15:54 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/444396166028.shtml)
+- 2026-06-29 15:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/484644689747.shtml)
+- 2026-06-29 16:08 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/8210563.shtml)
+- 2026-06-29 15:52 - [恋与深空失控领地](http://www.share.minike.top/Article/details/790731502658.shtml)
+- 2026-06-29 16:10 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/89551101.shtml)
+- 2026-06-29 16:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/1914104.shtml)
+- 2026-06-29 16:00 - [女心理师](https://www.blog.minike.top/Article/details/5761347718.shtml)
+- 2026-06-29 15:46 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/5939565.shtml)
+- 2026-06-29 15:57 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/03605.shtml)
+- 2026-06-29 16:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/49884.shtml)
+- 2026-06-29 15:56 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/1402659746.shtml)
+- 2026-06-29 16:06 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/872867538023.shtml)

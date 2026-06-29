@@ -1,58 +1,59 @@
-# 华安基金：创业板50指数追“光”识“新”更掘“金”
+# 国际航协称航空燃油供应或需数月时间才能恢复正常
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 上周A股市场整体大幅波动，主要指数下跌：沪深300跌0.82%，中证500跌1.76%，中证1000跌1.66%，创业板50跌3.73%，科创50跌0.31%。交易面，A股市场日均成交额在2.7万亿左右，市场投资热情维持高位。市场热点仍然聚焦半导体、算力、光模块、PCB、锂电、电力等。美国ProShares基金于6月10日向SEC提交文件，正式募集“Pro
+国际航空运输协会（IATA）理事长威利·沃尔什周三表示，即便伊朗重新开放霍尔木兹海峡，鉴于中东炼油能力的中断，航空燃油供应也需要数月时间才能恢复。 沃尔什在新加坡对记者表示，尽管他预计原油价格会下跌，但由于炼油厂受到影响，航空燃油成本仍可能会略微高企。 沃尔什表示：“即使重新开放并保持开放，考虑到中东炼油能力的中断，我认为仍需数月时间才能恢复到所需的供应水平。中东炼油能力是全球
 
 ## 正文
 
-行情回顾及主要观点： 上周A股市场整体大幅波动，主要指数下跌：沪深300跌0.82%，中证500跌1.76%，中证1000跌1.66%，创业板50跌3.73%，科创50跌0.31%。
+国际航空运输协会（IATA）理事长威利·沃尔什周三表示，即便伊朗重新开放霍尔木兹海峡，鉴于中东炼油能力的中断，航空燃油供应也需要数月时间才能恢复。
 
-交易面，A股市场日均成交额在2.7万亿左右，市场投资热情维持高位。
+沃尔什在新加坡对记者表示，尽管他预计原油价格会下跌，但由于炼油厂受到影响，航空燃油成本仍可能会略微高企。
 
-市场热点仍然聚焦半导体、算力、光模块、PCB、锂电、电力等。
+沃尔什表示：“即使重新开放并保持开放，考虑到中东炼油能力的中断，我认为仍需数月时间才能恢复到所需的供应水平。
 
-美国ProShares基金于6月10日向SEC提交文件，正式募集“ProShares Ultra ZhongjiInnolight”两倍做多基金，海外资本加入有望进一步提升光模块赛道景气。
+中东炼油能力是全球成品油供应的关键部分，不仅仅是航空燃油，还包括其他产品。
 
-建议关注行业景气度保持高位、同时龙头公司基本面业绩具备韧性的创业板50指数。
+” 由于中东冲突导致航空燃油供应紧张，亚洲各地的航空公司纷纷削减航班，从本国机场额外运载燃油，并增加加油站，这无疑加剧了航空业本已遭受重创的局面，此前航空燃油价格已翻了一番。
 
-创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
+迄今为止，受冲击最严重的地区是越南、缅甸和巴基斯坦等低收入、依赖进口的市场。
 
-权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
+沃尔什表示：“一旦原油供应恢复，炼油产能就会有空余，但这需要一些时间。
 
-图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
+目前裂解价差居高不下，我认为这会激励炼油厂增加航空燃油的产量。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 15:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 15:59 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 15:41 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 15:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 15:39 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 15:56 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 16:05 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 15:41 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 15:45 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 15:55 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 15:46 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 15:58 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:10 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 15:48 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 15:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 15:47 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:53 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 15:58 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 15:58 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 15:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 16:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 16:04 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/20107244.shtml)
-- 2026-06-29 15:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/51094204035.shtml)
-- 2026-06-29 16:03 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/113219.shtml)
-- 2026-06-29 15:47 - [逃狱兄弟](https://www.blog.minike.top/Article/details/89233928.shtml)
-- 2026-06-29 16:05 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/3697175380.shtml)
-- 2026-06-29 15:40 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/79327903.shtml)
-- 2026-06-29 15:42 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/488064361.shtml)
-- 2026-06-29 15:47 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/8988256.shtml)
-- 2026-06-29 16:01 - [小娘惹](https://www.share.kurohicncr.top/Article/details/652505.shtml)
-- 2026-06-29 15:57 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/0325446871.shtml)
-- 2026-06-29 15:57 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/89970983457.shtml)
-- 2026-06-29 15:42 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/048491708.shtml)
-- 2026-06-29 16:02 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/786503997011.shtml)
-- 2026-06-29 15:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/489432.shtml)
-- 2026-06-29 15:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/280956588.shtml)
+- 2026-06-29 15:55 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/45029.shtml)
+- 2026-06-29 15:45 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/224155079.shtml)
+- 2026-06-29 15:50 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/78844408.shtml)
+- 2026-06-29 15:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/279427631522.shtml)
+- 2026-06-29 15:50 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/930576.shtml)
+- 2026-06-29 15:47 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/86248.shtml)
+- 2026-06-29 15:52 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/233264.shtml)
+- 2026-06-29 15:58 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/97797941.shtml)
+- 2026-06-29 15:42 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/7909088342.shtml)
+- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/824335.shtml)
+- 2026-06-29 16:00 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/151628880673.shtml)
+- 2026-06-29 16:06 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/88034.shtml)
+- 2026-06-29 15:49 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/172623.shtml)
+- 2026-06-29 15:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/09110779.shtml)
+- 2026-06-29 16:08 - [光与夜之恋](https://www.blog.minike.top/Article/details/71394997.shtml)

@@ -1,57 +1,54 @@
-# 市监总局谈腾讯收购喜马拉雅：将逐条监督承诺，确保落地见效
+# 国际油价，大跌15%！特朗普说停火两周，伊朗接受了
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 18:51 来源：中国新闻网 6月16日上午，市场监管总局召开2026年二季度例行新闻发布会。市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，近期，市场监管总局附条件批准了腾讯收购喜马拉雅股权案。 经多轮磋商，参与交易双方作出具有针对性的承诺，总局评估后认为这些承诺可以有效减少对竞争的不利影响，为此予以附条件批准。 腾讯、喜马拉雅作出的承诺主
+专题：突发！美伊停火两周 原油暴跌15% 文章来源：中新经纬 周三亚太早盘，WTI原油跌幅持续扩大，一度跌至15%。 消息层面，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。” 伊朗最高国家安全委员会当地时间8日凌晨发表声明称，根据最高领袖的建议和最高国家安全委员会批准，接受巴基斯坦提出的停火提议。 另，伊朗方面当地时间8日凌晨援引伊朗最
 
 ## 正文
 
-发布时间：2026年06月16日 18:51 来源：中国新闻网 6月16日上午，市场监管总局召开2026年二季度例行新闻发布会。
+专题：突发！
 
-市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，近期，市场监管总局附条件批准了腾讯收购喜马拉雅股权案。
+美伊停火两周 原油暴跌15% 文章来源：中新经纬 周三亚太早盘，WTI原油跌幅持续扩大，一度跌至15%。
 
-经多轮磋商，参与交易双方作出具有针对性的承诺，总局评估后认为这些承诺可以有效减少对竞争的不利影响，为此予以附条件批准。
+消息层面，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。
 
-腾讯、喜马拉雅作出的承诺主要包括：一是不提高平台服务价格、不降低服务水平。
+” 伊朗最高国家安全委员会当地时间8日凌晨发表声明称，根据最高领袖的建议和最高国家安全委员会批准，接受巴基斯坦提出的停火提议。
 
-二是保障免费内容供给。
+另，伊朗方面当地时间8日凌晨援引伊朗最高国家安全委员会秘书处声明报道，与美国的谈判将于4月10日在巴基斯坦首都伊斯兰堡开始，为期两周。
 
-三是解除独家授权。
-
-四是不向汽车厂商搭售。
-
-五是不限制主播入驻与内容分发。
+中新经纬综自央视新闻等 编辑：林琬斯 责编：常涛 责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 15:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 15:57 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 15:36 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 15:42 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 15:59 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 15:38 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 16:04 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 15:41 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 16:05 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 16:10 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 15:49 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:58 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 15:45 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 15:58 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 15:53 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 15:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 16:01 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 15:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:55 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 15:46 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 15:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/22289511075.shtml)
-- 2026-06-29 16:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/426638636.shtml)
-- 2026-06-29 15:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/86216.shtml)
-- 2026-06-29 15:36 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/0963924114.shtml)
-- 2026-06-29 15:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/4235871.shtml)
-- 2026-06-29 15:49 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/350736837206.shtml)
-- 2026-06-29 15:43 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/43947.shtml)
-- 2026-06-29 16:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/3074387.shtml)
-- 2026-06-29 15:58 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/1868269554.shtml)
-- 2026-06-29 15:52 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/467241578.shtml)
-- 2026-06-29 15:55 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/37998504301.shtml)
-- 2026-06-29 15:44 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/76371198.shtml)
-- 2026-06-29 16:01 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/857942055062.shtml)
-- 2026-06-29 15:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/661766997693.shtml)
-- 2026-06-29 16:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/747990.shtml)
+- 2026-06-29 15:46 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/7656713.shtml)
+- 2026-06-29 15:50 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/79952785.shtml)
+- 2026-06-29 16:01 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/735759.shtml)
+- 2026-06-29 15:42 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/923141406427.shtml)
+- 2026-06-29 16:05 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/881991552.shtml)
+- 2026-06-29 15:49 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/29675.shtml)
+- 2026-06-29 15:47 - [起风了](https://www.blog.kurohicncr.top/Article/details/2412053296.shtml)
+- 2026-06-29 15:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/654869.shtml)
+- 2026-06-29 16:09 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/7951242.shtml)
+- 2026-06-29 15:52 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/7082762.shtml)
+- 2026-06-29 16:03 - [流金岁月](http://www.blog.minike.top/Article/details/43663624198.shtml)
+- 2026-06-29 15:43 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/286597133.shtml)
+- 2026-06-29 16:07 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/59620563145.shtml)
+- 2026-06-29 15:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/370372212.shtml)
+- 2026-06-29 16:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/347758845.shtml)

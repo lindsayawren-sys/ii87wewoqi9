@@ -1,58 +1,61 @@
-# 算力硬件走强！创业板人工智能ETF（159363）再涨1%强势三连阳！第四大权重股发力，江波龙涨超7%
+# 越走越亲！中越姐妹共庆“三月三”同叙边关情
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。 热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。 算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的
+春风拂边关，欢歌庆佳节。4月5日，正值广西三月三民俗节庆期间，由大新县妇联、宝圩乡党委主办的“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”，在大新县宝圩乡宝圩社区热闹举行。中方妇女代表与越南跨境妇女代表欢聚一堂，共话姐妹情谊、同赏民族文化，以巾帼之谊筑牢中越边境友好连心桥。 活动现场洋溢着浓浓的壮族风情与跨境友好氛围。一场以“强边固防守家园 清廉家风润民
 
 ## 正文
 
-6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。
+春风拂边关，欢歌庆佳节。
 
-其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。
+4月5日，正值广西三月三民俗节庆期间，由大新县妇联、宝圩乡党委主办的“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”，在大新县宝圩乡宝圩社区热闹举行。
 
-此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。
+中方妇女代表与越南跨境妇女代表欢聚一堂，共话姐妹情谊、同赏民族文化，以巾帼之谊筑牢中越边境友好连心桥。
 
-热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。
+活动现场洋溢着浓浓的壮族风情与跨境友好氛围。
 
-算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的成长机会，算力硬件景气度和业绩增速有望领先全市场，重点聚焦光模块、PCB、液冷和算力租赁等环节。
+一场以“强边固防守家园 清廉家风润民心”为主题的宣讲率先开讲，结合边关发展与家庭建设，传递家国情怀与优良家风理念，凝聚起守护边疆安宁、传承良好家风的巾帼力量。
 
-国金证券也认为，AI需求强劲，存储涨价趋势有望持续。
+“这是我第一次参加‘三月三’活动，太开心了！
 
-AI短期、中期的需求都非常强劲，研判AI算力硬件核心公司二三季度业绩环比有望加速，建议关注业绩有望超预期方向。
+”越南游客阮氏水兴奋地说，“这里的姐妹特别热情，五色糯米饭、壮锦、抛绣球都很有意思。
 
-此外，6月15日起，创业板人工智能指数调仓信息显示，本次“纳新”直指高景气赛道：存储龙头江波龙强势入列，最新权重占比达6.73%，为指数第四大权重股。
+和大家一起做手工、跳舞，就像家人一样。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 15:37 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 15:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 15:41 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 15:51 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 15:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 15:49 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 15:42 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 15:54 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 15:54 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 15:38 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 15:39 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 15:43 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 16:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 15:42 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 16:03 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 16:01 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 16:08 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 15:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 15:47 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 15:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 16:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 16:00 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 15:45 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/620727977612.shtml)
-- 2026-06-29 15:41 - [毒液2](http://www.share.minike.top/Article/details/4935474833.shtml)
-- 2026-06-29 15:56 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/3718673921.shtml)
-- 2026-06-29 16:02 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/5177671131.shtml)
-- 2026-06-29 16:04 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/22732.shtml)
-- 2026-06-29 16:01 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/6683193973.shtml)
-- 2026-06-29 15:52 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/095139018650.shtml)
-- 2026-06-29 15:53 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/5312828137.shtml)
-- 2026-06-29 16:01 - [一见倾心](https://www.blog.minike.top/Article/details/38789957.shtml)
-- 2026-06-29 16:03 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/41280.shtml)
-- 2026-06-29 15:46 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/366547402.shtml)
-- 2026-06-29 15:50 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/495421.shtml)
-- 2026-06-29 15:57 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/53900786.shtml)
-- 2026-06-29 16:00 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/28548.shtml)
-- 2026-06-29 15:53 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/24294.shtml)
+- 2026-06-29 15:56 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/06839.shtml)
+- 2026-06-29 16:11 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/2008211.shtml)
+- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/26629840.shtml)
+- 2026-06-29 16:06 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/8843552.shtml)
+- 2026-06-29 15:50 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/295099740034.shtml)
+- 2026-06-29 15:53 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/719845869.shtml)
+- 2026-06-29 15:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/05261138072.shtml)
+- 2026-06-29 16:06 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/988398.shtml)
+- 2026-06-29 15:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/94406485737.shtml)
+- 2026-06-29 15:48 - [当我回母校教书](http://www.blog.minike.top/Article/details/539459.shtml)
+- 2026-06-29 15:51 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/03171.shtml)
+- 2026-06-29 15:57 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/775333905368.shtml)
+- 2026-06-29 15:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/37680454725.shtml)
+- 2026-06-29 15:51 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/51486.shtml)
+- 2026-06-29 16:10 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/03956036.shtml)

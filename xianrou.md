@@ -1,61 +1,57 @@
-# 公募人事更迭：QDII债基老将、清华系新锐基金经理“清仓式”卸任，有的将跳槽其他公募
+# 我国央行连续17个月增持黄金 专家：为黄金中长期走势提供支持
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-记者|任飞 编辑|肖芮冬 6月16日，多家公募基金公告，旗下有部分基金经理变更，其中涉及广发基金沈博文、华泰柏瑞基金陈乐。 据悉，广发基金沈博文下一站将前往其他公募基金发展。她从富国基金到广发基金的历任公募基金均为债券型产品，在广发基金管理的均是QDII型债券产品。 陈乐则是华泰柏瑞基金旗下的新生代经理，投资经理年限仅2.83年。从他管理的产品业绩来看，华泰柏瑞景气驱动A任职回
+一块500克重的投资金条，门店售价已接近60万元。而这样的黄金资产，正持续受到我国央行的重点增持。据4月7日公布的数据显示，我国央行已连续17个月增持黄金，截至2026年3月末，我国黄金储备规模已达7438万盎司，仅3月份单月就增持16万盎司。央行为何持续17个月加码增持黄金？这一持续动作背后，又释放出哪些市场信号，引发业界广泛关注与解读。 广东省黄金协会监事长兼首席黄金分析师
 
 ## 正文
 
-记者|任飞 编辑|肖芮冬 6月16日，多家公募基金公告，旗下有部分基金经理变更，其中涉及广发基金沈博文、华泰柏瑞基金陈乐。
+一块500克重的投资金条，门店售价已接近60万元。
 
-据悉，广发基金沈博文下一站将前往其他公募基金发展。
+而这样的黄金资产，正持续受到我国央行的重点增持。
 
-她从富国基金到广发基金的历任公募基金均为债券型产品，在广发基金管理的均是QDII型债券产品。
+据4月7日公布的数据显示，我国央行已连续17个月增持黄金，截至2026年3月末，我国黄金储备规模已达7438万盎司，仅3月份单月就增持16万盎司。
 
-陈乐则是华泰柏瑞基金旗下的新生代经理，投资经理年限仅2.83年。
+央行为何持续17个月加码增持黄金？
 
-从他管理的产品业绩来看，华泰柏瑞景气驱动A任职回报达到105.98%，年化回报率为29.15%。
+这一持续动作背后，又释放出哪些市场信号，引发业界广泛关注与解读。
 
-近期，公募债券基金的基金经理变更开始增多，其中包含QDII型产品。
+广东省黄金协会监事长兼首席黄金分析师朱志刚在接受采访时表示，央行的持续购金行为，为黄金市场的看多趋势提供了有力支撑，也显著增强了市场对黄金后市走势，尤其是价位波动的信心。
 
-例如，广发基金沈博文卸任了所有在管基金，且均为QDII型债券产品。
+朱志刚分析指出，此前美国与以色列对伊朗采取的打击行动，曾直接导致国际油价大幅攀升，进而加剧全球通胀预期，同时推动美元走强。
 
-6月16日，广发基金公告，沈博文因“离职”，卸任广发亚太中高收益债的基金经理。
+由于黄金与美元通常呈负相关关系，当时市场普遍预期金价将迎来上涨，但实际行情却出现反向下跌。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 15:47 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 16:01 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 15:38 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 15:51 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 16:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 15:43 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 15:56 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 15:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 15:45 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 15:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:56 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 15:55 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 15:46 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 15:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 15:45 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 15:50 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 15:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 16:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 15:53 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 16:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 15:44 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 16:02 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 16:06 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 15:53 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 15:45 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/52170032845.shtml)
-- 2026-06-29 15:55 - [周生如故](http://www.share.minike.top/Article/details/290773372411.shtml)
-- 2026-06-29 15:43 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/391977307972.shtml)
-- 2026-06-29 15:48 - [扬名立万](https://www.share.minike.top/Article/details/0317972.shtml)
-- 2026-06-29 15:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/0608794966.shtml)
-- 2026-06-29 15:40 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/9999510.shtml)
-- 2026-06-29 15:58 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/0264044618.shtml)
-- 2026-06-29 15:55 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/95429640673.shtml)
-- 2026-06-29 16:05 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/80450.shtml)
-- 2026-06-29 16:02 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/67019343.shtml)
-- 2026-06-29 15:53 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/402889478.shtml)
-- 2026-06-29 16:04 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/85145895017.shtml)
-- 2026-06-29 15:43 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/6215595.shtml)
-- 2026-06-29 15:56 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/97449369941.shtml)
-- 2026-06-29 15:43 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/9050976281.shtml)
+- 2026-06-29 16:02 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/805201.shtml)
+- 2026-06-29 16:06 - [吴建豪老婆](http://www.blog.minike.top/Article/details/2793155695.shtml)
+- 2026-06-29 16:08 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/8431800.shtml)
+- 2026-06-29 15:53 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/344604.shtml)
+- 2026-06-29 15:45 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/91532.shtml)
+- 2026-06-29 16:01 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/74583148.shtml)
+- 2026-06-29 16:04 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/2518506828.shtml)
+- 2026-06-29 15:44 - [周生如故](http://www.share.kurohicncr.top/Article/details/247540.shtml)
+- 2026-06-29 15:47 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/45068956.shtml)
+- 2026-06-29 16:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/3494793.shtml)
+- 2026-06-29 15:44 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/55126873697.shtml)
+- 2026-06-29 15:48 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/607538821.shtml)
+- 2026-06-29 15:57 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/916055652.shtml)
+- 2026-06-29 16:05 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/0547481149.shtml)
+- 2026-06-29 15:51 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/58734.shtml)

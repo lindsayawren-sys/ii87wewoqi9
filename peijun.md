@@ -1,44 +1,56 @@
-# 世卫组织表示埃博拉疫情仍存隐匿传播链
+# GTC泽汇资本:黄金高位震荡受利率预期影响
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 10:51 来源：央视新闻 责任编辑：【王祎】
+4月8日，黄金市场目前仍维持在每盎司4600上方震荡整理，在更广泛的波动区间内反复运行。GTC泽汇资本认为，尽管近期制造业数据表现不一，但整体宏观环境尚未形成明确方向，这使得黄金价格缺乏持续突破的动能。从走势来看，金价更多受到利率预期与能源价格波动的牵引，而非单一经济数据驱动。 最新数据显示，耐用品订单环比下降约1.4，延续前值小幅回落趋势，且弱于市场预期的约1.1降幅。不过，
 
 ## 正文
 
-发布时间：2026年06月17日 10:51 来源：央视新闻 责任编辑：【王祎】
+4月8日，黄金市场目前仍维持在每盎司4600上方震荡整理，在更广泛的波动区间内反复运行。
+
+GTC泽汇资本认为，尽管近期制造业数据表现不一，但整体宏观环境尚未形成明确方向，这使得黄金价格缺乏持续突破的动能。
+
+从走势来看，金价更多受到利率预期与能源价格波动的牵引，而非单一经济数据驱动。
+
+最新数据显示，耐用品订单环比下降约1.4，延续前值小幅回落趋势，且弱于市场预期的约1.1降幅。
+
+不过，剔除运输因素后的核心耐用品订单则表现相对稳健，环比增长约0.8，高于此前约0.4的增幅，也超出市场预期。
+
+GTC泽汇资本认为，这种分化反映出制造业内部结构仍具韧性，但整体需求动能仍存在不确定性。
+
+进一步来看，剔除国防与航空运输后的核心订单同样录得约0.6的增长，高于市场预期水平，但前期数据被明显下修，显示经济复苏节奏并不稳定。
+
+多项数据交织在一起，使市场难以形成一致预期，这也解释了为何黄金价格对数据反应相对有限。
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 15:51 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 15:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 15:46 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 15:52 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 15:53 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 16:01 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 15:41 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 15:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 15:53 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 15:43 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 16:00 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 16:01 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 16:10 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 15:56 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 16:11 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 15:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:44 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 16:09 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 15:54 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 16:10 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/7676127.shtml)
-- 2026-06-29 15:38 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/197150023.shtml)
-- 2026-06-29 15:42 - [美的空调 卡bug](https://www.share.minike.top/Article/details/9036503.shtml)
-- 2026-06-29 15:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/19385595763.shtml)
-- 2026-06-29 15:48 - [乔家的儿女](https://www.share.minike.top/Article/details/26692060.shtml)
-- 2026-06-29 16:02 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/5541231954.shtml)
-- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/419541672329.shtml)
-- 2026-06-29 15:41 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/0533963.shtml)
-- 2026-06-29 15:54 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/69951.shtml)
-- 2026-06-29 15:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4695411833.shtml)
-- 2026-06-29 15:46 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/703679192.shtml)
-- 2026-06-29 15:58 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/83622739.shtml)
-- 2026-06-29 15:43 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/92415704707.shtml)
-- 2026-06-29 15:58 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/22418.shtml)
-- 2026-06-29 15:41 - [5万块的威力](http://www.blog.minike.top/Article/details/04516193628.shtml)
+- 2026-06-29 15:45 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/94520.shtml)
+- 2026-06-29 16:10 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/577545.shtml)
+- 2026-06-29 15:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/81793.shtml)
+- 2026-06-29 16:07 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/71180.shtml)
+- 2026-06-29 15:48 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/791194367.shtml)
+- 2026-06-29 15:45 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/844970.shtml)
+- 2026-06-29 16:07 - [第一炉香](http://www.share.kurohicncr.top/Article/details/34902397.shtml)
+- 2026-06-29 15:51 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/7187257239.shtml)
+- 2026-06-29 15:57 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/236706063767.shtml)
+- 2026-06-29 16:11 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/732160.shtml)
+- 2026-06-29 16:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/7729054.shtml)
+- 2026-06-29 15:58 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/81086441.shtml)
+- 2026-06-29 16:10 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/2310669.shtml)
+- 2026-06-29 15:53 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/20819428701.shtml)
+- 2026-06-29 16:11 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/22900.shtml)

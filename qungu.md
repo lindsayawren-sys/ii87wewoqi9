@@ -1,42 +1,59 @@
-# 欧盟领导人欢迎美伊达成谅解备忘录
+# 战争重创伊朗领导层，加速新一代势力崛起
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 10:16 来源：央视新闻 责任编辑：【王祎】
+持续近六周的美伊联合轰炸重创了伊朗的宗教、军事与政治领导层，导致其国内政治陷入混乱，并为军方进一步掌控伊朗政府打开了大门。 周二晚间达成的停火协议局势尚未明朗，这场战争对伊朗领导层以及该国政治体制走向究竟会产生何种近期与中期影响，目前仍不得而知。一向难以捉摸的伊朗政府，如今变得更加不透明。 新任最高领袖穆杰塔巴・哈梅内伊阿亚图拉，自战争初期父亲身亡、接任该职位以来，从未公开露面
 
 ## 正文
 
-发布时间：2026年06月16日 10:16 来源：央视新闻 责任编辑：【王祎】
+持续近六周的美伊联合轰炸重创了伊朗的宗教、军事与政治领导层，导致其国内政治陷入混乱，并为军方进一步掌控伊朗政府打开了大门。
+
+周二晚间达成的停火协议局势尚未明朗，这场战争对伊朗领导层以及该国政治体制走向究竟会产生何种近期与中期影响，目前仍不得而知。
+
+一向难以捉摸的伊朗政府，如今变得更加不透明。
+
+新任最高领袖穆杰塔巴・哈梅内伊阿亚图拉，自战争初期父亲身亡、接任该职位以来，从未公开露面。
+
+截至目前，他仅通过书面声明发声。
+
+他的缺席引发外界猜测：伊朗实际掌权者是伊斯兰革命卫队 —— 这支意识形态强硬的军事力量，在过去四十年间已成为伊朗政治与经济领域的重量级角色。
+
+阿拉伯海湾国家研究所高级研究员阿里・阿尔法内在邮件中表示，尽管哈梅内伊是国家元首，但他 “在很大程度上似乎已沦为象征性角色”。
+
+阿尔法内称，近年来伊朗的权力实际上已下放至其他权力中心，包括总统、议会议长、司法总监以及革命卫队高层。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 15:56 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 16:00 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 15:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 15:53 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 15:58 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 16:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:53 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 15:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 15:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:05 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 15:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 15:48 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 15:59 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 15:43 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 16:03 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 16:05 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 16:10 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 16:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 15:54 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 15:42 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 15:45 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [天道](http://www.blog.kurohicncr.top/Article/details/9243303.shtml)
-- 2026-06-29 15:56 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/42594.shtml)
-- 2026-06-29 16:04 - [斛珠夫人](http://www.share.minike.top/Article/details/296550695.shtml)
-- 2026-06-29 15:55 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/3000807898.shtml)
-- 2026-06-29 15:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/446290221.shtml)
-- 2026-06-29 15:38 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/327550771390.shtml)
-- 2026-06-29 16:03 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/2699738.shtml)
-- 2026-06-29 15:47 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/55582139.shtml)
-- 2026-06-29 15:47 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/44822797137.shtml)
-- 2026-06-29 15:51 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/5316304.shtml)
-- 2026-06-29 15:55 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/045259570950.shtml)
-- 2026-06-29 15:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/28857416.shtml)
-- 2026-06-29 15:52 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/334843.shtml)
-- 2026-06-29 16:02 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/7665446.shtml)
-- 2026-06-29 15:51 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/6707956.shtml)
+- 2026-06-29 15:56 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/269495153391.shtml)
+- 2026-06-29 16:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/889944.shtml)
+- 2026-06-29 15:51 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/622089.shtml)
+- 2026-06-29 16:04 - [首尔商铺禁止洪明甫入内](https://www.blog.minike.top/Article/details/725459752796.shtml)
+- 2026-06-29 16:03 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/88596.shtml)
+- 2026-06-29 16:09 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/211182338347.shtml)
+- 2026-06-29 16:09 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/74208.shtml)
+- 2026-06-29 16:06 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/918589294.shtml)
+- 2026-06-29 15:46 - [105年初心滚烫](https://www.share.minike.top/Article/details/145963.shtml)
+- 2026-06-29 16:10 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/79001.shtml)
+- 2026-06-29 15:44 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/111009833205.shtml)
+- 2026-06-29 15:57 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/62543904.shtml)
+- 2026-06-29 15:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/54854.shtml)
+- 2026-06-29 15:56 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/592999772329.shtml)
+- 2026-06-29 15:59 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/3711250.shtml)

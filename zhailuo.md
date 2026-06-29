@@ -1,58 +1,59 @@
-# 湖北将进入梅雨期 发布农业气象灾害风险预警
+# 国富氢能早盘涨超10% 公司中标摩洛哥制氢项目并签约国内加氢站订单
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月16日电 (记者 马芙蓉)湖北省气象局、湖北省农业农村厅16日晚联合发布农业气象灾害风险预警，预计6月18日湖北将进入梅雨期，雨水集中、强度大、致灾风险高。 根据天气预报，预计18日至19日，鄂西南、江汉平原、鄂东有大雨到暴雨，局地大暴雨；20日至22日，鄂东南、江汉平原南部有中雨到大雨，局地暴雨；24日前后，鄂东南有中雨到大雨，局地暴雨。 目前，湖北早稻、再生稻
+国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。 国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销
 
 ## 正文
 
-中新网武汉6月16日电 (记者 马芙蓉)湖北省气象局、湖北省农业农村厅16日晚联合发布农业气象灾害风险预警，预计6月18日湖北将进入梅雨期，雨水集中、强度大、致灾风险高。
+国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。
 
-根据天气预报，预计18日至19日，鄂西南、江汉平原、鄂东有大雨到暴雨，局地大暴雨；20日至22日，鄂东南、江汉平原南部有中雨到大雨，局地暴雨；24日前后，鄂东南有中雨到大雨，局地暴雨。
+国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。
 
-目前，湖北早稻、再生稻为孕穗期，中稻为移栽返青-分蘖期，春玉米为大喇叭口-抽雄吐丝期，夏玉米、夏大豆为苗期，棉花为苗期至现蕾期，此次降水过程可能导致南部、东部部分农田渍涝。
+于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销售协议（销售协议B，连同销售协议A，统称“该等销售协议”），内容有关提供不少于五座加氢站及相关安装服务，对价为人民币3205万元。
 
-预警信息提醒说，南部降水强度较大可能导致即将抽穗扬花的早稻遭遇“雨洗禾花”、影响后期产量形成，还可能引起鱼塘水环境剧变或漫塘，导致鱼虾蟹应激反应、缺氧死亡或逃逸损失。
+摩洛哥为非洲绿色氢能最重要的市场，对本集团的国际布局具有重大意义。
 
-此外，梅雨期天气形势利于稻飞虱、稻纵卷叶螟、草贪夜蛾迁入为害，持续阴雨造成的高湿适温环境利于稻瘟病、纹枯病的发生发展。
+于签署销售协议A之前，本公司已作为首家中国制造商向摩洛哥交付一套用于科研与教学用途的制氢系统，并获当地市场认可。
 
-预警信息建议，种植业抓好抢收、抢排、抢修、抢管、抢种，雨前及时抢收成熟果蔬，雨后抢排田间积水，疏通沟渠。
+通过订立销售协议B，本公司与云韬将长三角的装备制造能力与珠三角的政策支持与终端市场进行对接，有助于推动两大氢能产业集聚区的跨区域协同发展，助力粤港澳大湾区氢走廊的蓬勃发展。
 
-针对畜禽要提前加固圈舍，检查修缮屋顶、墙体及排水系统，防止雨水倒灌和圈舍坍塌；做好饲草饲料储备及暴雨后消毒工作。
-
-此外，要抓好渔业生产管理，在强降雨前提前加固塘埂堤坝和进排水系统，检修增氧设备，适时降低养殖水位，设置拦鱼网具，防范漫塘逃鱼。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 15:36 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 15:36 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 15:59 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 15:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 15:49 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 15:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:37 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 16:00 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 15:43 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 16:05 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 15:40 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 16:09 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 15:48 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 15:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 16:09 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:01 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 16:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 15:49 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 15:58 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 15:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 16:01 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 15:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:56 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 15:42 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/50763.shtml)
-- 2026-06-29 15:51 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/210947290059.shtml)
-- 2026-06-29 15:55 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/4978251.shtml)
-- 2026-06-29 15:46 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/26851669.shtml)
-- 2026-06-29 15:58 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/736474823993.shtml)
-- 2026-06-29 15:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/82872412.shtml)
-- 2026-06-29 15:45 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/580470450.shtml)
-- 2026-06-29 15:43 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/263863112.shtml)
-- 2026-06-29 15:46 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/33463818.shtml)
-- 2026-06-29 15:44 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/9146474130.shtml)
-- 2026-06-29 16:04 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/584168.shtml)
-- 2026-06-29 16:00 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/1646301181.shtml)
-- 2026-06-29 15:37 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/223386232.shtml)
-- 2026-06-29 15:41 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/041591612.shtml)
-- 2026-06-29 16:00 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/7019561381.shtml)
+- 2026-06-29 15:51 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/99526.shtml)
+- 2026-06-29 15:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/925006545.shtml)
+- 2026-06-29 15:57 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/99033.shtml)
+- 2026-06-29 16:10 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/07223800.shtml)
+- 2026-06-29 16:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/2153308272.shtml)
+- 2026-06-29 15:49 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/685730.shtml)
+- 2026-06-29 15:44 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/56821548850.shtml)
+- 2026-06-29 15:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/940382787.shtml)
+- 2026-06-29 15:51 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/362334702.shtml)
+- 2026-06-29 16:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/8195184.shtml)
+- 2026-06-29 16:03 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/1153854.shtml)
+- 2026-06-29 15:53 - [105年初心滚烫](https://www.share.minike.top/Article/details/946095.shtml)
+- 2026-06-29 16:08 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/434820200488.shtml)
+- 2026-06-29 16:06 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/8617042.shtml)
+- 2026-06-29 15:59 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/393639257079.shtml)

@@ -1,61 +1,57 @@
-# 俄罗斯中小学校长团参访哈师大附中 共上一堂“文化解码”课
+# 仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月16日电(记者 王妮娜)16日上午，俄罗斯中小学校长访问团一行10人来到哈尔滨师范大学附属中学(以下简称“哈师大附中”)进行交流访问。俄方校长们走进学校中俄国际课程班，共上一堂俄语展示课，开展座谈交流，两所俄方学校与哈师大附中正式签署了友好学校合作协议。 当日上午9时，俄罗斯中小学校长团抵达学校。哈师大附中中俄国际课程班的学生以俄罗斯经典民族歌舞《卡林卡》欢迎访
+来源：今日行长 原标题：仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红！营收、净利双升，核心一级资本充足率仅为8.45%… 郑州银行2025年度利润再次继续不分红，原因几何？ 2026年3月30日，郑州银行董事会通过的2025年度利润分配预案公布：拟不进行现金分红，不送红股，不进行资本公积金转增股份。这是继2020-2023年该行连续四年未分红，2024年“
 
 ## 正文
 
-中新网哈尔滨6月16日电(记者 王妮娜)16日上午，俄罗斯中小学校长访问团一行10人来到哈尔滨师范大学附属中学(以下简称“哈师大附中”)进行交流访问。
+来源：今日行长 原标题：仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红！
 
-俄方校长们走进学校中俄国际课程班，共上一堂俄语展示课，开展座谈交流，两所俄方学校与哈师大附中正式签署了友好学校合作协议。
+营收、净利双升，核心一级资本充足率仅为8.45%… 郑州银行2025年度利润再次继续不分红，原因几何？
 
-当日上午9时，俄罗斯中小学校长团抵达学校。
+2026年3月30日，郑州银行董事会通过的2025年度利润分配预案公布：拟不进行现金分红，不送红股，不进行资本公积金转增股份。
 
-哈师大附中中俄国际课程班的学生以俄罗斯经典民族歌舞《卡林卡》欢迎访问团。
+这是继2020-2023年该行连续四年未分红，2024年“短暂”分红9.69%后的又一次不分红决定。
 
-欢迎仪式结束后，访问团校长们走进课堂，共同观摩了一堂主题为《中国结与俄罗斯套娃中的共通文化密码》的俄语展示公开课。
+该行对分配预案的表态是：留存未分配利润有利于夯实高质量发展的资金基础，增强风险抵御能力，为经营稳定提供有力保障。
 
-本次展示课由中俄双方两位教师联合执教。
+在刚刚结束的上市银行年度业绩会，多家银行官宣分红比例超过30%，更有甚者把“每年现金分红比例不低于30%”写进公司章程的背景下，郑州银行的选择在同业中略显“不同寻常”。
 
-课堂上，两位教师分别展示了中国结与俄罗斯套娃两件工艺品，并解读其文化内涵：中国结以一根丝线编结而成，寓意人与人之间的和睦相伴、情谊相通；俄罗斯套娃层层相套，承载着血脉亲情与家族代代延续的美好期许。
+在整个资本市场里，银行一直都是分红界的“卷王”，2024年42家A股上市银行分红总额超过6000亿，分红占比能到整个A股的27%；2025年，已公布财报的22家银行中，21家合计分红超过5800亿元，同比增百亿．．． 上市公司某一年度分红与否、分多少其实没有标准可言，可根据自身经营策略做决定，解剖郑州银行年度业绩情况或可对其分红选择有更深入理解。
 
-互动环节将课堂氛围推向高潮。
+ST风险解除即停摆，郑州银行2025年继续不分红 新规来了才分红、躲过ST风险就停，郑州银行的分红轨迹呈现出戏剧性的波动。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 15:48 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 15:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 15:59 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 15:42 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 15:53 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 15:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 15:43 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 15:50 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 15:50 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 15:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 15:55 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 16:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 15:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 16:01 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 16:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:10 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 16:06 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 15:46 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 15:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 16:00 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 15:55 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 15:56 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 15:59 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 15:48 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 15:54 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/89428689.shtml)
-- 2026-06-29 15:37 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/423231334.shtml)
-- 2026-06-29 15:49 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/83425373066.shtml)
-- 2026-06-29 16:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/10429685.shtml)
-- 2026-06-29 15:51 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/6739458213.shtml)
-- 2026-06-29 15:49 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/2449426534.shtml)
-- 2026-06-29 16:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/980142434621.shtml)
-- 2026-06-29 15:44 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/72447378727.shtml)
-- 2026-06-29 16:04 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/449351320320.shtml)
-- 2026-06-29 15:39 - [千与千寻](https://www.share.kurohicncr.top/Article/details/873839864.shtml)
-- 2026-06-29 15:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/26016664.shtml)
-- 2026-06-29 15:40 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/6388546.shtml)
-- 2026-06-29 15:37 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/24053578889.shtml)
-- 2026-06-29 16:05 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/2565583172.shtml)
-- 2026-06-29 15:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/183983104933.shtml)
+- 2026-06-29 15:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/48873231.shtml)
+- 2026-06-29 16:02 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/107062.shtml)
+- 2026-06-29 15:43 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/88390885055.shtml)
+- 2026-06-29 16:07 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/1474611.shtml)
+- 2026-06-29 16:07 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/33213404273.shtml)
+- 2026-06-29 16:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/007036.shtml)
+- 2026-06-29 15:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/124438834.shtml)
+- 2026-06-29 15:53 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/827561060.shtml)
+- 2026-06-29 16:06 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/25447998787.shtml)
+- 2026-06-29 15:43 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/84729544519.shtml)
+- 2026-06-29 15:50 - [千与千寻](https://www.share.kurohicncr.top/Article/details/389778.shtml)
+- 2026-06-29 16:05 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/54964.shtml)
+- 2026-06-29 16:02 - [人形机器人](https://www.blog.minike.top/Article/details/03007957977.shtml)
+- 2026-06-29 16:09 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/9080445925.shtml)
+- 2026-06-29 16:09 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/67872006244.shtml)

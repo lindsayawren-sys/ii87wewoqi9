@@ -1,58 +1,59 @@
-# 时隔7年，为何是首创证券叩开港交所大门？
+# 57岁陶畅加大营业支出，无锡银行董高一年薪酬1344万元
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 刘银平 编辑 | 付影 来源 | 独角金融 已于2022年12月在A股上市的首创证券（601136.SH），迎来港股IPO关键进展，6月12日，公司已通过香港联交所上市委员会的聆讯。虽然公告中称这不构成正式的上市批准，但在投行人士眼中，基本上等同于拿到了H股上市的通行证。 若一切顺利，首创证券有望
+来源：银瑞社 过去的2025年，是陶畅重新回归无锡银行的第一个完整年份。 现年57岁的陶畅，本科学历，助理经济师职称，具体毕业院校未有披露。 他长期深耕农信、农商行系统，早年历任东北塘信用社、松鹤信用社、锡山区信用社主任，无锡市城郊信用联社党委委员，江苏锡州农村商业银行党委委员、锡山区支行行长等职。 2008年8月起，陶畅任无锡银行行长助理、党委委员兼锡山区支行行长，2011年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：银瑞社 过去的2025年，是陶畅重新回归无锡银行的第一个完整年份。
 
-作者 | 刘银平 编辑 | 付影 来源 | 独角金融 已于2022年12月在A股上市的首创证券（601136.SH），迎来港股IPO关键进展，6月12日，公司已通过香港联交所上市委员会的聆讯。
+现年57岁的陶畅，本科学历，助理经济师职称，具体毕业院校未有披露。
 
-虽然公告中称这不构成正式的上市批准，但在投行人士眼中，基本上等同于拿到了H股上市的通行证。
+他长期深耕农信、农商行系统，早年历任东北塘信用社、松鹤信用社、锡山区信用社主任，无锡市城郊信用联社党委委员，江苏锡州农村商业银行党委委员、锡山区支行行长等职。
 
-若一切顺利，首创证券有望在未来几周内正式挂牌，成为全国第14家A+H股两地上市券商。
+2008年8月起，陶畅任无锡银行行长助理、党委委员兼锡山区支行行长，2011年升任副行长；2015年1月，陶畅开始担任无锡银行的参股企业江苏淮安农村商业银行党委副书记、董事、行长。
 
-也是继2019年4月申万宏源（6806.HK）登陆香港联交所之后，时隔七年，A股上市券商再次叩开港股大门。
+2018年2月底，陶畅又回归出任了无锡银行党委副书记、执行董事、行长职务，直至2023年11月卸任之后，他转任江苏靖江农村商业银行党委书记、董事长。
 
-然而，港股市场以机构投资者为主导，对业绩含金量的审视远比A股严苛。
+时隔一年多，2024年，无锡银行公告，聘任陶畅为公司董事长及执行董事。
 
-对比同行，A+H券商H股较A股平均折价约30%-40%。
+2024年、2025年，陶畅从无锡银行拿走薪酬分别为91万元、159.02万元。
 
-这意味着，对于目前A股估值偏高的首创证券而言，港股发行价可能面临不小的折价压力。
+兜兜转转，陶畅最终回归无锡银行。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 15:59 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 16:02 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 15:52 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 15:59 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 15:42 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 15:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 15:47 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 15:37 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 15:38 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 15:53 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 16:04 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:47 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 15:43 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 15:52 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 15:54 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 15:49 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 16:01 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 15:42 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 16:08 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 15:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 15:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 15:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:58 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/809995333.shtml)
-- 2026-06-29 16:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/4154875958.shtml)
-- 2026-06-29 15:54 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/94609.shtml)
-- 2026-06-29 15:56 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/1588962.shtml)
-- 2026-06-29 16:04 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/43173116.shtml)
-- 2026-06-29 15:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/157235632844.shtml)
-- 2026-06-29 15:57 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/698193371027.shtml)
-- 2026-06-29 16:01 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/424949636561.shtml)
-- 2026-06-29 15:54 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/073444666919.shtml)
-- 2026-06-29 15:53 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/37518078402.shtml)
-- 2026-06-29 15:48 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/19717634.shtml)
-- 2026-06-29 15:46 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/588056727273.shtml)
-- 2026-06-29 15:45 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/3370122696.shtml)
-- 2026-06-29 15:46 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/27568.shtml)
-- 2026-06-29 15:49 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/9506443.shtml)
+- 2026-06-29 16:07 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/7181531220.shtml)
+- 2026-06-29 16:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/0350423256.shtml)
+- 2026-06-29 16:10 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/88602609204.shtml)
+- 2026-06-29 16:11 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/363483.shtml)
+- 2026-06-29 15:50 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/2469097446.shtml)
+- 2026-06-29 15:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/97952.shtml)
+- 2026-06-29 16:11 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/947720532490.shtml)
+- 2026-06-29 15:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/72150935726.shtml)
+- 2026-06-29 15:49 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/485559.shtml)
+- 2026-06-29 15:59 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/260900027.shtml)
+- 2026-06-29 15:43 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/200456.shtml)
+- 2026-06-29 15:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/573086.shtml)
+- 2026-06-29 16:00 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/5582512365.shtml)
+- 2026-06-29 16:00 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/7797479061.shtml)
+- 2026-06-29 15:44 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/385919978.shtml)

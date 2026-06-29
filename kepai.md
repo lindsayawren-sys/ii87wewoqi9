@@ -1,60 +1,56 @@
-# 日本央行30年来首次将利率上调至1%
+# 金涌投资出售25万股迈富时股份及21.5万股迅策股份
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-日本央行已将短期政策利率上调至“约1%”，使借贷成本升至31年来的最高水平，该国正逐步适应持续的通胀环境。 此次加息0.25个百分点符合广泛预期，分析师表示，这是日本央行在多年超低利率和通缩后努力实现货币政策正常化的关键里程碑。 日本央行的政策利率上一次达到1%是在1995年，当时该央行在20世纪80年代末日本资产泡沫破裂后正在下调借贷成本。 自2024年将日本拉出负利率以来，
+金涌投资（01328）发布公告，于2026年3月31日，Redwood（本公司的全资附属公司）通过在联交所进行市场内交易，出售25万股迈富时股份，总代价约为789.7万港元（不包括交易成本），相当于每股股份约31.591港元。连同先前迈富时出售事项，集团已通过市场内交易出售合共104.44万股迈富时股份，总代价约为5654.7万港元（不包括交易成本），该款项于结算时以现金收取。
 
 ## 正文
 
-日本央行已将短期政策利率上调至“约1%”，使借贷成本升至31年来的最高水平，该国正逐步适应持续的通胀环境。
+金涌投资（01328）发布公告，于2026年3月31日，Redwood（本公司的全资附属公司）通过在联交所进行市场内交易，出售25万股迈富时股份，总代价约为789.7万港元（不包括交易成本），相当于每股股份约31.591港元。
 
-此次加息0.25个百分点符合广泛预期，分析师表示，这是日本央行在多年超低利率和通缩后努力实现货币政策正常化的关键里程碑。
+连同先前迈富时出售事项，集团已通过市场内交易出售合共104.44万股迈富时股份，总代价约为5654.7万港元（不包括交易成本），该款项于结算时以现金收取。
 
-日本央行的政策利率上一次达到1%是在1995年，当时该央行在20世纪80年代末日本资产泡沫破裂后正在下调借贷成本。
+于2026年3月31日，Redwood通过在联交所进行市场内交易，出售21.5万股迅策股份，总代价约为4303万港元（不包括交易成本），相当于每股股份约200.14港元。
 
-自2024年将日本拉出负利率以来，日本央行在2025年两次加息。
+连同先前迅策出售事项，本集团已通过市场内交易出售合共52.92万股迅策股份，总代价约为8068.6万港元（不包括交易成本），该款项于结算时以现金收取。
 
-外界预计该央行将形成大约每半年逐步收紧一次的模式。
+集团预期将分别从迈富时出售事项及迅策出售事项中获得约5654.7万港元及约8068.6万港元的所得款项净额。
 
-在周二做出决定之前，越来越多的经济学家表示，他们预计日本央行在2026年至少还会再加息一次。
+集团目前拟将所得款项用作一般营运资金。
 
-周二的举措是在日本央行货币政策委员会为期两天的政策会议结束后宣布的。
-
-由于该行行长植田和男上周住院，委员会成员减少至八人。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 15:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 15:43 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 15:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 16:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 16:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 15:56 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:36 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 15:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 16:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 15:42 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 15:57 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 15:51 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 15:55 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:00 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 15:45 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 15:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 15:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 15:47 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 15:53 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 15:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 15:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 15:59 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 16:09 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 16:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/17562155222.shtml)
-- 2026-06-29 15:48 - [恋与深空失控领地](http://www.share.minike.top/Article/details/423755.shtml)
-- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/79956551.shtml)
-- 2026-06-29 15:54 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/8907928281.shtml)
-- 2026-06-29 15:42 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/2204096.shtml)
-- 2026-06-29 15:46 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/50930030.shtml)
-- 2026-06-29 15:47 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/6054854040.shtml)
-- 2026-06-29 16:02 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/62930277079.shtml)
-- 2026-06-29 16:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/246174988803.shtml)
-- 2026-06-29 15:37 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/57051.shtml)
-- 2026-06-29 15:42 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/787344.shtml)
-- 2026-06-29 15:46 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/166106926.shtml)
-- 2026-06-29 15:51 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/468708.shtml)
-- 2026-06-29 16:02 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/97621916797.shtml)
-- 2026-06-29 15:58 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/42084200362.shtml)
+- 2026-06-29 15:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/559705215.shtml)
+- 2026-06-29 16:01 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/4623843.shtml)
+- 2026-06-29 15:52 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/0089855.shtml)
+- 2026-06-29 16:02 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/743512743358.shtml)
+- 2026-06-29 15:58 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/816586528367.shtml)
+- 2026-06-29 16:06 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/61315776.shtml)
+- 2026-06-29 15:47 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/8286674341.shtml)
+- 2026-06-29 15:47 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/9184064527.shtml)
+- 2026-06-29 15:50 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/026423.shtml)
+- 2026-06-29 15:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/75552693712.shtml)
+- 2026-06-29 15:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/831082.shtml)
+- 2026-06-29 16:00 - [一生一世](http://www.share.minike.top/Article/details/1847856.shtml)
+- 2026-06-29 15:55 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/673306.shtml)
+- 2026-06-29 15:46 - [急先锋](http://www.blog.kurohicncr.top/Article/details/551154553657.shtml)
+- 2026-06-29 16:00 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/85279.shtml)

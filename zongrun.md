@@ -1,56 +1,59 @@
-# 备忘录显示：软银愿景基金首席财务官即将离职
+# 微盟集团早盘涨近7% 公司宣布推出首面向零售行业专属AI Skill
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。 软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。 软银愿景基金拒绝置评。 作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。该
+微盟集团（02013）早盘涨近7%，截至发稿，股价上涨6.85%，现报1.56港元，成交额4375.06万港元。 据微盟集团官微消息，4月8日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。这款专属Skill将在微盟官网开放入口，可适配包括QClaw在内各大厂商推出的“本地版龙虾”，是中
 
 ## 正文
 
-一份内部备忘录显示，软银集团旗下愿景基金投资部门的首席财务官纳夫尼特·戈维尔（Navneet Govil）将在任职十年后离职。
+微盟集团（02013）早盘涨近7%，截至发稿，股价上涨6.85%，现报1.56港元，成交额4375.06万港元。
 
-软银投资顾问公司首席执行官亚历克斯·克拉维尔（Alex Clavel）在备忘录中写道，公司将在适当时候公布有关职责交接的详细信息。
+据微盟集团官微消息，4月8日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。
 
-软银愿景基金拒绝置评。
+这款专属Skill将在微盟官网开放入口，可适配包括QClaw在内各大厂商推出的“本地版龙虾”，是中国SaaS行业首个面向垂直领域的专属AI Skill。
 
-作为软银投资顾问公司首席财务官的戈维尔于2016年加入软银，此时距离首期愿景基金成立还有一年。
+AI正在从“工具”演变为商家的“智能经营伙伴”。
 
-该基金凭借其高确定性的投资决策，彻底颠覆了初创企业投资领域。
+未来AI的核心价值不仅在于生成素材或建站，而在于帮助商家完成经营决策与自动化执行。
 
-备忘录称，在“公司应对重大市场波动、转型及前所未有的变革过程中，戈维尔一直是整个业务的重要合作伙伴”。
+通过构建“Agent+Skills”架构，AI可以像“工作经验丰富的专家型助理”一样，理解业务逻辑、拉取多平台数据、自动生成策略并执行营销、库存等关键动作，真正实现经营自动化。
 
-戈维尔的离职正值软银CEO孙正义将重心转向人工智能热潮之际，该浪潮正在重塑科技行业，其中包括对ChatGPT开发商OpenAI的大手笔投资。
+基于这一理念，微盟正在全面推进底层技术架构升级，从“基于Workflow的Agent”转型为“基于Skill调度的Agent ”。
 
-戈维尔具有印度血统，在赞比亚出生并长大，曾在美国求学，并在辉瑞PFE.N和CATechnologies等公司担任过财务职位。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 15:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 16:05 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 15:58 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 15:59 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 15:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 15:58 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 15:47 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 15:54 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 16:00 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 16:11 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 16:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 15:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 15:43 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 16:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 15:53 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 16:03 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 15:59 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 16:07 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 16:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 15:54 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 16:09 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/9182029.shtml)
-- 2026-06-29 15:52 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/376863687.shtml)
-- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/7354758.shtml)
-- 2026-06-29 16:03 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/25059.shtml)
-- 2026-06-29 15:40 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/960525722278.shtml)
-- 2026-06-29 15:46 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/5628203.shtml)
-- 2026-06-29 15:58 - [20年前的周杰伦](https://www.share.minike.top/Article/details/22765.shtml)
-- 2026-06-29 15:53 - [一生一世](http://www.blog.kurohicncr.top/Article/details/55069.shtml)
-- 2026-06-29 15:45 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/018121982.shtml)
-- 2026-06-29 15:58 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/65853658.shtml)
-- 2026-06-29 15:56 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/513237.shtml)
-- 2026-06-29 15:37 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/5341858377.shtml)
-- 2026-06-29 15:51 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/380055371.shtml)
-- 2026-06-29 15:45 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/9376345.shtml)
-- 2026-06-29 16:03 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/84328174.shtml)
+- 2026-06-29 15:50 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/7917114886.shtml)
+- 2026-06-29 16:05 - [流金岁月](https://www.share.kurohicncr.top/Article/details/02989.shtml)
+- 2026-06-29 15:42 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/003394042.shtml)
+- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/386572582.shtml)
+- 2026-06-29 15:59 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/977326483.shtml)
+- 2026-06-29 16:06 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/11771470.shtml)
+- 2026-06-29 16:09 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/992353306909.shtml)
+- 2026-06-29 15:51 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/375310925347.shtml)
+- 2026-06-29 16:04 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/46353703.shtml)
+- 2026-06-29 16:11 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8293917789.shtml)
+- 2026-06-29 15:49 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/18183491630.shtml)
+- 2026-06-29 15:42 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/798707079.shtml)
+- 2026-06-29 15:44 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/012458570.shtml)
+- 2026-06-29 15:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/424191527.shtml)
+- 2026-06-29 15:44 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/357808823207.shtml)

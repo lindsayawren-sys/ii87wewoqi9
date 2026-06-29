@@ -1,58 +1,60 @@
-# 两年市值飙升千亿，国际复材靠AI电子布“翻盘”
+# 白宫敦促巴基斯坦斡旋伊朗临时停火
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 依靠着火热的电子布生意，曾经置身“老登”玻纤行业的国际复材在2026年表现得势如破竹。公司总市值现已逼近1500亿元大关，仅用两年时间便完成千亿级跨越，成功实现了“翻盘”。 国际复材进入“暴走”模式。 6月16日，国际复材报收38.68元，再度暴涨超13%。2026年至今，其累计涨
+据知情谈判人士透露，白宫方面推动与伊朗达成临时停火，与此同时，唐纳德·特朗普却不断升级对伊朗的威胁，并称伊朗正“苦苦乞求”达成协议。 上述人士表示，数周以来，特朗普政府一直向巴基斯坦施压，劝说伊朗同意停火并重新开放霍尔木兹海峡。作为以穆斯林为主的邻国与中间方，巴基斯坦的关键作用是向德黑兰转达美方提议。 这场由巴基斯坦军方实权人物阿西姆·穆尼尔牵头的幕后斡旋，最终在周二晚间促成美
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据知情谈判人士透露，白宫方面推动与伊朗达成临时停火，与此同时，唐纳德·特朗普却不断升级对伊朗的威胁，并称伊朗正“苦苦乞求”达成协议。
 
-来源：环球老虎财经app 依靠着火热的电子布生意，曾经置身“老登”玻纤行业的国际复材在2026年表现得势如破竹。
+上述人士表示，数周以来，特朗普政府一直向巴基斯坦施压，劝说伊朗同意停火并重新开放霍尔木兹海峡。
 
-公司总市值现已逼近1500亿元大关，仅用两年时间便完成千亿级跨越，成功实现了“翻盘”。
+作为以穆斯林为主的邻国与中间方，巴基斯坦的关键作用是向德黑兰转达美方提议。
 
-国际复材进入“暴走”模式。
+这场由巴基斯坦军方实权人物阿西姆·穆尼尔牵头的幕后斡旋，最终在周二晚间促成美国、伊朗与以色列宣布为期两周的停火；而就在数小时前，特朗普还威胁称，若伊朗不接受他的条件，将摧毁伊朗的“整个文明”。
 
-6月16日，国际复材报收38.68元，再度暴涨超13%。
+据五位了解巴基斯坦主导的幕后渠道的人士透露，特朗普因油价飙升感到担忧，且对伊朗政权的韧性感到意外，至少自3月21日首次威胁“摧毁”伊朗发电厂以来，就急于推动停火。
 
-2026年至今，其累计涨幅已经超过450%；而在最近两年，其股价相较最低点更是暴涨近1200%，市值飙升千亿，令外界叹为观止。
+随着特朗普周二的最后期限临近，巴基斯坦的穆尼尔密集致电美国高层官员，包括特朗普、副总统JD·万斯以及特使史蒂夫·维特科夫。
 
-据悉，国际复材之所以遭受热捧，离不开电子布行业超高景气度“助推”。
+美国与巴基斯坦认为，由冲突全程保持中立的穆斯林邻国转达美方提议，伊朗接受的可能性更高。
 
-要知道，在AI产业趋势推动下，与之密切相关的特种电子布不但需求旺盛，还“抽干”了原本属于普通电子布的产能，推动后者迎来涨价。
+穆尼尔与伊朗外长阿拉格齐通话后，巴基斯坦总理夏巴兹·谢里夫在社交媒体上公开了这份为期两周的停火提议。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 15:49 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:59 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 15:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 15:58 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 15:51 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 15:46 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 15:54 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 15:41 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 15:53 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 15:40 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 15:43 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 16:04 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 15:42 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 16:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 15:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 15:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 15:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 15:59 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 15:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 15:45 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 16:08 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 16:11 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 16:05 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:55 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 15:57 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/54872534353.shtml)
-- 2026-06-29 15:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/75171325716.shtml)
-- 2026-06-29 15:48 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/9871438471.shtml)
-- 2026-06-29 15:52 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/31426.shtml)
-- 2026-06-29 15:49 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/71995688380.shtml)
-- 2026-06-29 16:04 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/27371389.shtml)
-- 2026-06-29 15:36 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/717951970440.shtml)
-- 2026-06-29 15:54 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/31199400.shtml)
-- 2026-06-29 16:02 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/11014719.shtml)
-- 2026-06-29 15:36 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/971759010.shtml)
-- 2026-06-29 15:55 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/60567197.shtml)
-- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/02356403314.shtml)
-- 2026-06-29 15:37 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/8145586.shtml)
-- 2026-06-29 16:02 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/78644.shtml)
-- 2026-06-29 15:39 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/91653350.shtml)
+- 2026-06-29 15:53 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/1257790475.shtml)
+- 2026-06-29 16:09 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/7853393.shtml)
+- 2026-06-29 16:03 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/12895.shtml)
+- 2026-06-29 15:42 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/755373548351.shtml)
+- 2026-06-29 15:57 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/886572400.shtml)
+- 2026-06-29 15:51 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/0346841.shtml)
+- 2026-06-29 15:46 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/31607.shtml)
+- 2026-06-29 16:04 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/356235139264.shtml)
+- 2026-06-29 15:59 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/27441.shtml)
+- 2026-06-29 15:58 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/6248467.shtml)
+- 2026-06-29 16:09 - [一见倾心](http://www.share.minike.top/Article/details/6720779.shtml)
+- 2026-06-29 15:56 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/200994369255.shtml)
+- 2026-06-29 15:48 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/05977975739.shtml)
+- 2026-06-29 15:47 - [新一代影后杨紫](http://www.share.minike.top/Article/details/5558907.shtml)
+- 2026-06-29 16:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/067812.shtml)

@@ -1,60 +1,56 @@
-# 多家期货公司拟换董事长、总经理
+# 即期布伦特原油价格飙升 创纪录新高
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 6月16日，中期协公布了新一期期货公司高管人员专业能力水平评价测试合格人员名单，共20人通过测试。其中，1家公司拟调整董事长，4家公司拟调整总经理。 从中期协公布的最新一期期货公司高管人员专业能力水平评价测试合格人员名单看，此次期货公司高管人员调整覆盖董事层、经营层等多个核心岗位。其中，第一创业期货拟调整董事长，渤海期货、中原期货、天富期货和兴业期货等四家公司拟
+全球最重要的现货原油价格飙升至纪录最高，这是伊朗战争带来的扰动导致全球原油市场对稀缺供应的定价不断上升的最新迹象。 据标普全球能源旗下Platts的数据，作为全球大部分原油定价基准的即期布伦特周二升至每桶144.42美元。 受伊朗战争影响，霍尔木兹海峡的石油运输受阻，即期布伦特价格上涨。全球炼油厂正争相采购可获得的原油。除原油供应受阻外，霍尔木兹海峡的交通中断还冲击了燃料供应，
 
 ## 正文
 
-来源：期货日报 6月16日，中期协公布了新一期期货公司高管人员专业能力水平评价测试合格人员名单，共20人通过测试。
+全球最重要的现货原油价格飙升至纪录最高，这是伊朗战争带来的扰动导致全球原油市场对稀缺供应的定价不断上升的最新迹象。
 
-其中，1家公司拟调整董事长，4家公司拟调整总经理。
+据标普全球能源旗下Platts的数据，作为全球大部分原油定价基准的即期布伦特周二升至每桶144.42美元。
 
-从中期协公布的最新一期期货公司高管人员专业能力水平评价测试合格人员名单看，此次期货公司高管人员调整覆盖董事层、经营层等多个核心岗位。
+受伊朗战争影响，霍尔木兹海峡的石油运输受阻，即期布伦特价格上涨。
 
-其中，第一创业期货拟调整董事长，渤海期货、中原期货、天富期货和兴业期货等四家公司拟调整总经理。
+全球炼油厂正争相采购可获得的原油。
 
-公开信息显示，第一创业期货拟任董事长官德鹏曾在第一创业证券担任经纪业务分管领导及财富管理部负责人，负责经营管理及投资者保护工作。
+除原油供应受阻外，霍尔木兹海峡的交通中断还冲击了燃料供应，从而为石油的购买和加工创造了巨额利润。
 
-在此之前，他曾在方正证券工作，担任过经纪业务管理部行政负责人、分支机构管理部行政负责人等职位。
+这一关键价格指标反映的是北海原油现船货的交易成本。
 
-2025年以来期货公司高管密集调整被业内视为行业深度转型期的结构性变动。
-
-2025年，我国期货市场资金总量不断增长、客户基础不断夯实，市场吸引力与国际化水平进一步提升。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 15:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 15:42 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:56 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 15:42 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 15:56 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 15:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 16:01 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 16:05 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 15:48 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 15:51 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 15:47 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 15:57 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 15:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 15:59 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 15:51 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 15:43 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 16:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 15:57 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 16:07 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 15:58 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 16:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 15:59 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/0854195780.shtml)
-- 2026-06-29 15:52 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/1317723.shtml)
-- 2026-06-29 15:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/195325.shtml)
-- 2026-06-29 15:50 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/1990779.shtml)
-- 2026-06-29 15:55 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/07051831.shtml)
-- 2026-06-29 15:44 - [小娘惹](http://www.share.kurohicncr.top/Article/details/689459544456.shtml)
-- 2026-06-29 15:40 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/9721000.shtml)
-- 2026-06-29 15:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/680159942.shtml)
-- 2026-06-29 15:59 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/472165328.shtml)
-- 2026-06-29 16:05 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/15156112588.shtml)
-- 2026-06-29 15:49 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/8541706.shtml)
-- 2026-06-29 15:49 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/968218.shtml)
-- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/269675939.shtml)
-- 2026-06-29 15:55 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/6128133.shtml)
-- 2026-06-29 15:51 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/08184813914.shtml)
+- 2026-06-29 16:04 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2460078338.shtml)
+- 2026-06-29 15:48 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/6412948190.shtml)
+- 2026-06-29 15:42 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/76902.shtml)
+- 2026-06-29 16:01 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/348563.shtml)
+- 2026-06-29 15:58 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/931681.shtml)
+- 2026-06-29 15:59 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/11053318.shtml)
+- 2026-06-29 15:42 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/5970245221.shtml)
+- 2026-06-29 15:47 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/6375513.shtml)
+- 2026-06-29 16:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/5212873965.shtml)
+- 2026-06-29 15:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/181612905259.shtml)
+- 2026-06-29 16:05 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/527343290318.shtml)
+- 2026-06-29 16:08 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/14808227162.shtml)
+- 2026-06-29 15:56 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/277328404.shtml)
+- 2026-06-29 16:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/3293216906.shtml)
+- 2026-06-29 15:55 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/98467.shtml)

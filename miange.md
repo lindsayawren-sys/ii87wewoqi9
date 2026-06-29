@@ -1,53 +1,49 @@
-# 特朗普：美国可能很快重新实施对俄石油制裁
+# 伊朗呼吁欧洲向美国和以色列施压 要求其履行停火承诺
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据美联社报道，美国总统特朗普16日称，美国可能很快重新实施对俄罗斯石油的制裁。 当天，特朗普在法国埃维昂莱班出席七国集团峰会期间对媒体称：“(恢复制裁)很快就能落实，因为目前石油现在正常流通。”他表示：“我们很快就能采取这一行动。” 据报道，美国今年3月曾临时放松部分针对俄罗斯石油运输的制裁，当时国际原油价格大幅上涨。
+伊朗总统马苏德·佩泽希齐扬在与法国总统马克龙通电话时，呼吁欧洲在支持地区持久稳定与安全方面发挥“有效”作用，并向美国和以色列施压，要求其遵守承诺，以及抵制任何违反停火协议的行为。 佩泽希齐扬还谈到有必要在黎巴嫩实现停火，并表示，这一要求一直是伊朗10点和平计划中的关键条件之一。 佩泽希齐扬对马克龙表示，伊朗接受停火，是责任感和通过外交方式解决冲突的诚意的明确信号。责任编辑：丁文
 
 ## 正文
 
-中新网6月17日电 据美联社报道，美国总统特朗普16日称，美国可能很快重新实施对俄罗斯石油的制裁。
+伊朗总统马苏德·佩泽希齐扬在与法国总统马克龙通电话时，呼吁欧洲在支持地区持久稳定与安全方面发挥“有效”作用，并向美国和以色列施压，要求其遵守承诺，以及抵制任何违反停火协议的行为。
 
-当天，特朗普在法国埃维昂莱班出席七国集团峰会期间对媒体称：“(恢复制裁)很快就能落实，因为目前石油现在正常流通。
+佩泽希齐扬还谈到有必要在黎巴嫩实现停火，并表示，这一要求一直是伊朗10点和平计划中的关键条件之一。
 
-”他表示：“我们很快就能采取这一行动。
+佩泽希齐扬对马克龙表示，伊朗接受停火，是责任感和通过外交方式解决冲突的诚意的明确信号。
 
-” 据报道，美国今年3月曾临时放松部分针对俄罗斯石油运输的制裁，当时国际原油价格大幅上涨。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 15:36 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:48 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 15:45 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 15:46 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 16:05 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 15:44 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 15:48 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 15:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 15:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 15:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 16:00 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 16:02 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 15:57 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 15:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 15:48 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:11 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 16:09 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 16:00 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:11 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:04 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 15:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:49 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:07 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/74311038.shtml)
-- 2026-06-29 15:40 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/448199479690.shtml)
-- 2026-06-29 15:43 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/085369.shtml)
-- 2026-06-29 15:42 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/3797909169.shtml)
-- 2026-06-29 15:57 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/8632761799.shtml)
-- 2026-06-29 15:49 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/715714903137.shtml)
-- 2026-06-29 15:42 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/92011.shtml)
-- 2026-06-29 15:44 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/82112.shtml)
-- 2026-06-29 15:43 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/977815.shtml)
-- 2026-06-29 15:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/2182536797.shtml)
-- 2026-06-29 15:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/936998588.shtml)
-- 2026-06-29 15:49 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/35145.shtml)
-- 2026-06-29 15:59 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/991201.shtml)
-- 2026-06-29 15:45 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/790617.shtml)
-- 2026-06-29 15:57 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/606019102.shtml)
+- 2026-06-29 16:10 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/0036014.shtml)
+- 2026-06-29 15:49 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/508833384471.shtml)
+- 2026-06-29 16:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/0186664.shtml)
+- 2026-06-29 15:55 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/22961377.shtml)
+- 2026-06-29 15:52 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/139195616.shtml)
+- 2026-06-29 15:51 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/15990962708.shtml)
+- 2026-06-29 16:10 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/799844807.shtml)
+- 2026-06-29 16:03 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/78450.shtml)
+- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/1481874552.shtml)
+- 2026-06-29 15:44 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/6500937527.shtml)
+- 2026-06-29 15:58 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/996188959.shtml)
+- 2026-06-29 15:46 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/409006.shtml)
+- 2026-06-29 16:05 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/13980759.shtml)
+- 2026-06-29 16:08 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/38070304865.shtml)
+- 2026-06-29 15:54 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/55553.shtml)

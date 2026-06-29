@@ -1,60 +1,58 @@
-# “中国茭白之乡”浙江缙云采收忙
+# 季度净利最高预增2261%！西部黄金筹划H股上市股价斩获一字涨停
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月8日，西部黄金（601069.SH）开盘即封死涨停板，呈现“一字涨停”走势。 当天，受美国和伊朗同意有条件停火两周的消息提振，国际现货黄金盘中一度站上4850美元/盎司关口，A股黄金板块走势强劲。 4月7日晚间，西部黄金发布2026年一季度业绩预告，预计报告期内实现归母净利润4.5亿元至5.6亿元，与上
 
 ## 正文
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+4月8日，西部黄金（601069.SH）开盘即封死涨停板，呈现“一字涨停”走势。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+当天，受美国和伊朗同意有条件停火两周的消息提振，国际现货黄金盘中一度站上4850美元/盎司关口，A股黄金板块走势强劲。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+4月7日晚间，西部黄金发布2026年一季度业绩预告，预计报告期内实现归母净利润4.5亿元至5.6亿元，与上年同期（追溯调整后）相比，增幅高达1797.16%至2260.91%。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐河南三门峡：端午节香包走俏 传统手艺焕新彩封关半年看海南：中外巨轮频频“打卡”！
+西部黄金在公告中明确，本季度净利润大幅增长的核心驱动力来自主营业务层面：黄金产品销量较上年同期增加，销售价格较上年同期上升，同时电解锰销售价格亦较上年同期出现上涨。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+此外，西部黄金披露2025年年报，2025年实现营业总收入135.67亿元，同比增长93.8%；净利润4.72亿元，同比增长86.09%。
 
-感觉遍地是机会直击武警多课目比武竞赛现场西藏羊卓雍错：夏日限定高原盛景幼儿园举行自理能力大赛 淡定小孩哥不慌不忙2034年能踢进世界杯吗？
+业绩增长主要原因为自有矿山生产的黄金产品销量较上年同期增加、销售价格较上年同期上升。
 
-中国足球小将“空翻哥”的回答很棒南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁中广核福建宁德核电5号机组穹顶吊装成功 “中国最美小鸟”蓝喉蜂虎现身闽北 2026年世界杯美国赛区揭幕战在洛杉矶举行 “太阳神鸟金饰”亮相中国国家博物馆 西藏那曲铁路护路队：羌塘草原上的“白杨礼 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 分享 评论 顶部
+从生产方面来看，西部黄金去年全年生产黄金产品16.92吨（含金精矿、焙砂金属量，其中生产标准金15.49吨），完成年计划的172.76%，较上年同期9.59吨增加7.33吨。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 15:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 15:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 15:47 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 16:04 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 16:03 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 16:01 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 16:02 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 15:57 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 15:38 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 16:04 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 15:56 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 15:57 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 15:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 16:12 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 16:06 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 15:58 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 15:49 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 15:43 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 15:59 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 16:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:52 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 15:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/17720565003.shtml)
-- 2026-06-29 15:43 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/8329487.shtml)
-- 2026-06-29 15:56 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/784316899869.shtml)
-- 2026-06-29 15:36 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/7094036.shtml)
-- 2026-06-29 15:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/7400384.shtml)
-- 2026-06-29 15:53 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/971958074.shtml)
-- 2026-06-29 16:05 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/10822.shtml)
-- 2026-06-29 16:01 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/5740759.shtml)
-- 2026-06-29 15:38 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/144731388.shtml)
-- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/71270706.shtml)
-- 2026-06-29 15:36 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/14862948410.shtml)
-- 2026-06-29 16:00 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/726614072849.shtml)
-- 2026-06-29 15:44 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/702501222.shtml)
-- 2026-06-29 15:57 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/7464162.shtml)
-- 2026-06-29 15:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/42669262.shtml)
+- 2026-06-29 15:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/086011.shtml)
+- 2026-06-29 16:11 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/07919.shtml)
+- 2026-06-29 16:08 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/26594500.shtml)
+- 2026-06-29 15:57 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/77948790.shtml)
+- 2026-06-29 15:42 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/6784167294.shtml)
+- 2026-06-29 15:57 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/569313.shtml)
+- 2026-06-29 16:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/9962793454.shtml)
+- 2026-06-29 15:54 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/23680777.shtml)
+- 2026-06-29 15:52 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1579891.shtml)
+- 2026-06-29 15:57 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/48796828768.shtml)
+- 2026-06-29 15:49 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/199979506.shtml)
+- 2026-06-29 16:02 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/091804796006.shtml)
+- 2026-06-29 16:10 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/29948846.shtml)
+- 2026-06-29 16:10 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/836212.shtml)
+- 2026-06-29 15:58 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/192400.shtml)

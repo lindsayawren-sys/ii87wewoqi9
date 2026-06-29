@@ -1,50 +1,54 @@
-# 北京嫣然天使儿童医院全国十二城公益行战略合作在京启动
+# 谷爱凌分享首次备战全马经历：只有两周时间训练 周跑量130公里
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 21:46 来源：中国新闻网 2026年6月16日，由北京嫣然天使儿童医院携手北京嫣然拾光科技有限公司共同举办的“寻迹中国·美善共生”全国十二城公益行战略合作启动仪式在北京嫣然天使儿童医院成功举办。本次活动标志着嫣然在探索“商业向善”与可持续公益发展道路上迈出了关键一步。此次启动的“全国十二城公益行”，将深入县域基层，通过筛查、义诊等形式，把优
+发布时间：2026年04月08日 17:36 来源：中国新闻网 近日，谷爱凌在出席“爱凌马赫瓷器局”北京跑友交流活动时分享了第一次跑马拉松前的备赛经历。谷爱凌表示，她是在比赛前两周左右才接到可以参加马拉松的通知，几乎没有准备时间，自己之前的跑量是一个月160公里，而备赛前突然增加到一周130公里。当时正值夏天，她早晨还要进行旱雪滑雪训练，穿着厚厚的滑雪服，每次练完都浑身湿透，但
 
 ## 正文
 
-发布时间：2026年06月16日 21:46 来源：中国新闻网 2026年6月16日，由北京嫣然天使儿童医院携手北京嫣然拾光科技有限公司共同举办的“寻迹中国·美善共生”全国十二城公益行战略合作启动仪式在北京嫣然天使儿童医院成功举办。
+发布时间：2026年04月08日 17:36 来源：中国新闻网 近日，谷爱凌在出席“爱凌马赫瓷器局”北京跑友交流活动时分享了第一次跑马拉松前的备赛经历。
 
-本次活动标志着嫣然在探索“商业向善”与可持续公益发展道路上迈出了关键一步。
+谷爱凌表示，她是在比赛前两周左右才接到可以参加马拉松的通知，几乎没有准备时间，自己之前的跑量是一个月160公里，而备赛前突然增加到一周130公里。
 
-此次启动的“全国十二城公益行”，将深入县域基层，通过筛查、义诊等形式，把优质的医疗资源送到患儿家门口。
+当时正值夏天，她早晨还要进行旱雪滑雪训练，穿着厚厚的滑雪服，每次练完都浑身湿透，但训练结束后还会坚持去跑步。
 
-(记者 李佳悦） 责任编辑：【李季】
+第二周，她作为奥运大使在巴黎奥运会期间穿梭于各个场馆，为了完成每天的跑量，她干脆在不同场馆之间跑步通勤，“巴黎白天特别热，那个时候也特堵车，但我发现我跑步比开车还更快。
+
+” 谷爱凌表示，希望未来有机会好好准备一次马拉松，争取跑得更快一点。
+
+(记者 董泽宇 邢翀) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 15:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 15:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:51 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 16:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 16:00 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 15:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 15:50 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 15:42 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:37 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 15:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 16:05 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 15:59 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 15:46 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 15:56 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 15:45 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 16:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 15:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 16:06 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 15:45 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 15:44 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 15:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:53 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/54713116622.shtml)
-- 2026-06-29 16:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/428615.shtml)
-- 2026-06-29 16:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/160603263.shtml)
-- 2026-06-29 15:51 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/239478627.shtml)
-- 2026-06-29 15:53 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/591273.shtml)
-- 2026-06-29 15:46 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/89032376023.shtml)
-- 2026-06-29 15:46 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/4363610.shtml)
-- 2026-06-29 15:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/208727359124.shtml)
-- 2026-06-29 15:48 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/06071866117.shtml)
-- 2026-06-29 15:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5550866.shtml)
-- 2026-06-29 15:48 - [周生如故](https://www.share.minike.top/Article/details/961742536.shtml)
-- 2026-06-29 15:56 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/04312.shtml)
-- 2026-06-29 16:03 - [沙丘](https://www.share.minike.top/Article/details/5337495.shtml)
-- 2026-06-29 15:38 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/724353978.shtml)
-- 2026-06-29 16:02 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/727153442.shtml)
+- 2026-06-29 15:51 - [周生如故](http://www.share.minike.top/Article/details/333062837364.shtml)
+- 2026-06-29 16:03 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/116359.shtml)
+- 2026-06-29 16:09 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/82710619847.shtml)
+- 2026-06-29 15:54 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/95839300.shtml)
+- 2026-06-29 15:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/19437590382.shtml)
+- 2026-06-29 15:44 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/461642.shtml)
+- 2026-06-29 16:06 - [美的空调 卡bug](https://www.share.minike.top/Article/details/1427204.shtml)
+- 2026-06-29 16:05 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/24455803.shtml)
+- 2026-06-29 16:02 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/7338948.shtml)
+- 2026-06-29 15:47 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/14716531006.shtml)
+- 2026-06-29 16:04 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/8654177.shtml)
+- 2026-06-29 16:10 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/183594843149.shtml)
+- 2026-06-29 15:47 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/74244856093.shtml)
+- 2026-06-29 15:52 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/199864.shtml)
+- 2026-06-29 16:04 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/37539.shtml)

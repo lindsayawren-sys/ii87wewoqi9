@@ -1,56 +1,58 @@
-# 盛银消金外包催收服务，公司近年逾期贷款规模攀升
+# 飞絮+花粉过敏如何及时规范治疗？这份防护指南请收
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-泰山财经记者 林俊洁 近日，盛银消费金融有限公司（下称“盛银消金”）发布2026年催收作业人员人力外包服务采购项目公开招标公告。针对本次采购的预算规模、人员配置及合规管控机制等问题，泰山财经记者向盛银消金发去采访函，截至发稿未获得对方回复。 公开招标信息显示，盛银消金上述采购项目由建银工程咨询有限责任公司担任招标代理机构，项目整体划分为1个包组，采用公开招标方式采购。招标文件获
+近日，北方多地相继发布杨柳飞絮预报，各地陆续进入飞絮高发期。 眼下花粉季还没结束，飞絮又接踵而至。很多人关心，飞絮过敏和花粉过敏是一回事吗？ 杨柳飞絮并非花粉 本身无致敏性飞絮并不是花粉。杨树、柳树雌株果实成熟开裂，包裹种子的白色绒毛随风飘散，就是飞絮，属于正常自然现象。飞絮一般无直接致敏性。但飞絮质地轻、飘浮时间长，极易吸附灰尘、细菌及春季花粉、尘螨等过敏原，相当于一个“移动
 
 ## 正文
 
-泰山财经记者 林俊洁 近日，盛银消费金融有限公司（下称“盛银消金”）发布2026年催收作业人员人力外包服务采购项目公开招标公告。
+近日，北方多地相继发布杨柳飞絮预报，各地陆续进入飞絮高发期。
 
-针对本次采购的预算规模、人员配置及合规管控机制等问题，泰山财经记者向盛银消金发去采访函，截至发稿未获得对方回复。
+眼下花粉季还没结束，飞絮又接踵而至。
 
-公开招标信息显示，盛银消金上述采购项目由建银工程咨询有限责任公司担任招标代理机构，项目整体划分为1个包组，采用公开招标方式采购。
+很多人关心，飞絮过敏和花粉过敏是一回事吗？
 
-招标文件获取截止时间为2026年6月23日16时30分。
+杨柳飞絮并非花粉 本身无致敏性飞絮并不是花粉。
 
-泰山财经记者梳理工商信息发现，这并非盛银消金首次采购催收外包相关服务。
+杨树、柳树雌株果实成熟开裂，包裹种子的白色绒毛随风飘散，就是飞絮，属于正常自然现象。
 
-2024年7月，盛银消金先后完成两项催收相关项目的招标工作：其中该公司的智能催收系统采购项目由北京兆维博安科技有限公司中标，中标金额208万元；同期开标的委外催收采购项目，最终由深圳市冠达融鑫企业管理有限公司中标。
+飞絮一般无直接致敏性。
 
-公开资料显示，盛银消金成立于2016年2月，是东北地区首家、辽宁省唯一经原银监会批准设立的持有消费金融牌照的全国性金融机构，公司法定代表人为周峙，注册地为辽宁省沈阳市。
+但飞絮质地轻、飘浮时间长，极易吸附灰尘、细菌及春季花粉、尘螨等过敏原，相当于一个“移动过敏原载体”。
 
-盛京银行持股比例75%，为盛银消金控股股东；大连德旭经贸有限公司持股比例25%。
+首都医科大学附属北京世纪坛医院变态反应中心主任 王学艳：一旦飞絮进入鼻腔接触眼结膜或皮肤时，其携带的过敏原会引发鼻痒、喷嚏、眼痒、流泪等不适。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 15:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 15:57 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 15:39 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 15:49 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 16:04 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 15:52 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 15:48 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 15:40 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 15:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 15:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 15:53 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 15:44 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 15:52 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 15:53 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 15:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 15:46 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 15:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 15:51 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:48 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 15:57 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/9980675837.shtml)
-- 2026-06-29 15:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/51594220636.shtml)
-- 2026-06-29 15:55 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/93733.shtml)
-- 2026-06-29 16:04 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/097785003.shtml)
-- 2026-06-29 15:49 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/1792342.shtml)
-- 2026-06-29 15:45 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/92482594.shtml)
-- 2026-06-29 15:38 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/2708418832.shtml)
-- 2026-06-29 16:05 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/159791062794.shtml)
-- 2026-06-29 15:56 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/53001.shtml)
-- 2026-06-29 16:05 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/1897560.shtml)
-- 2026-06-29 15:57 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/05962.shtml)
-- 2026-06-29 16:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/82998043.shtml)
-- 2026-06-29 16:05 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/798036874.shtml)
-- 2026-06-29 15:59 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/996281.shtml)
-- 2026-06-29 15:52 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/9431249.shtml)
+- 2026-06-29 16:03 - [毒液2](https://www.share.minike.top/Article/details/196716365.shtml)
+- 2026-06-29 15:55 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/370148597521.shtml)
+- 2026-06-29 16:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/22913.shtml)
+- 2026-06-29 15:50 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/881456354664.shtml)
+- 2026-06-29 15:44 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/849008.shtml)
+- 2026-06-29 16:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/500970436017.shtml)
+- 2026-06-29 15:56 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/54875.shtml)
+- 2026-06-29 15:54 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/69795799.shtml)
+- 2026-06-29 16:04 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/2768487393.shtml)
+- 2026-06-29 15:44 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/215775263.shtml)
+- 2026-06-29 16:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/2163104.shtml)
+- 2026-06-29 15:48 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/77568790479.shtml)
+- 2026-06-29 15:44 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/2692566.shtml)
+- 2026-06-29 15:58 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/74350532962.shtml)
+- 2026-06-29 15:59 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/504709996444.shtml)

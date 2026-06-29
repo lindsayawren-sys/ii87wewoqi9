@@ -1,57 +1,46 @@
-# 眼见为实！大开眼界！台湾同胞走访凉山 嘴巴都没合起来过
+# 力争大幅压减排队缴费时长 首批医保便捷支付地区名单公布
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:36 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。“现在我儿子自己都可以说我妈妈是做乡村振兴的！”宓欣怡提起儿子对她的肯定，一脸自豪。在大陆打拼的日子里，“农林22
+中新网4月8日电 据国家医保局官方微信消息，为切实解决群众看病缴费“多次排队”“排长队”等堵点痛点，国家医保局部署推进刷脸支付、一码支付、移动支付、信用支付等便捷支付工作，选择119个统筹地区作为首批推进地区，力争大幅压减排队缴费时长，有效缓解参保群众排队奔波。 近日，国家医保局组织各省积极开展交流活动，以城市、医院为主阵地，总结推广经验做法，发挥“头雁效应”和典型示范引领作用
 
 ## 正文
 
-发布时间：2026年06月17日 13:36 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。
+中新网4月8日电 据国家医保局官方微信消息，为切实解决群众看病缴费“多次排队”“排长队”等堵点痛点，国家医保局部署推进刷脸支付、一码支付、移动支付、信用支付等便捷支付工作，选择119个统筹地区作为首批推进地区，力争大幅压减排队缴费时长，有效缓解参保群众排队奔波。
 
-紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。
+近日，国家医保局组织各省积极开展交流活动，以城市、医院为主阵地，总结推广经验做法，发挥“头雁效应”和典型示范引领作用，切实做到经验共享、问题共解、能力共提，加快改革推进步伐。
 
-宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。
-
-“现在我儿子自己都可以说我妈妈是做乡村振兴的！
-
-”宓欣怡提起儿子对她的肯定，一脸自豪。
-
-在大陆打拼的日子里，“农林22条”“川台70条”等惠台政策，让宓欣怡感受到十足的温暖与便利。
-
-她希望架起两岸连心桥，鼓励更多台湾青年来到大陆，开辟属于自己的天地。
-
-责任编辑：【罗攀】
+欢迎社会各界相关机构协同发力，携手解决老百姓急难愁盼问题，推进便捷支付工作落实落地。
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 16:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 16:01 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 15:50 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:52 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 15:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 15:41 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 15:52 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 16:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 15:47 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 15:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 16:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 16:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 15:52 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 15:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 16:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 15:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 16:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 15:53 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 15:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 16:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [天道](https://www.blog.minike.top/Article/details/7436134619.shtml)
-- 2026-06-29 15:53 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/57918.shtml)
-- 2026-06-29 16:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/6780008.shtml)
-- 2026-06-29 16:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/5272599.shtml)
-- 2026-06-29 15:38 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/602729.shtml)
-- 2026-06-29 15:51 - [千与千寻](https://www.share.minike.top/Article/details/758389863.shtml)
-- 2026-06-29 16:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/961172.shtml)
-- 2026-06-29 15:56 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/445587161110.shtml)
-- 2026-06-29 16:01 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/71138262088.shtml)
-- 2026-06-29 15:43 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/918552889129.shtml)
-- 2026-06-29 16:01 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/733066240.shtml)
-- 2026-06-29 15:54 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/5260101991.shtml)
-- 2026-06-29 15:56 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/293033651005.shtml)
-- 2026-06-29 15:37 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/32838490967.shtml)
-- 2026-06-29 15:54 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/99075838.shtml)
+- 2026-06-29 15:55 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/607942101066.shtml)
+- 2026-06-29 15:45 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/946924114.shtml)
+- 2026-06-29 16:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/255184886276.shtml)
+- 2026-06-29 15:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/265629578.shtml)
+- 2026-06-29 15:42 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/483088671.shtml)
+- 2026-06-29 15:57 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/83599168.shtml)
+- 2026-06-29 15:43 - [勇敢的心第二部](http://www.share.minike.top/Article/details/9059927.shtml)
+- 2026-06-29 15:54 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/91863333.shtml)
+- 2026-06-29 15:59 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/481027.shtml)
+- 2026-06-29 15:47 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/147599.shtml)
+- 2026-06-29 15:47 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/8822434300.shtml)
+- 2026-06-29 15:45 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/442706.shtml)
+- 2026-06-29 15:43 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/3416509.shtml)
+- 2026-06-29 16:12 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/34354726018.shtml)
+- 2026-06-29 16:04 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/263353.shtml)

@@ -1,60 +1,56 @@
-# 广西龙胜：共话邻里情 粽情迎端午
+# 她还能增长吗？
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？斯坦利·约翰逊：为何要重走马可·波罗之路？多边主义保障世界人权面临何种挑战与机遇？“天下为公”为全球变局中的和平与秩序提供何种中国方案？两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东
+来源：围棋投研 有段时间没看新发行的ETF，正好节后第一天就扫了一眼，结果在一众“科创”“电力”“石油”等名字里，有个略显突兀的家电ETF华宝（159176），没想到传统行业也挺有关注度。 点开了ETF的重仓股，果然大部分都是熟面孔，其中白电三巨头和三花智控就能占到半壁江山。 再看了下整个ETF的盈利预测情况，倒是蛮有意思，我截图给大家看看： 有没有发现，市场普遍给25年预期是
 
 ## 正文
 
-“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+来源：围棋投研 有段时间没看新发行的ETF，正好节后第一天就扫了一眼，结果在一众“科创”“电力”“石油”等名字里，有个略显突兀的家电ETF华宝（159176），没想到传统行业也挺有关注度。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+点开了ETF的重仓股，果然大部分都是熟面孔，其中白电三巨头和三花智控就能占到半壁江山。
 
-多边主义保障世界人权面临何种挑战与机遇？
+再看了下整个ETF的盈利预测情况，倒是蛮有意思，我截图给大家看看： 有没有发现，市场普遍给25年预期是比较低的，同比小个位数增长，而对26年和27年都相对乐观一些，预期增速能达到10%。
 
-“天下为公”为全球变局中的和平与秩序提供何种中国方案？
+经常有朋友问我：家电行业到底还有没有增速，以及美的究竟能靠什么增长？
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+接下来，我们就借着美的集团的2025年年报，简单回答下这两个问题： 对了，不得不夸一句美的年报的封面，赏心悦目。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+而且取题为《我们总有道路》，极少能见到上市公司给年报取题目的，说明不仅是在完成任务，更是当做了一份年度答卷。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+言归正传，来观察下行业增速及美的集团的突破口。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+先看行业层面。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 15:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:45 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 16:01 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 16:04 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 15:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 16:02 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 16:01 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 16:02 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:56 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 15:36 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 15:47 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 15:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 15:47 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 16:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 15:47 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 15:54 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 15:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 15:57 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 16:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:10 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 15:47 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 15:44 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/1323469050.shtml)
-- 2026-06-29 15:56 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/76412599839.shtml)
-- 2026-06-29 15:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/38180116801.shtml)
-- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/922248507287.shtml)
-- 2026-06-29 15:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/65876002478.shtml)
-- 2026-06-29 15:58 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/9131064.shtml)
-- 2026-06-29 15:48 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/822551025327.shtml)
-- 2026-06-29 16:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8013722359.shtml)
-- 2026-06-29 15:52 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/197526.shtml)
-- 2026-06-29 15:49 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/97212921.shtml)
-- 2026-06-29 16:02 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/0305749579.shtml)
-- 2026-06-29 15:43 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/221159239.shtml)
-- 2026-06-29 15:49 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/883341536281.shtml)
-- 2026-06-29 15:41 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/29144032.shtml)
-- 2026-06-29 15:51 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/0484499.shtml)
+- 2026-06-29 15:51 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/779271252261.shtml)
+- 2026-06-29 16:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/065159165.shtml)
+- 2026-06-29 15:45 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/31848.shtml)
+- 2026-06-29 16:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/233569659.shtml)
+- 2026-06-29 16:03 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/2042838.shtml)
+- 2026-06-29 15:48 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/95391516264.shtml)
+- 2026-06-29 15:49 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/959920605.shtml)
+- 2026-06-29 16:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/05031869593.shtml)
+- 2026-06-29 15:45 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/87280428279.shtml)
+- 2026-06-29 15:46 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/681919740.shtml)
+- 2026-06-29 16:08 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/06615.shtml)
+- 2026-06-29 15:48 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/525617804.shtml)
+- 2026-06-29 16:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/2210816071.shtml)
+- 2026-06-29 15:47 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/996825212853.shtml)
+- 2026-06-29 16:01 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/09721411.shtml)

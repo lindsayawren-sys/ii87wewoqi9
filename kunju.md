@@ -1,59 +1,61 @@
-# 美国债市：国债涨幅在英伟达250亿美元债券定价前收窄
+# 美国原油期货暴跌近20%，特朗普宣布美伊停火两周
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-美国国债在美国交易时段回吐了早些时候的部分涨幅；此前美国和伊朗达成协议以恢复霍尔木兹海峡通行，油价随之下跌，美债受到提振。英伟达宣布发债后，美债涨势消退。在这笔债券交易定价前，美国国债也走势偏沉重。 纽约时间下午3点刚过，美国收益率曲线短端和中段收益率下跌多达2个基点，而长端收益率回到接近日内持平。美国10年期收益率尾盘报4.46%左右，此前在亚洲早盘一度跌至4.418%。 企
+专题：突发！美伊停火两周 原油暴跌15% 当地时间周二晚间，在美国总统特朗普同意暂停对伊朗的军事打击两周后，美国原油期货价格暴跌。 截至北京时间周三上午7点23分，美国西德州中质（WTI）原油期货合约下跌19%，至每桶91.31美元。 特朗普表示，为期两周的停火协议取决于伊朗同意立即、全面、安全地开放霍尔木兹海峡。他说，美国已收到伊朗提出的十点方案，该方案是谈判的可行基础。 特
 
 ## 正文
 
-美国国债在美国交易时段回吐了早些时候的部分涨幅；此前美国和伊朗达成协议以恢复霍尔木兹海峡通行，油价随之下跌，美债受到提振。
+专题：突发！
 
-英伟达宣布发债后，美债涨势消退。
+美伊停火两周 原油暴跌15% 当地时间周二晚间，在美国总统特朗普同意暂停对伊朗的军事打击两周后，美国原油期货价格暴跌。
 
-在这笔债券交易定价前，美国国债也走势偏沉重。
+截至北京时间周三上午7点23分，美国西德州中质（WTI）原油期货合约下跌19%，至每桶91.31美元。
 
-纽约时间下午3点刚过，美国收益率曲线短端和中段收益率下跌多达2个基点，而长端收益率回到接近日内持平。
+特朗普表示，为期两周的停火协议取决于伊朗同意立即、全面、安全地开放霍尔木兹海峡。
 
-美国10年期收益率尾盘报4.46%左右，此前在亚洲早盘一度跌至4.418%。
+他说，美国已收到伊朗提出的十点方案，该方案是谈判的可行基础。
 
-企业债发行相关对冲资金流似乎在美国交易时段对美国国债构成轻微压力。
+特朗普在社交媒体上发文称：“美伊两国过去几乎所有的争议点都已达成一致，但还需要两周时间才能最终敲定并完成协议。
 
-八家借款人共发行360亿美元美国投资级债券，其中英伟达250亿美元七部分债券发行规模居首。
+” 此次停火发生在特朗普设定的美国东部时间晚上8点伊朗重新开放霍尔木兹海峡的最后期限前不到两小时。
 
-英伟达发债交易宣布后，美国上午交易时段美债涨幅开始回吐。
+此前，特朗普曾威胁称，如果伊朗领导人不遵守这一最后期限，他将轰炸伊朗境内的所有桥梁和发电厂。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 15:55 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 15:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:43 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:01 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 15:49 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 15:57 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 16:02 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 15:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 15:59 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 15:54 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 16:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 15:55 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 15:44 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 15:56 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 15:56 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:08 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 16:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:58 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 15:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 15:59 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 16:02 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 16:00 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 16:09 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/34871615.shtml)
-- 2026-06-29 15:36 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/968976905349.shtml)
-- 2026-06-29 15:46 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/231544.shtml)
-- 2026-06-29 15:56 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/53727746.shtml)
-- 2026-06-29 15:52 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/53294.shtml)
-- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/894811.shtml)
-- 2026-06-29 16:03 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/12571.shtml)
-- 2026-06-29 16:02 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/6388297.shtml)
-- 2026-06-29 16:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/495014.shtml)
-- 2026-06-29 15:37 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/6208215.shtml)
-- 2026-06-29 16:05 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/03957.shtml)
-- 2026-06-29 15:54 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/658364767.shtml)
-- 2026-06-29 16:06 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/268598.shtml)
-- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/08158793462.shtml)
-- 2026-06-29 15:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/9582727121.shtml)
+- 2026-06-29 16:11 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/2269608639.shtml)
+- 2026-06-29 16:06 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/45492.shtml)
+- 2026-06-29 15:54 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/6491704503.shtml)
+- 2026-06-29 15:45 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/871447.shtml)
+- 2026-06-29 15:56 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/979087611735.shtml)
+- 2026-06-29 15:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/97505.shtml)
+- 2026-06-29 15:58 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/1792739373.shtml)
+- 2026-06-29 16:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/945567060.shtml)
+- 2026-06-29 15:59 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5925441696.shtml)
+- 2026-06-29 16:00 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/5271344504.shtml)
+- 2026-06-29 16:01 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/9893543903.shtml)
+- 2026-06-29 16:03 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/81073.shtml)
+- 2026-06-29 15:59 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/079159348669.shtml)
+- 2026-06-29 15:42 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/237054.shtml)
+- 2026-06-29 15:51 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/26491158461.shtml)

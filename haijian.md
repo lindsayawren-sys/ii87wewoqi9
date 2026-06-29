@@ -1,57 +1,58 @@
-# 成都中欧班列集结中心再添“生力军” 自贡基地挂牌
+# “创新+匠心”多元融合 浙江省交易团备展第六届消博会
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网成都6月16日电 (记者 张浪)记者16日从成都国际铁路港获悉，成都中欧班列集结中心自贡基地日前正式挂牌。这是继广元基地之后，四川省今年上半年落地的第二个中欧班列省内支点，为全省中欧班列枢纽集结网络建设注入全新动能。 自贡基地落地后，将深度依托自贡彩灯、高端装备制造等特色优势产业，打通川南地区直达欧洲、中亚的国际物流便捷通道，有效解决川南优质产品出海物流壁垒，助力本地特色
+中新网杭州4月8日电(奚金燕)第六届中国国际消费品博览会(以下简称“消博会”)将于4月13日在海南正式启幕。本届消博会以“开放引领全球消费，创新驱动美好生活”为核心主题，浙江省交易团将携多元展品、创新模式与深厚文化底蕴精彩亮相，全方位展现浙江高水平开放、高质量发展的生动图景。 据浙江省商务厅相关负责人介绍，本届消博会上，浙江将以“灵秀浙江”为展示主题，精心打造面积达500平方米
 
 ## 正文
 
-中新网成都6月16日电 (记者 张浪)记者16日从成都国际铁路港获悉，成都中欧班列集结中心自贡基地日前正式挂牌。
+中新网杭州4月8日电(奚金燕)第六届中国国际消费品博览会(以下简称“消博会”)将于4月13日在海南正式启幕。
 
-这是继广元基地之后，四川省今年上半年落地的第二个中欧班列省内支点，为全省中欧班列枢纽集结网络建设注入全新动能。
+本届消博会以“开放引领全球消费，创新驱动美好生活”为核心主题，浙江省交易团将携多元展品、创新模式与深厚文化底蕴精彩亮相，全方位展现浙江高水平开放、高质量发展的生动图景。
 
-自贡基地落地后，将深度依托自贡彩灯、高端装备制造等特色优势产业，打通川南地区直达欧洲、中亚的国际物流便捷通道，有效解决川南优质产品出海物流壁垒，助力本地特色产业、工业产品搭乘中欧班列走出四川、远销欧亚市场。
+据浙江省商务厅相关负责人介绍，本届消博会上，浙江将以“灵秀浙江”为展示主题，精心打造面积达500平方米的浙江形象展区。
 
-截至目前，成都国际铁路港已在全省布局乐山、德阳、眉山、资阳、达州、泸州、宜宾、广元、自贡9个支撑基地，全面覆盖川南、川东北、成都平原等重点区域，全省“核心枢纽+区域支撑”的中欧班列集结立体网络持续完善、越织越密。
+展区甄选25家浙江龙头企业、专精特新企业及老字号品牌，构建“新引擎、新融合、新叙事”三大特色板块，从硬核科技、跨界融合、文化焕新三大维度，展现浙江制造的创新实力、深厚文化底蕴与坚实产业担当。
 
-此次自贡基地落地布局，是四川省推进中欧班列集结中心枢纽体系建设的重要落地成果。
+在硬核科技展示板块，孚宝智能将带来国内康养机器人领域的“全能型选手”，以科技之力为“银发幸福”保驾护航；太希外骨骼机器人搭载自主研发的全模型动态平衡算法，生动展现智能穿戴与智慧出行的全新发展趋势；坦途创新智能生态品牌风巡将重磅推出智慧燃油摩托车与空中竞速载人飞行器全球首发活动，解锁未来出行与休闲娱乐的全新场景。
 
-据悉，2025年8月，《四川省推动中欧班列集结中心枢纽体系建设三年行动方案》正式印发实施，明确构建以成都都市圈为核心集结枢纽，联动绵阳、遂宁、达州、泸州、南充等多地支撑基地的全域发展格局。
+在消费新业态融合板块，浙江企业持续发力，推动产品迭代升级。
 
-该方案聚焦枢纽承载能力强化、多元通道体系构建、运营质量效益提升、适铁产业培育壮大、国际国内交流合作、班列安全风险防控六大专项行动，全方位推动“枢纽—通道—平台—产业”协同联动、良性循环，持续畅通川货出海通道，赋能更多“蓉品”“川品”开拓国际市场，助力四川对外开放经济高质量发展。
+凯喜雅Innosilk系列深度融合真丝亲肤特质与高科技防晒功能，兼顾舒适与健康；花西子全场景防晒系列依托“莲叶御光膜”核心技术打造高效防护体验，凭借东方科技赋能，产品远销全球110余个国家和地区。
 
-(完)
+此外，宋朝香氛、瑞彼加莱璞美容仪、越朗户外电动充气车尾帐篷等特色产品，也将全方位展现品质浙货的创新与活力。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 15:49 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 15:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 16:03 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 15:40 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:36 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 15:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:46 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 16:03 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 16:04 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 15:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 15:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 16:05 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 15:59 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 15:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 15:54 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 15:52 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 16:04 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 15:55 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 15:54 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 15:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/691351604.shtml)
-- 2026-06-29 15:43 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/04024.shtml)
-- 2026-06-29 16:04 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/73869143.shtml)
-- 2026-06-29 16:00 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/555928.shtml)
-- 2026-06-29 15:36 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/863943.shtml)
-- 2026-06-29 15:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/488213074.shtml)
-- 2026-06-29 16:00 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/33101.shtml)
-- 2026-06-29 15:52 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/1152153.shtml)
-- 2026-06-29 15:50 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/033970181719.shtml)
-- 2026-06-29 15:56 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/7847426.shtml)
-- 2026-06-29 15:59 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/432949696.shtml)
-- 2026-06-29 15:41 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/915149839.shtml)
-- 2026-06-29 16:05 - [速度与激情9](https://www.blog.minike.top/Article/details/35685509.shtml)
-- 2026-06-29 15:59 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/39608890835.shtml)
-- 2026-06-29 15:38 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/25126785254.shtml)
+- 2026-06-29 16:04 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/811835022.shtml)
+- 2026-06-29 15:54 - [周生如故](https://www.blog.minike.top/Article/details/0403122.shtml)
+- 2026-06-29 15:52 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/315977711.shtml)
+- 2026-06-29 15:48 - [T1零封KC MSI](https://www.share.minike.top/Article/details/035984186880.shtml)
+- 2026-06-29 16:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/6665685017.shtml)
+- 2026-06-29 15:42 - [沙丘](http://www.blog.minike.top/Article/details/21538204.shtml)
+- 2026-06-29 16:09 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/6752437494.shtml)
+- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/0894634575.shtml)
+- 2026-06-29 15:56 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/2040361213.shtml)
+- 2026-06-29 15:48 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/561697229344.shtml)
+- 2026-06-29 15:57 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/06015823544.shtml)
+- 2026-06-29 15:59 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/908484.shtml)
+- 2026-06-29 15:50 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/6611829.shtml)
+- 2026-06-29 16:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/38457214528.shtml)
+- 2026-06-29 15:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/85577580.shtml)

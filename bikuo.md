@@ -1,59 +1,53 @@
-# 苹果将于明年推出带摄像头的AirPods和新一代折叠屏iPhone
+# 全国人大常委会副委员长武维华率团访问加蓬
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-苹果公司计划于2027年底推出配备摄像头的耳机AirPods，作为新品发布计划的一部分，这款产品将帮助苹果进军人工智能设备市场。 据知情人士透露，苹果计划在推出下一代折叠屏手机以及一款纪念iPhone问世20周年的新机型前后发布该这款备。 知情人士称这将是苹果迄今力度最大的新品发布。相关产品有望在John Ternus于9月1日接任首席执行官后，为苹果提供增长动力。 过去数月，
+新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。 武维华表示，中加友谊源远流长。近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强
 
 ## 正文
 
-苹果公司计划于2027年底推出配备摄像头的耳机AirPods，作为新品发布计划的一部分，这款产品将帮助苹果进军人工智能设备市场。
+新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。
 
-据知情人士透露，苹果计划在推出下一代折叠屏手机以及一款纪念iPhone问世20周年的新机型前后发布该这款备。
+武维华表示，中加友谊源远流长。
 
-知情人士称这将是苹果迄今力度最大的新品发布。
+近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。
 
-相关产品有望在John Ternus于9月1日接任首席执行官后，为苹果提供增长动力。
+中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强治国理政经验交流，推动中加全面战略合作伙伴关系深入发展。
 
-过去数月，这三款产品均已进入开发后期阶段。
+武维华还宣介了中国对53个非洲建交国全面实施零关税举措。
 
-媒体5月曾报道，苹果已加快新一代AirPods的研发，目前原型机的硬件和软件均接近最终版本。
-
-苹果还在为未来设备开发一系列新芯片，采用下一代半导体制造工艺。
-
-苹果目前正将这些计划于明年秋季推出的产品与代号“Bell”的iOS 28同步测试。
+加方积极评价两国关系发展成就和中国对非零关税政策，表示将继续坚定恪守一个中国原则，愿同中方共同努力，密切双方立法机构交流合作，深化资源开发、基础设施建设、农业等领域合作，将加中传统友好转化为更多合作成果，造福两国人民。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 15:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 16:02 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 15:52 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 16:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 15:55 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 15:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 16:02 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 16:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 15:36 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 16:02 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 15:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 16:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 15:59 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 16:00 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 15:56 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 15:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 15:54 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 16:01 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 15:54 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 15:53 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 15:52 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 16:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/8263801.shtml)
-- 2026-06-29 16:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/3917402.shtml)
-- 2026-06-29 15:54 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/7006300194.shtml)
-- 2026-06-29 15:54 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/42659274430.shtml)
-- 2026-06-29 15:45 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/34492858600.shtml)
-- 2026-06-29 15:50 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/749046772278.shtml)
-- 2026-06-29 15:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/85723363.shtml)
-- 2026-06-29 15:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/061021268511.shtml)
-- 2026-06-29 16:01 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/06739.shtml)
-- 2026-06-29 16:01 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/5213601.shtml)
-- 2026-06-29 15:57 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/76295.shtml)
-- 2026-06-29 15:39 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/478991818.shtml)
-- 2026-06-29 16:03 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/06693.shtml)
-- 2026-06-29 15:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/146326828.shtml)
-- 2026-06-29 15:47 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/09664484.shtml)
+- 2026-06-29 16:00 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/836630519.shtml)
+- 2026-06-29 15:51 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/77745271.shtml)
+- 2026-06-29 15:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/79315.shtml)
+- 2026-06-29 15:58 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/65919601.shtml)
+- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/13287316913.shtml)
+- 2026-06-29 16:07 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/898291.shtml)
+- 2026-06-29 16:02 - [第一炉香](https://www.share.minike.top/Article/details/157047613885.shtml)
+- 2026-06-29 15:55 - [时光音乐会](https://www.share.minike.top/Article/details/15041783249.shtml)
+- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/80471.shtml)
+- 2026-06-29 15:54 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/020391138485.shtml)
+- 2026-06-29 15:47 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/290633355243.shtml)
+- 2026-06-29 16:11 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/7510809993.shtml)
+- 2026-06-29 15:43 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/213281779.shtml)
+- 2026-06-29 16:09 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/93658.shtml)
+- 2026-06-29 16:09 - [一见倾心](http://www.share.kurohicncr.top/Article/details/724407000.shtml)

@@ -1,44 +1,60 @@
-# 央行行长潘功胜：推动中长期资金对股市、债市的投资力度
+# 南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:57 来源：中国新闻网 央行行长潘功胜：推动中长期资金对股市、债市的投资力度 责任编辑：【李光伟】
+文|新浪财经上海站 十里 还没等年报出来，南卫股份（维权）的财务负责人先走了。更少见的是，这次离职公告没有用“个人原因”打太极，而是直接点明了一个颇为刺眼的理由：薪资不及预期。 一家公司计划近期披露2025年年报，财务负责人却在这个节骨眼上辞职，这本身就足够敏感。更何况，辞职的人还是今年1月才刚刚被聘上财务总监位置的许晓。上任才3个月，为何这么快就离开？薪酬究竟低到了什么程度，
 
 ## 正文
 
-发布时间：2026年06月17日 13:57 来源：中国新闻网 央行行长潘功胜：推动中长期资金对股市、债市的投资力度 责任编辑：【李光伟】
+文|新浪财经上海站 十里 还没等年报出来，南卫股份（维权）的财务负责人先走了。
+
+更少见的是，这次离职公告没有用“个人原因”打太极，而是直接点明了一个颇为刺眼的理由：薪资不及预期。
+
+一家公司计划近期披露2025年年报，财务负责人却在这个节骨眼上辞职，这本身就足够敏感。
+
+更何况，辞职的人还是今年1月才刚刚被聘上财务总监位置的许晓。
+
+上任才3个月，为何这么快就离开？
+
+薪酬究竟低到了什么程度，才会让上市公司高管把“薪资不及预期”这样的话，直接写进公告里？
+
+对于A股市场而言，这样的表述并不常见，也因此比一份普通的人事变动公告更有冲击力。
+
+从履历来看，许晓并不是横空而来的职业经理人。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 16:01 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 15:46 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 15:50 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 15:38 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 16:04 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 15:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 15:46 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 16:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:52 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 15:44 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 16:00 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 15:44 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 16:06 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 15:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 16:05 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 15:42 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 15:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 15:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 16:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 16:11 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 15:45 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:49 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/7806392.shtml)
-- 2026-06-29 15:43 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/933497.shtml)
-- 2026-06-29 15:40 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/05513674.shtml)
-- 2026-06-29 15:58 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/2983021.shtml)
-- 2026-06-29 15:50 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/29581371.shtml)
-- 2026-06-29 15:46 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/4764309877.shtml)
-- 2026-06-29 15:50 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/3895581068.shtml)
-- 2026-06-29 15:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/237658431.shtml)
-- 2026-06-29 15:49 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/3337689.shtml)
-- 2026-06-29 16:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/14929034544.shtml)
-- 2026-06-29 15:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/875432042.shtml)
-- 2026-06-29 15:51 - [爱很美味](http://www.blog.minike.top/Article/details/81247557717.shtml)
-- 2026-06-29 15:45 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/8087789877.shtml)
-- 2026-06-29 15:41 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/69594.shtml)
-- 2026-06-29 16:04 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/07138607045.shtml)
+- 2026-06-29 16:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/087664492.shtml)
+- 2026-06-29 15:45 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/35797023.shtml)
+- 2026-06-29 15:44 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/349403716977.shtml)
+- 2026-06-29 15:54 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/371923029367.shtml)
+- 2026-06-29 15:52 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/130671128061.shtml)
+- 2026-06-29 15:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/24407675330.shtml)
+- 2026-06-29 15:42 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/114703498299.shtml)
+- 2026-06-29 15:50 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/583230.shtml)
+- 2026-06-29 16:06 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/16821632.shtml)
+- 2026-06-29 16:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/344531105.shtml)
+- 2026-06-29 15:49 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/73511.shtml)
+- 2026-06-29 15:56 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/2739932096.shtml)
+- 2026-06-29 15:57 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/22055872.shtml)
+- 2026-06-29 15:46 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/29035.shtml)
+- 2026-06-29 15:46 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/7671510.shtml)

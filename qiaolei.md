@@ -1,52 +1,45 @@
-# 习近平党建思想鲜明提出“十四个坚持”
+# 大模型概念股午前表现强势 德适-B及智谱均涨逾15%
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-全国党建工作座谈会15日在京召开。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
+大模型概念股午前表现强势，德适-B上涨14.96%，报269港元；智谱上涨14.63%，报893港元；MiniMax上涨7.64%，报1022港元。责任编辑：卢昱君
 
 ## 正文
 
-全国党建工作座谈会15日在京召开。
+大模型概念股午前表现强势，德适-B上涨14.96%，报269港元；智谱上涨14.63%，报893港元；MiniMax上涨7.64%，报1022港元。
 
-会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
-
-习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
-
-会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 15:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 15:43 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 15:54 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 15:57 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 15:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 15:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 15:58 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 15:58 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 15:50 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 15:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 16:01 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 15:49 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 16:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 16:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 16:10 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 15:59 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 16:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 16:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 15:45 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 15:44 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 15:56 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/23960986650.shtml)
-- 2026-06-29 15:44 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/6708221.shtml)
-- 2026-06-29 15:59 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/54229114.shtml)
-- 2026-06-29 15:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/0911733377.shtml)
-- 2026-06-29 15:40 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/70650381.shtml)
-- 2026-06-29 15:49 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/38495546776.shtml)
-- 2026-06-29 16:00 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/32609405.shtml)
-- 2026-06-29 16:01 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/1315724738.shtml)
-- 2026-06-29 16:05 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/3557805082.shtml)
-- 2026-06-29 15:41 - [恋与深空 731](http://www.share.minike.top/Article/details/46799648.shtml)
-- 2026-06-29 16:05 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/65890629986.shtml)
-- 2026-06-29 15:57 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/78800.shtml)
-- 2026-06-29 15:55 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/656894822.shtml)
-- 2026-06-29 16:04 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/176865.shtml)
-- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/0916709.shtml)
+- 2026-06-29 16:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/1735732.shtml)
+- 2026-06-29 15:49 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/970511061638.shtml)
+- 2026-06-29 15:58 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/4276899.shtml)
+- 2026-06-29 15:59 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/66806.shtml)
+- 2026-06-29 16:05 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/67752918.shtml)
+- 2026-06-29 15:43 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/901723.shtml)
+- 2026-06-29 15:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/00762.shtml)
+- 2026-06-29 15:51 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/929460460.shtml)
+- 2026-06-29 16:10 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/47574796.shtml)
+- 2026-06-29 16:03 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/016034507485.shtml)
+- 2026-06-29 15:55 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/3606093252.shtml)
+- 2026-06-29 15:58 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/3789892848.shtml)
+- 2026-06-29 16:01 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/778679.shtml)
+- 2026-06-29 16:06 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/717751082290.shtml)
+- 2026-06-29 16:00 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/668899715064.shtml)

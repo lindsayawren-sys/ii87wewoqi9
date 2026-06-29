@@ -1,58 +1,51 @@
-# 亮马河“蝶变”：北京“水上会客厅”为全球城市滨水更新贡献“东方智慧”
+# 澜湄合作十年 澜沧江—湄公河国际航道进出口货值超127亿元
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 题：亮马河“蝶变”：北京“水上会客厅”为全球城市滨水更新贡献“东方智慧” ——专访北京工商大学文化和旅游发展研究院副院长郑姚闽 中新社记者 吕少威 “短短数年间，北京亮马河完成了从生态治理到价值跃升的蝶变，不仅是北京城市更新的标杆之作，更作为中国样本进入全球城市治理的视野。”北京工商大学文化和旅游发展研究院副院长郑姚闽近日接受中新社记者专访时说。 亮马河
+中新网昆明4月8日电 (关李蓉)昆明海关所属西双版纳海关8日消息，十年来澜沧江—湄公河国际航道累计运行超9400航次，进出口货运量157.04万吨，货值127.18亿元，运输跨境货物超2100余种。 澜沧江—湄公河国际航道作为亚洲唯一“一江连六国”的国际河流，十年来，通航船舶吨位从300吨级提升至目前的500吨级，单航次运力提升66.7%，通航条件大幅提升，已成为推动澜湄流域互
 
 ## 正文
 
-中新社北京6月16日电 题：亮马河“蝶变”：北京“水上会客厅”为全球城市滨水更新贡献“东方智慧” ——专访北京工商大学文化和旅游发展研究院副院长郑姚闽 中新社记者 吕少威 “短短数年间，北京亮马河完成了从生态治理到价值跃升的蝶变，不仅是北京城市更新的标杆之作，更作为中国样本进入全球城市治理的视野。
+中新网昆明4月8日电 (关李蓉)昆明海关所属西双版纳海关8日消息，十年来澜沧江—湄公河国际航道累计运行超9400航次，进出口货运量157.04万吨，货值127.18亿元，运输跨境货物超2100余种。
 
-”北京工商大学文化和旅游发展研究院副院长郑姚闽近日接受中新社记者专访时说。
+澜沧江—湄公河国际航道作为亚洲唯一“一江连六国”的国际河流，十年来，通航船舶吨位从300吨级提升至目前的500吨级，单航次运力提升66.7%，通航条件大幅提升，已成为推动澜湄流域互联互通、深化经贸往来的重要物流通道。
 
-亮马河位于北京市朝阳区，流域面积为14.25平方公里，全长9.3公里，最早可追溯至明永乐年间，马匹在此清洗和晾晒，故得名“晾马河”，后取谐音“亮马河”。
+海关数据显示，今年一季度，澜沧江—湄公河国际航道进出口货物7.01万吨，同比增长8.7%。
 
-过去，亮马河环境脏乱、污水直排、河床淤积严重。
-
-2019年以来，朝阳区启动亮马河滨水空间更新改造，实施“岸线整治、桥梁改造、慢行连通、景观亮化、河湖贯通、旅游通航”六大工程。
-
-最终，24座桥梁重装焕新，6公里航线顺利通船，18公里滨河绿道全面贯通。
-
-日前在阿塞拜疆举办的第13届世界城市论坛上，北京朝阳亮马河国际风情水岸成功入选国际城市更新优秀实践案例库首期全球十大杰出实践。
-
-郑姚闽说，亮马河斩获这一国际荣誉的核心原因在于，它在具体的空间单元内，同时实现了生态的复活、空间的缝合、价值的闭环与人文的回归。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 16:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 15:57 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 15:56 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 15:56 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 15:37 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 15:47 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 15:38 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 15:45 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 15:37 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 15:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 16:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 16:08 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 16:07 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:58 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 16:06 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 15:46 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 15:46 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 16:07 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 15:45 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 15:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 15:45 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 16:11 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 16:05 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/01459612676.shtml)
-- 2026-06-29 15:36 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/9298430941.shtml)
-- 2026-06-29 15:54 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/3952595887.shtml)
-- 2026-06-29 15:59 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/4799110.shtml)
-- 2026-06-29 15:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/902277562860.shtml)
-- 2026-06-29 15:51 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/782072.shtml)
-- 2026-06-29 15:57 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/93662.shtml)
-- 2026-06-29 15:51 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/33828906901.shtml)
-- 2026-06-29 15:41 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/350040795114.shtml)
-- 2026-06-29 15:46 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/59053.shtml)
-- 2026-06-29 15:38 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/497562699.shtml)
-- 2026-06-29 15:45 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/747063841579.shtml)
-- 2026-06-29 15:57 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/51435432.shtml)
-- 2026-06-29 15:53 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/58915501.shtml)
-- 2026-06-29 15:58 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/70366.shtml)
+- 2026-06-29 15:44 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/8386890.shtml)
+- 2026-06-29 15:43 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/855908562.shtml)
+- 2026-06-29 16:02 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/612076.shtml)
+- 2026-06-29 15:49 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/0276049898.shtml)
+- 2026-06-29 16:09 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/47033.shtml)
+- 2026-06-29 16:09 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/15849302602.shtml)
+- 2026-06-29 16:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/081837.shtml)
+- 2026-06-29 15:53 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/579235053295.shtml)
+- 2026-06-29 16:06 - [一见倾心](https://www.blog.minike.top/Article/details/96105191274.shtml)
+- 2026-06-29 15:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/088415.shtml)
+- 2026-06-29 15:56 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/88264167054.shtml)
+- 2026-06-29 16:05 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/973034898362.shtml)
+- 2026-06-29 15:46 - [时光音乐会](http://www.blog.minike.top/Article/details/94900535449.shtml)
+- 2026-06-29 15:54 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/873111132.shtml)
+- 2026-06-29 15:42 - [当我回母校教书](http://www.share.minike.top/Article/details/2469966.shtml)

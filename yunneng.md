@@ -1,48 +1,59 @@
-# 第十九届中国餐饮产业发展大会在浙江台州举行
+# 新职业、新工种、新岗位！聚焦服务业，这场大会释放有力信号
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 14:04 来源：中国新闻网 6月14日至6月16日，第十九届中国餐饮产业发展大会在浙江台州举行。业界人士齐聚东海之滨，共同探讨服务业高质量发展背景下餐饮产业的创新路径。(周健） 责任编辑：【罗攀】
+7日—8日，全国服务业大会在北京召开。这是新时代首次聚焦国民经济第一大产业——服务业而举行的全国性大会。规格之高，背后释放什么信号？发展服务业，为何如此重要？ 服务业，就在我们身边。下个馆子、打个车、理个发，我们的衣食住行，都离不开服务业。如果说生活性服务业服务的是“人”，那生产性服务业主要服务的就是“企业”。一家企业要发货，需要物流服务；要贷款，需要金融服务。“东数西算”提供
 
 ## 正文
 
-发布时间：2026年06月17日 14:04 来源：中国新闻网 6月14日至6月16日，第十九届中国餐饮产业发展大会在浙江台州举行。
+7日—8日，全国服务业大会在北京召开。
 
-业界人士齐聚东海之滨，共同探讨服务业高质量发展背景下餐饮产业的创新路径。
+这是新时代首次聚焦国民经济第一大产业——服务业而举行的全国性大会。
 
-(周健） 责任编辑：【罗攀】
+规格之高，背后释放什么信号？
+
+发展服务业，为何如此重要？
+
+服务业，就在我们身边。
+
+下个馆子、打个车、理个发，我们的衣食住行，都离不开服务业。
+
+如果说生活性服务业服务的是“人”，那生产性服务业主要服务的就是“企业”。
+
+一家企业要发货，需要物流服务；要贷款，需要金融服务。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 16:06 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 15:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 15:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 15:43 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 15:55 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 15:53 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 15:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 16:01 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 15:50 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 16:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 15:44 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 15:58 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 16:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:03 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 16:00 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 16:05 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 16:02 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 16:06 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 15:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 15:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 16:06 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 16:10 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 15:57 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 15:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/0573510175.shtml)
-- 2026-06-29 15:47 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/306905527.shtml)
-- 2026-06-29 15:39 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/120999494607.shtml)
-- 2026-06-29 15:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/14315137757.shtml)
-- 2026-06-29 15:44 - [我和我的家乡](https://www.share.minike.top/Article/details/342520.shtml)
-- 2026-06-29 15:47 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/578884224574.shtml)
-- 2026-06-29 15:40 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/81224.shtml)
-- 2026-06-29 15:43 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3862708.shtml)
-- 2026-06-29 16:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/454103230613.shtml)
-- 2026-06-29 16:00 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/220861.shtml)
-- 2026-06-29 15:39 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/8636840033.shtml)
-- 2026-06-29 15:52 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/2271380779.shtml)
-- 2026-06-29 15:48 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/4684038.shtml)
-- 2026-06-29 15:36 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/06243720774.shtml)
-- 2026-06-29 16:01 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/37154.shtml)
+- 2026-06-29 16:09 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/0828547.shtml)
+- 2026-06-29 15:54 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/616851783.shtml)
+- 2026-06-29 15:54 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/90235496.shtml)
+- 2026-06-29 16:11 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/66523.shtml)
+- 2026-06-29 16:05 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/33199.shtml)
+- 2026-06-29 15:42 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/38591383.shtml)
+- 2026-06-29 15:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/330343643.shtml)
+- 2026-06-29 15:51 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/635517917.shtml)
+- 2026-06-29 15:43 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/34351950.shtml)
+- 2026-06-29 15:52 - [沙丘](https://www.blog.kurohicncr.top/Article/details/8675561.shtml)
+- 2026-06-29 16:07 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/292398733195.shtml)
+- 2026-06-29 16:05 - [起风了](https://www.share.kurohicncr.top/Article/details/172978269549.shtml)
+- 2026-06-29 16:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/0673684888.shtml)
+- 2026-06-29 16:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/48360.shtml)
+- 2026-06-29 16:04 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/310463371352.shtml)

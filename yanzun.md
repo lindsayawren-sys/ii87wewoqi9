@@ -1,58 +1,61 @@
-# 赋能银发康养 山西银发经济博览会助力产业升级
+# 金价飙涨，油价重挫！后市怎么走？
 
-> 更新时间：2026-06-29 16:06:02 UTC+8
+> 更新时间：2026-06-29 16:12:02 UTC+8
 
 ## 摘要
 
-中新网太原6月16日电 (刘小红)16日，2026山西银发经济博览会新闻发布会在山西省民政厅召开。本届展会聚焦康养产业创新发展、供需对接合作、行业人才培育等方面，依托专业化、规模化展览平台，集聚国内外银发经济优质资源，补齐产业发展短板，激发山西康养产业转型发展新动能。 2026山西银发经济博览会以“银发康养晋享未来”为主题，由山西省银发经济促进会、山西省老龄产业协会联合主办，将
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 4月8日，全球大宗商品市场呈现鲜明分化：黄金强势拉升，原油爆跌，两大核心品种走势反差强烈。 黄金市场方面，现货与期货同步走高。截至发稿，伦敦金现报4790.72美元/盎司，日内上涨1.9%，盘中最高触及4857.55美元/盎司；COMEX黄金期货日内涨幅达2.65%，报4809美元/盎司，
 
 ## 正文
 
-中新网太原6月16日电 (刘小红)16日，2026山西银发经济博览会新闻发布会在山西省民政厅召开。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本届展会聚焦康养产业创新发展、供需对接合作、行业人才培育等方面，依托专业化、规模化展览平台，集聚国内外银发经济优质资源，补齐产业发展短板，激发山西康养产业转型发展新动能。
+来源：国际金融报 4月8日，全球大宗商品市场呈现鲜明分化：黄金强势拉升，原油爆跌，两大核心品种走势反差强烈。
 
-2026山西银发经济博览会以“银发康养晋享未来”为主题，由山西省银发经济促进会、山西省老龄产业协会联合主办，将于7月17日至19日在太原晋阳湖国际会展中心举办。
+黄金市场方面，现货与期货同步走高。
 
-作为中部地区大型银发经济博览会，本届博览会整体展览面积达3万平方米，规划九大特色展区，配套举办20余场主题活动。
+截至发稿，伦敦金现报4790.72美元/盎司，日内上涨1.9%，盘中最高触及4857.55美元/盎司；COMEX黄金期货日内涨幅达2.65%，报4809美元/盎司，盘中最高上探至4888美元/盎司，与现货市场形成共振，推动金价持续走高。
 
-届时，近500家国内外银发经济领域企业将携2000余款前沿科技产品、创新技术、特色服务集中亮相，全方位展示全国银发经济领域的新成果、新业态、新趋势，推动山西银发经济高质量发展。
+与黄金强势形成鲜明对比，国际原油期货市场当日遭遇重挫。
 
-山西老龄化程度高于全国平均水平。
+截至发稿，WTI原油暴跌16.18%，报94.67美元/桶，盘中最低触及91.05美元/桶；布伦特原油期货同步跳水13.95%，报94.03美元/桶，盘中最低触及91.7美元/桶。
 
-截至2025年底，全省60岁及以上老年人口达805.9万人，占总人口比重23.54%。
+局势转机 记者获悉，这波行情剧烈波动的核心诱因是中东局势出现重大转机。
 
-山西省委、省政府聚焦人口老龄化发展形势，将银发经济纳入民生保障与转型发展重点工作，构建养老“事业+产业”协同发展新格局，保障老年群体发展权益。
+消息面上，北京时间4月8日清晨，美国总统特朗普宣布，基于巴基斯坦总理斡旋请求，同意暂停对伊朗的轰炸和袭击行动两周，前提是伊朗全面、立即且安全地开放霍尔木兹海峡，构成“双向停火”。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 16:05 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 15:42 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 16:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 15:37 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 15:43 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 16:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 15:50 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:43 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 16:05 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 15:36 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 15:43 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 15:47 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 16:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 16:03 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 15:48 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 15:42 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 15:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 15:52 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 16:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 16:06 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 15:50 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 16:08 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 15:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 15:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:05 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/39656.shtml)
-- 2026-06-29 16:05 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/100366.shtml)
-- 2026-06-29 15:48 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/683940284246.shtml)
-- 2026-06-29 15:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/126243568015.shtml)
-- 2026-06-29 15:37 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/19298137.shtml)
-- 2026-06-29 15:44 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4727940330.shtml)
-- 2026-06-29 16:02 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/821899.shtml)
-- 2026-06-29 16:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/20990367913.shtml)
-- 2026-06-29 15:49 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/6693712496.shtml)
-- 2026-06-29 15:55 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/6869467819.shtml)
-- 2026-06-29 15:44 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/716858.shtml)
-- 2026-06-29 16:01 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/04092933.shtml)
-- 2026-06-29 15:58 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/020552590765.shtml)
-- 2026-06-29 15:48 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/4639655.shtml)
-- 2026-06-29 15:54 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/4158236.shtml)
+- 2026-06-29 15:50 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/717965200.shtml)
+- 2026-06-29 15:50 - [一生一世](http://www.blog.kurohicncr.top/Article/details/628762.shtml)
+- 2026-06-29 16:11 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/66002700.shtml)
+- 2026-06-29 15:48 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/370690234077.shtml)
+- 2026-06-29 15:56 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/21664285.shtml)
+- 2026-06-29 15:52 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/21873174929.shtml)
+- 2026-06-29 15:58 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/749318530673.shtml)
+- 2026-06-29 15:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/4886547565.shtml)
+- 2026-06-29 16:06 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/6914354.shtml)
+- 2026-06-29 16:03 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/05599.shtml)
+- 2026-06-29 16:11 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/4164570670.shtml)
+- 2026-06-29 15:44 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/30778.shtml)
+- 2026-06-29 15:57 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/51916757884.shtml)
+- 2026-06-29 16:01 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/67662.shtml)
+- 2026-06-29 15:56 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/27336043.shtml)
