@@ -1,59 +1,57 @@
-# 指数调仓后，人形机器人含量飙升，这只机器人ETF更“硬核”了
+# 三亚亚沙会：游跑两项中国队一日双金 柔术阿联酋摘两金
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-6月15日，国证机器人产业指数完成定期调样，安培龙、浙江荣泰、峰岹科技、伟创电气四家公司正式纳入，博实股份、金奥博、禾川科技、利元亨被剔除。 如果你是刚开始关注投资理财的新手，可能会觉得“指数调样”有点专业。简单理解就是：指数会按规则定期调整自己的成份股，把更符合当前产业趋势、代表性更强的公司纳入进来，同时把不那么匹配指数方向的公司剔除出去。 从新纳入的公司看，安培龙布局力矩传
+中新社三亚4月23日电 (记者 邢翀)第六届亚洲沙滩运动会23日在三亚进入首个金牌日比拼。游跑两项中国队一日双金，其中范俊杰在男子个人赛取得的金牌是本届亚沙会赛会首金。柔术项目决出三枚金牌，阿联酋队独揽两金。 23日共诞生五枚金牌，首次在亚沙会亮相的游跑两项率先举行。相较于传统铁人三项，游跑两项比赛距离更短、节奏更快，个人赛按照跑步2.5公里、游泳1公里、跑步2.5公里的顺序展
 
 ## 正文
 
-6月15日，国证机器人产业指数完成定期调样，安培龙、浙江荣泰、峰岹科技、伟创电气四家公司正式纳入，博实股份、金奥博、禾川科技、利元亨被剔除。
+中新社三亚4月23日电 (记者 邢翀)第六届亚洲沙滩运动会23日在三亚进入首个金牌日比拼。
 
-如果你是刚开始关注投资理财的新手，可能会觉得“指数调样”有点专业。
+游跑两项中国队一日双金，其中范俊杰在男子个人赛取得的金牌是本届亚沙会赛会首金。
 
-简单理解就是：指数会按规则定期调整自己的成份股，把更符合当前产业趋势、代表性更强的公司纳入进来，同时把不那么匹配指数方向的公司剔除出去。
+柔术项目决出三枚金牌，阿联酋队独揽两金。
 
-从新纳入的公司看，安培龙布局力矩传感器，峰岹科技专注电机驱动控制芯片，伟创电气深耕伺服系统，浙江荣泰切入灵巧手和丝杠等精密传动部件，均聚焦于人形机器人关节驱动和感知层的核心环节。
+23日共诞生五枚金牌，首次在亚沙会亮相的游跑两项率先举行。
 
-据测算，此次调样后，国证机器人产业指数约90%权重集中在人形机器人相关标的，领先其他同类指数。
+相较于传统铁人三项，游跑两项比赛距离更短、节奏更快，个人赛按照跑步2.5公里、游泳1公里、跑步2.5公里的顺序展开。
 
-目前市场上机器人相关ETF主要跟踪两条指数：国证机器人产业指数与中证机器人指数。
+在男子个人赛中，范俊杰全程顶住压力、带伤作战，以28分20秒的成绩夺冠，为中国队取得“开门红”。
 
-两者虽同属机器人赛道，但在选股范围的“半径”上具有明显区别。
+随后的女子组比赛，林鑫瑜以31分34秒夺冠。
 
-国证机器人产业指数聚焦机器人本体制造与核心零部件，优先选取整机制造、关节、传感、驱动等核心环节公司，前十大成份股合计权重约41%，持仓相对均衡。
+中国队实现对该项目个人赛金牌的包揽。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 06:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 06:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 06:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 06:26 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 06:17 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 06:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 06:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 06:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 06:23 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 06:05 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 06:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 06:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 06:17 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 06:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 06:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 06:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 06:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 06:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:29 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 06:11 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/9977083335.shtml)
-- 2026-06-30 06:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/80170765.shtml)
-- 2026-06-30 06:17 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/00134317147.shtml)
-- 2026-06-30 06:00 - [速度与激情9](https://www.share.minike.top/Article/details/161246302585.shtml)
-- 2026-06-30 06:02 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/34053278.shtml)
-- 2026-06-30 06:22 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/294527161277.shtml)
-- 2026-06-30 06:11 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/842062637.shtml)
-- 2026-06-30 06:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/1269763.shtml)
-- 2026-06-30 06:03 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/51772.shtml)
-- 2026-06-30 06:08 - [金刚川](https://www.blog.kurohicncr.top/Article/details/47305939499.shtml)
-- 2026-06-30 06:04 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/975724.shtml)
-- 2026-06-30 06:11 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/850535312305.shtml)
-- 2026-06-30 06:21 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/7233494.shtml)
-- 2026-06-30 06:07 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/278096422419.shtml)
-- 2026-06-30 06:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/6189634313.shtml)
+- 2026-06-30 06:21 - [月亮](http://www.share.kurohicncr.top/Article/details/13575.shtml)
+- 2026-06-30 06:33 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/71005534.shtml)
+- 2026-06-30 06:27 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/637085230.shtml)
+- 2026-06-30 06:11 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/776313793481.shtml)
+- 2026-06-30 06:09 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/3156590.shtml)
+- 2026-06-30 06:16 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/409478942.shtml)
+- 2026-06-30 06:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/3737410495.shtml)
+- 2026-06-30 06:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/09521.shtml)
+- 2026-06-30 06:23 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/84466.shtml)
+- 2026-06-30 06:31 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/86643.shtml)
+- 2026-06-30 06:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/76925312036.shtml)
+- 2026-06-30 06:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/021871.shtml)
+- 2026-06-30 06:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/94304157086.shtml)
+- 2026-06-30 06:06 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/595322.shtml)
+- 2026-06-30 06:32 - [月亮](http://www.share.minike.top/Article/details/324713.shtml)

@@ -1,60 +1,61 @@
-# 中核钛白（钛能化学，002145）股民索赔案持续推进
+# 2026年“北京世园公园杯”京张公路自行车公开赛鸣枪
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非
+中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。 首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。女子公开组比赛，武琳怡(精创车队)
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰律提示，中核钛白（钛能化学（维权），002145）投资者索赔案还在持续推进，前期部分案件已向法院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。
 
-（许峰律师专栏） 2024年4月30日，中核钛白公告公司实际控制人王泽龙先生收到证监会下发的《行政处罚决定书》，经查明，2022年7月，中核华原钛白股份有限公司非公开发行A股股票申请获得中国证监会发审委审核通过。
+首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。
 
-2022年7月至8月，中信中证向中核钛白实际控制人王泽龙推荐定增多空方案。
+团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。
 
-根据方案，“客户通过场外衍生品交易台直接实现定增多空套利，提前结算收益，无需等待六个月的锁定期，通常一个多月时间即可回笼资金和收益”。
+女子公开组比赛，武琳怡(精创车队)凭借全程稳定的发挥与出色的冲刺能力斩获桂冠。
 
-王泽龙未将自己通过相关交易安排实际参与非公开发行的信息告知上市公司。
+值得一提的是，本赛季北京市自行车运动协会启动的“车队孵化计划”8支车队也完成首秀，其中怀柔超越单车车队的李思轶在比赛中表现亮眼，取得第十名，女子孵化车队ETM北京女子联队的王璐遥获得女子公开组季军。
 
-2023年2月24日、3月3日，中核钛白公告非公开发行A股股票相关发行情况报告书，称本次非公开发行对象不存在发行人实际控制人通过直接或间接形式参与本次发行认购的情形。
+该计划以赛事为纽带，通过孵化支持，鼓励更多自行车爱好者组队参赛、稳定参赛，培养兼具竞技潜力与团队协作能力的自行车运动力量。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，综合以上违法事实，根据证券法规定，在2023年2月8日到2024年4月13日之间买入中核钛白股票，并且在2024年4月13日后卖出或继续持有股票的投资者，目前还可发起索赔。
+据悉，世园国际旅游度假区本年度计划推出自行车主题培训营、青少年骑行研学、企业团建骑行等产品，将“周末赛事”延伸为“全年运营”。
 
-（中核钛白维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
+园区拟与专业骑行机构合作设立骑行训练基地，配套骑行驿站、维修点、淋浴房等设施，实现从“比赛场”到“训练场”的功能升级。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 06:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 06:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 06:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 06:10 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 06:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 06:28 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 06:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 06:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 06:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 06:28 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 06:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:19 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 06:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 06:26 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 06:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 06:17 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 06:29 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 06:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 06:17 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 06:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 06:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 06:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 06:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 06:25 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/70092558.shtml)
-- 2026-06-30 06:08 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/88998031914.shtml)
-- 2026-06-30 06:10 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/69001.shtml)
-- 2026-06-30 06:07 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/94134021986.shtml)
-- 2026-06-30 06:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/257021.shtml)
-- 2026-06-30 06:21 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/39242173214.shtml)
-- 2026-06-30 06:21 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/95523.shtml)
-- 2026-06-30 06:19 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/901769299679.shtml)
-- 2026-06-30 06:27 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/9180350.shtml)
-- 2026-06-30 06:19 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/2877938699.shtml)
-- 2026-06-30 06:20 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/610948816413.shtml)
-- 2026-06-30 06:25 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/5463607220.shtml)
-- 2026-06-30 06:05 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/4494735958.shtml)
-- 2026-06-30 06:03 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/028670.shtml)
-- 2026-06-30 06:23 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/051015.shtml)
+- 2026-06-30 06:15 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/859477536164.shtml)
+- 2026-06-30 06:23 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/209491.shtml)
+- 2026-06-30 06:29 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/7366954816.shtml)
+- 2026-06-30 06:23 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/267621760.shtml)
+- 2026-06-30 06:31 - [千香](https://www.blog.kurohicncr.top/Article/details/6623020162.shtml)
+- 2026-06-30 06:27 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/315055537732.shtml)
+- 2026-06-30 06:06 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/218859.shtml)
+- 2026-06-30 06:09 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/3782617.shtml)
+- 2026-06-30 06:06 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/835644695650.shtml)
+- 2026-06-30 06:24 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/671015824.shtml)
+- 2026-06-30 06:06 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/841491.shtml)
+- 2026-06-30 06:11 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/66758334548.shtml)
+- 2026-06-30 06:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/033169598816.shtml)
+- 2026-06-30 06:10 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/713053498.shtml)
+- 2026-06-30 06:24 - [周生如故](https://www.share.kurohicncr.top/Article/details/976124646.shtml)

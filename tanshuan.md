@@ -1,56 +1,59 @@
-# 桃花潭龙舟赛启幕
+# 30余个国家（地区）代表将参加第八届中国国际茶博会
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网合肥6月18日电 (记者 张强)24支本土龙舟队18日在安徽省泾县桃花潭竞逐，迎接端午节的到来。 唐代诗人李白曾于桃花潭写下“桃花潭水深千尺，不及汪伦送我情”的千古绝唱。桃花潭龙舟文化最早可以追溯到元末明初。 本次赛事以“微笑暖泾县，竞渡桃花潭”为主题。比赛现场，青、白、黄、黑四色龙舟灵动穿梭，菜籽龙、木龙等特色龙舟承载着民众对五谷丰登、岁岁安宁的质朴心愿。龙舟祭祀、“回
+中新网杭州4月23日电(记者 王逸飞)4月23日，记者从于杭州举行的第八届中国国际茶叶博览会(下称茶博会)新闻通气会上获悉，本届茶博会将于5月21日在杭州开幕，来自30多个国家(地区)的品牌企业、行业机构及官方代表将参加本次展会。 本届茶博会由中国国际茶文化研究会主办，首创“一展双馆”模式，总展览面积77000平方米，以国博展馆和龙坞展馆形成“商贸+创新”双轮驱动格局。 其中，
 
 ## 正文
 
-中新网合肥6月18日电 (记者 张强)24支本土龙舟队18日在安徽省泾县桃花潭竞逐，迎接端午节的到来。
+中新网杭州4月23日电(记者 王逸飞)4月23日，记者从于杭州举行的第八届中国国际茶叶博览会(下称茶博会)新闻通气会上获悉，本届茶博会将于5月21日在杭州开幕，来自30多个国家(地区)的品牌企业、行业机构及官方代表将参加本次展会。
 
-唐代诗人李白曾于桃花潭写下“桃花潭水深千尺，不及汪伦送我情”的千古绝唱。
+本届茶博会由中国国际茶文化研究会主办，首创“一展双馆”模式，总展览面积77000平方米，以国博展馆和龙坞展馆形成“商贸+创新”双轮驱动格局。
 
-桃花潭龙舟文化最早可以追溯到元末明初。
+其中，国博展馆定位为“茶消费盛会”，展览面积60000平方米，设立各省区域公共品牌茶展区，以及覆盖六大茶类、茶器具、茶包装机械、新茶饮、新茶食等板块的综合性展示区。
 
-本次赛事以“微笑暖泾县，竞渡桃花潭”为主题。
+目前，福建省宁德市、湖南省安化县已分别确定为主宾市、主宾县；浙江省、福建省、陕西省、恩施州、宁德市、福鼎市、福安市、梧州市、安化县等数十个产区政府展团确认参展；确认参展的优质企业近1000家。
 
-比赛现场，青、白、黄、黑四色龙舟灵动穿梭，菜籽龙、木龙等特色龙舟承载着民众对五谷丰登、岁岁安宁的质朴心愿。
+龙坞展馆定位为“茶创新窗口”，展览面积17000平方米。
 
-龙舟祭祀、“回娘家”等传统习俗再度呈现，唤醒乡土记忆。
+其依托杭州龙坞茶镇生态底蕴，重点打造茶非遗、茶科技、茶文化主题馆，通过沉浸式场景集中展示非遗活态传承、新茶饮潮流、茶文旅融合等前沿成果，引领消费新风尚。
 
-为丰富游客体验，主办方新增鱼灯巡游、打铁花展演，构建“日间竞渡、夜间赏韵”的全天候游玩体系。
+据悉，本届茶博会致力于深化国际合作，构建全球茶业合作网络，汇聚来自30多个国家和地区的品牌企业、行业机构及官方代表。
 
-赛事期间，桃花潭旅游度假区实行免门票惠民政策，进一步释放赛事红利。
+韩国、印度、日本、斯里兰卡、越南、马来西亚、尼泊尔、南非、保加利亚、伊朗、巴基斯坦、阿富汗、老挝等国的国际展商将携特色茶品、茶器及文化衍生品参展，进一步丰富展会的国际元素。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 06:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 06:24 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 06:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 06:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 06:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 06:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 06:09 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 06:14 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 06:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 06:09 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 06:25 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 06:30 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 06:06 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 06:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 06:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 06:18 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 06:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 06:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/7252129.shtml)
-- 2026-06-30 06:09 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/03385849060.shtml)
-- 2026-06-30 06:26 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/090056958.shtml)
-- 2026-06-30 06:23 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/29675236.shtml)
-- 2026-06-30 06:22 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/21914508.shtml)
-- 2026-06-30 06:17 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/22019.shtml)
-- 2026-06-30 06:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/313553.shtml)
-- 2026-06-30 06:16 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/9709175482.shtml)
-- 2026-06-30 06:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/123621.shtml)
-- 2026-06-30 06:09 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/26791327215.shtml)
-- 2026-06-30 06:00 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/439200829.shtml)
-- 2026-06-30 06:26 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/7757796.shtml)
-- 2026-06-30 06:03 - [请回答王牌2019](https://www.blog.minike.top/Article/details/47101.shtml)
-- 2026-06-30 06:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/480051997.shtml)
-- 2026-06-30 06:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/360283675.shtml)
+- 2026-06-30 06:08 - [啊啊啊](https://www.blog.minike.top/Article/details/0179144184.shtml)
+- 2026-06-30 06:29 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/0138547756.shtml)
+- 2026-06-30 06:32 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/375079.shtml)
+- 2026-06-30 06:07 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/92099645.shtml)
+- 2026-06-30 06:11 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/46389.shtml)
+- 2026-06-30 06:08 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/821699020.shtml)
+- 2026-06-30 06:12 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/71869174.shtml)
+- 2026-06-30 06:25 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/98840639652.shtml)
+- 2026-06-30 06:35 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/888231502045.shtml)
+- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/26851.shtml)
+- 2026-06-30 06:27 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/33182779.shtml)
+- 2026-06-30 06:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/06460329089.shtml)
+- 2026-06-30 06:23 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/25189.shtml)
+- 2026-06-30 06:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/533658.shtml)
+- 2026-06-30 06:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/86697.shtml)

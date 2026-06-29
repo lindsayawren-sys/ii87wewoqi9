@@ -1,46 +1,58 @@
-# 交通银行首日参与上海自贸区离岸人民币外汇交易
+# 1名医生1分钟给3人“看病”26次？上海警方斩断骗保“黑手”
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：人民财讯 作者：李颖超 在2026陆家嘴论坛期间，中国人民银行宣布将在上海自贸区开展离岸人民币外汇交易试点，授权交通银行等6家银行通过中国外汇交易中心平台开展离岸人民币外汇交易。 证券时报记者了解到，上述政策发布首日，交通银行已完成各项业务开展准备，通过中国外汇交易中心平台与境外机构达成多笔交易，交易品种包括即
+医保基金作为人民群众的“看病钱”“救命钱”，直接关系到群众的切身利益。但总有一些人为了谋取私利，不惜铤而走险、触犯法律。近日，上海警方就破获了几起涉及骗取医保的案件。 用医保配药跨省倒卖 诈骗团伙被查处 去年9月，上海崇明警方接到一条倒卖药品的举报线索。经走访调查，警方发现一个以邵某为首的团伙，其药品来源主要依靠陈某、张某、孟某、刘某等4人。以上4人均从事废品回收工作，常在上海
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：人民财讯 作者：李颖超 在2026陆家嘴论坛期间，中国人民银行宣布将在上海自贸区开展离岸人民币外汇交易试点，授权交通银行等6家银行通过中国外汇交易中心平台开展离岸人民币外汇交易。
+医保基金作为人民群众的“看病钱”“救命钱”，直接关系到群众的切身利益。
 
-证券时报记者了解到，上述政策发布首日，交通银行已完成各项业务开展准备，通过中国外汇交易中心平台与境外机构达成多笔交易，交易品种包括即期、远期、掉期，交易货币对包括离岸人民币对美元、欧元、英镑、瑞郎、新西兰元等。
+但总有一些人为了谋取私利，不惜铤而走险、触犯法律。
 
-责任编辑：秦艺
+近日，上海警方就破获了几起涉及骗取医保的案件。
+
+用医保配药跨省倒卖 诈骗团伙被查处 去年9月，上海崇明警方接到一条倒卖药品的举报线索。
+
+经走访调查，警方发现一个以邵某为首的团伙，其药品来源主要依靠陈某、张某、孟某、刘某等4人。
+
+以上4人均从事废品回收工作，常在上海的宝山、普陀、浦东等多个小区隐秘收购药品。
+
+上海市公安刑侦总队五支队一大队副大队长 于泽民：给这些医保卡持卡人讲好，你帮我开哪几种药，然后由持卡人去医院直接开。
+
+自己吃一部分，自用一部分，剩下的一部分卖给了药贩。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 06:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 06:24 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 06:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 06:11 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 06:11 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 06:14 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 06:25 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 06:25 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 06:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 06:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 06:35 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 06:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 06:28 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:21 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 06:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 06:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 06:20 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 06:09 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 06:34 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 06:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 06:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/831921368394.shtml)
-- 2026-06-30 06:26 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/8203068.shtml)
-- 2026-06-30 06:18 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/3736181459.shtml)
-- 2026-06-30 06:10 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/3093698776.shtml)
-- 2026-06-30 06:26 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/201347801.shtml)
-- 2026-06-30 06:14 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/22790.shtml)
-- 2026-06-30 06:11 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/081061757492.shtml)
-- 2026-06-30 06:04 - [时光音乐会](https://www.blog.minike.top/Article/details/4370649394.shtml)
-- 2026-06-30 06:14 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/883709221.shtml)
-- 2026-06-30 06:03 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/108267.shtml)
-- 2026-06-30 06:18 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/545563245953.shtml)
-- 2026-06-30 06:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/561442.shtml)
-- 2026-06-30 06:27 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/7601695.shtml)
-- 2026-06-30 06:15 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/44532371570.shtml)
-- 2026-06-30 06:17 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/4599002324.shtml)
+- 2026-06-30 06:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/60202773239.shtml)
+- 2026-06-30 06:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/92525414142.shtml)
+- 2026-06-30 06:09 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/1802772211.shtml)
+- 2026-06-30 06:10 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/13005724.shtml)
+- 2026-06-30 06:08 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/033145477.shtml)
+- 2026-06-30 06:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/6699615.shtml)
+- 2026-06-30 06:18 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/63363415.shtml)
+- 2026-06-30 06:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/3329709687.shtml)
+- 2026-06-30 06:32 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/486540.shtml)
+- 2026-06-30 06:32 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/1365702.shtml)
+- 2026-06-30 06:30 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/423169.shtml)
+- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/89585175.shtml)
+- 2026-06-30 06:33 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/89890.shtml)
+- 2026-06-30 06:22 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/1710894200.shtml)
+- 2026-06-30 06:18 - [小娘惹](http://www.blog.minike.top/Article/details/1155841.shtml)

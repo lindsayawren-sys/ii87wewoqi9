@@ -1,53 +1,54 @@
-# MHMarkets迈汇:央行买盘巩固黄金支撑
+# 刚果(布)公布新政府成员名单
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-6月17日，世界黄金协会最新调查显示更多央行计划继续增持黄金，MHMarkets迈汇表示这类长期配置力量仍在为金价提供结构性底部支撑。 从配置逻辑看，MHMarkets迈汇认为官方储备需求稳定，有助于减轻短线波动对黄金趋势判断的干扰，市场也更愿意把回撤视为阶段整理。 当长期买盘与通胀不确定性交织出现时，贵金属通常更容易维持韧性，因此金价后续节奏仍要结合利率路径和美元强弱来综合衡
+新华社布拉柴维尔4月25日电(记者郑扬子)刚果(布)总统府24日晚在国家电视台发布公告，宣布新一届政府成员名单。 根据公告，除此前再次获得总统萨苏任命的总理马科索外，新政府还包括1名副总理、3名国务部长和37名部长。其中，前领土整治和大型工程国务部长让-雅克·布亚被任命为副总理，负责协调、发展基础设施和领土整治事务；前矿业和地质国务部长皮埃尔·奥巴被任命为总统府国务部长，负责政
 
 ## 正文
 
-6月17日，世界黄金协会最新调查显示更多央行计划继续增持黄金，MHMarkets迈汇表示这类长期配置力量仍在为金价提供结构性底部支撑。
+新华社布拉柴维尔4月25日电(记者郑扬子)刚果(布)总统府24日晚在国家电视台发布公告，宣布新一届政府成员名单。
 
-从配置逻辑看，MHMarkets迈汇认为官方储备需求稳定，有助于减轻短线波动对黄金趋势判断的干扰，市场也更愿意把回撤视为阶段整理。
+根据公告，除此前再次获得总统萨苏任命的总理马科索外，新政府还包括1名副总理、3名国务部长和37名部长。
 
-当长期买盘与通胀不确定性交织出现时，贵金属通常更容易维持韧性，因此金价后续节奏仍要结合利率路径和美元强弱来综合衡量。
+其中，前领土整治和大型工程国务部长让-雅克·布亚被任命为副总理，负责协调、发展基础设施和领土整治事务；前矿业和地质国务部长皮埃尔·奥巴被任命为总统府国务部长，负责政务；前贸易、供应和消费国务部长克洛德·阿方斯·恩西卢被任命为建设、城市规划和住房国务部长；前土地事务和公产管理国务部长皮埃尔·马比亚拉为公职、劳动和社会对话国务部长。
 
-整体来看，MHMarkets迈汇分析称央行需求的持续性仍是黄金中期表现的重要锚点，只要配置意愿未见明显减弱，金市支撑就较难快速松动。
+在3月15日举行的总统选举中，萨苏以94.9%的得票率获胜，再次当选刚果(布)总统。
 
-责任编辑：陈平
+根据宪法，萨苏应任命新总理进行组阁，前总理马科索及其政府17日递交辞呈并获总统批准。
+
+刚果(布)总统府23日宣布马科索被再度任命为总理，负责组建新政府。
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 06:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 06:16 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 06:19 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 06:19 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 06:21 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 06:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 06:05 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 06:15 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:14 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 06:26 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 06:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 06:16 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 06:22 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 06:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 06:33 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 06:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 06:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 06:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 06:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 06:09 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 06:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 06:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/75971.shtml)
-- 2026-06-30 06:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/297085961732.shtml)
-- 2026-06-30 06:15 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/806251140684.shtml)
-- 2026-06-30 06:22 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/44802716.shtml)
-- 2026-06-30 06:25 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/87748187504.shtml)
-- 2026-06-30 06:11 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/8207754236.shtml)
-- 2026-06-30 06:05 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/234920188149.shtml)
-- 2026-06-30 06:15 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/740069.shtml)
-- 2026-06-30 06:27 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/56593.shtml)
-- 2026-06-30 06:23 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/14861839822.shtml)
-- 2026-06-30 06:00 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/0862055.shtml)
-- 2026-06-30 06:07 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/008612927987.shtml)
-- 2026-06-30 06:26 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/63071488.shtml)
-- 2026-06-30 06:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/45317.shtml)
-- 2026-06-30 06:28 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/2976242.shtml)
+- 2026-06-30 06:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/9773996.shtml)
+- 2026-06-30 06:22 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/13728.shtml)
+- 2026-06-30 06:15 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/0990022676.shtml)
+- 2026-06-30 06:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/87954396.shtml)
+- 2026-06-30 06:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/64885.shtml)
+- 2026-06-30 06:35 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/08636.shtml)
+- 2026-06-30 06:10 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/16568685899.shtml)
+- 2026-06-30 06:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/9102718296.shtml)
+- 2026-06-30 06:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/977561.shtml)
+- 2026-06-30 06:26 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/737079.shtml)
+- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/496249444.shtml)
+- 2026-06-30 06:29 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/446650788688.shtml)
+- 2026-06-30 06:10 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/321266.shtml)
+- 2026-06-30 06:21 - [明星大侦探第一季](https://www.share.minike.top/Article/details/266598830.shtml)
+- 2026-06-30 06:10 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/48667.shtml)

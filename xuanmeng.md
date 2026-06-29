@@ -1,56 +1,45 @@
-# 美联储维持利率不变，精简声明以移除降息偏向
+# 马士基称霍尔木兹海峡仍处于“紧紧关闭”状态
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 凯文·沃什（Kevin Warsh）作为美联储主席主持的首次会议于周三结束。会议决定维持利率不变，删除了暗示未来倾向于降息的关键措辞，并大幅缩减了政策声明的篇幅。 联邦公开市场委员会（FOMC）一致投票决定，将基准隔夜借贷利率维持在3.5%至3.75%的区间不变。自2025年下半年央行降息0.75个百分点以来，联邦基金利率一直维
+丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。 这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
 
 ## 正文
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 凯文·沃什（Kevin Warsh）作为美联储主席主持的首次会议于周三结束。
+丹麦航运和物流公司马士基在致客户的最新通告中称，中东局势持续紧张，本周已有三艘集装箱船遭伊朗军队袭击，霍尔木兹海峡目前仍处于“紧紧关闭”状态。
 
-会议决定维持利率不变，删除了暗示未来倾向于降息的关键措辞，并大幅缩减了政策声明的篇幅。
-
-联邦公开市场委员会（FOMC）一致投票决定，将基准隔夜借贷利率维持在3.5%至3.75%的区间不变。
-
-自2025年下半年央行降息0.75个百分点以来，联邦基金利率一直维持在该水平。
-
-尽管市场对沃什执掌央行充满好奇与猜测，本次会议在利率决议上延续了今年的既定模式，但在其他方面却有所不同。
-
-美联储官员通过备受关注的“点阵图”撤回了今年降息的预期，并暗示加息虽有可能但并非板上钉钉。
-
-然而，点阵图中少了一名成员的预测，市场观察人士怀疑沃什并未提交他的预测。
-
-附在预测材料上的一份说明显示，19名参会者中有18人提交了利率和经济预测。
+这意味着受战争影响、位于海峡内的货物“将继续滞留在海上”及杰贝阿里（Jebel Ali）码头责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 06:24 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 06:04 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 06:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 06:08 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 06:12 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 06:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 06:08 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 06:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 06:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:14 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 06:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 06:30 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 06:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 06:13 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 06:16 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 06:19 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 06:29 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 06:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/94901665543.shtml)
-- 2026-06-30 06:19 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/9765766771.shtml)
-- 2026-06-30 06:23 - [金刚川](https://www.share.kurohicncr.top/Article/details/4163413.shtml)
-- 2026-06-30 06:29 - [美人鱼](https://www.share.minike.top/Article/details/25486155.shtml)
-- 2026-06-30 06:19 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/723074598.shtml)
-- 2026-06-30 06:17 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/0532914130.shtml)
-- 2026-06-30 06:18 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/832279.shtml)
-- 2026-06-30 06:25 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/753110238.shtml)
-- 2026-06-30 06:12 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/495332.shtml)
-- 2026-06-30 06:00 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/537232452714.shtml)
-- 2026-06-30 06:19 - [小娘惹](https://www.blog.minike.top/Article/details/349262167.shtml)
-- 2026-06-30 06:07 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/24624326455.shtml)
-- 2026-06-30 06:27 - [起风了](https://www.blog.minike.top/Article/details/297556.shtml)
-- 2026-06-30 06:09 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/1049430440.shtml)
-- 2026-06-30 06:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/890861371689.shtml)
+- 2026-06-30 06:14 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/90388.shtml)
+- 2026-06-30 06:21 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/92858.shtml)
+- 2026-06-30 06:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/0910503467.shtml)
+- 2026-06-30 06:14 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/0283119.shtml)
+- 2026-06-30 06:18 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/251945832.shtml)
+- 2026-06-30 06:06 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/1416774.shtml)
+- 2026-06-30 06:21 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/775750877.shtml)
+- 2026-06-30 06:21 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/734333339481.shtml)
+- 2026-06-30 06:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/07742.shtml)
+- 2026-06-30 06:20 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/32038.shtml)
+- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/4977883994.shtml)
+- 2026-06-30 06:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/34459.shtml)
+- 2026-06-30 06:28 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/75123400910.shtml)
+- 2026-06-30 06:08 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/497282.shtml)
+- 2026-06-30 06:23 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/81465.shtml)

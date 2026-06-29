@@ -1,59 +1,58 @@
-# 日本高层密集“喊话”震慑空头，日元获喘息之机但贬值警报未除
+# 中柬外长、防长“2+2”战略对话首次会议达成六点共识
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周四（6月18日）日本高层公开释放汇市干预信号，针对日元快速走弱亮出强硬态度，叠加美伊达成停战谅解备忘录引发美元多头获利了结，美元兑日元上涨节奏明显放缓。但美日巨大利差难以短期收窄，套息交易持续活跃，日元中长期贬值压力并未彻底解除，汇市多空博弈进入白热化阶段。 日本高层集体释放干预信号，紧盯日元投机贬值行情 周四例行新闻发布会中，日本内阁官房长官木原稔（Mi
+中新社金边4月23日电 (记者 杨强)当地时间4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识。 一是双方同意坚定相互支持，重在支持对方维护好核心利益。中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。 二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业
 
 ## 正文
 
-汇通财经APP讯——周四（6月18日）日本高层公开释放汇市干预信号，针对日元快速走弱亮出强硬态度，叠加美伊达成停战谅解备忘录引发美元多头获利了结，美元兑日元上涨节奏明显放缓。
+中新社金边4月23日电 (记者 杨强)当地时间4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识。
 
-但美日巨大利差难以短期收窄，套息交易持续活跃，日元中长期贬值压力并未彻底解除，汇市多空博弈进入白热化阶段。
+一是双方同意坚定相互支持，重在支持对方维护好核心利益。
 
-日本高层集体释放干预信号，紧盯日元投机贬值行情 周四例行新闻发布会中，日本内阁官房长官木原稔（Minoru Kihara）被媒体问及日元持续快速下跌的市场现状，对外明确表态，日本政府已做好万全准备，只要市场出现异常汇率波动，会在任意合适时机出台对应举措，对汇价开展适度调控。
+中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。
 
-木原稔表示，汇率波动会从进出口物价、国内消费、企业经营等多个维度传导至实体经济，监管层必须全面、细致评估汇率异动带来的连锁影响，政府团队会全天候紧盯外汇市场每一轮价格变动，不会放任日元无序贬值。
+二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业发展走廊”“鱼米走廊”建设，推进扶南德佐综合水利项目这一战略性工程。
 
-除内阁官房长官外，日本财务省外汇最高负责人三村厚（Atsushi Mimura）、财务大臣片山皋月（Satsuki Katayama）近期接连多次对外警示，当前市场存在大量做空日元的投机资金，日本财政部门密切监控投机交易动向，手握充足调控工具，有能力遏制日元进一步下行。
+三是双方同意加强政治安全合作，重在维护各自政权安全和制度安全，携手抵御外部渗透，防范“颜色革命”。
 
-叠加此前日本央行完成一轮历史性加息，利率攀升至1995年以来高点，多重政策预期共同约束美元兑日元的上涨空间，也让市场做空日元的资金心态趋于谨慎。
+四是双方同意加强执法合作，重在坚决彻底打击网赌电诈，维护人民群众生命和财产安全，为中柬合作营造良好外部环境。
 
-美伊停战协议落地，美元多头集中离场压制美日汇率 周四亚洲交易时段，美元兑日元维持在160.50上方区间震荡盘整，此前连续四个交易日持续冲高，价格触及2024年7月之后的最高点位。
+五是双方同意加强防务合作，重在协助柬加快国防能力建设，维护好自身主权、安全和发展利益。
 
-美联储新任主席沃什首场议息会议释放偏鹰信号，市场押注美元走强，推动美元一度刷新三月末以来新高。
+六是双方同意加强在国际和地区事务中协调配合，重在反对强权政治和霸凌行径，维护全球自由贸易，支持联合国发挥应有作用。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 06:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:28 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 06:20 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 06:05 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:10 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 06:17 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 06:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 06:18 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 06:13 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 06:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 06:27 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 06:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:18 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 06:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 06:23 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 06:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 06:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 06:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 06:14 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 06:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 06:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 06:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/0377117087.shtml)
-- 2026-06-30 06:24 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/864901.shtml)
-- 2026-06-30 06:13 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/2876211.shtml)
-- 2026-06-30 06:06 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/57523188.shtml)
-- 2026-06-30 06:11 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/975964815908.shtml)
-- 2026-06-30 06:22 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/9070601.shtml)
-- 2026-06-30 06:01 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/2462725438.shtml)
-- 2026-06-30 06:03 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/85924.shtml)
-- 2026-06-30 06:02 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/465685698467.shtml)
-- 2026-06-30 06:21 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/87986916641.shtml)
-- 2026-06-30 06:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/606756067.shtml)
-- 2026-06-30 06:19 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/48416263554.shtml)
-- 2026-06-30 06:15 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/273601510.shtml)
-- 2026-06-30 06:25 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/20106702.shtml)
-- 2026-06-30 06:11 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/8894797362.shtml)
+- 2026-06-30 06:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/1772214278.shtml)
+- 2026-06-30 06:22 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/789290025324.shtml)
+- 2026-06-30 06:29 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/813736.shtml)
+- 2026-06-30 06:29 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/282245.shtml)
+- 2026-06-30 06:31 - [周生如故](http://www.share.minike.top/Article/details/93576937497.shtml)
+- 2026-06-30 06:26 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/4289410055.shtml)
+- 2026-06-30 06:07 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/83154684523.shtml)
+- 2026-06-30 06:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/5845076.shtml)
+- 2026-06-30 06:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/3403962.shtml)
+- 2026-06-30 06:31 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/214787.shtml)
+- 2026-06-30 06:34 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/9066923142.shtml)
+- 2026-06-30 06:34 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/400324.shtml)
+- 2026-06-30 06:30 - [女心理师](https://www.blog.minike.top/Article/details/74957.shtml)
+- 2026-06-30 06:28 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/8231953.shtml)
+- 2026-06-30 06:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/27423593627.shtml)

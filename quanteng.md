@@ -1,58 +1,56 @@
-# 一只偏债混基金的减法与聚焦
+# 诈骗分子或瞄准霍尔木兹海峡滞留船只，索要加密货币“通行费”
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-在低利率和资产荒的交织的当下，可转债凭借攻守有道的特质，已成为基金产品增强收益的重要工具。但高度共识往往意味着预期差的收窄，在资金持续涌入的推动下，转债市场估值已攀升至近年历史高位，传统策略也面临着转型的考验。工银新得利混合基金（002005）坚守转债主动管理策略的工具型产品定位，在基金经理黄杨荔的管理下，走出了一条与同类产品不同的道路。 主动管理的“转债增强”工具 很多偏债混
+滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。 希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。 据新华社2
 
 ## 正文
 
-在低利率和资产荒的交织的当下，可转债凭借攻守有道的特质，已成为基金产品增强收益的重要工具。
+滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。
 
-但高度共识往往意味着预期差的收窄，在资金持续涌入的推动下，转债市场估值已攀升至近年历史高位，传统策略也面临着转型的考验。
+希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。
 
-工银新得利混合基金（002005）坚守转债主动管理策略的工具型产品定位，在基金经理黄杨荔的管理下，走出了一条与同类产品不同的道路。
+该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。
 
-主动管理的“转债增强”工具 很多偏债混产品的权益暴露，涵盖了股票、转债、衍生品等，混合的收益来源往往让投资者难以精准归因。
+该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。
 
-黄杨荔给工银新得利划清了边界：不主动投资股票，权益仓位完全通过可转债落地。
+据新华社24日报道援引伊朗法尔斯通讯社报道，伊朗中央银行证实，对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。
 
-这使产品具备了纯粹的工具属性，即一只专注转债的主动管理策略载体。
+此前，一些媒体曾声称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。
 
-收益特征上，这款产品虽与偏股混合基金相近，但得益于转债天然的债底属性的保护，展现出独特的风险收益结构。
+Marisks发现，诈骗事件发生在一个短暂的窗口期内。
 
-在市场下行阶段，债券属性为组合提供了扎实的安全垫，有效缓冲了回撤压力，而在市场上行阶段，转股条款又保留了充分的弹性空间，避免踏空权益行情。
+4月18日，伊朗方面声称允许接受检查的船只通过。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 06:23 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 06:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 06:18 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:01 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 06:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 06:18 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 06:20 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 06:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 06:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 06:10 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 06:22 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 06:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 06:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 06:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 06:13 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 06:18 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 06:30 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 06:06 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 06:17 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/8862423944.shtml)
-- 2026-06-30 06:19 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/132887424000.shtml)
-- 2026-06-30 06:16 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/3103786.shtml)
-- 2026-06-30 06:05 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/25254056.shtml)
-- 2026-06-30 06:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/200183373442.shtml)
-- 2026-06-30 06:15 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/11677580388.shtml)
-- 2026-06-30 06:06 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/038446387.shtml)
-- 2026-06-30 06:20 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/51944880.shtml)
-- 2026-06-30 06:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/9079062.shtml)
-- 2026-06-30 06:16 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/2910474277.shtml)
-- 2026-06-30 06:05 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/4694502.shtml)
-- 2026-06-30 06:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/7166492871.shtml)
-- 2026-06-30 06:05 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/25870084.shtml)
-- 2026-06-30 06:27 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/6551499287.shtml)
-- 2026-06-30 06:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/858922533556.shtml)
+- 2026-06-30 06:18 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/564557.shtml)
+- 2026-06-30 06:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/0320166.shtml)
+- 2026-06-30 06:08 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/239149.shtml)
+- 2026-06-30 06:36 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/40319872314.shtml)
+- 2026-06-30 06:13 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/2852470047.shtml)
+- 2026-06-30 06:16 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/05783072.shtml)
+- 2026-06-30 06:15 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/9286662759.shtml)
+- 2026-06-30 06:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/016983.shtml)
+- 2026-06-30 06:31 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/3733585749.shtml)
+- 2026-06-30 06:12 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/91175.shtml)
+- 2026-06-30 06:13 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/25323910.shtml)
+- 2026-06-30 06:33 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/24427685972.shtml)
+- 2026-06-30 06:30 - [点菜也要教吗](http://www.share.minike.top/Article/details/53558267.shtml)
+- 2026-06-30 06:06 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/562142.shtml)
+- 2026-06-30 06:14 - [一生一世](https://www.blog.minike.top/Article/details/3561987435.shtml)

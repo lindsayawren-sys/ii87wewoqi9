@@ -1,56 +1,56 @@
-# 光大期货：6月18日矿钢煤焦日报
+# 五一假期出行注意了 明起新一轮降水将来袭
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘震荡下跌，截止日盘螺纹2610合约收盘价格为3155元/吨，较上一交易日收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.61万手。现货价格小幅下跌，成交维持低位，唐山地区迁安普方坯价格下跌10元/吨至3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/吨，全国建材成
+暴雨再度上线！明起新一轮降水来袭 五一假期南方多雨模式持续 中国天气网讯 明天(4月26日)夜间起，南方大部将再次迎来新一轮降水过程，并且5月1日还会有新一轮降水来袭并持续至“五一”假期，西南地区东部、江汉、江南、华南等地将先后有大到暴雨和强对流天气，恰逢“五一”假期来临，需提前安排出行计划。 今天，南方降水普遍停歇，大部地区进入降水间歇期，迎来晴好天气。不过明天夜间起，新一轮
 
 ## 正文
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘震荡下跌，截止日盘螺纹2610合约收盘价格为3155元/吨，较上一交易日收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.61万手。
+暴雨再度上线！
 
-现货价格小幅下跌，成交维持低位，唐山地区迁安普方坯价格下跌10元/吨至3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/吨，全国建材成交量8.44万吨。
+明起新一轮降水来袭 五一假期南方多雨模式持续 中国天气网讯 明天(4月26日)夜间起，南方大部将再次迎来新一轮降水过程，并且5月1日还会有新一轮降水来袭并持续至“五一”假期，西南地区东部、江汉、江南、华南等地将先后有大到暴雨和强对流天气，恰逢“五一”假期来临，需提前安排出行计划。
 
-5月地产、基建、制造业投资增速全面回落，钢材市场需求表现低迷，是压制当前钢价的主要因素。
+今天，南方降水普遍停歇，大部地区进入降水间歇期，迎来晴好天气。
 
-同时，铁矿价格弱势下跌，煤焦也高位有所回落，钢材价格成本支撑有所减弱。
+不过明天夜间起，新一轮大范围降雨过程来袭，5月1日开始还将有第二轮降水过程，并且会持续至“五一”假期期间。
 
-预计螺纹盘面或将弱势整理运行。
+具体来看，4月26日夜间起，西南地区将率先迎来新一轮降雨，之后持续向东发展，直至29日，西南地区东部、江汉、江南、华南等地先后有大到暴雨，局地有短时强降雨和雷暴大风等强对流天气。
 
-铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格有所下跌，收于747.5元/吨，较前一个交易日收盘价下跌14.5元/吨，跌幅为2%，成交29.01万手，增仓2.9万手。
+紧接着，受冷空气影响，中东部大部将迎来新一轮降雨过程，北方还将出现大风降温沙尘天气。
 
-港口现货主流品种市场价格，现青岛港PB粉60.8%705跌15，超特粉575跌10。
+预计5月1日至5月3日，中东部大部有小雨或阵雨，其中江淮、江南和华南的部分地区有中到大雨，局地暴雨，并伴有强对流天气。
 
-澳洲发运量有所回落，巴西发运量小幅增加，其他国家发运量有所减少。
+同时，西北、华北及黄淮等地气温将下降4℃至8℃，部分地区降温幅度可达10℃，并且部分地区伴有4至6级偏北风，西北、华北北部的部分地区将出现沙尘天气。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 06:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 06:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 06:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 06:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 06:14 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 06:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 06:12 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 06:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 06:18 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 06:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 06:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 06:07 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 06:22 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 06:21 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 06:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 06:07 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 06:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 06:32 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/06769.shtml)
-- 2026-06-30 06:05 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/20200171.shtml)
-- 2026-06-30 06:24 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/96968669085.shtml)
-- 2026-06-30 06:19 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/940765460.shtml)
-- 2026-06-30 06:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/16368.shtml)
-- 2026-06-30 06:24 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/740039295496.shtml)
-- 2026-06-30 06:15 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/89037710.shtml)
-- 2026-06-30 06:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/2785236274.shtml)
-- 2026-06-30 06:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/54273.shtml)
-- 2026-06-30 06:06 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/01595341770.shtml)
-- 2026-06-30 06:22 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/8738215.shtml)
-- 2026-06-30 06:05 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/9682814.shtml)
-- 2026-06-30 06:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/4609137446.shtml)
-- 2026-06-30 06:20 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/88080662.shtml)
-- 2026-06-30 06:18 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/9218213346.shtml)
+- 2026-06-30 06:34 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/94678545.shtml)
+- 2026-06-30 06:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/745676744.shtml)
+- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/34891423757.shtml)
+- 2026-06-30 06:09 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/521942.shtml)
+- 2026-06-30 06:34 - [巴西2比1日本](https://www.blog.minike.top/Article/details/652162133932.shtml)
+- 2026-06-30 06:22 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/74302816.shtml)
+- 2026-06-30 06:09 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/14221437.shtml)
+- 2026-06-30 06:31 - [我们的少年时代2](http://www.share.minike.top/Article/details/95374054082.shtml)
+- 2026-06-30 06:19 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/99022894723.shtml)
+- 2026-06-30 06:09 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/354680.shtml)
+- 2026-06-30 06:35 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/6744906233.shtml)
+- 2026-06-30 06:31 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/079826000159.shtml)
+- 2026-06-30 06:10 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/62317.shtml)
+- 2026-06-30 06:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/3718091.shtml)
+- 2026-06-30 06:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/862597.shtml)

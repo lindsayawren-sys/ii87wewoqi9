@@ -1,58 +1,57 @@
-# 超强信号，寒武纪猛攻12%站上新高！费率较低的科创芯片ETF华宝（589190）涨超3%连续突破
+# 农业农村部：我国农用无人机保有量超过30万架 数量居全球首位
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-6月18日，科创芯片延续攻势，全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）场内价格现涨超3%，续创上市以来新高！芯片龙头带头突破，寒武纪涨超12%站上新高，芯原股份涨超7%，海光信息涨超6%，华虹宏力涨超5%。 消息面上，有报道称字节跳动正与上海AI芯片企业天数智芯洽谈采购AI芯片，主要用于推理任务。若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动
+中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。会上，农业农村部副部长麦尔丹·木盖提介绍，“十四五”时期，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种覆盖率超过96%，农作物耕种收综合机械化率达到76.7%，主要粮食作物基本实现全程机械化。同时，农业智能化、数字化转型加快推进，各
 
 ## 正文
 
-6月18日，科创芯片延续攻势，全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）场内价格现涨超3%，续创上市以来新高！
+中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。
 
-芯片龙头带头突破，寒武纪涨超12%站上新高，芯原股份涨超7%，海光信息涨超6%，华虹宏力涨超5%。
+会上，农业农村部副部长麦尔丹·木盖提介绍，“十四五”时期，我国农业科技创新整体效能进一步提升，农业科技进步贡献率超过64%，农作物良种覆盖率超过96%，农作物耕种收综合机械化率达到76.7%，主要粮食作物基本实现全程机械化。
 
-消息面上，有报道称字节跳动正与上海AI芯片企业天数智芯洽谈采购AI芯片，主要用于推理任务。
+同时，农业智能化、数字化转型加快推进，各种智能装备在农业生产中大显身手。
 
-若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动的第三家GPU供应商。
+我国农用无人机保有量超过30万架，数量居全球首位。
 
-华源证券指出，AI大模型迭代、智算中心规模化建设与边缘智能场景全面渗透，持续推高国内AI算力市场需求。
+麦尔丹·木盖提表示，“十五五”时期，农业农村部将坚持“四个面向”，推动科技创新和产业创新深度融合，充分发挥新型举国体制优势，不断提升农业科技创新体系整体效能，加快实现高水平农业科技自立自强。
 
-整体来看，国内算力芯片行业呈现头部企业盈利稳固、二线厂商减亏甚至扭亏提速、梯队化成长格局清晰的特征。
+一是抓好关键核心技术攻关。
 
-开源证券表示，阿里、腾讯等国内CSP均表示将加大资本开支，下游需求旺盛。
+强化有组织、体系化科研，紧紧围绕粮食安全等国家战略需求，梳理重大科技任务清单，把高校、科研院所、企业等各方创新力量组织起来，全链条发力推动原始创新和关键核心技术攻关，锻长板、补短板，产出更多标志性重大成果。
 
-并且随着国产芯片供应的逐步释放，算力供应局面能得到改善，国产算力迎来新机遇。
+二是统筹强化创新力量布局。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 06:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 06:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 06:15 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 06:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 06:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 06:09 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 06:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 06:13 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 06:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:14 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 06:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 06:36 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 06:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 06:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 06:08 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:06 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 06:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 06:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 06:09 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/774948973474.shtml)
-- 2026-06-30 06:17 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/1338068.shtml)
-- 2026-06-30 06:18 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/898414857360.shtml)
-- 2026-06-30 06:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/516101.shtml)
-- 2026-06-30 06:06 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/3059797.shtml)
-- 2026-06-30 06:13 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/84888.shtml)
-- 2026-06-30 06:02 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/1450683.shtml)
-- 2026-06-30 06:08 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/9842620275.shtml)
-- 2026-06-30 06:15 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/349292.shtml)
-- 2026-06-30 06:05 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/37835.shtml)
-- 2026-06-30 06:27 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/95011.shtml)
-- 2026-06-30 06:20 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/446802925035.shtml)
-- 2026-06-30 06:04 - [刘念回应](https://www.blog.minike.top/Article/details/8315426.shtml)
-- 2026-06-30 06:19 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/1221126665.shtml)
-- 2026-06-30 06:14 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/18974184386.shtml)
+- 2026-06-30 06:12 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/9247980.shtml)
+- 2026-06-30 06:08 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/18194.shtml)
+- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/944241.shtml)
+- 2026-06-30 06:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/3273781585.shtml)
+- 2026-06-30 06:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/9094134.shtml)
+- 2026-06-30 06:17 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/393205.shtml)
+- 2026-06-30 06:30 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/217854568.shtml)
+- 2026-06-30 06:26 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/90993004.shtml)
+- 2026-06-30 06:14 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/7471391193.shtml)
+- 2026-06-30 06:10 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/652441637395.shtml)
+- 2026-06-30 06:13 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/4068643445.shtml)
+- 2026-06-30 06:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/29508749623.shtml)
+- 2026-06-30 06:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/223424.shtml)
+- 2026-06-30 06:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/908099387.shtml)
+- 2026-06-30 06:19 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9900478236.shtml)

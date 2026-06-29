@@ -1,61 +1,59 @@
-# 美伊签了！14条备忘录全文公布，折腾百余天回到原点，三大隐患埋下导火索
+# 从三农到三农学：标识性概念·原创性理论在安徽小岗村发布
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-靴子终于落地。 当地时间17、18日两天，美国、伊朗媒体相继证实，两国总统均签署了谅解备忘录。17日，美国政府也公开揭晓备忘录全文。 详情>>美国、伊朗公布谅解备忘录全文(包含14项条款) 和平这回稳了？ 但先别急着开香槟——这并非和平的终点，而是一张通往下一轮博弈的“限时入场券”。接下来的60天谈判，堪比一场“限时通关游戏”。 14条备忘录“面子给足，里子慢慢谈” 纵观这份备
+中新网滁州4月25日电 (记者 赵强)“从三农到三农学：标识性概念·原创性理论发布暨农村改革小岗研讨会”25日在安徽省凤阳县小岗村举行。 中国人民大学党委常委、常务副校长朱信凯表示，在家庭联产承包责任制的实践发源地小岗村发布三农学标识性概念与原创性理论，是一种学术传承，更是一种历史责任。 据朱信凯介绍，三农学以中国的“三农”历史与现实为导向，系统研究“三农”所关联统摄的人类实践
 
 ## 正文
 
-靴子终于落地。
+中新网滁州4月25日电 (记者 赵强)“从三农到三农学：标识性概念·原创性理论发布暨农村改革小岗研讨会”25日在安徽省凤阳县小岗村举行。
 
-当地时间17、18日两天，美国、伊朗媒体相继证实，两国总统均签署了谅解备忘录。
+中国人民大学党委常委、常务副校长朱信凯表示，在家庭联产承包责任制的实践发源地小岗村发布三农学标识性概念与原创性理论，是一种学术传承，更是一种历史责任。
 
-17日，美国政府也公开揭晓备忘录全文。
+据朱信凯介绍，三农学以中国的“三农”历史与现实为导向，系统研究“三农”所关联统摄的人类实践活动和社会经济结构及其变迁，旨在揭示中国式现代化进程中“三农”实践的理论逻辑，总结中国“三农”实践的成功经验，形成“三农”治理的中国主张。
 
-详情>>美国、伊朗公布谅解备忘录全文(包含14项条款) 和平这回稳了？
+安徽省政协副主席马传喜表示，小岗村是安徽改革的一张靓丽名片。
 
-但先别急着开香槟——这并非和平的终点，而是一张通往下一轮博弈的“限时入场券”。
+2026年是“十五五”开局之年，三农学的提出，在学科框架搭建、原创理论引领、人才培养设计上作出了开创性贡献，为推动“三农”实践经验系统化、学理化发挥了至关重要的作用。
 
-接下来的60天谈判，堪比一场“限时通关游戏”。
+在当天举行的磨盘对话环节，凤阳县委常委、宣传部部长、小岗村党委第一书记李锦柱说，三农学标识性概念与原创性理论的发布，是农村改革理论创新的重大成果，更是小岗发展的重大机遇。
 
-14条备忘录“面子给足，里子慢慢谈” 纵观这份备忘录，主打一个“面子给足，里子慢慢谈”。
+中国人民大学吴玉章讲席教授程国强认为，中国农业走向世界的风雨征程与小岗村“改革创新，敢为人先”的改革精神相呼应。
 
-首先是“面子”工程。
+“无论是十八户农民在小岗村按下红手印，还是中国农业走向世界的艰难博弈，这些从实践中摸爬滚打出来的经验都是三农学最宝贵的研究素材。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 06:29 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 06:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 06:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 06:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 06:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 06:08 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 06:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 06:26 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 06:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 06:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 06:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 06:23 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 06:07 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 06:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 06:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 06:15 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 06:31 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 06:35 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 06:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 06:15 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 06:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 06:30 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 06:29 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 06:33 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 06:26 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/177928802562.shtml)
-- 2026-06-30 06:14 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/468409267735.shtml)
-- 2026-06-30 06:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/92985368377.shtml)
-- 2026-06-30 06:15 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/41891.shtml)
-- 2026-06-30 06:14 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/4624830978.shtml)
-- 2026-06-30 06:09 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/1978415.shtml)
-- 2026-06-30 06:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/162183527112.shtml)
-- 2026-06-30 06:08 - [绘画区你赢了](http://www.blog.minike.top/Article/details/84633284.shtml)
-- 2026-06-30 06:01 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/55003.shtml)
-- 2026-06-30 06:15 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/058047.shtml)
-- 2026-06-30 06:25 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/669705614.shtml)
-- 2026-06-30 06:08 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/476062313.shtml)
-- 2026-06-30 06:01 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/747459504.shtml)
-- 2026-06-30 06:16 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/306593681042.shtml)
-- 2026-06-30 06:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/87108.shtml)
+- 2026-06-30 06:21 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0076690.shtml)
+- 2026-06-30 06:17 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/1305251.shtml)
+- 2026-06-30 06:25 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/963076038785.shtml)
+- 2026-06-30 06:29 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/7326557503.shtml)
+- 2026-06-30 06:21 - [第一炉香](https://www.share.kurohicncr.top/Article/details/64263.shtml)
+- 2026-06-30 06:26 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/39846031.shtml)
+- 2026-06-30 06:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/036532735272.shtml)
+- 2026-06-30 06:13 - [刘念回应](https://www.share.kurohicncr.top/Article/details/697523042675.shtml)
+- 2026-06-30 06:30 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/18635.shtml)
+- 2026-06-30 06:31 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/2242984.shtml)
+- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/50682026.shtml)
+- 2026-06-30 06:17 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/941207611454.shtml)
+- 2026-06-30 06:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/112963.shtml)
+- 2026-06-30 06:29 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/6085700.shtml)
+- 2026-06-30 06:18 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/0201493.shtml)

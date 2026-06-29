@@ -1,61 +1,61 @@
-# 看图学习丨当好粮食安全“压舱石” 总书记嘱托粮食大省扛稳重任
+# Meta宣布裁员近8000人并取消6000个空缺职位，以抵消“其他投资”影响
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-民为国基，谷为民命。党的十八大以来，习近平总书记把粮食安全作为治国理政的头等大事，强调粮食安全必须靠我们自己保证，中国人的饭碗应该主要装中国粮。在地方考察调研时，总书记经常深入田间地头，对做好粮食生产作出一系列重要指示，凝聚起粮食大省齐抓共保的强大合力，为端稳、端牢中国饭碗构筑起坚实防线。 仲夏时节，各地正抢抓农时，开启夏收、夏种、夏管的农忙模式，积极助力粮食稳产丰收。农业农村
+美国科技巨头Meta在一封内部备忘录中向员工宣布，计划于5月20日裁员约10%。 Meta目前在全球拥有超过78000名员工，因此此次调整将影响该公司约7800名员工。此外，该公司还将取消原计划招聘的6000个空缺岗位。 Meta首席人力资源官珍妮拉·盖尔在备忘录中表示，此次大规模裁员是为了“提高公司运营效率”，并抵消其正在进行的其他投资的影响。 虽然备忘录中并未具体说明这些“
 
 ## 正文
 
-民为国基，谷为民命。
+美国科技巨头Meta在一封内部备忘录中向员工宣布，计划于5月20日裁员约10%。
 
-党的十八大以来，习近平总书记把粮食安全作为治国理政的头等大事，强调粮食安全必须靠我们自己保证，中国人的饭碗应该主要装中国粮。
+Meta目前在全球拥有超过78000名员工，因此此次调整将影响该公司约7800名员工。
 
-在地方考察调研时，总书记经常深入田间地头，对做好粮食生产作出一系列重要指示，凝聚起粮食大省齐抓共保的强大合力，为端稳、端牢中国饭碗构筑起坚实防线。
+此外，该公司还将取消原计划招聘的6000个空缺岗位。
 
-仲夏时节，各地正抢抓农时，开启夏收、夏种、夏管的农忙模式，积极助力粮食稳产丰收。
+Meta首席人力资源官珍妮拉·盖尔在备忘录中表示，此次大规模裁员是为了“提高公司运营效率”，并抵消其正在进行的其他投资的影响。
 
-农业农村部小麦机收进度显示，全国夏粮小麦收获进度近87%。
+虽然备忘录中并未具体说明这些“其他投资”，但Meta已在人工智能领域投入数千亿美元，斥巨资建设大型数据中心，并为顶尖人工智能研究人员提供优厚的薪酬待遇。
 
-其中，安徽、江苏等地麦收已结束，山东进度过八成半。
+该公司此前已于3月份进行过一次小规模裁员，影响了数百名员工。
 
-同时，黑龙江、内蒙古春播作物超六成已出苗，辽宁、吉林出苗过九成，已出苗作物长势良好。
+备忘录称，所有受影响的人都将在5月20日收到一封发送到其工作和个人邮箱的电子邮件。
 
-一起来学习！
+备忘录称，公司将为员工提供优厚的遣散费，包括16周的基本工资，外加每工作一年额外两周的工资。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 06:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 06:16 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 06:10 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 06:12 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 06:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 06:02 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 06:27 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 06:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 06:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 06:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 06:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 06:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 06:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 06:05 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 06:09 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 06:16 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 06:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 06:20 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 06:13 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 06:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 06:32 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 06:24 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 06:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 06:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 06:33 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 06:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 06:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/9551555276.shtml)
-- 2026-06-30 06:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/1064669.shtml)
-- 2026-06-30 06:02 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/04688239873.shtml)
-- 2026-06-30 06:07 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/8083306.shtml)
-- 2026-06-30 06:26 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/011381.shtml)
-- 2026-06-30 06:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/685417649.shtml)
-- 2026-06-30 06:14 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/7987608.shtml)
-- 2026-06-30 06:02 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/35910726.shtml)
-- 2026-06-30 06:10 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/41482927402.shtml)
-- 2026-06-30 06:11 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/84476218.shtml)
-- 2026-06-30 06:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/7330278.shtml)
-- 2026-06-30 06:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/9937282.shtml)
-- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/131430870.shtml)
-- 2026-06-30 06:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/59078962.shtml)
-- 2026-06-30 06:10 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3353682.shtml)
+- 2026-06-30 06:11 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/0127011279.shtml)
+- 2026-06-30 06:17 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/249225976.shtml)
+- 2026-06-30 06:11 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/82265012481.shtml)
+- 2026-06-30 06:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/894801550.shtml)
+- 2026-06-30 06:20 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/5592843.shtml)
+- 2026-06-30 06:12 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/397465.shtml)
+- 2026-06-30 06:12 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/56498111167.shtml)
+- 2026-06-30 06:31 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/896900.shtml)
+- 2026-06-30 06:12 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/467517443.shtml)
+- 2026-06-30 06:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/600698639.shtml)
+- 2026-06-30 06:11 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/839435638142.shtml)
+- 2026-06-30 06:14 - [美股](http://www.share.kurohicncr.top/Article/details/666690981.shtml)
+- 2026-06-30 06:21 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/27477.shtml)
+- 2026-06-30 06:24 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/3540869684.shtml)
+- 2026-06-30 06:22 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/0901883380.shtml)

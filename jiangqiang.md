@@ -1,54 +1,56 @@
-# 东京羽田机场一架客机起飞前客舱冒烟 机上当时载有211人
+# 无人机企业CEO警告：航空力量未来在于自主化，美国并未领先
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据日本广播协会(NHK)报道，当地时间18日下午，东京羽田机场一架即将起飞的客机机舱内，一名乘客的智能手机冒烟，机上当时载有211人。 报道援引日本国土交通省和东京消防厅的消息，当地时间18日13时许，一架从羽田机场飞往伦敦的英国航空航班在离开停机位、驶向跑道的过程中，管制塔收到报告称一名乘客的随身行李中冒出烟雾。 客机根据管制塔的指示返回停机位，并使用机内
+核心要点 自主飞行器研发企业梅林实验室（Merlin Labs）CEO 马特・乔治警告： 空中力量的未来在于自主平台，而美国即便拥有全球规模最大的空军，也并未处于领先地位。 乔治在 CNBC 新加坡 CONVERGE LIVE 活动上表示，中小型自主平台已成为伊朗和乌克兰战事的主导装备。 这类自主平台包括用于侦察或直接携带弹药攻击目标的无人机，相比传统武器成本极低、部署更快，正
 
 ## 正文
 
-中新网6月18日电 据日本广播协会(NHK)报道，当地时间18日下午，东京羽田机场一架即将起飞的客机机舱内，一名乘客的智能手机冒烟，机上当时载有211人。
+核心要点 自主飞行器研发企业梅林实验室（Merlin Labs）CEO 马特・乔治警告： 空中力量的未来在于自主平台，而美国即便拥有全球规模最大的空军，也并未处于领先地位。
 
-报道援引日本国土交通省和东京消防厅的消息，当地时间18日13时许，一架从羽田机场飞往伦敦的英国航空航班在离开停机位、驶向跑道的过程中，管制塔收到报告称一名乘客的随身行李中冒出烟雾。
+乔治在 CNBC 新加坡 CONVERGE LIVE 活动上表示，中小型自主平台已成为伊朗和乌克兰战事的主导装备。
 
-客机根据管制塔的指示返回停机位，并使用机内配备的灭火器将烟雾扑灭。
+这类自主平台包括用于侦察或直接携带弹药攻击目标的无人机，相比传统武器成本极低、部署更快，正迫使西方军队重新审视军费投向。
 
-随后，消防人员对机舱进行了检查，确认冒烟的是该乘客的智能手机。
+“美国已经意识到…… 我们未必落后，但绝对没有占据决定性领先优势，必须加大对这类能力的投入。
 
-报道称，机上共有211名乘客和机组人员，无人受伤。
+” 他指出，乌克兰冲突堪称第一场以无人机为主导的战争，而当前伊朗战场同样大量使用无人机。
 
-飞机在停机位完成安全确认后，从羽田机场起飞，比预定时间晚了约1小时。
+乔治表示，美国虽然拥有大量高端装备，但大型有人战机依然十分脆弱，很容易被对手用低成本弹药和电子战手段威胁。
 
-日本国土交通省正在对当时的具体情况进行详细调查。
+2025 年 6 月，乌克兰安全部门利用卡车载隐蔽无人机对俄空军基地发动大规模袭击，损毁超 40 架军机；伊朗也曾用无人机打击在沙特的美军加油机与预警机。
+
+成本差距悬殊 自主空中平台与高端防空拦截弹之间的成本差距已极为刺眼。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 06:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 06:27 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 06:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 06:10 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 06:17 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 06:03 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:02 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 06:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 06:10 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 06:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 06:31 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 06:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 06:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 06:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 06:09 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 06:29 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 06:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 06:17 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 06:15 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/062458456498.shtml)
-- 2026-06-30 06:09 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/9554823.shtml)
-- 2026-06-30 06:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/4229902772.shtml)
-- 2026-06-30 06:02 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/4215273222.shtml)
-- 2026-06-30 06:22 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/227829868.shtml)
-- 2026-06-30 06:00 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/11771327356.shtml)
-- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/739166.shtml)
-- 2026-06-30 06:02 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/057989.shtml)
-- 2026-06-30 06:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/324806678099.shtml)
-- 2026-06-30 06:11 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/8931556024.shtml)
-- 2026-06-30 06:25 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/279321122512.shtml)
-- 2026-06-30 06:22 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/38208439.shtml)
-- 2026-06-30 06:26 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/06908.shtml)
-- 2026-06-30 06:15 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/59118080705.shtml)
-- 2026-06-30 06:08 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/94484.shtml)
+- 2026-06-30 06:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/43830244.shtml)
+- 2026-06-30 06:32 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/882951687399.shtml)
+- 2026-06-30 06:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/847097977303.shtml)
+- 2026-06-30 06:13 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/051980.shtml)
+- 2026-06-30 06:07 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/08103796078.shtml)
+- 2026-06-30 06:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/79668401533.shtml)
+- 2026-06-30 06:20 - [沙丘](http://www.blog.minike.top/Article/details/9245856.shtml)
+- 2026-06-30 06:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/139582375677.shtml)
+- 2026-06-30 06:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/6520656684.shtml)
+- 2026-06-30 06:10 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/341823975749.shtml)
+- 2026-06-30 06:14 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/34984900998.shtml)
+- 2026-06-30 06:22 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/1444610.shtml)
+- 2026-06-30 06:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/6585568642.shtml)
+- 2026-06-30 06:31 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/955384159265.shtml)
+- 2026-06-30 06:20 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/25073560120.shtml)

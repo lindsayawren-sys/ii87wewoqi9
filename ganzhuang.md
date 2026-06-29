@@ -1,58 +1,60 @@
-# 中国首条第8.6代AMOLED生产线在成都量产
+# 第十三批在韩中国人民志愿军烈士安葬仪式在沈阳举行
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新社成都6月17日电 (单鹏)中国首条、全球首批第8.6代AMOLED生产线17日在成都正式量产。 据悉，该生产线由BOE(京东方)投建，总投资630亿元人民币，总占地面积1388亩，设计产能为每月3.2万片玻璃基板(2290mm×2620mm)。 长期以来，OLED技术大多应用于手机这类小尺寸终端，在笔记本电脑、平板电脑、车载屏幕等中尺寸产品上普及度较低。该产线量产后，将主
+人民网沈阳4月23日电(记者王子锋、邱宇哲)23日上午，第十三批在韩中国人民志愿军烈士安葬仪式在沈阳抗美援朝烈士陵园隆重举行。12位为保家卫国英勇牺牲在异国他乡的志愿军烈士英灵，阔别祖国70多年后回到中华大地安息。上午10时，仪式正式开始，军乐队奏响婉转低回的《思念曲》，在解放军仪仗司礼大队官兵持枪护卫下，礼兵们迈着整齐的步伐，护送志愿军烈士棺椁缓步进入纪念广场，全场奏唱中华人
 
 ## 正文
 
-中新社成都6月17日电 (单鹏)中国首条、全球首批第8.6代AMOLED生产线17日在成都正式量产。
+人民网沈阳4月23日电(记者王子锋、邱宇哲)23日上午，第十三批在韩中国人民志愿军烈士安葬仪式在沈阳抗美援朝烈士陵园隆重举行。
 
-据悉，该生产线由BOE(京东方)投建，总投资630亿元人民币，总占地面积1388亩，设计产能为每月3.2万片玻璃基板(2290mm×2620mm)。
+12位为保家卫国英勇牺牲在异国他乡的志愿军烈士英灵，阔别祖国70多年后回到中华大地安息。
 
-长期以来，OLED技术大多应用于手机这类小尺寸终端，在笔记本电脑、平板电脑、车载屏幕等中尺寸产品上普及度较低。
+上午10时，仪式正式开始，军乐队奏响婉转低回的《思念曲》，在解放军仪仗司礼大队官兵持枪护卫下，礼兵们迈着整齐的步伐，护送志愿军烈士棺椁缓步进入纪念广场，全场奏唱中华人民共和国国歌。
 
-该产线量产后，将主要生产笔记本电脑、平板电脑等高端触控OLED显示屏，消费者未来能够获得更轻薄、更省电、色彩还原更真实的显示效果。
+国歌唱毕，全体人员垂首默哀。
 
-京东方首席执行官冯强介绍，该产线集成了多项工艺与技术优势，不仅显著提升了成品品质、良率及生产效率，还有效破解了中尺寸OLED面板的经济切割难题。
+裴金佳致祭文后，全体人员向志愿军烈士三鞠躬。
 
-在显示体验方面，新品大幅优化了画面流畅度与节能效果，在降低功耗的同时延长了产品使用寿命，能够广泛适配平板电脑、笔记本电脑及车载显示等多种应用场景。
+27名礼兵连续鸣枪12响，以鸣枪礼向志愿军烈士致以最崇高敬意。
 
-“这条产线填补了国内高世代中尺寸OLED的产业空白，推动中国柔性显示从‘行业领跑’走向‘定义赛道’。
+苍松垂泪，翠柏含悲。
 
-”冯强表示。
+《思念曲》再次奏响，礼兵们抬起志愿军烈士棺椁绕广场半周，缓缓走向安葬地宫。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 06:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 06:15 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 06:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 06:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 06:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 06:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 06:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 06:21 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 06:10 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 06:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 06:13 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:07 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 06:21 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 06:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 06:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 06:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:24 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 06:29 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 06:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 06:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 06:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 06:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:10 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/984236121.shtml)
-- 2026-06-30 06:06 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/08345.shtml)
-- 2026-06-30 06:21 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/05053843.shtml)
-- 2026-06-30 06:11 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/54983278714.shtml)
-- 2026-06-30 06:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/9708080.shtml)
-- 2026-06-30 06:19 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/176873878613.shtml)
-- 2026-06-30 06:28 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/18791049856.shtml)
-- 2026-06-30 06:21 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/505384960346.shtml)
-- 2026-06-30 06:27 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/488695763.shtml)
-- 2026-06-30 06:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/69664486400.shtml)
-- 2026-06-30 06:16 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/47061.shtml)
-- 2026-06-30 06:04 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/698286.shtml)
-- 2026-06-30 06:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/749967.shtml)
-- 2026-06-30 06:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/9859654083.shtml)
-- 2026-06-30 06:06 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/13514328748.shtml)
+- 2026-06-30 06:06 - [苗族银饰](http://www.blog.minike.top/Article/details/711855.shtml)
+- 2026-06-30 06:25 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/04905043.shtml)
+- 2026-06-30 06:28 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/8337296.shtml)
+- 2026-06-30 06:26 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/164930741.shtml)
+- 2026-06-30 06:08 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/472694464469.shtml)
+- 2026-06-30 06:13 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/666414103819.shtml)
+- 2026-06-30 06:13 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/4706150982.shtml)
+- 2026-06-30 06:23 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/5105232.shtml)
+- 2026-06-30 06:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/9894517297.shtml)
+- 2026-06-30 06:22 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/2152365.shtml)
+- 2026-06-30 06:32 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/720709722.shtml)
+- 2026-06-30 06:23 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/2067377.shtml)
+- 2026-06-30 06:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/087809850.shtml)
+- 2026-06-30 06:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/64688365309.shtml)
+- 2026-06-30 06:34 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/6876322.shtml)

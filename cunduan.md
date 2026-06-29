@@ -1,51 +1,50 @@
-# 光大银行：完成发行200亿元无固定期限资本债券
+# 野火持续肆虐 美国佐治亚州宣布91县进入紧急状态
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，光大银行公告称，经国家金融监督管理总局和中国人民银行批准，中国光大银行股份有限公司（简称本行）在全国银行间债券市场发行了“中国光大银行股份有限公司2026年无固定期限资本债券（第二期）”（简称本期债券）。 本期债券于2026年6月12日簿记建档，并于2026年6月16日完成发行。本期债券发行规模为人民币200亿元，前5年票面利率为1.99%，每5年调整一
+中新网4月23日电 据美国佐治亚州官网消息，当地时间22日，佐治亚州州长布莱恩·坎普宣布，由于野火持续肆虐，该州91个县进入紧急状态。 消息称，坎普指示该州相关部门调动一切必要资源，协助该州南部地区应对野火。 坎普表示，“佐治亚州大部分地区仍处于极端干旱状态，野火规模已超过该州五年来的平均水平，并且还在继续蔓延。” 据美联社报道，当地时间22日，由干旱和大风助长的野火已摧毁佐治
 
 ## 正文
 
-6月17日金融一线消息，光大银行公告称，经国家金融监督管理总局和中国人民银行批准，中国光大银行股份有限公司（简称本行）在全国银行间债券市场发行了“中国光大银行股份有限公司2026年无固定期限资本债券（第二期）”（简称本期债券）。
+中新网4月23日电 据美国佐治亚州官网消息，当地时间22日，佐治亚州州长布莱恩·坎普宣布，由于野火持续肆虐，该州91个县进入紧急状态。
 
-本期债券于2026年6月12日簿记建档，并于2026年6月16日完成发行。
+消息称，坎普指示该州相关部门调动一切必要资源，协助该州南部地区应对野火。
 
-本期债券发行规模为人民币200亿元，前5年票面利率为1.99%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。
+坎普表示，“佐治亚州大部分地区仍处于极端干旱状态，野火规模已超过该州五年来的平均水平，并且还在继续蔓延。
 
-本期债券募集的资金将依据适用法律和监管部门的批准，补充本行的其他一级资本。
-
-责任编辑：李琳琳
+” 据美联社报道，当地时间22日，由干旱和大风助长的野火已摧毁佐治亚州50多所房屋，并迫使数百人撤离。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 06:08 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:17 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 06:25 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 06:05 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 06:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 06:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 06:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 06:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 06:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 06:31 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 06:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 06:09 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 06:33 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 06:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 06:17 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 06:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 06:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 06:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 06:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 06:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 06:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [千香](http://www.blog.kurohicncr.top/Article/details/41626.shtml)
-- 2026-06-30 06:24 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/35765.shtml)
-- 2026-06-30 06:05 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/332345148.shtml)
-- 2026-06-30 06:17 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/860991899818.shtml)
-- 2026-06-30 06:22 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/20289.shtml)
-- 2026-06-30 06:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/28496051.shtml)
-- 2026-06-30 06:07 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/540827.shtml)
-- 2026-06-30 06:27 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/538990140.shtml)
-- 2026-06-30 06:07 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/26078332112.shtml)
-- 2026-06-30 06:11 - [千香](http://www.blog.kurohicncr.top/Article/details/279749749.shtml)
-- 2026-06-30 06:13 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/17868668440.shtml)
-- 2026-06-30 06:17 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/16835780.shtml)
-- 2026-06-30 06:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/33447.shtml)
-- 2026-06-30 06:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7594220.shtml)
-- 2026-06-30 06:29 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/8045410117.shtml)
+- 2026-06-30 06:15 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/128868.shtml)
+- 2026-06-30 06:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/9804840.shtml)
+- 2026-06-30 06:17 - [毒液2](https://www.share.minike.top/Article/details/52891337930.shtml)
+- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/91259279.shtml)
+- 2026-06-30 06:33 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/33079897.shtml)
+- 2026-06-30 06:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/69594.shtml)
+- 2026-06-30 06:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/663986091272.shtml)
+- 2026-06-30 06:31 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/08830.shtml)
+- 2026-06-30 06:15 - [毒液2](https://www.blog.minike.top/Article/details/11070191.shtml)
+- 2026-06-30 06:13 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/18549.shtml)
+- 2026-06-30 06:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/99269580170.shtml)
+- 2026-06-30 06:27 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/485357.shtml)
+- 2026-06-30 06:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/1997818981.shtml)
+- 2026-06-30 06:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/91478039.shtml)
+- 2026-06-30 06:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/4392929.shtml)

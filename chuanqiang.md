@@ -1,59 +1,57 @@
-# 中国海油原副总经理袁光宇一审被判死缓
+# 拍视频、做直播……探寻实体书店的社交媒体“破局”之路
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油
+拍视频、做直播、发书单……不少实体书店选择从社交媒体“破局” 【全民阅读新图景③】线上引流，寻找属于这个时代的表达方式 阅读提示 当线上购书冲击实体零售，不少实体书店主理人选择“转战”社交媒体，拍视频、做直播、发书单、卖盲盒……社交媒体账号正成为实体书店的线上“门面”。流量能否转化为真实客流？屏幕那头热闹，屏幕这头还能否守住书页间的温度？记者走访多家书店，探寻实体书店的社交媒体
 
 ## 正文
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。
+拍视频、做直播、发书单……不少实体书店选择从社交媒体“破局” 【全民阅读新图景③】线上引流，寻找属于这个时代的表达方式 阅读提示 当线上购书冲击实体零售，不少实体书店主理人选择“转战”社交媒体，拍视频、做直播、发书单、卖盲盒……社交媒体账号正成为实体书店的线上“门面”。
 
-公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油总公司，2016年任中国海洋石油集团有限公司副总经理、党组成员，2019年卸任。
+流量能否转化为真实客流？
 
-2025年3月，官方通报袁光宇被查。
+屏幕那头热闹，屏幕这头还能否守住书页间的温度？
 
-同年7月，中央纪委国家监委通报其被开除党籍。
+记者走访多家书店，探寻实体书店的社交媒体“破局”之路。
 
-他被指毫无纪法底线，肆无忌惮“靠石油吃石油”，大搞权钱交易等。
+晚上8点，北京亦庄的爱尚有间书店，店门已经关上。
 
-经审理查明，2001年至2022年，袁光宇利用担任中海石油北方钻井公司总经理，中海油田服务有限公司总经理、总裁，中海石油(中国)有限公司天津分公司总经理，中国海洋石油渤海石油管理局局长，中国海洋石油有限公司执行副总裁、总裁，中国海洋石油集团有限公司党组成员、副总经理等职务上的便利，为相关单位和个人在项目承揽、企业经营、职务调整等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.52亿余元。
+书店主理人贺霞却还在对着电脑，剪辑白天店里举办的“亦庄雅集”活动视频。
 
-法院认为，袁光宇的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
+这是包括贺霞在内的不少实体书店主理人的日常。
 
-鉴于其归案后如实供述自己罪行，主动交代监察机关尚未掌握的部分犯罪事实，认罪悔罪，积极退赃，受贿所得及孳息已全部追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
+当线上购书的价格优势持续冲击线下零售，数字阅读逐渐成为大众日常，实体书店一度被贴上“夕阳产业”的标签，客流稀少、盈利艰难成为行业常态。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 06:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 06:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 06:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 06:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 06:01 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 06:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 06:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 06:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 06:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 06:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 06:17 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 06:24 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 06:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 06:26 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 06:24 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 06:22 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 06:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 06:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 06:11 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 06:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 06:09 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 06:14 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/311191.shtml)
-- 2026-06-30 06:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/4359427.shtml)
-- 2026-06-30 06:18 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/94339593.shtml)
-- 2026-06-30 06:06 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/62039962.shtml)
-- 2026-06-30 06:04 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/40200200021.shtml)
-- 2026-06-30 06:12 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/143190.shtml)
-- 2026-06-30 06:16 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/033053.shtml)
-- 2026-06-30 06:22 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/252204.shtml)
-- 2026-06-30 06:15 - [恋与深空 日服](http://www.share.minike.top/Article/details/143377.shtml)
-- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/316458500.shtml)
-- 2026-06-30 06:02 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/000821418.shtml)
-- 2026-06-30 06:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/92217475537.shtml)
-- 2026-06-30 06:06 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/952879186.shtml)
-- 2026-06-30 06:17 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/3380137535.shtml)
-- 2026-06-30 06:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/0635708301.shtml)
+- 2026-06-30 06:20 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/76381478.shtml)
+- 2026-06-30 06:29 - [日本淘汰](https://www.blog.minike.top/Article/details/75167842572.shtml)
+- 2026-06-30 06:17 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/3230666.shtml)
+- 2026-06-30 06:31 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/38135.shtml)
+- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/649469928210.shtml)
+- 2026-06-30 06:10 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/329623671.shtml)
+- 2026-06-30 06:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/71080868364.shtml)
+- 2026-06-30 06:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/9624943272.shtml)
+- 2026-06-30 06:33 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/1706010520.shtml)
+- 2026-06-30 06:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5035361931.shtml)
+- 2026-06-30 06:19 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/68753031754.shtml)
+- 2026-06-30 06:19 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/584421736.shtml)
+- 2026-06-30 06:14 - [金牌调解](http://www.share.kurohicncr.top/Article/details/3833561.shtml)
+- 2026-06-30 06:28 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/76957553.shtml)
+- 2026-06-30 06:27 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/22552.shtml)

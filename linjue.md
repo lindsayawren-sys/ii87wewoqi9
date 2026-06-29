@@ -1,61 +1,61 @@
-# 石油出口解禁及3000亿美元发展融资 伊朗料借美伊协议获重大经济惠益
+# LEMAIRE被指辱华后致歉：未能充分考虑文化差异与敏感性 | 贵圈
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-根据美伊临时协议草案，伊朗将获准立即开始出口石油，并在随后就旨在解决德黑兰核问题的永久和平协议完成谈判后，获得一项3000亿美元的经济发展计划。 双方计划周五在瑞士正式签署谅解备忘录，以正式敲定此前达成的协议，并为为期60天的谈判铺平道路，从而结束战争并对伊朗核计划施加严格限制。 一位知情人士称，美国已开始在法国举行的七国集团峰会上向盟国传阅这份临时协议文本。华盛顿和德黑兰均未
+4月26日消息，近日，法国时装品牌LEMAIRE因一组名为ObjetsSenteur的香氛器物宣传大片陷入舆论风波。该品牌发布的宣传照片中，其长辫、长衫、剪刀的搭配被质疑存在辱华倾向，引发网友强烈不满。 公开资料显示，LEMAIRE1991年创立于法国巴黎，创始人为前Hermès（爱马仕）创意总监Christophe Lemaire，品牌以法式极简主义为核心。2018年7月，L
 
 ## 正文
 
-根据美伊临时协议草案，伊朗将获准立即开始出口石油，并在随后就旨在解决德黑兰核问题的永久和平协议完成谈判后，获得一项3000亿美元的经济发展计划。
+4月26日消息，近日，法国时装品牌LEMAIRE因一组名为ObjetsSenteur的香氛器物宣传大片陷入舆论风波。
 
-双方计划周五在瑞士正式签署谅解备忘录，以正式敲定此前达成的协议，并为为期60天的谈判铺平道路，从而结束战争并对伊朗核计划施加严格限制。
+该品牌发布的宣传照片中，其长辫、长衫、剪刀的搭配被质疑存在辱华倾向，引发网友强烈不满。
 
-一位知情人士称，美国已开始在法国举行的七国集团峰会上向盟国传阅这份临时协议文本。
+公开资料显示，LEMAIRE1991年创立于法国巴黎，创始人为前Hermès（爱马仕）创意总监Christophe Lemaire，品牌以法式极简主义为核心。
 
-华盛顿和德黑兰均未正式发布该文件。
+2018年7月，LEMAIRE的少数股权被优衣库母公司迅销集团收购。
 
-另一位因讨论非公开磋商而不愿具名的知情人士称，技术细节仍在敲定中，这意味着正式签署前的具体措辞可能仍会变化。
+值得注意的是，LEMAIRE近年来在中国市场积极扩张。
 
-不过，协议轮廓正在浮现。
+今年1月，LEMAIRE在上海武康路开设了全球最大旗舰店。
 
-媒体看到的一份协议副本显示，伊朗将因结束对霍尔木兹海峡的封锁并重申其永不寻求核武器的承诺而获得全面的经济提振。
+此外，LEMAIRE北京三里屯太古里旗舰店于2026年3月正式启幕。
 
-美国财政部将在谅解备忘录签署后，立即为伊朗原油和石化产品出口发放豁免。
+今日晚间，LEMAIRE发布官方声明致歉。
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 06:16 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 06:01 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 06:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 06:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 06:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 06:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 06:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 06:26 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 06:12 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 06:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 06:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 06:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 06:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 06:21 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 06:08 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 06:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 06:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 06:06 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 06:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 06:17 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:10 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 06:13 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 06:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 06:23 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 06:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:27 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 06:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 06:13 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/452377032.shtml)
-- 2026-06-30 06:08 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/50103913.shtml)
-- 2026-06-30 06:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/35649355284.shtml)
-- 2026-06-30 06:16 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/609798601.shtml)
-- 2026-06-30 06:06 - [日本淘汰](https://www.share.minike.top/Article/details/44865395.shtml)
-- 2026-06-30 06:03 - [急先锋](https://www.share.kurohicncr.top/Article/details/23392.shtml)
-- 2026-06-30 06:07 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/343639612414.shtml)
-- 2026-06-30 06:17 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/26402317183.shtml)
-- 2026-06-30 06:27 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/387175684.shtml)
-- 2026-06-30 06:03 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/47026905.shtml)
-- 2026-06-30 06:08 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/68512007.shtml)
-- 2026-06-30 06:07 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/59409882.shtml)
-- 2026-06-30 06:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/5273752.shtml)
-- 2026-06-30 06:14 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/212160505.shtml)
-- 2026-06-30 06:03 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/8413123.shtml)
+- 2026-06-30 06:13 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/803547.shtml)
+- 2026-06-30 06:29 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/7302888.shtml)
+- 2026-06-30 06:27 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/31197.shtml)
+- 2026-06-30 06:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/740394166.shtml)
+- 2026-06-30 06:22 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/92548793.shtml)
+- 2026-06-30 06:16 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/245195400674.shtml)
+- 2026-06-30 06:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/3410842.shtml)
+- 2026-06-30 06:31 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/53902245.shtml)
+- 2026-06-30 06:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/6246187453.shtml)
+- 2026-06-30 06:31 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/662722482119.shtml)
+- 2026-06-30 06:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/235728485983.shtml)
+- 2026-06-30 06:07 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/58965275.shtml)
+- 2026-06-30 06:20 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/85888652.shtml)
+- 2026-06-30 06:22 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/36591870341.shtml)
+- 2026-06-30 06:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/768634705300.shtml)

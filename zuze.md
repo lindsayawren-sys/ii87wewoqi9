@@ -1,48 +1,58 @@
-# 收评|国内期货主力合约跌多涨少，碳酸锂跌超6%
+# 香港举办第四届“阅读半小时”活动 推动全民阅读
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-2026年6月18日，国内期货主力合约跌多涨少，碳酸锂跌超6%，焦煤跌近6%，鸡蛋、燃料油、聚丙烯月均、聚丙烯、铂、纯碱跌超3%。涨幅方面，集运欧线涨近3%，纤维板涨超2%，PTA、短纤、PX0>对二甲苯、瓶片涨超1%。 责任编辑：赵思远
+中新网香港4月23日电 4月23日是世界读书日和香港全民阅读日，由联合新零售(香港)有限公司旗下“一本读书会”推展的“阅读半小时”大型阅读推广活动正在香港中小学及社区举行。这项始于2023年的阅读推广活动，已连续举办至第四届。 “阅读半小时”旨在倡导人们在快节奏的时代与繁忙的都市生活中，每天抽出半小时进行阅读。今年4月13日至26日，该活动再次走进香港近百所中小学校，约2.5万
 
 ## 正文
 
-2026年6月18日，国内期货主力合约跌多涨少，碳酸锂跌超6%，焦煤跌近6%，鸡蛋、燃料油、聚丙烯月均、聚丙烯、铂、纯碱跌超3%。
+中新网香港4月23日电 4月23日是世界读书日和香港全民阅读日，由联合新零售(香港)有限公司旗下“一本读书会”推展的“阅读半小时”大型阅读推广活动正在香港中小学及社区举行。
 
-涨幅方面，集运欧线涨近3%，纤维板涨超2%，PTA、短纤、PX0>对二甲苯、瓶片涨超1%。
+这项始于2023年的阅读推广活动，已连续举办至第四届。
 
-责任编辑：赵思远
+“阅读半小时”旨在倡导人们在快节奏的时代与繁忙的都市生活中，每天抽出半小时进行阅读。
+
+今年4月13日至26日，该活动再次走进香港近百所中小学校，约2.5万名师生积极参与。
+
+参与活动的学校利用图书馆、课室、礼堂等不同阅读地点，让师生共同阅读，每位参与者均可获得“挑战成功”电子纪念证书。
+
+参与香港三联书店、中华书局、商务印书馆实体门店“阅读半小时”挑战的读者，可于店内任意挑选一本书籍、选择一个区域，进行半小时或以上的阅读，并可获得连续“打卡”奖励。
+
+主办方介绍，活动举办4年来，累计逾20万人次参与，成为香港本地颇具影响力的全民阅读品牌项目。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 06:19 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 06:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 06:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 06:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 06:09 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 06:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 06:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 06:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 06:18 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 06:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 06:24 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:25 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 06:07 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 06:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 06:08 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 06:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:22 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 06:21 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:19 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 06:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/191874.shtml)
-- 2026-06-30 06:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/15263696.shtml)
-- 2026-06-30 06:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/836160218986.shtml)
-- 2026-06-30 06:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/76548820.shtml)
-- 2026-06-30 06:21 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/070273792932.shtml)
-- 2026-06-30 06:03 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/34990363.shtml)
-- 2026-06-30 06:22 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/68009438.shtml)
-- 2026-06-30 06:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/89158118773.shtml)
-- 2026-06-30 06:13 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/2744752.shtml)
-- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/543055824.shtml)
-- 2026-06-30 06:09 - [毒液2](http://www.blog.kurohicncr.top/Article/details/9011105.shtml)
-- 2026-06-30 06:07 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/505334989.shtml)
-- 2026-06-30 06:01 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/583570390380.shtml)
-- 2026-06-30 06:11 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/3538691488.shtml)
-- 2026-06-30 06:15 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/9948322259.shtml)
+- 2026-06-30 06:27 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/48173.shtml)
+- 2026-06-30 06:20 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/42974775455.shtml)
+- 2026-06-30 06:30 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/706020246468.shtml)
+- 2026-06-30 06:25 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/83516.shtml)
+- 2026-06-30 06:22 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/48068911.shtml)
+- 2026-06-30 06:27 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/78276.shtml)
+- 2026-06-30 06:21 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/33269.shtml)
+- 2026-06-30 06:06 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/44431.shtml)
+- 2026-06-30 06:22 - [日本领先巴西](http://www.blog.minike.top/Article/details/881320529201.shtml)
+- 2026-06-30 06:28 - [点菜也要教吗](https://www.share.minike.top/Article/details/28174040739.shtml)
+- 2026-06-30 06:23 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/17998434399.shtml)
+- 2026-06-30 06:13 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/999045.shtml)
+- 2026-06-30 06:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/8943287009.shtml)
+- 2026-06-30 06:10 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/2130546003.shtml)
+- 2026-06-30 06:12 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/20281688.shtml)

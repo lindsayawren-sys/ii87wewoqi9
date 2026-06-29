@@ -1,60 +1,57 @@
-# 农行董事长谷澍：以AI制衡AI，构建金融业“共生式”大模型治理
+# 美伊谈判新变数，内塔尼亚胡下令“猛烈打击”黎巴嫩
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 人工智能正在快速走进银行的核心业务，从写报告、做分析到放贷款、搞营销，大模型的身影无处不在。 但能力越强，风险也越不容忽视，它可能“胡说八道”，也可能被恶意攻击，甚至因“黑箱”决策让银行和客户都措手不及。 6月18日，中国农业银行董事长谷澍在2026陆家嘴论坛上表示，从大模型运行机理来看，模型风险是一种客观存在，“我
+伊朗官员称美伊可能在未来几天举行第二轮谈判 当地时间25日，一位伊朗外交官员表示，伊朗与美国代表团可能在未来几天举行第二轮谈判。 据了解，伊朗方面已向美方传递信息，要求美国总统特朗普减少带有威胁性的言论，并表示若美方立场趋于缓和，伊朗国内强硬派将更有可能对参与谈判持支持态度。 伊朗外长将再次访问巴基斯坦 伊朗伊斯兰共和国通讯社25日报道说，根据伊朗外交部公布的计划，伊朗外长阿拉
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 人工智能正在快速走进银行的核心业务，从写报告、做分析到放贷款、搞营销，大模型的身影无处不在。
+伊朗官员称美伊可能在未来几天举行第二轮谈判 当地时间25日，一位伊朗外交官员表示，伊朗与美国代表团可能在未来几天举行第二轮谈判。
 
-但能力越强，风险也越不容忽视，它可能“胡说八道”，也可能被恶意攻击，甚至因“黑箱”决策让银行和客户都措手不及。
+据了解，伊朗方面已向美方传递信息，要求美国总统特朗普减少带有威胁性的言论，并表示若美方立场趋于缓和，伊朗国内强硬派将更有可能对参与谈判持支持态度。
 
-6月18日，中国农业银行董事长谷澍在2026陆家嘴论坛上表示，从大模型运行机理来看，模型风险是一种客观存在，“我们需要做的是如何既发挥其作用，又认识到其局限性，不追求风险的绝对消除，而是要建立与风险共生的治理体系。
+伊朗外长将再次访问巴基斯坦 伊朗伊斯兰共和国通讯社25日报道说，根据伊朗外交部公布的计划，伊朗外长阿拉格齐在结束对阿曼的访问之后、前往俄罗斯之前，将再次访问巴基斯坦。
 
-” “除了模型黑箱、模型幻觉，模型自主思考与决策带来的不确定性也难以控制。
+阿拉格齐24日至25日到访巴基斯坦。
 
-”‌谷澍‌具体分析称，随着大模型能力的不断进化，系统已能够自主思考与决策，这放大了过程不可控、结果不可知的风险。
+据报道，阿拉格齐在同巴方人员会见时转达了伊朗关于“全面结束战争、实现和平”的协议所需基本条件的立场和观点，并于25日晚抵达阿曼首都马斯喀特继续他的对外访问行程。
 
-他结合农业银行的实践，就如何防范大模型应用风险提出几点建议： 首先是不同场景，不同管法，给大模型“分级定规”。
+报道说，随同阿拉格齐访问巴基斯坦的部分代表团成员已返回德黑兰，就结束战争相关议题进行商议，计划于26日晚在巴首都伊斯兰堡重新与阿拉格齐会合。
 
-‌谷澍‌称，对于信贷决策等强监管场景，采用模型蒸馏技术，让大模型在数据合成、归因分析和决策式模型生成等方面提供助力；对于投研分析等高认知场景，强化思维链（CoT）设计，构建清晰的“思考推理”轨迹，增强决策过程的透明度；对于产品营销等创意类场景，可充分激活模型的随机性来激发创新活力。
+伊朗方面24日宣布，阿拉格齐将出访巴基斯坦、阿曼和俄罗斯三国。
 
-为了防止大模型“信口开河”，‌谷澍‌提到，设定一定的标尺约束控制模型幻觉，同时强化人机互补的约束机制。
+访问期间，除了就双边事务协调、地区形势发展进行磋商，伊方还将与三国就结束美国和以色列对伊朗的侵略战争、实现地区和平与稳定的最新进展交换意见。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 06:23 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 06:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 06:15 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 06:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 06:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 06:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 06:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 06:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 06:22 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 06:04 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:27 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 06:20 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 06:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 06:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 06:30 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 06:31 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 06:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 06:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 06:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 06:14 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/610934719767.shtml)
-- 2026-06-30 06:20 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/702247.shtml)
-- 2026-06-30 06:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/8586131.shtml)
-- 2026-06-30 06:17 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/762223952.shtml)
-- 2026-06-30 06:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/5039238.shtml)
-- 2026-06-30 06:15 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/2822642.shtml)
-- 2026-06-30 06:23 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/05960.shtml)
-- 2026-06-30 06:19 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/1428397.shtml)
-- 2026-06-30 06:18 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/37359189.shtml)
-- 2026-06-30 06:20 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/16425.shtml)
-- 2026-06-30 06:11 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/555134402.shtml)
-- 2026-06-30 06:13 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/657904.shtml)
-- 2026-06-30 06:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/4966229496.shtml)
-- 2026-06-30 06:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/356765329.shtml)
-- 2026-06-30 06:16 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/97583243123.shtml)
+- 2026-06-30 06:24 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/14875.shtml)
+- 2026-06-30 06:25 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/86856604609.shtml)
+- 2026-06-30 06:30 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/3993829.shtml)
+- 2026-06-30 06:18 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/2010672.shtml)
+- 2026-06-30 06:15 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/955746676.shtml)
+- 2026-06-30 06:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/133256001892.shtml)
+- 2026-06-30 06:11 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/1982474.shtml)
+- 2026-06-30 06:17 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/31680037.shtml)
+- 2026-06-30 06:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/48813972035.shtml)
+- 2026-06-30 06:33 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/808349544.shtml)
+- 2026-06-30 06:06 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/33220047410.shtml)
+- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/082146656292.shtml)
+- 2026-06-30 06:14 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/42430.shtml)
+- 2026-06-30 06:18 - [毒液2](https://www.share.minike.top/Article/details/5027607321.shtml)
+- 2026-06-30 06:35 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/998773260718.shtml)

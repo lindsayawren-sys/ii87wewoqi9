@@ -1,51 +1,58 @@
-# 瑞典央行称今年加息的可能性上升
+# 涵盖染发剂、化妆品、牙膏等 今年我国拟新增27项化妆品标准
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-瑞典央行在其政策更新中表示，今年晚些时候加息的可能性较3月的评估上升。 “瑞典通货膨胀率较低，经济活动也略低于正常水平”。 “与此同时，与中东战争相关的供应中断导致通胀压力上升，通胀过高的风险也随之增加”。责任编辑：何云
+国家药监局日前发布2026年我国化妆品标准立项计划，拟制修订27项标准，涵盖染发剂原料、化妆品用原料、牙膏相关通用技术要求和检验方法标准等，为我国化妆品监管提供更精准的技术支撑。 记者从国家药监局化妆品监管司了解到，化妆品新原料需要经过注册或者备案，才能在我国使用。 中检院化妆品安全技术评价中心副主任陈亚飞介绍，2026年我国拟新增包括2-甲氧基甲基对苯二胺及其硫酸盐和HC蓝1
 
 ## 正文
 
-瑞典央行在其政策更新中表示，今年晚些时候加息的可能性较3月的评估上升。
+国家药监局日前发布2026年我国化妆品标准立项计划，拟制修订27项标准，涵盖染发剂原料、化妆品用原料、牙膏相关通用技术要求和检验方法标准等，为我国化妆品监管提供更精准的技术支撑。
 
-“瑞典通货膨胀率较低，经济活动也略低于正常水平”。
+记者从国家药监局化妆品监管司了解到，化妆品新原料需要经过注册或者备案，才能在我国使用。
 
-“与此同时，与中东战争相关的供应中断导致通胀压力上升，通胀过高的风险也随之增加”。
+中检院化妆品安全技术评价中心副主任陈亚飞介绍，2026年我国拟新增包括2-甲氧基甲基对苯二胺及其硫酸盐和HC蓝16号在内的6种染发剂，进一步丰富我国准用染发剂目录。
 
-责任编辑：何云
+据了解，2-甲氧基甲基对苯二胺及其硫酸盐和HC蓝16号这两种染发剂目前在国外广泛安全使用，但尚未列入我国《已使用化妆品原料目录》，今年我国将通过标准转化的创新路径引入国内使用。
+
+国家药监局表示，我国准用染发剂目录有望从现有的72种开始加速扩容，为消费者带来更多元的发色选择，也为染发行业创新注入新的活力。
+
+5项化妆品原料和5项检验方法标准在路上 记者了解到，化妆品原料相当于化妆品的“芯片”，既是产品安全的源头，也是产业创新的关键。
+
+2026年我国将启动制定聚氨丙基双胍、对羟基苯乙酮等5项原料标准，聚焦使用广泛、可能存在安全风险的原料。
+
+据了解，国家药监局今年拟制定相关原料标准，将通过精准界定和明确原料的关键技术指标，降低原料带入的安全风险，从源头引导提升化妆品质量安全水平。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 06:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 06:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 06:23 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 06:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:00 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 06:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 06:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 06:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 06:08 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 06:12 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 06:12 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 06:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 06:31 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 06:34 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 06:32 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 06:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 06:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 06:35 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 06:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 06:13 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 06:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 06:23 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/71216047.shtml)
-- 2026-06-30 06:16 - [斛珠夫人](http://www.blog.minike.top/Article/details/62704513.shtml)
-- 2026-06-30 06:05 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/0175289249.shtml)
-- 2026-06-30 06:09 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/387086465.shtml)
-- 2026-06-30 06:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/097502080.shtml)
-- 2026-06-30 06:15 - [恋与深空 日服](https://www.share.minike.top/Article/details/72322.shtml)
-- 2026-06-30 06:15 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/3243148.shtml)
-- 2026-06-30 06:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/97843.shtml)
-- 2026-06-30 06:08 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/011043.shtml)
-- 2026-06-30 06:19 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/9674333.shtml)
-- 2026-06-30 06:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/62746.shtml)
-- 2026-06-30 06:26 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/30915322365.shtml)
-- 2026-06-30 06:13 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/3887931.shtml)
-- 2026-06-30 06:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/17597.shtml)
-- 2026-06-30 06:18 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/393267.shtml)
+- 2026-06-30 06:20 - [时光音乐会](http://www.share.minike.top/Article/details/01330.shtml)
+- 2026-06-30 06:15 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/9776651009.shtml)
+- 2026-06-30 06:12 - [锐评T1零封KC](http://www.share.minike.top/Article/details/890226.shtml)
+- 2026-06-30 06:30 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/670647486.shtml)
+- 2026-06-30 06:34 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/84562758421.shtml)
+- 2026-06-30 06:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/39790.shtml)
+- 2026-06-30 06:09 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/107140784.shtml)
+- 2026-06-30 06:30 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/436864.shtml)
+- 2026-06-30 06:32 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/97135130750.shtml)
+- 2026-06-30 06:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/915344.shtml)
+- 2026-06-30 06:21 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/25572361701.shtml)
+- 2026-06-30 06:09 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/90200850.shtml)
+- 2026-06-30 06:16 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/49319417.shtml)
+- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/043154389.shtml)
+- 2026-06-30 06:24 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/697316799588.shtml)

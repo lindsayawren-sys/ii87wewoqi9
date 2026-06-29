@@ -1,59 +1,60 @@
-# 中国成功发射卫星互联网低轨22组卫星
+# “侨心书苑”在广州图书馆揭牌
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间6月17日10时44分，中国在海南商业航天发射场使用长征十二号运载火箭，将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。卫星互联网低轨22组卫星由中国航天科技集团五院抓总研制。 长征十二号运载火箭是中国航天科技集团八院抓总研制的新一代低温液体运载火箭，也是中国首款4米级单芯级
+中新网广州4月26日电 (程景伟 马泳娴)由广州图书馆、中国华侨出版社、广东华侨历史学会、广州市华侨历史学会共同主办的“侨心书苑”揭牌暨“以文引侨”主题沙龙系列活动，25日在广州图书馆举行。 “侨心书苑”是经中国侨联党组批准，由中国侨联基层建设部、中国华侨出版社和各级侨联共同实施的品牌活动。2025年，广州图书馆与中国华侨出版社建立战略合作，共同推动“侨心书苑”落户该图书馆。
 
 ## 正文
 
-中新社北京6月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间6月17日10时44分，中国在海南商业航天发射场使用长征十二号运载火箭，将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。
+中新网广州4月26日电 (程景伟 马泳娴)由广州图书馆、中国华侨出版社、广东华侨历史学会、广州市华侨历史学会共同主办的“侨心书苑”揭牌暨“以文引侨”主题沙龙系列活动，25日在广州图书馆举行。
 
-卫星互联网低轨22组卫星由中国航天科技集团五院抓总研制。
+“侨心书苑”是经中国侨联党组批准，由中国侨联基层建设部、中国华侨出版社和各级侨联共同实施的品牌活动。
 
-长征十二号运载火箭是中国航天科技集团八院抓总研制的新一代低温液体运载火箭，也是中国首款4米级单芯级运载火箭，近地轨道运载能力不小于12吨、700公里太阳同步轨道运载能力不小于6吨，可根据任务需求选配4.2米、5.2米直径构型的整流罩，支持单星、多星不同轨道发射任务。
+2025年，广州图书馆与中国华侨出版社建立战略合作，共同推动“侨心书苑”落户该图书馆。
 
-本次任务中，长征十二号运载火箭首次采用5.2米直径碳纤维复合材料卫星整流罩，大幅减少结构重量。
+活动上，中国华侨出版社社长杨伯勋与广州图书馆馆长吴翠红共同为“侨心书苑”揭牌，标志着这一侨文化专属空间正式落户广州图书馆东山书院，面向读者提供阅览服务。
 
-同时，火箭二级发动机在国内首次采用高能煤油推进剂，性能参数实现显著提升，可有效提升火箭运载能力。
+为系统保护粤籍华侨历史文化遗产，构建完整的粤侨影像记忆体系，广州图书馆联合广州市华侨历史学会共同发起粤籍华侨华人影像记忆及相关文献全球征集，建立起“粤侨影忆”专藏。
 
-本次任务是长征十二号运载火箭第6次发射，也是长征系列运载火箭第652次发射。
+为进一步促进专藏资源的征集、整理和研究，广州图书馆特聘一批长期从事侨务工作和侨务研究的专家学者作为“粤侨影忆”项目研究员。
 
-(完)
+活动现场，广州图书馆馆长吴翠红为7位受聘专家学者颁发特聘研究员证书，并授予河源乡情报社、江门市侨媒中心“粤侨影忆”征集点牌匾。
+
+侨界口述历史是留存侨史记忆、传承侨胞精神的重要载体。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 06:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 06:18 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 06:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:02 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 06:17 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 06:03 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 06:22 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 06:01 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:23 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 06:22 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 06:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 06:25 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 06:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:17 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 06:23 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 06:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 06:06 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 06:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 06:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 06:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 06:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 06:20 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 06:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 06:29 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 06:30 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 06:08 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/606099303832.shtml)
-- 2026-06-30 06:02 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/761872227.shtml)
-- 2026-06-30 06:08 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/23234331137.shtml)
-- 2026-06-30 06:28 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/8387305531.shtml)
-- 2026-06-30 06:05 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/799350557628.shtml)
-- 2026-06-30 06:19 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/86272302826.shtml)
-- 2026-06-30 06:24 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/478996071.shtml)
-- 2026-06-30 06:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/317398744020.shtml)
-- 2026-06-30 06:10 - [苗族银饰](https://www.blog.minike.top/Article/details/618261.shtml)
-- 2026-06-30 06:05 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/5772744.shtml)
-- 2026-06-30 06:09 - [金刚川](https://www.blog.kurohicncr.top/Article/details/0853750816.shtml)
-- 2026-06-30 06:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/396971674.shtml)
-- 2026-06-30 06:15 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/800386372136.shtml)
-- 2026-06-30 06:07 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/5516882166.shtml)
-- 2026-06-30 06:20 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/91926392512.shtml)
+- 2026-06-30 06:19 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/613715681.shtml)
+- 2026-06-30 06:15 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/78273205.shtml)
+- 2026-06-30 06:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/2052310.shtml)
+- 2026-06-30 06:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/0556603727.shtml)
+- 2026-06-30 06:28 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/93933832.shtml)
+- 2026-06-30 06:17 - [我们的少年时代2](https://www.blog.minike.top/Article/details/801293266186.shtml)
+- 2026-06-30 06:06 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/831990.shtml)
+- 2026-06-30 06:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/481730130.shtml)
+- 2026-06-30 06:33 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/803364.shtml)
+- 2026-06-30 06:24 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/59874.shtml)
+- 2026-06-30 06:09 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/732877887522.shtml)
+- 2026-06-30 06:34 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/774663718.shtml)
+- 2026-06-30 06:25 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/20183.shtml)
+- 2026-06-30 06:10 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/776425717634.shtml)
+- 2026-06-30 06:19 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/259812839229.shtml)

@@ -1,60 +1,56 @@
-# *ST赛隆告别A股，退市不影响索赔
+# 马来西亚学者驳斥美国：扬言“抹去伊朗文明”本身就是不文明行为丨世界观
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 曾经的医药上市公司赛隆药业正式走完了其在A股的旅程。2026年6月17日，*ST赛隆（维权）发布公告称，公司已收到深圳证券交易所关于股票终止上市的决定。 公告显示，由于公司2025年度财务会计报告及财务报告内部控制均被审计机构出具“无法表示意见”的审计报告，公司触及了深交所的终止上市情形。 在退市之前，赛隆药业就已经因信息披露违
+发布时间：2026年04月23日 17:27 来源：中国新闻网 据报道，自美以2月28日联合对伊朗发起军事打击后，伊朗至少有56处历史文化遗产在战争中遭到严重破坏。其中，德黑兰古列斯坦宫“镜厅”更是惨遭重创，修复至少需要15年。此前，美国政府甚至扬言要“抹去伊朗文明”。 对此，马来西亚国际伊斯兰大学伊斯兰思想与文明国际研究所研究员努鲁尔·艾因·诺曼(Nurul Ain Norm
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 曾经的医药上市公司赛隆药业正式走完了其在A股的旅程。
+发布时间：2026年04月23日 17:27 来源：中国新闻网 据报道，自美以2月28日联合对伊朗发起军事打击后，伊朗至少有56处历史文化遗产在战争中遭到严重破坏。
 
-2026年6月17日，*ST赛隆（维权）发布公告称，公司已收到深圳证券交易所关于股票终止上市的决定。
+其中，德黑兰古列斯坦宫“镜厅”更是惨遭重创，修复至少需要15年。
 
-公告显示，由于公司2025年度财务会计报告及财务报告内部控制均被审计机构出具“无法表示意见”的审计报告，公司触及了深交所的终止上市情形。
+此前，美国政府甚至扬言要“抹去伊朗文明”。
 
-在退市之前，赛隆药业就已经因信息披露违规被监管层警示，这也成为投资者索赔的核心依据。
+对此，马来西亚国际伊斯兰大学伊斯兰思想与文明国际研究所研究员努鲁尔·艾因·诺曼(Nurul Ain Norman)在接受中新网采访时表示，美国所作所为，本身就是不文明之举。
 
-2025年1月22日，公司披露《2024年度业绩预告》，预计全年盈利450万至650万元。
+她进一步表示，单一的不文明行为无法摧毁一种文明，因为文明建立在思想与知识之上，是历代人共同努力的成果。
 
-然而，三个月后的正式年报却显示，公司实际利润总额亏损3491.97万元，归母净利润亏损3314.56万元，营业收入仅为2.64亿元。
+诺曼还强调：“有人认为焚烧图书馆、杀掉学者就能让文明消失，这是不可能的，这种行为反而会产生反作用。
 
-盈亏性质的彻底反转，直接触发了退市风险警示，也让在预告期间买入股票的投资者遭受损失。
+” 诺曼还指出，即便战争正在发生，哪怕现在就结束，人类仍需要开展文明间的对话。
 
-广东证监局调查后认定，公司业绩预告金额与实际差异巨大，盈亏性质发生变化，且未在会计年度结束后一个月内披露股票可能被实施退市风险警示的提示公告，违反了《上市公司信息披露管理办法》相关规定，并对公司出具了警示函。
+文明对话能够促进理解，这对解决冲突具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 06:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:15 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 06:06 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 06:15 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 06:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 06:24 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 06:00 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 06:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 06:04 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 06:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 06:26 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 06:18 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 06:28 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 06:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 06:26 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 06:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 06:17 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:17 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 06:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 06:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 06:24 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 06:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/780129008284.shtml)
-- 2026-06-30 06:08 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/21711949896.shtml)
-- 2026-06-30 06:28 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/449630.shtml)
-- 2026-06-30 06:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/0309288.shtml)
-- 2026-06-30 06:27 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/2812645488.shtml)
-- 2026-06-30 06:18 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/562397889327.shtml)
-- 2026-06-30 06:28 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/09163805162.shtml)
-- 2026-06-30 06:06 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/546323002523.shtml)
-- 2026-06-30 06:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/43568443597.shtml)
-- 2026-06-30 06:18 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/838256503.shtml)
-- 2026-06-30 06:29 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/3600027.shtml)
-- 2026-06-30 06:07 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/24797380.shtml)
-- 2026-06-30 06:02 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/93249.shtml)
-- 2026-06-30 06:28 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/36650.shtml)
-- 2026-06-30 06:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/43972.shtml)
+- 2026-06-30 06:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/24706320134.shtml)
+- 2026-06-30 06:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/45062521522.shtml)
+- 2026-06-30 06:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/74326.shtml)
+- 2026-06-30 06:31 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/738911469800.shtml)
+- 2026-06-30 06:21 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/198593073.shtml)
+- 2026-06-30 06:14 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/4475558.shtml)
+- 2026-06-30 06:09 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/29178301804.shtml)
+- 2026-06-30 06:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/471987114.shtml)
+- 2026-06-30 06:35 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/2823011.shtml)
+- 2026-06-30 06:18 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/7346376895.shtml)
+- 2026-06-30 06:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/0315407.shtml)
+- 2026-06-30 06:30 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/041985.shtml)
+- 2026-06-30 06:30 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/190278397608.shtml)
+- 2026-06-30 06:10 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/84047993.shtml)
+- 2026-06-30 06:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/460260.shtml)

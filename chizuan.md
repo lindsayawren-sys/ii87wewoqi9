@@ -1,60 +1,55 @@
-# 中信建投证券董事长刘成：投研、投资、投行、投顾“四投联动”赋能未来产业发展
+# “大连海运01”轮正式投入运营
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026北京CBD国际金融论坛暨中信全球财富与投资大会在京举办。中信建投证券党委书记、董事长刘成发表《投研、投资、投行、投顾“四投联动”赋能未来产业发展》主题演讲。刘成表示，证券公司必须依靠投研、投资、投行、投顾的协同联动：以投研为大脑，以投资为纽带，以投行为抓手，以投顾为延伸，形成合力，形成闭
+中新网大连4月26日电 (记者 杨毅)大连海运有限公司的“大连海运01”轮26日正式投入运营，标志着该公司正式开启市场化运营。 今年3月17日，大连市政府与有关方面签订了合作框架协议，由恒力集团、省市国企、新加坡企业组建大连海运有限公司，将重点聚焦航运船队建设、港口投资建设与运营等核心业务，通过新建船舶、租赁船舶等多种方式，快速提升船队运力规模，着力打造多船型、内外贸一体化经营
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网大连4月26日电 (记者 杨毅)大连海运有限公司的“大连海运01”轮26日正式投入运营，标志着该公司正式开启市场化运营。
 
-6月17日，2026北京CBD国际金融论坛暨中信全球财富与投资大会在京举办。
+今年3月17日，大连市政府与有关方面签订了合作框架协议，由恒力集团、省市国企、新加坡企业组建大连海运有限公司，将重点聚焦航运船队建设、港口投资建设与运营等核心业务，通过新建船舶、租赁船舶等多种方式，快速提升船队运力规模，着力打造多船型、内外贸一体化经营的专业化船队，构建覆盖全球的航线网络，为东北及蒙东地区提供高效便捷的港口航运服务。
 
-中信建投证券党委书记、董事长刘成发表《投研、投资、投行、投顾“四投联动”赋能未来产业发展》主题演讲。
+此次投运的“大连海运01”轮，满足国际海运绿色低碳需求，具备绿色环保、能耗低等特点，各项性能效率指标均处于国际较高水平，可大幅降低客户运营成本，适配煤炭、矿石、粮食等大宗产品运输，充分满足东北腹地重点产业的物流运输需求。
 
-刘成表示，证券公司必须依靠投研、投资、投行、投顾的协同联动：以投研为大脑，以投资为纽带，以投行为抓手，以投顾为延伸，形成合力，形成闭环，才能有效服务未来产业发展。
+恒力集团董事长陈建华在致辞中表示，从签约落地到首船投运，短短40天，这是政企同心、双向奔赴的最好证明。
 
-中信建投证券“四投联动”赋能未来产业发展，具体从四方面开展工作：一是做深研究支撑，从传统证券研究转向深度产业洞察。
+面向未来，大连海运将充分发挥全产业链优势，推动航运与港口联动、制造与运营融合。
 
-二是做实投资纽带，从短期套利转向耐心资本。
+据了解，大连曾拥有多元化航运船队，但受多种因素影响，运力规模逐年下降，大连海运的投运，将有效补充本地航运运力，完善区域航运网络，助力大连再创海运辉煌。
 
-三是做强投行牵引，通过投行服务未来产业企业。
-
-四是做优财富落脚，从机构独享转向公私联动、普惠共享。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 06:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 06:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 06:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 06:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 06:09 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 06:15 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 06:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 06:17 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:11 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 06:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 06:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 06:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 06:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 06:21 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 06:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:14 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 06:32 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 06:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 06:24 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 06:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 06:31 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 06:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/29427.shtml)
-- 2026-06-30 06:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3024471111.shtml)
-- 2026-06-30 06:02 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/922971.shtml)
-- 2026-06-30 06:26 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/850325948596.shtml)
-- 2026-06-30 06:02 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/626056385.shtml)
-- 2026-06-30 06:13 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/9966479276.shtml)
-- 2026-06-30 06:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/55016689132.shtml)
-- 2026-06-30 06:17 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/20957656970.shtml)
-- 2026-06-30 06:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4123290.shtml)
-- 2026-06-30 06:26 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/8160002634.shtml)
-- 2026-06-30 06:27 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/474557429714.shtml)
-- 2026-06-30 06:04 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/240832472.shtml)
-- 2026-06-30 06:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/44207822.shtml)
-- 2026-06-30 06:25 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/1860011397.shtml)
-- 2026-06-30 06:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/0415974.shtml)
+- 2026-06-30 06:18 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/90227.shtml)
+- 2026-06-30 06:28 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/52019.shtml)
+- 2026-06-30 06:09 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/58376.shtml)
+- 2026-06-30 06:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/011600572915.shtml)
+- 2026-06-30 06:29 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/59732.shtml)
+- 2026-06-30 06:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/35195867.shtml)
+- 2026-06-30 06:11 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/7474944.shtml)
+- 2026-06-30 06:10 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/44818.shtml)
+- 2026-06-30 06:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/2313236392.shtml)
+- 2026-06-30 06:16 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/23288782148.shtml)
+- 2026-06-30 06:22 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/05616615.shtml)
+- 2026-06-30 06:14 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/024598.shtml)
+- 2026-06-30 06:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/48817596112.shtml)
+- 2026-06-30 06:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/116046.shtml)
+- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/91649536398.shtml)

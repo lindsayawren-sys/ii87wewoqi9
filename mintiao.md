@@ -1,59 +1,57 @@
-# Cyberstarts凭借Cyera项目斩获丰厚回报，拟募集新一期基金
+# 黄金小幅走低 因对通胀走高的担忧持续
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-在上周宣布完成 6 亿美元融资后，网络安全初创企业 Cyera 投后估值达到 120 亿美元，足以看出资本市场对这家聚焦人工智能赛道的网安企业抱有极高投资热情。这家成立五年的公司主打企业数据防护软件，可抵御黑客借助性能日益强大的人工智能工具发起的攻击，此前 Anthropic 也曾针对其 Mythos 大模型具备的网络攻击能力发出安全警示，侧面印证了该类威胁的现实性。 对于风投
+在亚洲早盘交易中，黄金小幅走低，因美国和伊朗冲突导致原油价格上涨，引发了对通胀走高的持续担忧。现货黄金下跌0.2%，报每盎司4，696.93美元。XS.com的高级市场分析师Samer Hasn在一封电子邮件中表示：“美国和伊朗之间缺乏一项明确的和平条约或清晰的外交路线图，已使霍尔木兹海峡和海湾地区的能源资产陷入战略瘫痪。“这位高级市场分析师补充说，这“迫使黄金因对利率将长期走
 
 ## 正文
 
-在上周宣布完成 6 亿美元融资后，网络安全初创企业 Cyera 投后估值达到 120 亿美元，足以看出资本市场对这家聚焦人工智能赛道的网安企业抱有极高投资热情。
+在亚洲早盘交易中，黄金小幅走低，因美国和伊朗冲突导致原油价格上涨，引发了对通胀走高的持续担忧。
 
-这家成立五年的公司主打企业数据防护软件，可抵御黑客借助性能日益强大的人工智能工具发起的攻击，此前 Anthropic 也曾针对其 Mythos 大模型具备的网络攻击能力发出安全警示，侧面印证了该类威胁的现实性。
+现货黄金下跌0.2%，报每盎司4，696.93美元。
 
-对于风投基金 Cyberstarts 而言，继去年从 Wiz 项目实现大额退出后，本次 Cyera 融资再次为其增添亮眼投资战绩。
+XS.com的高级市场分析师Samer Hasn在一封电子邮件中表示：“美国和伊朗之间缺乏一项明确的和平条约或清晰的外交路线图，已使霍尔木兹海峡和海湾地区的能源资产陷入战略瘫痪。
 
-五年前，该基金向 Cyera 开出首轮 420 万美元种子轮投资，彼时企业估值仅 1500 万美元。
+“这位高级市场分析师补充说，这“迫使黄金因对利率将长期走高的担忧而回吐涨幅“。
 
-Cyberstarts 创始人吉利・拉安南表示，账面测算下来，这笔初始投资的回报倍率已经超过 224 倍。
+利率上升通常会削弱这种不计息贵金属的吸引力。
 
-加上后续多轮追加投资，该机构持有 Cyera 股权的总市值现已突破 12 亿美元。
-
-亮眼的投资业绩，将助力 Cyberstarts 为旗下第八期基金募资。
-
-据知情人士透露，这家投资机构计划募集规模约 6000 万美元的种子基金。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 06:06 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 06:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 06:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 06:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:14 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 06:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 06:01 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 06:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 06:11 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 06:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 06:05 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 06:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 06:15 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 06:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 06:17 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 06:30 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 06:20 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 06:10 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:19 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 06:32 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 06:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 06:27 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 06:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:25 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 06:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 06:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/595010.shtml)
-- 2026-06-30 06:02 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/4843001.shtml)
-- 2026-06-30 06:03 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/720386.shtml)
-- 2026-06-30 06:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/41269491914.shtml)
-- 2026-06-30 06:09 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/79378626.shtml)
-- 2026-06-30 06:14 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/8658952.shtml)
-- 2026-06-30 06:26 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/844351797245.shtml)
-- 2026-06-30 06:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/180320775.shtml)
-- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/106916.shtml)
-- 2026-06-30 06:26 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/392741595027.shtml)
-- 2026-06-30 06:24 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/4701417.shtml)
-- 2026-06-30 06:21 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/745450057264.shtml)
-- 2026-06-30 06:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/002061.shtml)
-- 2026-06-30 06:05 - [流金岁月](https://www.blog.minike.top/Article/details/26803961690.shtml)
-- 2026-06-30 06:15 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/022918663212.shtml)
+- 2026-06-30 06:29 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/417754656566.shtml)
+- 2026-06-30 06:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/5449276.shtml)
+- 2026-06-30 06:30 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/7601024380.shtml)
+- 2026-06-30 06:10 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/643666142639.shtml)
+- 2026-06-30 06:31 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/126251.shtml)
+- 2026-06-30 06:31 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/809711505480.shtml)
+- 2026-06-30 06:09 - [请回答王牌2019](https://www.blog.minike.top/Article/details/440386.shtml)
+- 2026-06-30 06:35 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/1906452.shtml)
+- 2026-06-30 06:31 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/20736.shtml)
+- 2026-06-30 06:23 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/8469525025.shtml)
+- 2026-06-30 06:18 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/943327.shtml)
+- 2026-06-30 06:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/230946845.shtml)
+- 2026-06-30 06:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/21710.shtml)
+- 2026-06-30 06:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/3311943885.shtml)
+- 2026-06-30 06:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/37737.shtml)

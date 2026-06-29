@@ -1,53 +1,59 @@
-# 明讯银行CEO Philip BROWN：中国成功建成了全球第二大资本市场，投资市场越来越透明
+# “国货一哥”净利连续三年下滑！香港“抄底”买楼被套拖累至今
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，明讯银行有限公司首席执行官Philip BROWN出席“全体大会三：建立健全功能完善的资本市场”并发言。 Philip BROWN表示，看看中国过去所取得的发展成就：成功建成了全球第二大资本市场，而且有越来越大的市场发展，比如熊猫债、点心债等。我们在中国已经合作了差不多三十多年，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 在“体操王子”的带领下，李宁（02331.HK）的营业收入逐年上升，并于2025年达到了历史新高——接近人民币300亿元。但是，公司的归母净利润却连续第三年下滑，呈现出“增收不增利”的尴尬。 这一切，都要归因于2023年底的那个错误决定。 连续三年归母净利润同比下滑 4月22日，李宁发布了20
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛召开 ，明讯银行有限公司首席执行官Philip BROWN出席“全体大会三：建立健全功能完善的资本市场”并发言。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Philip BROWN表示，看看中国过去所取得的发展成就：成功建成了全球第二大资本市场，而且有越来越大的市场发展，比如熊猫债、点心债等。
+来源：财通社 在“体操王子”的带领下，李宁（02331.HK）的营业收入逐年上升，并于2025年达到了历史新高——接近人民币300亿元。
 
-我们在中国已经合作了差不多三十多年，我们看到中国发展取得长足的进步。
+但是，公司的归母净利润却连续第三年下滑，呈现出“增收不增利”的尴尬。
 
-最大的改变之一是中国的投资市场越来越透明，客户群基础也是从比较小的客户基础增加到非常大的客户集群。
+这一切，都要归因于2023年底的那个错误决定。
 
-我们公司在全球110个公司都有业务，但是很少有国家能像中国有如此发展的债券市场和金融市场，有那么多客户。
+连续三年归母净利润同比下滑 4月22日，李宁发布了2025年年报。
 
-责任编辑：尉旖涵
+从营业收入来看，李宁已经正式向人民币300亿元大关发起冲刺：2025年达到人民币296亿元，较2024年的人民币286.8亿元同比增长3.22%，同时，这也是公司自2004年上市22年以来的历史最高纪录。
+
+毛利润方面也是继续增长，2025年达到人民币144.9亿元，较2024年的人民币141.6亿元同比增长2.35%。
+
+不过毛利率较2024年略有下降，从49.4%回落到49%。
 
 ## 相关推荐
 
-- 2026-06-30 06:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 06:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 06:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 06:05 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 06:24 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 06:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 06:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 06:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 06:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 06:01 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 06:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 06:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 06:17 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 06:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 06:30 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:28 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 06:14 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 06:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 06:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 06:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 06:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 06:15 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/29597369286.shtml)
-- 2026-06-30 06:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/8644322.shtml)
-- 2026-06-30 06:12 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/79099350092.shtml)
-- 2026-06-30 06:27 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/054023.shtml)
-- 2026-06-30 06:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/73282187131.shtml)
-- 2026-06-30 06:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/275910192.shtml)
-- 2026-06-30 06:00 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/37471913932.shtml)
-- 2026-06-30 06:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/792320304855.shtml)
-- 2026-06-30 06:02 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/04669233.shtml)
-- 2026-06-30 06:18 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/62083919297.shtml)
-- 2026-06-30 06:18 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/271226.shtml)
-- 2026-06-30 06:28 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/0077167887.shtml)
-- 2026-06-30 06:04 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/41264470288.shtml)
-- 2026-06-30 06:00 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/614625.shtml)
-- 2026-06-30 06:14 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/873532699982.shtml)
+- 2026-06-30 06:22 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/72189249.shtml)
+- 2026-06-30 06:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/48152.shtml)
+- 2026-06-30 06:11 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/652587433.shtml)
+- 2026-06-30 06:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/34026705690.shtml)
+- 2026-06-30 06:26 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/44482839309.shtml)
+- 2026-06-30 06:18 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/96654122.shtml)
+- 2026-06-30 06:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/01553.shtml)
+- 2026-06-30 06:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/393553.shtml)
+- 2026-06-30 06:17 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/56622002.shtml)
+- 2026-06-30 06:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/298500.shtml)
+- 2026-06-30 06:12 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/5640630936.shtml)
+- 2026-06-30 06:31 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/7948959889.shtml)
+- 2026-06-30 06:32 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/131661270.shtml)
+- 2026-06-30 06:34 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/93110.shtml)
+- 2026-06-30 06:26 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/3166973838.shtml)

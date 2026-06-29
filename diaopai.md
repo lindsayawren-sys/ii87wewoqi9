@@ -1,50 +1,50 @@
-# 瑞士携经典卡通形象Pingu首次亮相图博会
+# 以色列称已准备好重启与伊朗的战争
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。 据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。 此次
+总台记者获悉，以色列国防部长卡茨23日在形势评估结束时表示，以色列已做好重启与伊朗战争的准备，“只等美国的绿灯”。 卡茨称，以色列国防军已做好防御和进攻的准备，目标已经确定，目前“正在等待美国的绿灯”。他称，只要美国同意，以色列将刺杀伊朗新任最高领袖穆杰塔巴·哈梅内伊，并通过炸毁能源和电力设施、摧毁经济基础设施，让伊朗“重回黑暗和石器时代”。(总台记者 梁慧 李享）
 
 ## 正文
 
-发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。
+总台记者获悉，以色列国防部长卡茨23日在形势评估结束时表示，以色列已做好重启与伊朗战争的准备，“只等美国的绿灯”。
 
-据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。
+卡茨称，以色列国防军已做好防御和进攻的准备，目标已经确定，目前“正在等待美国的绿灯”。
 
-此次展览特别呈现了经典卡通形象企鹅家族(Pingu)的瑞士渊源——Pingu在中国广受欢迎，但其瑞士背景鲜为人知。
+他称，只要美国同意，以色列将刺杀伊朗新任最高领袖穆杰塔巴·哈梅内伊，并通过炸毁能源和电力设施、摧毁经济基础设施，让伊朗“重回黑暗和石器时代”。
 
-第32届北京国际图书博览会当天在国家会议中心开幕，这是瑞士首次参加图博会。
-
-(记者 张焕迪 制作 徐妙巧） 责任编辑：【李季】
+(总台记者 梁慧 李享）
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 06:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 06:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 06:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 06:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 06:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 06:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 06:16 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 06:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 06:12 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 06:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 06:24 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:20 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 06:17 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 06:25 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 06:19 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 06:25 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 06:21 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 06:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/81739175346.shtml)
-- 2026-06-30 06:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/673668143043.shtml)
-- 2026-06-30 06:03 - [日本领先巴西](https://www.blog.minike.top/Article/details/92155.shtml)
-- 2026-06-30 06:27 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/13998720.shtml)
-- 2026-06-30 06:28 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/16013.shtml)
-- 2026-06-30 06:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1264979413.shtml)
-- 2026-06-30 06:04 - [点菜也要教吗](http://www.share.minike.top/Article/details/79703802172.shtml)
-- 2026-06-30 06:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/631436.shtml)
-- 2026-06-30 06:24 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/42039501143.shtml)
-- 2026-06-30 06:06 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/999965266998.shtml)
-- 2026-06-30 06:01 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2737168804.shtml)
-- 2026-06-30 06:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/578710.shtml)
-- 2026-06-30 06:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/816823918.shtml)
-- 2026-06-30 06:22 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/04667874.shtml)
-- 2026-06-30 06:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/985650490427.shtml)
+- 2026-06-30 06:35 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/74533.shtml)
+- 2026-06-30 06:33 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/58157708.shtml)
+- 2026-06-30 06:06 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/40111.shtml)
+- 2026-06-30 06:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5267216129.shtml)
+- 2026-06-30 06:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/4439456839.shtml)
+- 2026-06-30 06:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/869345.shtml)
+- 2026-06-30 06:18 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/61264574.shtml)
+- 2026-06-30 06:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/34925350.shtml)
+- 2026-06-30 06:33 - [金刚川](http://www.share.kurohicncr.top/Article/details/56529519.shtml)
+- 2026-06-30 06:34 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/39236798.shtml)
+- 2026-06-30 06:30 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/1772751.shtml)
+- 2026-06-30 06:30 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/6418311.shtml)
+- 2026-06-30 06:30 - [美人鱼](https://www.share.minike.top/Article/details/5913248.shtml)
+- 2026-06-30 06:15 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/25609603.shtml)
+- 2026-06-30 06:06 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/837034845191.shtml)

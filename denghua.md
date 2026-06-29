@@ -1,58 +1,56 @@
-# 2026年宁夏全民数字素养与技能提升月正式启幕
+# 五一假期进山踏青 这份山火逃生指南请收好
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网银川6月17日电 (记者 李佩珊)6月17日，2026年宁夏全民数字素养与技能提升月启动仪式暨银川市“网络强村直播带货实训营”在宁夏农垦大厦举办。本次活动由宁夏党委网信办牵头，联合18个部门共同主办，活动以“数智赋能 全民共享”为主题，系列数字科普、技能培训活动将持续开展一个月，助力“数字宁夏”建设。 启动仪式上，宁夏党委网信办相关负责人表示，全民数字素养是区域数字化发展
+五一假期临近，很多游客假期里会进山踏青、亲近自然。国家森防指办公室、应急管理部近期督促各地做好五一假期期间森林草原火灾防控工作。总台记者近日在辽宁、山东走访时看到，当地正通过人防加技防等手段，加密火灾防控网。 建强空地装备 完善扑火救援力量体系 4月下旬，辽宁沈阳一场森林火灾扑救实战演练正在进行。演练模拟沈阳棋盘山突发火灾，扑火队员们利用无人机、高炮车等多种先进森林消防装备对火
 
 ## 正文
 
-中新网银川6月17日电 (记者 李佩珊)6月17日，2026年宁夏全民数字素养与技能提升月启动仪式暨银川市“网络强村直播带货实训营”在宁夏农垦大厦举办。
+五一假期临近，很多游客假期里会进山踏青、亲近自然。
 
-本次活动由宁夏党委网信办牵头，联合18个部门共同主办，活动以“数智赋能 全民共享”为主题，系列数字科普、技能培训活动将持续开展一个月，助力“数字宁夏”建设。
+国家森防指办公室、应急管理部近期督促各地做好五一假期期间森林草原火灾防控工作。
 
-启动仪式上，宁夏党委网信办相关负责人表示，全民数字素养是区域数字化发展的重要根基。
+总台记者近日在辽宁、山东走访时看到，当地正通过人防加技防等手段，加密火灾防控网。
 
-宁夏将以本次提升月为抓手，推动数字技术、线上资源下沉乡镇乡村，让民众切实享受数字发展带来的便利与增收红利。
+建强空地装备 完善扑火救援力量体系 4月下旬，辽宁沈阳一场森林火灾扑救实战演练正在进行。
 
-活动现场，葡萄酒企业、牛羊肉加工企业负责人与村党支部书记依次上台分享实践经历，讲述依托直播带货、线上运营拓宽农产品销路、带动村民增收致富的真实案例，赢得现场阵阵掌声。
+演练模拟沈阳棋盘山突发火灾，扑火队员们利用无人机、高炮车等多种先进森林消防装备对火势开展联合打击。
 
-本次提升月重点打造的“网络强村直播带货实训营”将在宁夏五市同步开课。
+总台央视记者 唐国荣：这是一套名叫朱雀的防灭火一体化无人机集群装备，每年到了防火紧要期，沈阳每周都会定期出动两台侦察无人机，对全市重点林区山头进行侦察，一旦发现有火情，它就会自动回传坐标。
 
-课程面向乡村从业者，涵盖直播基础操作、短视频内容策划、账号运营全流程教学，手把手指导村民运营线上电商，助力本地特色农产品走出乡村。
+遇到大火需要整编队出动的时候，10台红色灭火无人机就会挂载着500公斤的灭火弹，10分钟内完成起飞奔赴火场。
 
-提升月期间，市民可近距离沉浸式体验人工智能技术。
+机群的最大作战半径达10公里，单次的打击过火面积达1200平方米。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 06:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 06:13 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 06:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 06:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 06:09 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 06:27 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 06:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 06:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 06:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 06:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 06:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 06:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 06:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 06:14 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 06:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 06:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 06:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 06:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 06:22 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 06:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/980947.shtml)
-- 2026-06-30 06:03 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/704497.shtml)
-- 2026-06-30 06:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/6253662.shtml)
-- 2026-06-30 06:03 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/73598076.shtml)
-- 2026-06-30 06:12 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/446043815.shtml)
-- 2026-06-30 06:15 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/82605449675.shtml)
-- 2026-06-30 06:21 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/00219.shtml)
-- 2026-06-30 06:19 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/87383230.shtml)
-- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/656172713.shtml)
-- 2026-06-30 06:13 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/790592977526.shtml)
-- 2026-06-30 06:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/47827110.shtml)
-- 2026-06-30 06:23 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/96865600.shtml)
-- 2026-06-30 06:21 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/99595.shtml)
-- 2026-06-30 06:28 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/85094372.shtml)
-- 2026-06-30 06:24 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/081969.shtml)
+- 2026-06-30 06:27 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/029099.shtml)
+- 2026-06-30 06:32 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/09844.shtml)
+- 2026-06-30 06:29 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/966781.shtml)
+- 2026-06-30 06:33 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/26423.shtml)
+- 2026-06-30 06:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/083346.shtml)
+- 2026-06-30 06:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/708890132758.shtml)
+- 2026-06-30 06:13 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/9214395.shtml)
+- 2026-06-30 06:06 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/1456261.shtml)
+- 2026-06-30 06:08 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/9308247.shtml)
+- 2026-06-30 06:33 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/6394797.shtml)
+- 2026-06-30 06:15 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/657143060.shtml)
+- 2026-06-30 06:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/674608874.shtml)
+- 2026-06-30 06:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/6174740646.shtml)
+- 2026-06-30 06:08 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/62627138453.shtml)
+- 2026-06-30 06:29 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/3560781543.shtml)

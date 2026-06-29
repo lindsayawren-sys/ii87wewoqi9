@@ -1,56 +1,52 @@
-# 交通银行行长张宝江：传统普惠贷款的“不可能三角”通过数字技术有可能解决
+# 中信证券：百果园集团上调至“买入”评级 目标价2.90港元
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。交通银行行长张宝江出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。 谈及小微企业的风控问题，张宝江表示，这个问题很难回避，需要依托数据赋能来解决。传统的普惠贷款有一个“不可能三角”，可得性、低成本和高质量三者不可兼得。对接客户需求时，成本非常高，如果好好对
+中信证券发布研报称，展望2026年，随着百果园集团（02411）门店重回扩张，AI赋能降本，2B业务和“水果+零食”新业态拓展，公司有望重回增长。该行认为2026-2027年投资主线已从“还能不能活下来”切换至“利润能修复多快，估值能切换多远”，估值中枢有望快速上移。该行维持公司2026年EPS 预测0.01元，并增加2027-2028年EPS预测为0.09/0.12元。考虑公
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。
+中信证券发布研报称，展望2026年，随着百果园集团（02411）门店重回扩张，AI赋能降本，2B业务和“水果+零食”新业态拓展，公司有望重回增长。
 
-交通银行行长张宝江出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。
+该行认为2026-2027年投资主线已从“还能不能活下来”切换至“利润能修复多快，估值能切换多远”，估值中枢有望快速上移。
 
-谈及小微企业的风控问题，张宝江表示，这个问题很难回避，需要依托数据赋能来解决。
+该行维持公司2026年EPS 预测0.01元，并增加2027-2028年EPS预测为0.09/0.12元。
 
-传统的普惠贷款有一个“不可能三角”，可得性、低成本和高质量三者不可兼得。
+考虑公司正积极探索跨品类的业务组合调整，该行给予公司2026年1.7倍PB，对应目标价2.9港元，上调至“买入”评级。
 
-对接客户需求时，成本非常高，如果好好对接、好好调查，成本很高；如果潦草地做，风险控不住。
-
-不管是成本高还是风险控不住，最终都会影响可得性。
-
-通过数字技术，有可能解决这个问题。
-
-责任编辑：王馨茹
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:05 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 06:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 06:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 06:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 06:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 06:01 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 06:17 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 06:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 06:18 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 06:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 06:21 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 06:16 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 06:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 06:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 06:09 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 06:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 06:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 06:12 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 06:19 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 06:32 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 06:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/6586278.shtml)
-- 2026-06-30 06:02 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/9427611.shtml)
-- 2026-06-30 06:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/687967.shtml)
-- 2026-06-30 06:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/011499701.shtml)
-- 2026-06-30 06:06 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/085514380.shtml)
-- 2026-06-30 06:25 - [《贺子珍》](https://www.blog.minike.top/Article/details/92738.shtml)
-- 2026-06-30 06:25 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/722843719635.shtml)
-- 2026-06-30 06:07 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/941797272.shtml)
-- 2026-06-30 06:10 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/8835585.shtml)
-- 2026-06-30 06:17 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/778805011293.shtml)
-- 2026-06-30 06:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/547111729467.shtml)
-- 2026-06-30 06:00 - [起风了](http://www.blog.kurohicncr.top/Article/details/61782577019.shtml)
-- 2026-06-30 06:04 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/705684232553.shtml)
-- 2026-06-30 06:14 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/36221999.shtml)
-- 2026-06-30 06:06 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/296791.shtml)
+- 2026-06-30 06:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/6915775316.shtml)
+- 2026-06-30 06:27 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/31071810187.shtml)
+- 2026-06-30 06:33 - [《共患难》](http://www.share.kurohicncr.top/Article/details/11318379.shtml)
+- 2026-06-30 06:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/23152.shtml)
+- 2026-06-30 06:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/03379.shtml)
+- 2026-06-30 06:14 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/3191935.shtml)
+- 2026-06-30 06:33 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/70735382.shtml)
+- 2026-06-30 06:32 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/397924502.shtml)
+- 2026-06-30 06:17 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/45440030.shtml)
+- 2026-06-30 06:31 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/25493550.shtml)
+- 2026-06-30 06:09 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/1835572.shtml)
+- 2026-06-30 06:31 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/773989095.shtml)
+- 2026-06-30 06:22 - [沉睡花园](http://www.blog.minike.top/Article/details/66961959.shtml)
+- 2026-06-30 06:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/43887.shtml)
+- 2026-06-30 06:11 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/375564965.shtml)

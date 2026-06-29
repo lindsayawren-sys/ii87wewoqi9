@@ -1,61 +1,59 @@
-# 盛达资源（000603）投资者索赔分析
+# 美国航空CEO称与美联航合并“对消费者不利”
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日，盛达资源（维权）（000603）发布公告，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案调查。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法
+核心要点 美国航空首席执行官罗伯特・艾索姆表示，与竞争对手美联航的潜在合并将损害消费者利益，且违背市场竞争原则。 据知情人士透露，今年早些时候，美联航 CEO 斯科特・柯比曾向特朗普政府一名官员提议与美国航空合并，旨在打造全球扩张版图，以抗衡其他国际航空公司。 “将全球两家最大的航空公司合并，这从一开始就毫无可行性，” 艾索姆在公司公布一季度财报后，于周四接受 CNBC 记者菲
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日，盛达资源（维权）（000603）发布公告，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案调查。
+核心要点 美国航空首席执行官罗伯特・艾索姆表示，与竞争对手美联航的潜在合并将损害消费者利益，且违背市场竞争原则。
 
-部分股民或许存在索赔机会。
+据知情人士透露，今年早些时候，美联航 CEO 斯科特・柯比曾向特朗普政府一名官员提议与美国航空合并，旨在打造全球扩张版图，以抗衡其他国际航空公司。
 
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
+“将全球两家最大的航空公司合并，这从一开始就毫无可行性，” 艾索姆在公司公布一季度财报后，于周四接受 CNBC 记者菲尔・勒博采访时表示，“归根结底，这桩合并只会被视为违背竞争原则、损害消费者利益，最终也对美国航空、对我们的团队不利。
 
-（徐劲律师专栏） 暂定索赔条件： 在2026年6月15日之前买入，并在2026年6月16日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
+” 艾索姆拒绝透露美联航是否向美国航空正式提出过合并问询。
 
-（盛达资源维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
+“我不会谈论细节，” 他说。
 
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
+上周五，美国航空发表声明称，“公司未就与美联航合并事宜开展任何磋商，亦对此毫无兴趣。
 
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
+” 本周早些时候，唐纳德・特朗普总统表示反对该合并计划。
 
-） 责任编辑：韦子蓉
+“我不希望它们合并，” 他周二上午在 CNBC《 Squawk Box》节目中表示。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 06:20 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 06:02 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 06:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 06:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 06:24 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 06:00 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 06:26 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:26 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:05 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 06:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 06:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 06:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 06:11 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:20 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 06:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 06:31 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 06:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 06:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 06:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 06:35 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 06:28 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 06:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/33888.shtml)
-- 2026-06-30 06:16 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/467799.shtml)
-- 2026-06-30 06:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/50415424292.shtml)
-- 2026-06-30 06:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/90166265.shtml)
-- 2026-06-30 06:29 - [千与千寻](https://www.share.kurohicncr.top/Article/details/681226.shtml)
-- 2026-06-30 06:04 - [日本领先巴西](https://www.share.minike.top/Article/details/233521299445.shtml)
-- 2026-06-30 06:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/219602.shtml)
-- 2026-06-30 06:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/146844187.shtml)
-- 2026-06-30 06:01 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/069312518.shtml)
-- 2026-06-30 06:20 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/517559802.shtml)
-- 2026-06-30 06:10 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/702404.shtml)
-- 2026-06-30 06:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/89783307377.shtml)
-- 2026-06-30 06:27 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/59391.shtml)
-- 2026-06-30 06:02 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/990656756662.shtml)
-- 2026-06-30 06:00 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/04952.shtml)
+- 2026-06-30 06:26 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/004554492000.shtml)
+- 2026-06-30 06:31 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/18366316489.shtml)
+- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/569265750588.shtml)
+- 2026-06-30 06:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/48609412.shtml)
+- 2026-06-30 06:13 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/633464183.shtml)
+- 2026-06-30 06:15 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/10573.shtml)
+- 2026-06-30 06:25 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/553529408202.shtml)
+- 2026-06-30 06:24 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/11358132693.shtml)
+- 2026-06-30 06:10 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/43549559.shtml)
+- 2026-06-30 06:24 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/6200156.shtml)
+- 2026-06-30 06:31 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/2812758.shtml)
+- 2026-06-30 06:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/601234.shtml)
+- 2026-06-30 06:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/688265.shtml)
+- 2026-06-30 06:21 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/990188.shtml)
+- 2026-06-30 06:25 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/762599049690.shtml)

@@ -1,61 +1,55 @@
-# 超300款AI产品将全球首发 2026世界人工智能大会抢先看
+# 常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-今天(6月17日)，2026世界人工智能大会暨人工智能全球治理高级别会议举行倒计时30天发布会。今年的大会以“智能伙伴，共创未来”为主题，将于7月17日至20日举办，由外交部、科技部、工信部等10个部门与上海市政府共同主办。本届大会首次创办高水平国际学术会议“WAIC Academic”。图灵奖得主姚期智担任大会主席，“强化学习之父”理查德·萨顿任国际联席主席。会议已收到来自1
+4月23日金融一线消息，常熟银行发布2025年年度报告。报告期内，集团实现营业收入116.19亿元，同比增长6.51%；实现归属于上市公司股东的净利 润42.19亿元，同比增长10.65%；总资产收益率（ROA）1.16%，加权平均净资产收益率（ROE）14.05%；成本收入 比35.66%，同比下降0.96个百分点。净息差2.53%，保持行业较好水平。 报告期末，集团贷款不良
 
 ## 正文
 
-今天(6月17日)，2026世界人工智能大会暨人工智能全球治理高级别会议举行倒计时30天发布会。
+4月23日金融一线消息，常熟银行发布2025年年度报告。
 
-今年的大会以“智能伙伴，共创未来”为主题，将于7月17日至20日举办，由外交部、科技部、工信部等10个部门与上海市政府共同主办。
+报告期内，集团实现营业收入116.19亿元，同比增长6.51%；实现归属于上市公司股东的净利 润42.19亿元，同比增长10.65%；总资产收益率（ROA）1.16%，加权平均净资产收益率（ROE）14.05%；成本收入 比35.66%，同比下降0.96个百分点。
 
-本届大会首次创办高水平国际学术会议“WAIC Academic”。
+净息差2.53%，保持行业较好水平。
 
-图灵奖得主姚期智担任大会主席，“强化学习之父”理查德·萨顿任国际联席主席。
+报告期末，集团贷款不良率0.76%，其中企业贷款不良率0.55%；集团拨备覆盖率451.25%。
 
-会议已收到来自11个国家和地区的284篇有效投稿，覆盖普林斯顿、剑桥、清华等高校，录用论文将由斯普林格出版。
-
-大会还设立了“WAIC Future Tech”初创专区，从全球千余个项目中筛选出160个，入选率不足13%，并配套超过200位投资人参与的专属资本对接。
-
-发布会上揭晓了2026年卓越人工智能引领者奖(SAIL奖)TOP30榜单。
-
-本届共收到230个有效申报项目，海外项目占14.3%，覆盖智能体、算力芯片、具身智能等领域。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 06:26 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 06:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 06:26 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 06:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 06:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 06:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 06:08 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 06:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 06:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 06:21 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 06:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 06:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 06:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 06:34 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 06:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 06:35 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:29 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 06:07 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 06:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 06:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 06:34 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 06:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 06:15 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 06:23 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 06:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 06:17 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 06:28 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/920157418296.shtml)
-- 2026-06-30 06:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/8974128690.shtml)
-- 2026-06-30 06:03 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/49041.shtml)
-- 2026-06-30 06:15 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/733821381.shtml)
-- 2026-06-30 06:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/2783398824.shtml)
-- 2026-06-30 06:10 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/489777074.shtml)
-- 2026-06-30 06:06 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/21223870.shtml)
-- 2026-06-30 06:25 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/76367834767.shtml)
-- 2026-06-30 06:24 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/449162.shtml)
-- 2026-06-30 06:11 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/88273.shtml)
-- 2026-06-30 06:27 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/49580661625.shtml)
-- 2026-06-30 06:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/0241969160.shtml)
-- 2026-06-30 06:13 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/16305545.shtml)
-- 2026-06-30 06:12 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/73561246112.shtml)
-- 2026-06-30 06:19 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/267872.shtml)
+- 2026-06-30 06:06 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/8234465.shtml)
+- 2026-06-30 06:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/852011.shtml)
+- 2026-06-30 06:12 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2199171231.shtml)
+- 2026-06-30 06:10 - [刘念回应](http://www.share.minike.top/Article/details/49443614.shtml)
+- 2026-06-30 06:18 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/23598492739.shtml)
+- 2026-06-30 06:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/92976941.shtml)
+- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/775227523606.shtml)
+- 2026-06-30 06:31 - [森保一 保守](http://www.blog.minike.top/Article/details/354420.shtml)
+- 2026-06-30 06:07 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/67034603975.shtml)
+- 2026-06-30 06:12 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/271285.shtml)
+- 2026-06-30 06:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/752007.shtml)
+- 2026-06-30 06:23 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/7028299.shtml)
+- 2026-06-30 06:21 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/1778595.shtml)
+- 2026-06-30 06:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/926992063017.shtml)
+- 2026-06-30 06:20 - [天道](https://www.blog.minike.top/Article/details/124256.shtml)

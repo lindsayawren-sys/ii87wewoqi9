@@ -1,58 +1,59 @@
-# 陕西延川：“菜单”说事暖民心 精准服务解民忧
+# 国际顶尖山地赛事首次亮相北京 全球500名选手长城竞速
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网陕西延川6月17日电 (记者 阿琳娜)“我们努力做到让民众‘只进一扇门，解决百家事’。”延川县委常委、政法委书记韩永星接受采访时表示，延川县社会治安综合治理中心将群众说事、法律援助、法治宣传等工作统一归集，打造“一站式”社会治安综合治理平台。 近年来，延川县把县镇村综治中心建设成为为民众解决问题的“餐厅”，把其中的“群众说事室”打造为标准化的议事“包间”，当民众遇到矛盾纠
+中新网北京4月25日电 北京康养2026山地跑世界杯中国·北京昌平站uphill爬坡赛25日在居庸关长城鸣笛开跑。作为该项国际顶尖山地赛事落户北京后的首场较量，来自全球19个国家和地区的500名山地跑选手，在巍峨长城之上展开速度与耐力的极限比拼，用奔跑对话世界文化遗产精髓与千年历史建筑美学。 2026年全球赛历中，山地跑世界杯横跨三大洲，将在10个国家共举办16场比赛，中国·北
 
 ## 正文
 
-中新网陕西延川6月17日电 (记者 阿琳娜)“我们努力做到让民众‘只进一扇门，解决百家事’。
+中新网北京4月25日电 北京康养2026山地跑世界杯中国·北京昌平站uphill爬坡赛25日在居庸关长城鸣笛开跑。
 
-”延川县委常委、政法委书记韩永星接受采访时表示，延川县社会治安综合治理中心将群众说事、法律援助、法治宣传等工作统一归集，打造“一站式”社会治安综合治理平台。
+作为该项国际顶尖山地赛事落户北京后的首场较量，来自全球19个国家和地区的500名山地跑选手，在巍峨长城之上展开速度与耐力的极限比拼，用奔跑对话世界文化遗产精髓与千年历史建筑美学。
 
-近年来，延川县把县镇村综治中心建设成为为民众解决问题的“餐厅”，把其中的“群众说事室”打造为标准化的议事“包间”，当民众遇到矛盾纠纷时可以采取“点餐”与“送餐”相结合的办法，选择自己信任的说事员利用“餐厅”“包间”进行说事调解。
+2026年全球赛历中，山地跑世界杯横跨三大洲，将在10个国家共举办16场比赛，中国·北京昌平站是本年度亚洲区唯一一站山地跑世界杯赛事。
 
-“杂物堆积、拖欠租金、房屋渗水、拖欠暖气费……我们调处的案件中，有不少这样看似琐碎，但与民众日常生活息息相关的事情。
+同时，这也是山地跑世界杯第一次来到中国北京。
 
-”延川县社会治安综合治理中心说事员魏宏举说，通过用心办好每一件民生小事，一步步赢得了民众的信任与肯定。
+随着发令汽笛鸣响，比赛在居庸关长城开跑，uphill爬坡赛迎来了新赛季全球首秀。
 
-据了解，延川县整合乡村干部、“三官一律”、代表委员、乡贤能人、人民调解员、法律明白人、文明志愿者等工作力量，编制出集基本情况、个人身份、擅长领域、联系方式等信息为一体的开放式说事员“菜单”，通过线上线下相结合的方式向全社会公开。
+以长城为赛道，全程爬升，对选手的爆发力、核心力量与节奏控制提出极高要求。
 
-采访当天，记者遇到前来寻求魏宏举帮助的郝女士。
+经过激烈角逐，来自意大利的伊萨科·科斯塔以22分31秒获得男子组冠军，女子组冠军则被瑞士名将莫德·马蒂斯以26分13秒摘得。
 
-谈及调处服务，她连连点赞：“之前魏调解员帮我家解决过两件烦心事，办事专业、耐心细致，还能设身处地为我们老百姓着想，我特别信赖他。
+中国选手在比赛中也展示了不俗的实力。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:02 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 06:17 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 06:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 06:02 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 06:29 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 06:22 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 06:04 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 06:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 06:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:17 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:08 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 06:19 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 06:10 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 06:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 06:15 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:23 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 06:07 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 06:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:09 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 06:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 06:33 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:28 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/936458.shtml)
-- 2026-06-30 06:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/001461176.shtml)
-- 2026-06-30 06:01 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/53487009363.shtml)
-- 2026-06-30 06:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/860937.shtml)
-- 2026-06-30 06:24 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/88095.shtml)
-- 2026-06-30 06:10 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/095633150022.shtml)
-- 2026-06-30 06:21 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/75437176.shtml)
-- 2026-06-30 06:16 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/4500279.shtml)
-- 2026-06-30 06:04 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/53173750169.shtml)
-- 2026-06-30 06:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/98402186.shtml)
-- 2026-06-30 06:21 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/26308.shtml)
-- 2026-06-30 06:23 - [一生一世](https://www.share.minike.top/Article/details/30229120128.shtml)
-- 2026-06-30 06:10 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/25625.shtml)
-- 2026-06-30 06:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/010797520.shtml)
-- 2026-06-30 06:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/83168736.shtml)
+- 2026-06-30 06:15 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/629199188739.shtml)
+- 2026-06-30 06:25 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/089028364.shtml)
+- 2026-06-30 06:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/693073036.shtml)
+- 2026-06-30 06:13 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/8936391984.shtml)
+- 2026-06-30 06:18 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/3137201605.shtml)
+- 2026-06-30 06:34 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/89816573567.shtml)
+- 2026-06-30 06:21 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/221997.shtml)
+- 2026-06-30 06:08 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/95007664.shtml)
+- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/24697.shtml)
+- 2026-06-30 06:15 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/44355714.shtml)
+- 2026-06-30 06:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/435638887.shtml)
+- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/22488664585.shtml)
+- 2026-06-30 06:22 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/96567617.shtml)
+- 2026-06-30 06:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/16654.shtml)
+- 2026-06-30 06:09 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/49544.shtml)

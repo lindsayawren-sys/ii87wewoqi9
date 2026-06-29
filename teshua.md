@@ -1,52 +1,52 @@
-# #AI支付#上热搜 网友：辛辛苦苦赚点钱就是给自己花的，没必要AI花
+# 中国作家协会副主席：家长是孩子最好的“书”
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。 据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。 不
+发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这
 
 ## 正文
 
-6月17日金融一线消息，#AI支付#话题登上微博热搜，引发网友热议。
+发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。
 
-据悉，2026年6月中旬，微信和支付宝几乎同步亮出“AI支付”的底牌。
+“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。
 
-6月17日，微信支付正式发布“AI专属卡”，该功能内嵌于微信零钱体系，专门适配各类AI智能体支付场景；AI版支付宝“阿宝”也于近日启动邀请测试，将首页升级为原生AI对话界面，支持用户右滑进入，通过一句话完成打车、挂号、转账等上万种服务。
+中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。
 
-不少网友质疑AI支付的必要性，有网友直言：“辛辛苦苦赚点钱就是给自己花的，没必要AI花”，还有网友打趣称该功能没必要，“除非花的钱是AI的不是我的”。
+(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这样的时候，如果我们家长们，要让自己的孩子爱读书，最好的办法是让自己成为一本“书”。
 
-另有不少网友补充，“目前还没想到什么让AI帮我花钱的需求”，“啥时候出一个AI赚钱”。
-
-责任编辑：王馨茹
+责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 06:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 06:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 06:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 06:18 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:04 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 06:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 06:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 06:17 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 06:26 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 06:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 06:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 06:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:24 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 06:34 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 06:11 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 06:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:10 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 06:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/48233612758.shtml)
-- 2026-06-30 06:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/5301697704.shtml)
-- 2026-06-30 06:16 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/1435279.shtml)
-- 2026-06-30 06:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/38634.shtml)
-- 2026-06-30 06:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/983122127363.shtml)
-- 2026-06-30 06:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/38219.shtml)
-- 2026-06-30 06:11 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2198060649.shtml)
-- 2026-06-30 06:23 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/921113582.shtml)
-- 2026-06-30 06:18 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/55871.shtml)
-- 2026-06-30 06:19 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/142519308036.shtml)
-- 2026-06-30 06:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/223103882238.shtml)
-- 2026-06-30 06:07 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/415216.shtml)
-- 2026-06-30 06:14 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/7789254853.shtml)
-- 2026-06-30 06:08 - [锐评T1零封KC](http://www.share.minike.top/Article/details/0022923.shtml)
-- 2026-06-30 06:00 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/9593955.shtml)
+- 2026-06-30 06:11 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/0227269873.shtml)
+- 2026-06-30 06:22 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/2941750.shtml)
+- 2026-06-30 06:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/46780386.shtml)
+- 2026-06-30 06:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/7270755.shtml)
+- 2026-06-30 06:10 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/4295242453.shtml)
+- 2026-06-30 06:30 - [日本进球](http://www.share.kurohicncr.top/Article/details/2375440596.shtml)
+- 2026-06-30 06:09 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/40369.shtml)
+- 2026-06-30 06:08 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/180974388.shtml)
+- 2026-06-30 06:16 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/155055.shtml)
+- 2026-06-30 06:24 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/95342753.shtml)
+- 2026-06-30 06:21 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/9845653.shtml)
+- 2026-06-30 06:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/846604.shtml)
+- 2026-06-30 06:09 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/103197593.shtml)
+- 2026-06-30 06:13 - [周生如故](http://www.share.kurohicncr.top/Article/details/98950.shtml)
+- 2026-06-30 06:12 - [刘念回应](http://www.share.minike.top/Article/details/7285737.shtml)

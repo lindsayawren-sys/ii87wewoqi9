@@ -1,58 +1,61 @@
-# 追觅推进战略优化，聚焦主业提质增效
+# 中国铝业一季度净利润同比增超56%，市值同比接近翻番
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-全球科技创新风起云涌，中国科技企业成长路径正在发生深刻变革。近日，追觅科技传出战略调整消息：未来将全面聚焦智能清洁、全屋智能、智慧出行、具身智能四大核心赛道；同时，将手机、汽车等业务转为研究院形式保留。这一“进”与“退”的战略取舍，不仅是一家高成长企业的自我迭代，更是中国科技制造迈向高质量发展的生动缩影。 在商业世界中，面向前沿领域的试错与探索，是一种极具活力的行为。面对百年未
+4月23日晚间，有色金属央企上市龙头中国铝业股份有限公司（下称“中国铝业”，601600.SH/02600.HK）发布2026年第一季度报告，公司今年一季度营收为584.94亿元，和上年同期相比（同比）增加4.85%；归属于上市公司股东的净利润为55.27亿元，同比增加56.35%。 公司经营活动产生的现金流量净额为108.81亿元，同比增加73.84%；资产负债率43.27%
 
 ## 正文
 
-全球科技创新风起云涌，中国科技企业成长路径正在发生深刻变革。
+4月23日晚间，有色金属央企上市龙头中国铝业股份有限公司（下称“中国铝业”，601600.SH/02600.HK）发布2026年第一季度报告，公司今年一季度营收为584.94亿元，和上年同期相比（同比）增加4.85%；归属于上市公司股东的净利润为55.27亿元，同比增加56.35%。
 
-近日，追觅科技传出战略调整消息：未来将全面聚焦智能清洁、全屋智能、智慧出行、具身智能四大核心赛道；同时，将手机、汽车等业务转为研究院形式保留。
+公司经营活动产生的现金流量净额为108.81亿元，同比增加73.84%；资产负债率43.27%，较期初下降2.74个百分点，财务结构持续优化。
 
-这一“进”与“退”的战略取舍，不仅是一家高成长企业的自我迭代，更是中国科技制造迈向高质量发展的生动缩影。
+中国铝业方面表示，一季度公司充分发挥全产业链优势，以极致经营理念深挖降本增效潜力，各项生产经营指标持续优化，实现首季“开门红”，经营业绩再创历史同期最好水平。
 
-在商业世界中，面向前沿领域的试错与探索，是一种极具活力的行为。
+从主要产品产销来看，中国铝业一季度冶金级氧化铝产量为405万吨，同比减少9.60%；自产冶金氧化铝外销量为142万吨，同比减少15.48%；原铝产量为201万吨，同比增加3.61%；自产原铝外销量为197万吨，同比增加3.68%；煤炭产量为287万吨，同比减少10.87%；外售电厂销售量为45亿kWh。
 
-面对百年未有之大变局，在全球市场寻找新增量，彰显了中国创业者的敏锐与魄力。
+中国铝业提到，一季度公司主营产品产能保持稳产满产，资源端自采矿比率进一步提高，矿石、氧化铝、电解铝内部配套率更趋优化，供应链韧性持续增强；深化铝产品集中销售改革，“两金”占用稳步下降，存货管理进一步优化，市场竞争力显著提升。
 
-这种探索所沉淀的技术底座、供应链经验与全球化视野，早已转化为中国企业全球化进程中的宝贵经验。
+值得关注的是，得益于供应端的刚性约束和需求端的结构性增长。
 
-事实证明，强健的“基本盘”是企业敢于调整的底气。
+全球铝价目前处于上行通道中。
 
-今年一季度，追觅扫地机器人获得全球销量和销额冠军；5月，追觅吹风机中国区销售额同比增长506%；今年1月-5月，追觅割草机器人销额环比增长240%。
+去年，中国铝业已创下历史最优业绩，归属于上市公司股东的净利润为126.74亿元，同比增长2.25%。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 06:01 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 06:26 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 06:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:02 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 06:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 06:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 06:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 06:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 06:16 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 06:19 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:27 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 06:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 06:12 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 06:35 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:06 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 06:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:31 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 06:23 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 06:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 06:17 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 06:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:16 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/81518258.shtml)
-- 2026-06-30 06:24 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/23246.shtml)
-- 2026-06-30 06:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/432850973.shtml)
-- 2026-06-30 06:18 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1140876.shtml)
-- 2026-06-30 06:14 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/86426.shtml)
-- 2026-06-30 06:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/9470838.shtml)
-- 2026-06-30 06:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/476264.shtml)
-- 2026-06-30 06:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/43859554.shtml)
-- 2026-06-30 06:08 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/112996778.shtml)
-- 2026-06-30 06:07 - [千香](https://www.blog.kurohicncr.top/Article/details/894935009055.shtml)
-- 2026-06-30 06:25 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/29790353771.shtml)
-- 2026-06-30 06:26 - [月亮](http://www.share.kurohicncr.top/Article/details/1920875.shtml)
-- 2026-06-30 06:00 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/9881750370.shtml)
-- 2026-06-30 06:07 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/860285522.shtml)
-- 2026-06-30 06:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/4120528.shtml)
+- 2026-06-30 06:20 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/098623.shtml)
+- 2026-06-30 06:06 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/4500603.shtml)
+- 2026-06-30 06:08 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4689633.shtml)
+- 2026-06-30 06:28 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/610811551.shtml)
+- 2026-06-30 06:22 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7847058414.shtml)
+- 2026-06-30 06:07 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/65423880738.shtml)
+- 2026-06-30 06:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/601497606136.shtml)
+- 2026-06-30 06:21 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/447680.shtml)
+- 2026-06-30 06:20 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/798368.shtml)
+- 2026-06-30 06:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/3069290.shtml)
+- 2026-06-30 06:17 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/051836711621.shtml)
+- 2026-06-30 06:32 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/21860.shtml)
+- 2026-06-30 06:21 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/42288057336.shtml)
+- 2026-06-30 06:32 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/278136284.shtml)
+- 2026-06-30 06:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/640918.shtml)

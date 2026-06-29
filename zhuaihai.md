@@ -1,57 +1,54 @@
-# 丁向群释放重磅金融监管信号：健全具有硬约束的金融风险早期纠正机制
+# 博泰车联早盘高开逾18% 公司与某龙头OEM新能源车企、英伟达达成一系列深度合作
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，在2026陆家嘴论坛上，国家金融监督管理总局局长丁向群表示，世界百年变局加速演进，国际力量对比深刻调整，全球金融治理体系需要与时俱进、深化改革。金融监管总局将进一步加强与各方联动，加快推动国际金融组织改革，支持新型多边机构更好发挥效能，同时立足金融监管主责，持续推进防风险、强监管、促高质量发展，坚决守住不
+博泰车联（02889）早盘高开逾18%，截至发稿，股价上涨18.27%，现报191港元，成交额7317.73万港元。 博泰车联公布，近日，公司与某龙头OEM新能源车企、英伟达达成一系列深度合作。公司正加速推动“大模型上车”从技术验证走向规模化量产，在AI车载大模型落地及高阶算力平台应用方面取得实质性进展。 根据公告，基于NVIDIA DRIVE AGX Thor加速计算平台，博
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，在2026陆家嘴论坛上，国家金融监督管理总局局长丁向群表示，世界百年变局加速演进，国际力量对比深刻调整，全球金融治理体系需要与时俱进、深化改革。
+博泰车联（02889）早盘高开逾18%，截至发稿，股价上涨18.27%，现报191港元，成交额7317.73万港元。
 
-金融监管总局将进一步加强与各方联动，加快推动国际金融组织改革，支持新型多边机构更好发挥效能，同时立足金融监管主责，持续推进防风险、强监管、促高质量发展，坚决守住不发生系统性金融风险底线。
+博泰车联公布，近日，公司与某龙头OEM新能源车企、英伟达达成一系列深度合作。
 
-6月17日上午，2026陆家嘴论坛在上海开幕，国家金融监督管理总局局长丁向群发表开幕辞。
+公司正加速推动“大模型上车”从技术验证走向规模化量产，在AI车载大模型落地及高阶算力平台应用方面取得实质性进展。
 
-澎湃新闻记者 胡志挺 图 全球金融治理体系需要与时俱进，推动形成更加等效适配的国际金融规则 丁向群表示，当前世界百年变局正加速演进，国际力量对比深刻调整，全球金融治理体系需要与时俱进、深化改革。
+根据公告，基于NVIDIA DRIVE AGX Thor加速计算平台，博泰车联将开发车端大模型解决方案，在该平台上部署AI BOX，为下一代AI大模型的车端部署提供高性能算力支撑。
 
-立足金融监管，推进全球金融治理改革，需要从治理机制、规则体系、监管协作等方面持续发力。
+公告还显示，博泰车联获得某头部OEM新能源车企新一代智能车型的定点通知。
 
-在全球金融治理机制方面，丁向群认为，当前新兴市场国家和发展中国家经济规模已占全球半壁江山，对经济增长的贡献率达到80%，提升全球南方国家在金融治理体系中的话语权与代表性，已成为大多数国家的共同期待。
-
-她表示，近年来，中国深度参与多个国际金融组织工作，在全球金融治理中发挥着日益重要的建设性作用。
-
-中国始终践行多边主义，将进一步加强与各方联动，加快推动国际金融组织改革，支持新型多边机构更好发挥效能，让治理机制反映更多国家的意愿和诉求。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 06:03 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 06:11 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 06:09 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 06:06 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 06:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 06:05 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 06:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 06:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 06:08 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 06:20 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 06:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 06:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 06:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 06:34 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 06:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 06:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 06:33 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 06:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 06:34 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 06:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 06:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/073934677.shtml)
-- 2026-06-30 06:01 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/72185516.shtml)
-- 2026-06-30 06:04 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/34312992.shtml)
-- 2026-06-30 06:20 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/292472.shtml)
-- 2026-06-30 06:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/6345674513.shtml)
-- 2026-06-30 06:10 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/73466956.shtml)
-- 2026-06-30 06:16 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/23367.shtml)
-- 2026-06-30 06:05 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/496720917103.shtml)
-- 2026-06-30 06:27 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/353244449.shtml)
-- 2026-06-30 06:08 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/73924.shtml)
-- 2026-06-30 06:27 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/04237.shtml)
-- 2026-06-30 06:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/6163656191.shtml)
-- 2026-06-30 06:19 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/79071417374.shtml)
-- 2026-06-30 06:04 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/24554259191.shtml)
-- 2026-06-30 06:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/87608.shtml)
+- 2026-06-30 06:09 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/7439435615.shtml)
+- 2026-06-30 06:25 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/9777445040.shtml)
+- 2026-06-30 06:12 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/789413212.shtml)
+- 2026-06-30 06:26 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/046828291.shtml)
+- 2026-06-30 06:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/45609745212.shtml)
+- 2026-06-30 06:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/878181381.shtml)
+- 2026-06-30 06:17 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/16231778468.shtml)
+- 2026-06-30 06:27 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/980109050.shtml)
+- 2026-06-30 06:07 - [急先锋](https://www.blog.minike.top/Article/details/751866714.shtml)
+- 2026-06-30 06:23 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/366404145870.shtml)
+- 2026-06-30 06:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/029129.shtml)
+- 2026-06-30 06:29 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/87417741.shtml)
+- 2026-06-30 06:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/3236357820.shtml)
+- 2026-06-30 06:08 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/17090777.shtml)
+- 2026-06-30 06:06 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/4487334.shtml)

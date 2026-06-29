@@ -1,46 +1,57 @@
-# 重庆海关备份软件购置项目中标公告
+# 广西打造面向东盟的知识产权国际合作高地
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-1、项目名称：重庆海关备份软件购置项目 2、采购人：中华人民共和国重庆海关 3、采购方式：比选 4、开标时间：2026年6月15日5、中标供应商：重庆商进科技有限公司 6、中标价格：473600元 7、中标主要内容：重庆海关备份软件购置 8、评审人员：孙辉映、程萌、赵明辉、李冀铭、杨翰林 9、联系人：杨翰林 联系电话：023-67709604 10、公示期：2026年6月17日
+中新网南宁4月25日电 (林浩 尹立炎 陆婷)4月24日，广西壮族自治区市场监督管理局副局长李暄表示，广西将以知识产权制度创新牵引人工智能基础能力、产业规模、研发水平同步提升，健全新兴领域知识产权保护制度，搭建AI赋能的中国—东盟知识产权保护平台，建强广西—东盟知识产权商学院，打造面向东盟的知识产权国际合作高地。 当天，2026年全国知识产权宣传周广西分会场活动启动仪式在南宁市
 
 ## 正文
 
-1、项目名称：重庆海关备份软件购置项目 2、采购人：中华人民共和国重庆海关 3、采购方式：比选 4、开标时间：2026年6月15日5、中标供应商：重庆商进科技有限公司 6、中标价格：473600元 7、中标主要内容：重庆海关备份软件购置 8、评审人员：孙辉映、程萌、赵明辉、李冀铭、杨翰林 9、联系人：杨翰林 联系电话：023-67709604 10、公示期：2026年6月17日至2025年6月18日。
+中新网南宁4月25日电 (林浩 尹立炎 陆婷)4月24日，广西壮族自治区市场监督管理局副局长李暄表示，广西将以知识产权制度创新牵引人工智能基础能力、产业规模、研发水平同步提升，健全新兴领域知识产权保护制度，搭建AI赋能的中国—东盟知识产权保护平台，建强广西—东盟知识产权商学院，打造面向东盟的知识产权国际合作高地。
 
-附件：中小企业声明函.jpg
+当天，2026年全国知识产权宣传周广西分会场活动启动仪式在南宁市举行，此次活动以“加强新兴领域知识产权保护 加快新质生产力发展”为主题，集中展示广西知识产权事业发展成果，组织“知识产权·桂在创新”专题宣传。
+
+活动中，主办方上线广西重点产业“双五星”专利数据库、广西知识产权保护AI助手“桂小知”和“桂琼知识产权运营合作平台”，发布《面向东盟知识产权治理联动机制》和《高质量审判服务广西科技创新》等研究成果。
+
+李暄在致辞中介绍，近年来，广西新兴领域发展势头强劲，知识产权创新成果丰硕。
+
+其中，广西高技术制造业增加值同比增长25.2%，光电子器件、服务机器人产量同比增长64%、22.4%，人工智能核心产业产值突破800亿元，人工智能相关专利申请量累计超2200件，成果转化质效持续提升。
+
+通过建成广西—东盟知识产权商学院，广西首次代表国家在世界知识产权组织举办地理标志展。
+
+国家知识产权局专利局光电技术发明审查部部长曾志华表示，当前，广西高效建设国家级南宁市、柳州市知识产权保护中心，统筹整合多部门资源，深化面向东盟知识产权合作，培育壮大新动能，国家知识产权局将支持广西知识产权事业发展。
+
+广西壮族自治区高级人民法院副院长田少红介绍，2026年1月，经最高人民法院和广西壮族自治区党委机构编制委员会办公室批复同意，广西首家知识产权法庭——南宁知识产权法庭揭牌成立，该法庭强化关键核心技术、重点领域、新兴产业的创新成果保护，精准服务“北上广研发+广西集成+东盟应用”的人工智能发展路径，助力广西深化面向东盟的知识产权交流合作，推动规则、规制、管理、标准等制度型开放，持续提升涉东盟法治影响力。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 06:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 06:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 06:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 06:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 06:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 06:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 06:02 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 06:03 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 06:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 06:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 06:06 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 06:13 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 06:15 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 06:28 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 06:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 06:34 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:13 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 06:31 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 06:21 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 06:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 06:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 06:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [乔家的儿女](http://www.blog.minike.top/Article/details/3614328.shtml)
-- 2026-06-30 06:16 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/54112081368.shtml)
-- 2026-06-30 06:05 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/44455377739.shtml)
-- 2026-06-30 06:23 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/21302415.shtml)
-- 2026-06-30 06:02 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/49612114.shtml)
-- 2026-06-30 06:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/60910073738.shtml)
-- 2026-06-30 06:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/9311129.shtml)
-- 2026-06-30 06:18 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/32570861.shtml)
-- 2026-06-30 06:00 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/59572141.shtml)
-- 2026-06-30 06:02 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/75407.shtml)
-- 2026-06-30 06:09 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/103369467.shtml)
-- 2026-06-30 06:05 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/7294154.shtml)
-- 2026-06-30 06:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/3701962198.shtml)
-- 2026-06-30 06:29 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/2110260.shtml)
-- 2026-06-30 06:00 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/3236738538.shtml)
+- 2026-06-30 06:11 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/406934143270.shtml)
+- 2026-06-30 06:15 - [人类...完蛋了...](http://www.share.minike.top/Article/details/950025.shtml)
+- 2026-06-30 06:11 - [巴西绝杀](http://www.blog.minike.top/Article/details/23448107.shtml)
+- 2026-06-30 06:28 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/773654075.shtml)
+- 2026-06-30 06:15 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/813126960419.shtml)
+- 2026-06-30 06:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/131350.shtml)
+- 2026-06-30 06:28 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/94402.shtml)
+- 2026-06-30 06:31 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/517494937.shtml)
+- 2026-06-30 06:17 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/87225303358.shtml)
+- 2026-06-30 06:17 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/192898990766.shtml)
+- 2026-06-30 06:32 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/487092120340.shtml)
+- 2026-06-30 06:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/8958189922.shtml)
+- 2026-06-30 06:31 - [蔚来车主罚站](http://www.share.minike.top/Article/details/263235.shtml)
+- 2026-06-30 06:30 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/86132308.shtml)
+- 2026-06-30 06:27 - [人类...完蛋了...](http://www.share.minike.top/Article/details/744276787.shtml)

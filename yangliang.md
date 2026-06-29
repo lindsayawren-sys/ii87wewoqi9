@@ -1,45 +1,59 @@
-# 今年北京高考成绩将于6月25日发布
+# 光大期货：4月24日农产品日报
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆下跌，受获利了结和技术性卖压。美豆粕和美豆油均回落。市场在关注大豆播种进度，农户在降雨之前抓紧抢种大豆。原油价格再次跳涨，市场对中东关注提高，密切关注局势变化。阿根廷上调大豆产量预估10万吨至4860万吨。国内方面，两粕震荡运行。美豆回落给市场带来下行压力。豆粕现货成交有所改
 
 ## 正文
 
-发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆下跌，受获利了结和技术性卖压。
+
+美豆粕和美豆油均回落。
+
+市场在关注大豆播种进度，农户在降雨之前抓紧抢种大豆。
+
+原油价格再次跳涨，市场对中东关注提高，密切关注局势变化。
+
+阿根廷上调大豆产量预估10万吨至4860万吨。
+
+国内方面，两粕震荡运行。
+
+美豆回落给市场带来下行压力。
+
+豆粕现货成交有所改善，下游进行五一节前备货。
 
 ## 相关推荐
 
-- 2026-06-30 06:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 06:06 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 06:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:21 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 06:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 06:25 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 06:10 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:24 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 06:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 06:22 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 06:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 06:13 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 06:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 06:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 06:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 06:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 06:19 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 06:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 06:09 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/0192022.shtml)
-- 2026-06-30 06:15 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/2764890110.shtml)
-- 2026-06-30 06:20 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/3743302.shtml)
-- 2026-06-30 06:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/40324769.shtml)
-- 2026-06-30 06:27 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/25375.shtml)
-- 2026-06-30 06:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/44714770.shtml)
-- 2026-06-30 06:01 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/8589245.shtml)
-- 2026-06-30 06:23 - [金牌调解](https://www.blog.minike.top/Article/details/61283137.shtml)
-- 2026-06-30 06:05 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/69861055708.shtml)
-- 2026-06-30 06:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/95701819.shtml)
-- 2026-06-30 06:23 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0795097.shtml)
-- 2026-06-30 06:05 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/1438518.shtml)
-- 2026-06-30 06:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/11917.shtml)
-- 2026-06-30 06:18 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/42344459691.shtml)
-- 2026-06-30 06:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/86378.shtml)
+- 2026-06-30 06:13 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/73922756.shtml)
+- 2026-06-30 06:09 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/50410.shtml)
+- 2026-06-30 06:29 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/197701952554.shtml)
+- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/9402329.shtml)
+- 2026-06-30 06:21 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/718200393.shtml)
+- 2026-06-30 06:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/8799755014.shtml)
+- 2026-06-30 06:07 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/858986.shtml)
+- 2026-06-30 06:18 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/149792.shtml)
+- 2026-06-30 06:22 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/99057152.shtml)
+- 2026-06-30 06:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/385676023223.shtml)
+- 2026-06-30 06:34 - [流金岁月](http://www.share.kurohicncr.top/Article/details/651535778941.shtml)
+- 2026-06-30 06:25 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/9712124.shtml)
+- 2026-06-30 06:21 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/2363807.shtml)
+- 2026-06-30 06:12 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/45884971.shtml)
+- 2026-06-30 06:35 - [美人鱼](https://www.share.kurohicncr.top/Article/details/39504159.shtml)

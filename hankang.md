@@ -1,60 +1,60 @@
-# 没有症状就不用复诊……是真是假？
+# 美国参议院军事委员会主席呼吁重启对伊朗打击行动
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-没有症状就不用复诊……是真是假？丨谣言终结站 对于复诊，不少人存在认知误区：没有身体不适，就没必要去医院复诊。但实际上，这种说法并不准确，患者在什么情况下需要复诊，取决于他们的健康状况和治疗需求。 复诊是指患者在初次就医后，根据医生的建议，定期或不定期返回医疗机构接受进一步的评估、监测和治疗。这是维护个人健康的关键环节，有助于监测疾病进展、评估治疗效果、提供健康建议，并确保患者
+美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。” 他称：“这是保障该地区长久稳定的唯一途径。”特朗普当日表示，伊朗正准备提交谈判方案。由
 
 ## 正文
 
-没有症状就不用复诊……是真是假？
+美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。
 
-丨谣言终结站 对于复诊，不少人存在认知误区：没有身体不适，就没必要去医院复诊。
+密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。
 
-但实际上，这种说法并不准确，患者在什么情况下需要复诊，取决于他们的健康状况和治疗需求。
+” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。
 
-复诊是指患者在初次就医后，根据医生的建议，定期或不定期返回医疗机构接受进一步的评估、监测和治疗。
+我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。
 
-这是维护个人健康的关键环节，有助于监测疾病进展、评估治疗效果、提供健康建议，并确保患者得到适当的医疗照顾。
+” 他称：“这是保障该地区长久稳定的唯一途径。
 
-如果医生建议需要复诊，患者应按照医生的建议行事，以确保健康状况得到充分关注和管理。
+”特朗普当日表示，伊朗正准备提交谈判方案。
 
-延伸阅读 一次就医通常难以解决患者的所有问题，复诊成为维护个人健康的一个重要环节。
+由威特科夫与库什纳率领的美国代表团，预计明日抵达巴基斯坦伊斯兰堡。
 
-那么，在什么情况下患者需要复诊呢？
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 06:17 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 06:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 06:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 06:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 06:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 06:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:20 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 06:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 06:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 06:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 06:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:28 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 06:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 06:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 06:06 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 06:34 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 06:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 06:10 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 06:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 06:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 06:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 06:32 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 06:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 06:23 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/3606300.shtml)
-- 2026-06-30 06:13 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/09038400.shtml)
-- 2026-06-30 06:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7081963041.shtml)
-- 2026-06-30 06:14 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/0451479.shtml)
-- 2026-06-30 06:07 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/53523.shtml)
-- 2026-06-30 06:03 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/0925568877.shtml)
-- 2026-06-30 06:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/28645140.shtml)
-- 2026-06-30 06:16 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/131066272651.shtml)
-- 2026-06-30 06:01 - [日本进球](https://www.blog.kurohicncr.top/Article/details/12486358.shtml)
-- 2026-06-30 06:11 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/16057312384.shtml)
-- 2026-06-30 06:20 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/974558.shtml)
-- 2026-06-30 06:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/145403.shtml)
-- 2026-06-30 06:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/28841169.shtml)
-- 2026-06-30 06:08 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/644937.shtml)
-- 2026-06-30 06:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/62786309296.shtml)
+- 2026-06-30 06:14 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/667073775.shtml)
+- 2026-06-30 06:18 - [周生如故](http://www.share.minike.top/Article/details/477974458144.shtml)
+- 2026-06-30 06:33 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/403711.shtml)
+- 2026-06-30 06:14 - [日本 高位逼抢](http://www.share.minike.top/Article/details/4871458.shtml)
+- 2026-06-30 06:22 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/9462405.shtml)
+- 2026-06-30 06:28 - [85花告别古偶](https://www.blog.minike.top/Article/details/1903862.shtml)
+- 2026-06-30 06:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/49015.shtml)
+- 2026-06-30 06:21 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/34744.shtml)
+- 2026-06-30 06:06 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/011673.shtml)
+- 2026-06-30 06:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/40151.shtml)
+- 2026-06-30 06:07 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/6437532403.shtml)
+- 2026-06-30 06:12 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/2946906138.shtml)
+- 2026-06-30 06:27 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/6266501080.shtml)
+- 2026-06-30 06:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/5267209351.shtml)
+- 2026-06-30 06:26 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/237979.shtml)

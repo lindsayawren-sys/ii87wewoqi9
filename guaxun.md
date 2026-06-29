@@ -1,57 +1,61 @@
-# 台当局拟严管AI芯片输入大陆 国台办回应
+# 壹视界·时习新语 | “我们这个民族，还要提倡多读书”
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：据彭博社报道，民进党当局正考虑对向大陆销售人工智能芯片实施严厉管制，拟将未经授权的相关出口行为定性为刑事犯罪。岛内舆论认为这是赖清德当局向美国递出的“投名状”，若执意如此，将导致台湾半导体产业陷入孤立。请问对此有何评论？ 国台办发言人陈斌华表示，如果报道属实，将进一步印证民进党当局为“倚美谋独”，在推动两岸产业
+春日正是读书时。 今年是《全民阅读促进条例》施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。 4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。 习近平总书记高度重视推动全民阅读，建设书香社会。近日，《求是》杂志发表的《推动全民阅读，建设书香社会》一文，收录了习近平总书记2013年3月至2025年3月期间的有关重要论述。 “要提倡
 
 ## 正文
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。
+春日正是读书时。
 
-有记者问：据彭博社报道，民进党当局正考虑对向大陆销售人工智能芯片实施严厉管制，拟将未经授权的相关出口行为定性为刑事犯罪。
+今年是《全民阅读促进条例》施行的第一年，也是国务院批复设立“全民阅读活动周”后的第一年。
 
-岛内舆论认为这是赖清德当局向美国递出的“投名状”，若执意如此，将导致台湾半导体产业陷入孤立。
+4月20日至22日，第五届全民阅读大会在江西南昌市举办，“全民阅读活动周”同步启动。
 
-请问对此有何评论？
+习近平总书记高度重视推动全民阅读，建设书香社会。
 
-国台办发言人陈斌华表示，如果报道属实，将进一步印证民进党当局为“倚美谋独”，在推动两岸产业“脱钩断链”上已经丧心病狂。
+近日，《求是》杂志发表的《推动全民阅读，建设书香社会》一文，收录了习近平总书记2013年3月至2025年3月期间的有关重要论述。
 
-滥用司法破坏两岸产业链供应链的做法，违背市场经济规律，压制台湾半导体产业发展空间，到头来只会搬起石头砸自己的脚，导致台湾核心产业优势加快丧失。
+“要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能更加厚重深邃。
 
-大陆正加快高质量发展，在芯片、人工智能等领域不断取得新突破，国产大模型引领全球开源生态，脑机接口实现从“实验室理论探索”到“临床初步应用”的关键跨越，新质生产力迅猛发展，产业智能化、绿色化、融合化发展日新月异，为两岸在相关领域优势互补、合作共赢不断开拓更为广阔空间。
+” “共产党人要把读马克思主义经典、悟马克思主义原理当作一种生活习惯、当作一种精神追求，用经典涵养正气、淬炼思想、升华境界、指导实践。
 
-我们欢迎广大台湾企业前来大陆，拥抱发展的确定性，把握发展的主动权，在稳定、开放、创新的环境中实现自身更大更好发展。
+” “哪怕一天挤出半小时，即使读几页书，只要坚持下去，必定会积少成多、积沙成塔，积跬步以至千里。
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 06:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 06:28 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 06:17 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 06:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 06:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 06:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 06:09 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 06:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 06:24 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 06:19 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:07 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 06:08 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 06:27 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:14 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 06:22 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 06:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 06:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 06:30 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 06:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 06:07 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 06:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 06:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:17 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 06:25 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3943817.shtml)
-- 2026-06-30 06:01 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/548686.shtml)
-- 2026-06-30 06:18 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/987915053.shtml)
-- 2026-06-30 06:26 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/421867516.shtml)
-- 2026-06-30 06:10 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/80581.shtml)
-- 2026-06-30 06:02 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/0990827929.shtml)
-- 2026-06-30 06:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/958518.shtml)
-- 2026-06-30 06:28 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/64824.shtml)
-- 2026-06-30 06:13 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/2097617.shtml)
-- 2026-06-30 06:14 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/68177997310.shtml)
-- 2026-06-30 06:18 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/9277929.shtml)
-- 2026-06-30 06:17 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/130765021.shtml)
-- 2026-06-30 06:13 - [TOP Prada](http://www.share.minike.top/Article/details/47396.shtml)
-- 2026-06-30 06:26 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/8625672.shtml)
-- 2026-06-30 06:14 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/49563481.shtml)
+- 2026-06-30 06:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/05558169691.shtml)
+- 2026-06-30 06:35 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/582111.shtml)
+- 2026-06-30 06:08 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/5074287797.shtml)
+- 2026-06-30 06:32 - [急先锋](http://www.share.kurohicncr.top/Article/details/7019561659.shtml)
+- 2026-06-30 06:31 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/01764036.shtml)
+- 2026-06-30 06:14 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/22118.shtml)
+- 2026-06-30 06:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/73946853.shtml)
+- 2026-06-30 06:14 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/94149115743.shtml)
+- 2026-06-30 06:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/653901629841.shtml)
+- 2026-06-30 06:09 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/491555.shtml)
+- 2026-06-30 06:13 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/76078743.shtml)
+- 2026-06-30 06:10 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/9618085423.shtml)
+- 2026-06-30 06:32 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/13006253762.shtml)
+- 2026-06-30 06:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/130293934.shtml)
+- 2026-06-30 06:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/16434.shtml)

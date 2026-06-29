@@ -1,59 +1,52 @@
-# 欧莱雅收购印度个人护理公司Innovist控股权
+# 建交65周年 中国老挝合作“一路生花”香飘万里
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-法国化妆品巨头欧莱雅集团周四宣布，将收购印度Innovist公司的多数股权，以期提升其在印度这一全球增长最快的市场之一的份额。 此次交易包括全额收购少数股东股份的权利，并将Innovist旗下包括Bare Anatomy护发系列和Chemist at Play护肤系列在内的多个本土品牌。 交易的财务细节尚未披露。 欧莱雅表示，Innovist是印度增长最快的“以科学为导向、数字
+中新网4月25日电 2026年是中老建交65周年暨“中老友好年”。六十余载风雨同舟，两国在文化、教育、卫生、经贸等领域交流合作持续深化，结出累累硕果。 正如老挝谚语所说：“同饮一井水，同走一条路，清水能解乏，真心换友情。”从高质量共建“一带一路”到中老铁路开通运营，两国合作始终一路向前，一路生花。 (“图览天下”栏目) 文案：甘甜 设计：李永丽 策划及审校：孟湘君 孔庆玲 谷丽
 
 ## 正文
 
-法国化妆品巨头欧莱雅集团周四宣布，将收购印度Innovist公司的多数股权，以期提升其在印度这一全球增长最快的市场之一的份额。
+中新网4月25日电 2026年是中老建交65周年暨“中老友好年”。
 
-此次交易包括全额收购少数股东股份的权利，并将Innovist旗下包括Bare Anatomy护发系列和Chemist at Play护肤系列在内的多个本土品牌。
+六十余载风雨同舟，两国在文化、教育、卫生、经贸等领域交流合作持续深化，结出累累硕果。
 
-交易的财务细节尚未披露。
+正如老挝谚语所说：“同饮一井水，同走一条路，清水能解乏，真心换友情。
 
-欧莱雅表示，Innovist是印度增长最快的“以科学为导向、数字化优先”的个人护理公司之一，其产品配方纯净，成分透明。
+”从高质量共建“一带一路”到中老铁路开通运营，两国合作始终一路向前，一路生花。
 
-该公司表示，在获得监管部门批准后，该交易预计将在未来几个月内完成。
-
-欧莱雅还表示，创始人及少数股东将继续与欧莱雅印度公司合作运营该业务。
-
-责任编辑：于健 SF069
+(“图览天下”栏目) 文案：甘甜 设计：李永丽 策划及审校：孟湘君 孔庆玲 谷丽萍 文字来源：中华人民共和国外交部、新华社、人民日报、中新网等
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 06:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:04 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 06:25 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 06:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 06:24 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 06:26 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 06:02 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 06:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 06:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 06:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 06:01 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 06:08 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 06:16 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 06:08 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 06:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 06:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 06:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 06:22 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 06:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 06:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 06:23 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 06:19 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 06:09 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/01228534266.shtml)
-- 2026-06-30 06:28 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/88257866.shtml)
-- 2026-06-30 06:17 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/070610634.shtml)
-- 2026-06-30 06:04 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/97570059.shtml)
-- 2026-06-30 06:08 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/481644564191.shtml)
-- 2026-06-30 06:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/11448763870.shtml)
-- 2026-06-30 06:09 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/59942679.shtml)
-- 2026-06-30 06:00 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/18468522255.shtml)
-- 2026-06-30 06:28 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/821191.shtml)
-- 2026-06-30 06:01 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/748065062.shtml)
-- 2026-06-30 06:06 - [巴西2比1日本](http://www.share.minike.top/Article/details/4548183016.shtml)
-- 2026-06-30 06:30 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/60100.shtml)
-- 2026-06-30 06:08 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/544114180.shtml)
-- 2026-06-30 06:05 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/6855847577.shtml)
-- 2026-06-30 06:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/88393133.shtml)
+- 2026-06-30 06:13 - [青春环游记第三季](https://www.blog.minike.top/Article/details/64196.shtml)
+- 2026-06-30 06:09 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/0499731068.shtml)
+- 2026-06-30 06:16 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/14985008363.shtml)
+- 2026-06-30 06:32 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/5773804332.shtml)
+- 2026-06-30 06:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/1719679925.shtml)
+- 2026-06-30 06:29 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/754628762.shtml)
+- 2026-06-30 06:09 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/744561.shtml)
+- 2026-06-30 06:28 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/408826.shtml)
+- 2026-06-30 06:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/529383377.shtml)
+- 2026-06-30 06:34 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/19940.shtml)
+- 2026-06-30 06:13 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/94809774954.shtml)
+- 2026-06-30 06:13 - [急先锋](https://www.share.kurohicncr.top/Article/details/5955407.shtml)
+- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/49020.shtml)
+- 2026-06-30 06:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/75429.shtml)
+- 2026-06-30 06:07 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/1702413.shtml)

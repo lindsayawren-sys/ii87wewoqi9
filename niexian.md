@@ -1,47 +1,57 @@
-# 美国和伊朗将于周五会晤 就协议执行进行初步磋商
+# 涉1亿元索赔 杭州审理“AI智能体流量劫持”案
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:02 UTC+8
 
 ## 摘要
 
-瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。 瑞士外交部未提供会议议程和详情等资讯。责任编辑：刘明亮
+中新网杭州4月23日电(郭其钰)4月23日，浙江省杭州市中级人民法院公开开庭审理了一起“AI智能体流量劫持”不正当竞争案。原告指控被告在其输入法界面植入AI功能，通过技术手段将本属于原告的用户流量强制引导至被告，并索赔1亿元。被告则称此举系提升用户体验的正向竞争。 原告是一家开发和运营某AI应用(下称“K智能体”)的公司。这款智能体以AI超级框为核心，融合了搜索、深度研究、AI
 
 ## 正文
 
-瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。
+中新网杭州4月23日电(郭其钰)4月23日，浙江省杭州市中级人民法院公开开庭审理了一起“AI智能体流量劫持”不正当竞争案。
 
-瑞士外交部未提供会议议程和详情等资讯。
+原告指控被告在其输入法界面植入AI功能，通过技术手段将本属于原告的用户流量强制引导至被告，并索赔1亿元。
 
-责任编辑：刘明亮
+被告则称此举系提升用户体验的正向竞争。
+
+原告是一家开发和运营某AI应用(下称“K智能体”)的公司。
+
+这款智能体以AI超级框为核心，融合了搜索、深度研究、AI写作、AI生图改图、学术搜索、翻译等多项功能，是原告吸引用户流量、争夺市场地位和创造交易机会的重要产品。
+
+三被告分别负责APP的开发、运营和积分兑换服务。
+
+原告诉称，被告在其运营的输入法界面植入了一个名为“W智能大模型”的功能，同样为用户提供AI问答、AI辅助写作等服务。
+
+当用户正常使用“K智能体”时，该输入法的“搜索提示词”功能会自动将用户引向“W智能大模型”，同时遮盖掉“K智能体”的产品界面。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 06:23 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 06:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 06:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 06:11 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:14 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 06:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 06:22 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 06:21 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:20 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 06:09 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 06:18 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 06:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 06:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 06:12 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 06:08 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 06:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 06:17 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 06:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 06:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 06:17 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/3997320.shtml)
-- 2026-06-30 06:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/559945807347.shtml)
-- 2026-06-30 06:00 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/33567.shtml)
-- 2026-06-30 06:28 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/460900.shtml)
-- 2026-06-30 06:03 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/9137434741.shtml)
-- 2026-06-30 06:02 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/24783263235.shtml)
-- 2026-06-30 06:18 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/8709892404.shtml)
-- 2026-06-30 06:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/466036.shtml)
-- 2026-06-30 06:09 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/005234172.shtml)
-- 2026-06-30 06:26 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/22596571375.shtml)
-- 2026-06-30 06:00 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/569530614374.shtml)
-- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/22715.shtml)
-- 2026-06-30 06:29 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/007982956292.shtml)
-- 2026-06-30 06:06 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/7722922642.shtml)
-- 2026-06-30 06:18 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/579666.shtml)
+- 2026-06-30 06:24 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/130787197479.shtml)
+- 2026-06-30 06:27 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/247077494105.shtml)
+- 2026-06-30 06:06 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/48854.shtml)
+- 2026-06-30 06:30 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/9594547.shtml)
+- 2026-06-30 06:20 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/8527862.shtml)
+- 2026-06-30 06:36 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/739341872464.shtml)
+- 2026-06-30 06:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/702571.shtml)
+- 2026-06-30 06:07 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/433263704.shtml)
+- 2026-06-30 06:19 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/82356.shtml)
+- 2026-06-30 06:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/000291412671.shtml)
+- 2026-06-30 06:23 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/28602803.shtml)
+- 2026-06-30 06:32 - [《贺子珍》](https://www.blog.minike.top/Article/details/9544327174.shtml)
+- 2026-06-30 06:13 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/82718.shtml)
+- 2026-06-30 06:20 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/4421303963.shtml)
+- 2026-06-30 06:13 - [苗族银饰](https://www.blog.minike.top/Article/details/36734.shtml)

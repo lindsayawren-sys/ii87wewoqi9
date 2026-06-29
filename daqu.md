@@ -1,54 +1,59 @@
-# 电解液赛道迎来密集签约潮 头部电池厂加速锁定长期产能
+# 重庆图书馆获赠一批珍贵日文抗战文献
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-转自：证券时报 人民财讯6月18日电，6月份以来，电解液赛道迎来密集签约潮。宁德时代接连与新宙邦、永太科技敲定长协大单，楚能新能源亦大幅上调与天赐材料的合作规模，两家电池厂累计锁单量逼近180万吨。若将时间拉长，近一年来行业官宣的电解液长单总量已超400万吨。 证券时报记者在采访中了解到，头部电池厂加速锁定长期产能，核心目的是确保供应链安全，以应对下游需求攀升及原材料价格波动。
+中新网重庆4月26日电 (记者 钟旖)记者25日从重庆图书馆获悉，日前，重庆市政协委员、作家徐鹏向该馆无偿捐赠一批日军侵华时期的珍贵原始文献实物，为馆藏抗战特色资源建设注入重要力量。 据介绍，本次捐赠文献均为日文原版原件，品类丰富、载体多元，涵盖日军侵华影像集、战地实拍照片、作战舆图、战时新闻报道及军人私人信函等一手史料，真实留存了侵华战争时期的各类原始记录，史料价值极高。 捐
 
 ## 正文
 
-转自：证券时报 人民财讯6月18日电，6月份以来，电解液赛道迎来密集签约潮。
+中新网重庆4月26日电 (记者 钟旖)记者25日从重庆图书馆获悉，日前，重庆市政协委员、作家徐鹏向该馆无偿捐赠一批日军侵华时期的珍贵原始文献实物，为馆藏抗战特色资源建设注入重要力量。
 
-宁德时代接连与新宙邦、永太科技敲定长协大单，楚能新能源亦大幅上调与天赐材料的合作规模，两家电池厂累计锁单量逼近180万吨。
+据介绍，本次捐赠文献均为日文原版原件，品类丰富、载体多元，涵盖日军侵华影像集、战地实拍照片、作战舆图、战时新闻报道及军人私人信函等一手史料，真实留存了侵华战争时期的各类原始记录，史料价值极高。
 
-若将时间拉长，近一年来行业官宣的电解液长单总量已超400万吨。
+捐赠仪式上，徐鹏分享了这批文献的搜集缘起与收藏历程。
 
-证券时报记者在采访中了解到，头部电池厂加速锁定长期产能，核心目的是确保供应链安全，以应对下游需求攀升及原材料价格波动。
+徐鹏介绍，这批影像、书信等实物，是日本军国主义侵华行径的直接铁证。
 
-在此过程中，具备原材料自给能力的供应商明显更受青睐。
+其中一册私人相册，完整记录了一名日本士兵的成长轨迹，清晰展现其来华参战、残害民众的全过程。
 
-伴随着绑定策略的演化，产业链上下游博弈随之加剧，电解液行业格局正在重构，新一轮行业洗牌已经来临。
+徐鹏表示，重庆图书馆典藏资源丰富、研究底蕴深厚，是国内抗战文献收藏最集中、体系最完善的馆藏单位之一。
 
-多数受访人士认为，现阶段行业竞争核心聚焦于成本管控与技术、产能配套能力，具备一体化、强研发、全球化布局的电解液企业，将在市场角逐中占据主动权。
+希望这批珍贵文献能够充实馆藏资源，助力抗战史学研究，为学界研究提供全新的参考资料。
+
+重庆图书馆副馆长毕涛表示，重庆图书馆自建馆以来，始终以搜集整理抗战文献及二战相关史料为核心馆藏建设方向，历经多年积淀，现已藏有抗战类文献七万余册，形成全国独树一帜的特色馆藏体系。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 06:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 06:19 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 06:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 06:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 06:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 06:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 06:02 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 06:27 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 06:21 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 06:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 06:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 06:06 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 06:21 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 06:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 06:30 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 06:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 06:31 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 06:10 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 06:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 06:11 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 06:17 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/74286.shtml)
-- 2026-06-30 06:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/92729058523.shtml)
-- 2026-06-30 06:03 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/81703014.shtml)
-- 2026-06-30 06:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/7637099312.shtml)
-- 2026-06-30 06:08 - [月亮](http://www.blog.kurohicncr.top/Article/details/8043364336.shtml)
-- 2026-06-30 06:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/550007423.shtml)
-- 2026-06-30 06:22 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/5648112025.shtml)
-- 2026-06-30 06:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/8461429.shtml)
-- 2026-06-30 06:20 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/856116.shtml)
-- 2026-06-30 06:24 - [绘画区你赢了](https://www.blog.minike.top/Article/details/57425701.shtml)
-- 2026-06-30 06:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/49802.shtml)
-- 2026-06-30 06:03 - [流金岁月](https://www.blog.minike.top/Article/details/031945502144.shtml)
-- 2026-06-30 06:20 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/45868815.shtml)
-- 2026-06-30 06:22 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/819850693867.shtml)
-- 2026-06-30 06:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/803153953.shtml)
+- 2026-06-30 06:11 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/59224.shtml)
+- 2026-06-30 06:10 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/8409297266.shtml)
+- 2026-06-30 06:16 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/17119.shtml)
+- 2026-06-30 06:18 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/353858849590.shtml)
+- 2026-06-30 06:30 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/6393125037.shtml)
+- 2026-06-30 06:14 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/9242281156.shtml)
+- 2026-06-30 06:22 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/112632906.shtml)
+- 2026-06-30 06:19 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/5541799578.shtml)
+- 2026-06-30 06:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/8114583.shtml)
+- 2026-06-30 06:34 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/712301458.shtml)
+- 2026-06-30 06:10 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/412531012918.shtml)
+- 2026-06-30 06:12 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/276626411.shtml)
+- 2026-06-30 06:18 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/375707.shtml)
+- 2026-06-30 06:09 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/276319.shtml)
+- 2026-06-30 06:07 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/61828262.shtml)

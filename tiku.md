@@ -1,58 +1,52 @@
-# 支持上海国际金融中心建设！金融监管总局再推8条新政
+# 中国自动氩弧内焊机亮相管道博览会 已在阿联酋投用
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，金融监管总局宣布出台系列新举措，从支持金融业务先行先试、扩大高水平对外开放、打造一流金融营商环境、深化科技赋能金融监管、统筹发展和安全等方面，继续深入推进上海国际金融中心建设。 具体来看，本次推出的系列新举措包含联合其他部门印发《上海国际金融中心发展离岸金融行动方案》、支持商业银行参与浦东新区自贸离岸债业
+发布时间：2026年04月23日 11:42 来源：中国新闻网 4月22日，第十四届中国(廊坊)国际管道博览会在河北廊坊开幕。展会现场各类新技术、新成果集中亮相。在新产品发布环节，大会发布了自动氩弧内焊机和自动驾驶燃气巡检车两款新装备。其中，自动氩弧内焊机，已在阿联酋液化天然气输送管道工程中实现应用。 应用于川气东送二线的 “实景管道” 技术，整合无人机实景建模、卫星遥感、VR
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，金融监管总局宣布出台系列新举措，从支持金融业务先行先试、扩大高水平对外开放、打造一流金融营商环境、深化科技赋能金融监管、统筹发展和安全等方面，继续深入推进上海国际金融中心建设。
+发布时间：2026年04月23日 11:42 来源：中国新闻网 4月22日，第十四届中国(廊坊)国际管道博览会在河北廊坊开幕。
 
-具体来看，本次推出的系列新举措包含联合其他部门印发《上海国际金融中心发展离岸金融行动方案》、支持商业银行参与浦东新区自贸离岸债业务、与上海市联合出台进一步支持上海国际再保险中心建设的若干措施、支持设立“金监工程数智监管（上海）研发基地”等8个方面。
+展会现场各类新技术、新成果集中亮相。
 
-助力上海打造国际一流的金融营商环境 同日早些时候，在2026陆家嘴论坛开幕式上，金融监管总局局长丁向群就已“剧透”这些举措，她表示，金融监管总局将立足职能定位，持续强化监管赋能，助力上海打造国际一流的金融营商环境。
+在新产品发布环节，大会发布了自动氩弧内焊机和自动驾驶燃气巡检车两款新装备。
 
-一方面，要健全审慎包容的监管机制，加快完善离岸金融监管制度，积极推进养老金融、科技金融等领域试点，支持新型金融业务在上海先行先试。
+其中，自动氩弧内焊机，已在阿联酋液化天然气输送管道工程中实现应用。
 
-同时，优化促进高水平开放的监管政策，联合出台加快上海国际再保险中心建设若干举措，大力推进国际航运保险合作，指导发布《航贸金融数据标准》，助力上海打造制度型开放高地。
+应用于川气东送二线的 “实景管道” 技术，整合无人机实景建模、卫星遥感、VR与BIM 技术，实现工程三维可视化与施工进度动态管控，大幅提升设计与施工效率。
 
-此外，还要夯实风险防控监管基础，设立“金监工程”数智监管（上海）研发基地，支持完善金融风险监测预警系统，提升金融业整体安全水平，助推上海国际金融中心建设再上新台阶。
-
-去年6月，金融监管总局会同上海市人民政府联合印发了《关于支持上海国际金融中心建设行动方案》，过去一年多，金融监管总局在《行动方案》确定的框架下，持续推出有力举措，在提高金融服务实体经济质效、扩大制度型开放、提升在沪金融机构服务能级等方面取得了显著成效。
-
-本次新出台的8条措施，就是在与过去一年已落地政策做好衔接基础上推出的。
+(艾广德 王艳 马祥涛 丁晨 河北廊坊报道) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 06:27 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 06:17 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 06:05 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 06:27 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 06:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 06:14 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 06:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 06:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 06:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 06:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 06:27 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 06:13 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 06:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 06:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 06:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 06:12 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 06:25 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 06:14 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/64895242.shtml)
-- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/1970394.shtml)
-- 2026-06-30 06:18 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/763955.shtml)
-- 2026-06-30 06:01 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/196465958138.shtml)
-- 2026-06-30 06:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/3006025798.shtml)
-- 2026-06-30 06:12 - [金牌调解](http://www.share.kurohicncr.top/Article/details/046911844996.shtml)
-- 2026-06-30 06:08 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/527120605891.shtml)
-- 2026-06-30 06:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/410596474297.shtml)
-- 2026-06-30 06:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/42401.shtml)
-- 2026-06-30 06:16 - [请回答王牌2019](https://www.share.minike.top/Article/details/461969.shtml)
-- 2026-06-30 06:15 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/7446972.shtml)
-- 2026-06-30 06:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/71458.shtml)
-- 2026-06-30 06:01 - [月亮](http://www.share.kurohicncr.top/Article/details/409169656.shtml)
-- 2026-06-30 06:12 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/493090672326.shtml)
-- 2026-06-30 06:13 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/5390354575.shtml)
+- 2026-06-30 06:06 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/6598105036.shtml)
+- 2026-06-30 06:28 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/17725860.shtml)
+- 2026-06-30 06:12 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/635237502.shtml)
+- 2026-06-30 06:10 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/274715852.shtml)
+- 2026-06-30 06:23 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/70341.shtml)
+- 2026-06-30 06:22 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/314702266.shtml)
+- 2026-06-30 06:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/74688396805.shtml)
+- 2026-06-30 06:30 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/293676197.shtml)
+- 2026-06-30 06:25 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/60135063481.shtml)
+- 2026-06-30 06:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/177902489339.shtml)
+- 2026-06-30 06:24 - [《共患难》](https://www.share.minike.top/Article/details/597999.shtml)
+- 2026-06-30 06:32 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/4976583.shtml)
+- 2026-06-30 06:13 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/49494292.shtml)
+- 2026-06-30 06:21 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/54277.shtml)
+- 2026-06-30 06:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/108001827.shtml)

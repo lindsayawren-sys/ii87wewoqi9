@@ -1,61 +1,52 @@
-# 沃什“掀桌”：不降息、不指引、不预测——美联储首秀让华尔街集体懵圈
+# 国证国际：滨海投资维持“买入”评级 目标价1.43港元
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周四（6月18日）亚洲时段，美元指数温和调整，当前运行于100.30附近，上一个交易日美元指数创两个月新高至100.57。美联储释放的偏鹰政策信号为美元带来强力基本面支撑。 美联储新任主席凯文·沃什于2026年6月17日周三主持首次联邦公开市场委员会（FOMC）会议，迅速开启政策新阶段。 在通胀仍显著高于目标的背景下，委员会一致决定维持联邦基金利率目标区间在
+国证国际发布研究报告称，维持滨海投资（02886）“买入”评级，结合同行估值和行业趋势，予公司2026年预测P/E 8x（汇率假设1人民元=1.15港币），对应目标价1.43港元。一季度销气量同比高增，股息率吸引 事件：公司公布2026年一季度经营情况。公司一季度管道燃气销量7.94亿立方米，yoy+21%；其中管道气销量5.85亿立方米，yoy+23%。 此前公司公布2025
 
 ## 正文
 
-汇通财经APP讯——周四（6月18日）亚洲时段，美元指数温和调整，当前运行于100.30附近，上一个交易日美元指数创两个月新高至100.57。
+国证国际发布研究报告称，维持滨海投资（02886）“买入”评级，结合同行估值和行业趋势，予公司2026年预测P/E 8x（汇率假设1人民元=1.15港币），对应目标价1.43港元。
 
-美联储释放的偏鹰政策信号为美元带来强力基本面支撑。
+一季度销气量同比高增，股息率吸引 事件：公司公布2026年一季度经营情况。
 
-美联储新任主席凯文·沃什于2026年6月17日周三主持首次联邦公开市场委员会（FOMC）会议，迅速开启政策新阶段。
+公司一季度管道燃气销量7.94亿立方米，yoy+21%；其中管道气销量5.85亿立方米，yoy+23%。
 
-在通胀仍显著高于目标的背景下，委员会一致决定维持联邦基金利率目标区间在3.50%-3.75%不变，同时发布大幅精简的政策声明，取消前瞻指引，并宣布启动雄心勃勃的改革审查项目。
+此前公司公布2025年全年业绩，公司全年实现收入人民币56.06亿元，同比下降3%；归母净利润2.06亿 元，同比上升12%。
 
-这一组合举措标志着美联储在沟通风格和政策运作上的重要转变。
+公司降本增效成果显著，股息率为6.9%较为吸引。
 
-利率决策维持稳定 释放明确鹰派信号 沃什上月正式接掌美联储后，在其主持的首次FOMC会议中展现出卓越的领导凝聚力，推动全体官员达成高度一致的决策意见。
-
-尽管特朗普政府倾向推行低利率以刺激经济增长的政治压力不小，但沃什始终坚持以经济数据和长期稳定为决策核心，会议最终决定维持联邦基金利率目标区间在3.50%-3.75%不变。
-
-这一稳健决策清晰传递出美联储不愿受短期外部干扰的独立姿态，有效维护了央行的政策信誉。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 06:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:08 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 06:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 06:05 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 06:14 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 06:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 06:22 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 06:28 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 06:27 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 06:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 06:04 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 06:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 06:02 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 06:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:35 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 06:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 06:14 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 06:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 06:33 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 06:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 06:23 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/593897.shtml)
-- 2026-06-30 06:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/98404.shtml)
-- 2026-06-30 06:26 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/49842.shtml)
-- 2026-06-30 06:05 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/353558287310.shtml)
-- 2026-06-30 06:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/454575004.shtml)
-- 2026-06-30 06:06 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/19648028.shtml)
-- 2026-06-30 06:08 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/226372418580.shtml)
-- 2026-06-30 06:17 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/558201976011.shtml)
-- 2026-06-30 06:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/82943737166.shtml)
-- 2026-06-30 06:07 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/402845899.shtml)
-- 2026-06-30 06:26 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/69894.shtml)
-- 2026-06-30 06:04 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/99913.shtml)
-- 2026-06-30 06:09 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/035702.shtml)
-- 2026-06-30 06:21 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/8108840.shtml)
-- 2026-06-30 06:18 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/33139.shtml)
+- 2026-06-30 06:20 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/89033121.shtml)
+- 2026-06-30 06:21 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/868381546.shtml)
+- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/9272504.shtml)
+- 2026-06-30 06:35 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/03037216214.shtml)
+- 2026-06-30 06:30 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/72539669.shtml)
+- 2026-06-30 06:28 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/638601241.shtml)
+- 2026-06-30 06:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/71277.shtml)
+- 2026-06-30 06:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/47385636286.shtml)
+- 2026-06-30 06:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/91519.shtml)
+- 2026-06-30 06:33 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/03359.shtml)
+- 2026-06-30 06:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/349164197.shtml)
+- 2026-06-30 06:27 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/39361542768.shtml)
+- 2026-06-30 06:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/60065160864.shtml)
+- 2026-06-30 06:35 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/937431747312.shtml)
+- 2026-06-30 06:14 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/1202045117.shtml)

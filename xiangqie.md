@@ -1,47 +1,57 @@
-# 端午节来临之际 维和官兵在异国他乡围个圈圈祝福你
+# 中国首套66千伏碳纤维应急抢修塔研制成功
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 17:46 来源：中国新闻网 端午节来临之际，维和官兵在异国他乡围个圈圈祝福你。 责任编辑：【翟璐】
+中新网长春4月23日电 (记者 郭佳)近日，中国首套66千伏碳纤维应急抢修塔在国网电力工程研究院有限公司完成断导线、断地线、风载、覆冰等极端工况试验，正式具备现场应用能力。 国网吉林省电力有限公司(下称“国网吉林电力”)23日发布上述消息。当天，该公司联合东北电力大学、吉林化纤集团、国网电力工程研究院有限公司、吉林化工大学签约成立电力工程碳纤维应用技术研究院，旨在深化碳纤维材料
 
 ## 正文
 
-发布时间：2026年06月18日 17:46 来源：中国新闻网 端午节来临之际，维和官兵在异国他乡围个圈圈祝福你。
+中新网长春4月23日电 (记者 郭佳)近日，中国首套66千伏碳纤维应急抢修塔在国网电力工程研究院有限公司完成断导线、断地线、风载、覆冰等极端工况试验，正式具备现场应用能力。
 
-责任编辑：【翟璐】
+国网吉林省电力有限公司(下称“国网吉林电力”)23日发布上述消息。
+
+当天，该公司联合东北电力大学、吉林化纤集团、国网电力工程研究院有限公司、吉林化工大学签约成立电力工程碳纤维应用技术研究院，旨在深化碳纤维材料在电力工程领域的应用研发与产业化推广。
+
+66千伏电网是衔接区域主网与终端用户的关键枢纽。
+
+传统钢结构应急抢修塔单体重近8吨，在山区、沼泽等复杂地形运输部署需数日，难以把握抢修“黄金窗口期”，制约应急响应处置效能。
+
+针对行业痛点，国网吉林电力牵头组建跨学科攻关团队。
+
+研发中创新采用“内嵌套+外抱箍”连接结构，避免打孔造成的结构强度损耗，同步优化桁架整体布局，实现塔体减重超50%。
+
+同时，团队筛选出专用碳纤维复合材料配方，攻克低温、强风、覆冰等复杂环境下的应用难题。
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 06:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 06:27 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 06:06 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 06:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 06:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 06:13 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 06:20 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 06:22 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 06:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 06:28 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 06:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 06:07 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 06:17 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 06:23 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 06:07 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 06:07 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 06:12 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 06:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 06:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 06:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 06:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 06:21 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 06:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/2431282.shtml)
-- 2026-06-30 06:16 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/7687338037.shtml)
-- 2026-06-30 06:07 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/5190140168.shtml)
-- 2026-06-30 06:18 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/02149495.shtml)
-- 2026-06-30 06:12 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/77894317913.shtml)
-- 2026-06-30 06:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/680501.shtml)
-- 2026-06-30 06:23 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/53351912906.shtml)
-- 2026-06-30 06:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/8919813.shtml)
-- 2026-06-30 06:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/30770.shtml)
-- 2026-06-30 06:16 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/7794494.shtml)
-- 2026-06-30 06:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/79913884113.shtml)
-- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/7808494527.shtml)
-- 2026-06-30 06:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/10744.shtml)
-- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/27530597.shtml)
-- 2026-06-30 06:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/88790549.shtml)
+- 2026-06-30 06:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/08181013.shtml)
+- 2026-06-30 06:14 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/2557810235.shtml)
+- 2026-06-30 06:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/953260777477.shtml)
+- 2026-06-30 06:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/220193739019.shtml)
+- 2026-06-30 06:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/045753.shtml)
+- 2026-06-30 06:35 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/67023209.shtml)
+- 2026-06-30 06:30 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/021033650.shtml)
+- 2026-06-30 06:12 - [金刚川](http://www.blog.minike.top/Article/details/519073.shtml)
+- 2026-06-30 06:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/15679133.shtml)
+- 2026-06-30 06:18 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/2907427428.shtml)
+- 2026-06-30 06:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/5533676194.shtml)
+- 2026-06-30 06:34 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/89522418.shtml)
+- 2026-06-30 06:07 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/944993518.shtml)
+- 2026-06-30 06:23 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/3255251.shtml)
+- 2026-06-30 06:25 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/8926310.shtml)

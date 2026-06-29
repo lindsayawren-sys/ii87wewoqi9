@@ -1,58 +1,60 @@
-# 沃什首场会议带来更简短的沟通
+# 广西电力部门应战今年首轮超警洪水 快速处置保供电
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 在作为美联储主席的首次会议上，凯文·沃什迅速开始兑现他重塑美联储沟通方式的承诺。会后，美联储发布了一份大幅缩减的政策声明，没有就美联储的下一步行动可能是什么提供任何前瞻性指引。取而代之的是，该声明简短地指出，“尽管不确定性加剧，经济活动仍在稳步扩张。“ 这种追求简洁的选择避开了一场在美联储4月份会议上引发冲突的辩论：即尽管通胀升
+中新网南宁4月23日电 (陈钦荣 文洪灵 林洁琪)连日来，受持续强降雨影响，广西迎来今年首轮超警洪水过程。南方电网广西电网公司23日介绍，该公司运用先进监测预警技术与智能化装备，加强对设备的特巡特维，对受影响供电设备开展应急处置，全力保障电网安全稳定运行。 截至4月23日7时，广西电网公司累计投入抢修人员4351人次、抢修车辆1570辆次、发电车2辆开展应急值守、设备巡视和抢修
 
 ## 正文
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 在作为美联储主席的首次会议上，凯文·沃什迅速开始兑现他重塑美联储沟通方式的承诺。
+中新网南宁4月23日电 (陈钦荣 文洪灵 林洁琪)连日来，受持续强降雨影响，广西迎来今年首轮超警洪水过程。
 
-会后，美联储发布了一份大幅缩减的政策声明，没有就美联储的下一步行动可能是什么提供任何前瞻性指引。
+南方电网广西电网公司23日介绍，该公司运用先进监测预警技术与智能化装备，加强对设备的特巡特维，对受影响供电设备开展应急处置，全力保障电网安全稳定运行。
 
-取而代之的是，该声明简短地指出，“尽管不确定性加剧，经济活动仍在稳步扩张。
+截至4月23日7时，广西电网公司累计投入抢修人员4351人次、抢修车辆1570辆次、发电车2辆开展应急值守、设备巡视和抢修复电等应急处置工作。
 
-“ 这种追求简洁的选择避开了一场在美联储4月份会议上引发冲突的辩论：即尽管通胀升温，是否要在美联储的前瞻性指引中维持或放弃“宽松倾向“（现在，根本没有任何前瞻性指引）。
+4月19日以来，广西桂林、柳州等地遭遇强降雨袭击，兴安县局地降下349.4毫米特大暴雨。
 
-新的政策声明还省略了列出每位美联储官员如何投票的先前惯例。
+受降雨影响，古宜河、资江等8条河流12个站点出现超警0.05米至2.61米洪水。
 
-而是仅仅表示该声明本身获得了美国联邦公开市场委员会的一致批准。
+4月21日下午，南方电网广西桂林兴安供电局溶江供电所运维人员在特巡中发现，位于界首镇苏家湾村委文家湾自然村附近的10千伏严苏家湾线有一基电杆基础在洪水冲刷中受损，杆塔发生倾斜。
 
-责任编辑：李桐
+兴安供电局迅速集结14名抢修人员，组成党员突击队赶赴现场，采取“先加固、后修复”的作业方案，对倾斜杆塔用拉线进行支撑加固，同时组立新电杆2基，并在新建电杆上装设横担、金具、绝缘子、架设导线。
+
+经过连续8小时的紧张作业，线路供电恢复正常。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 06:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 06:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 06:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 06:27 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 06:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 06:21 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 06:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 06:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 06:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 06:22 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 06:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 06:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 06:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 06:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 06:25 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 06:22 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 06:12 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 06:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 06:14 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 06:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 06:20 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/155493220021.shtml)
-- 2026-06-30 06:21 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/416835639657.shtml)
-- 2026-06-30 06:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/56160597895.shtml)
-- 2026-06-30 06:00 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/92728733803.shtml)
-- 2026-06-30 06:15 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/720018928267.shtml)
-- 2026-06-30 06:03 - [我们的少年时代2](https://www.blog.minike.top/Article/details/18793789524.shtml)
-- 2026-06-30 06:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/70113979362.shtml)
-- 2026-06-30 06:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/8609492.shtml)
-- 2026-06-30 06:23 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/504455006924.shtml)
-- 2026-06-30 06:20 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/298295471597.shtml)
-- 2026-06-30 06:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/389151601.shtml)
-- 2026-06-30 06:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/630365442.shtml)
-- 2026-06-30 06:00 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/98571.shtml)
-- 2026-06-30 06:16 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/89061795820.shtml)
-- 2026-06-30 06:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/5077726403.shtml)
+- 2026-06-30 06:15 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/724879776178.shtml)
+- 2026-06-30 06:10 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/7253002.shtml)
+- 2026-06-30 06:12 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/879097.shtml)
+- 2026-06-30 06:27 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/68859649735.shtml)
+- 2026-06-30 06:28 - [日本反击率先破门](https://www.blog.minike.top/Article/details/2887113311.shtml)
+- 2026-06-30 06:29 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38611651307.shtml)
+- 2026-06-30 06:07 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/8244435755.shtml)
+- 2026-06-30 06:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/441070193561.shtml)
+- 2026-06-30 06:22 - [日本反击率先破门](https://www.blog.minike.top/Article/details/78044148005.shtml)
+- 2026-06-30 06:16 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/702561424914.shtml)
+- 2026-06-30 06:30 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/46331774243.shtml)
+- 2026-06-30 06:22 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/924197.shtml)
+- 2026-06-30 06:06 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/976822879137.shtml)
+- 2026-06-30 06:11 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/366449396.shtml)
+- 2026-06-30 06:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/202968126.shtml)

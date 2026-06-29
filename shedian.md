@@ -1,58 +1,56 @@
-# 邱勇：科创成长层占科创板公司总数6% 总市值达到11% 成为资本市场支持科技创新的前沿阵地
+# 特朗普特使提议由意大利代替伊朗参加世界杯
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。 对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆
+中新网北京4月23日电 综合消息：据英国《金融时报》当地时间22日晚报道，美国总统特朗普的一位高级特使保罗·赞波利要求国际足联在即将到来的美加墨世界杯中“用意大利取代伊朗的参赛资格”。 赞波利说：“我确实向特朗普和(国际足联主席)因凡蒂诺建议，用意大利队替代伊朗队参加世界杯。我本人是意大利裔，如果能看到意大利队参加在美国举办的世界杯，那将是我的梦想。他们已获得4届世界杯冠军，完
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月23日电 综合消息：据英国《金融时报》当地时间22日晚报道，美国总统特朗普的一位高级特使保罗·赞波利要求国际足联在即将到来的美加墨世界杯中“用意大利取代伊朗的参赛资格”。
 
-6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，科创板“1+6”落地见效，试验田作用进一步发挥。
+赞波利说：“我确实向特朗普和(国际足联主席)因凡蒂诺建议，用意大利队替代伊朗队参加世界杯。
 
-对于这一年来的工作，邱勇着重介绍了以下几个方面： 第一，科创改革效应不断显现。
+我本人是意大利裔，如果能看到意大利队参加在美国举办的世界杯，那将是我的梦想。
 
-科创成长层落地以来，沐曦股份等8家未盈利企业成功登陆，寒武纪等6家企业首次盈利，实现了从孵化到毕业的闭环。
+他们已获得4届世界杯冠军，完全有资格参赛。
 
-目前科创成长层占科创板公司总数6%，总市值达到11%，成为资本市场支持科技创新的前沿阵地。
+” 伊朗迈赫尔通讯社随后发布的视频显示，伊朗足协主席迈赫迪·塔吉在接受采访时说，伊朗队正在为参加美加墨世界杯做准备，“到目前为止，我们的决定是参加世界杯。
 
-二是前沿产业集聚效应持续放大，第五套标准重启，禾元生物等3家使用标准企业成功上市，商业航天领域配套规则落地并实现首单受理，人工智能领域的配套规则也在今天要发布。
+” 塔吉同时表示，伊朗队是国家的一部分，是否参加世界杯的决定权最终还是掌握在国家手中。
 
-预先审阅标杆案例长鑫科技、宇树科技成功过会，引入资深专业机构投资者在未盈利企业增资扩股等配套机制均有案例落地。
+据此前报道，2026年美加墨世界杯将于6月11日至7月19日举行，由美国、加拿大和墨西哥三国联合举办。
 
-三是审核效率明显提升，在严把入口关的基础上，不断完善审核流程，科创板IPO审核注册发行环节的平均用时压缩了50%，市场切实感受到科创板速度。
+根据赛程，伊朗队与比利时、新西兰和埃及队同处G组，三场小组赛都将在美国境内进行，其中两场比赛在洛杉矶，一场比赛在西雅图。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 06:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 06:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 06:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 06:14 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 06:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 06:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 06:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 06:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 06:21 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 06:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 06:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 06:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 06:14 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 06:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 06:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 06:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 06:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 06:21 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 06:34 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 06:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/164157.shtml)
-- 2026-06-30 06:13 - [巴西2比1日本](http://www.share.minike.top/Article/details/2110936.shtml)
-- 2026-06-30 06:11 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/05638194718.shtml)
-- 2026-06-30 06:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/874429.shtml)
-- 2026-06-30 06:04 - [急先锋](http://www.blog.kurohicncr.top/Article/details/5743616934.shtml)
-- 2026-06-30 06:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/230072.shtml)
-- 2026-06-30 06:07 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/500696.shtml)
-- 2026-06-30 06:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/4903081492.shtml)
-- 2026-06-30 06:11 - [一生一世](http://www.share.minike.top/Article/details/97714015.shtml)
-- 2026-06-30 06:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/36632.shtml)
-- 2026-06-30 06:07 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/73463619.shtml)
-- 2026-06-30 06:03 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/08504.shtml)
-- 2026-06-30 06:24 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/9223528.shtml)
-- 2026-06-30 06:15 - [千与千寻](https://www.share.kurohicncr.top/Article/details/842976113.shtml)
-- 2026-06-30 06:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/799078399675.shtml)
+- 2026-06-30 06:10 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/1737001624.shtml)
+- 2026-06-30 06:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/626492.shtml)
+- 2026-06-30 06:26 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/31192.shtml)
+- 2026-06-30 06:10 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/3439404.shtml)
+- 2026-06-30 06:14 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/32447.shtml)
+- 2026-06-30 06:13 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/01161280.shtml)
+- 2026-06-30 06:17 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/8754315977.shtml)
+- 2026-06-30 06:07 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/53727105.shtml)
+- 2026-06-30 06:25 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/13693303.shtml)
+- 2026-06-30 06:09 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/582732971.shtml)
+- 2026-06-30 06:24 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/161508098.shtml)
+- 2026-06-30 06:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/3355486303.shtml)
+- 2026-06-30 06:18 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/28372567473.shtml)
+- 2026-06-30 06:25 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/2586519.shtml)
+- 2026-06-30 06:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/55251.shtml)

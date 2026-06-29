@@ -1,61 +1,60 @@
-# 中信银行新行长吕天贵，股东支持率出来了
+# 广西戏曲名家进校园 桂剧传承沁童心
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-来源：银瑞社 作者：许淑敏 回归中信银行一个月时间，吕天贵还未有太多对外公开活动。 他把更多时间，放在了内部经营事务上面。 吕天贵担任中信银行行长的任职资格，亦很快批复。 从中信银行5月20日官宣聘任吕天贵为行长及首席合规官，到6月15日监管批复任职资格，间隔不到一个月。 眼下，吕天贵又进入了中信银行董事会，担任执行董事一职。 6 月17日，中信银行举行了2025年年度股东会，
+中新网南宁4月25日电(俞靖)“八桂戏韵润童心 非遗桂剧伴成长”——南宁市民主路小学非遗戏剧进校园活动24日开展，桂剧绝活“打棍出箱”、桂剧经典剧目《春娥教子》、戏曲绝活《变脸》等节目接连上演，学子们通过互动问答、现场体验等环节感受戏曲魅力，厚植传统文化传承种子。 活动上，广西戏剧家协会主席、著名桂剧表演艺术家龙倩结合广西地方戏发展，向学生科普戏曲角色扮相以及戏曲民乐。她表示，
 
 ## 正文
 
-来源：银瑞社 作者：许淑敏 回归中信银行一个月时间，吕天贵还未有太多对外公开活动。
+中新网南宁4月25日电(俞靖)“八桂戏韵润童心 非遗桂剧伴成长”——南宁市民主路小学非遗戏剧进校园活动24日开展，桂剧绝活“打棍出箱”、桂剧经典剧目《春娥教子》、戏曲绝活《变脸》等节目接连上演，学子们通过互动问答、现场体验等环节感受戏曲魅力，厚植传统文化传承种子。
 
-他把更多时间，放在了内部经营事务上面。
+活动上，广西戏剧家协会主席、著名桂剧表演艺术家龙倩结合广西地方戏发展，向学生科普戏曲角色扮相以及戏曲民乐。
 
-吕天贵担任中信银行行长的任职资格，亦很快批复。
+她表示，此次不仅携桂剧绝活“打棍出箱”激发学子兴趣，还创排了融合课文内容的桂剧唱段，旨在通过寓教于乐的形式，拉近传统戏曲与学生的距离。
 
-从中信银行5月20日官宣聘任吕天贵为行长及首席合规官，到6月15日监管批复任职资格，间隔不到一个月。
+广西戏剧院院长颜明介绍，该院旗下桂剧、彩调剧、壮剧、京剧四个剧种，全年在广西中小学开展近160场演出。
 
-眼下，吕天贵又进入了中信银行董事会，担任执行董事一职。
+本次桂剧走进民主路小学，旨在传承弘扬中华优秀传统文化的同时，重点推广广西桂剧，吸引更多青少年接续广西戏曲文化根脉，培育新一代戏迷。
 
-6 月17日，中信银行举行了2025年年度股东会，其中通过了选举吕天贵为中信银行第七届董事会执行董事的议案。
+“我第一次看桂剧绝活，翻箱换衣等高难度动作让我印象深刻。
 
-很多人好奇，股东们对吕天贵是什么想法。
+”在前述小学开展交流的泰国籍学子彭九九说。
 
-从表决情况来看，A股股东同意票数326.4亿，占比99.96%，反对票数1223.37万，比例0.033%；H股股东同意票数78.92亿，比例98.7%，反对票数1.03亿，比例1.29%。
+南宁市民主路小学教育集团党委副书记、校长刘李平表示，该校长期与东盟多国友校开展非遗线上线下共享共建活动。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 06:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 06:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 06:14 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 06:27 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 06:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 06:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 06:21 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 06:10 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 06:26 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 06:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 06:12 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 06:12 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 06:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 06:12 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 06:12 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 06:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 06:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 06:27 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 06:13 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 06:20 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 06:10 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 06:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 06:15 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 06:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 06:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/216202849.shtml)
-- 2026-06-30 06:20 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/7829410038.shtml)
-- 2026-06-30 06:21 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/83536739.shtml)
-- 2026-06-30 06:20 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/10800848.shtml)
-- 2026-06-30 06:20 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/26314752453.shtml)
-- 2026-06-30 06:21 - [女心理师](http://www.blog.minike.top/Article/details/27282113040.shtml)
-- 2026-06-30 06:06 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/7029371.shtml)
-- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/042110305.shtml)
-- 2026-06-30 06:10 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/428335684518.shtml)
-- 2026-06-30 06:13 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/868579790569.shtml)
-- 2026-06-30 06:28 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/575379179.shtml)
-- 2026-06-30 06:08 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/736252801123.shtml)
-- 2026-06-30 06:12 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/6432535076.shtml)
-- 2026-06-30 06:04 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/126589641951.shtml)
-- 2026-06-30 06:19 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/088012925.shtml)
+- 2026-06-30 06:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/20853114461.shtml)
+- 2026-06-30 06:14 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/51752791.shtml)
+- 2026-06-30 06:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/5581083.shtml)
+- 2026-06-30 06:24 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/61246.shtml)
+- 2026-06-30 06:29 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/92822214428.shtml)
+- 2026-06-30 06:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/0702276.shtml)
+- 2026-06-30 06:06 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/3397806.shtml)
+- 2026-06-30 06:22 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/81314948.shtml)
+- 2026-06-30 06:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/7823982732.shtml)
+- 2026-06-30 06:35 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/95434396.shtml)
+- 2026-06-30 06:14 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/968021999907.shtml)
+- 2026-06-30 06:11 - [扬名立万](https://www.share.minike.top/Article/details/754983959429.shtml)
+- 2026-06-30 06:21 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/685623809.shtml)
+- 2026-06-30 06:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/6251851.shtml)
+- 2026-06-30 06:19 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/98409.shtml)

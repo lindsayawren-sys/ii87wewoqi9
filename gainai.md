@@ -1,55 +1,56 @@
-# 锦艺集团控股午前涨超6% 附属入股釜山超大规模数据中心项目并提供贷款
+# SpaceX瞄准内部GPU 警告投资者芯片供应和成本问题
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:02 UTC+8
 
 ## 摘要
 
-锦艺集团控股（00565）盘中涨超9%，截至发稿，股价上涨6.25%，现报3.06港元，成交额1333.34万港元。 锦艺集团控股公告，通过附属公司艺能企业以约763.4万港元收购目标公司Edgeon Data Co．， Ltd约17.9%股权，并承诺提供约7040.5万港元股东贷款，年利率15%，用于支持其在韩国釜山打造超大型数据中心。 目标公司计划在韩国釜山打造超大型数据中
+SpaceX可能正在应对芯片业务中最大的挑战之一：制造为人工智能提供动力的关键部件，即图形处理器（GPU）。在SpaceX预计于今年夏天进行1.75万亿美元的首次公开募股（IPO）之前，该公司已向潜在投资者警告了其开发人工智能和其他技术的大笔支出计划。 根据媒体查阅的其S-1注册摘录，该公司将“制造我们自己的GPU”列为其正在进行的“大量资本支出”之一。公司向美国证券交易委员会
 
 ## 正文
 
-锦艺集团控股（00565）盘中涨超9%，截至发稿，股价上涨6.25%，现报3.06港元，成交额1333.34万港元。
+SpaceX可能正在应对芯片业务中最大的挑战之一：制造为人工智能提供动力的关键部件，即图形处理器（GPU）。
 
-锦艺集团控股公告，通过附属公司艺能企业以约763.4万港元收购目标公司Edgeon Data Co．， Ltd约17.9%股权，并承诺提供约7040.5万港元股东贷款，年利率15%，用于支持其在韩国釜山打造超大型数据中心。
+在SpaceX预计于今年夏天进行1.75万亿美元的首次公开募股（IPO）之前，该公司已向潜在投资者警告了其开发人工智能和其他技术的大笔支出计划。
 
-目标公司计划在韩国釜山打造超大型数据中心，具备270，000千伏安（约200兆瓦）签约电力容量，主要面向全球云服务商和AI企业。
+根据媒体查阅的其S-1注册摘录，该公司将“制造我们自己的GPU”列为其正在进行的“大量资本支出”之一。
 
-该交易旨在实现锦艺集团投资组合多元化，且贷款年利率高于银行利率，能为集团带来稳定利息收入。
+公司向美国证券交易委员会提交这份文件，是为了在上市前披露其风险和财务状况。
 
-责任编辑：卢昱君
+SpaceX没有立即回应置评请求，也无法确定预期支出的规模。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 06:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 06:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 06:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 06:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 06:11 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 06:17 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 06:04 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 06:28 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 06:14 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 06:04 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 06:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 06:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:16 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 06:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 06:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 06:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 06:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 06:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 06:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 06:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 06:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 06:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 06:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 06:11 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 06:22 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 06:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/65771550134.shtml)
-- 2026-06-30 06:02 - [锐评T1零封KC](http://www.share.minike.top/Article/details/17799060212.shtml)
-- 2026-06-30 06:22 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/2267940139.shtml)
-- 2026-06-30 06:23 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/2825250.shtml)
-- 2026-06-30 06:03 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/89673294.shtml)
-- 2026-06-30 06:09 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/97603676.shtml)
-- 2026-06-30 06:28 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/449903466799.shtml)
-- 2026-06-30 06:14 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/060586.shtml)
-- 2026-06-30 06:15 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/25507703.shtml)
-- 2026-06-30 06:11 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/55665.shtml)
-- 2026-06-30 06:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/216840.shtml)
-- 2026-06-30 06:28 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/11443224.shtml)
-- 2026-06-30 06:24 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/47920.shtml)
-- 2026-06-30 06:15 - [乔家的儿女](https://www.share.minike.top/Article/details/3451205.shtml)
-- 2026-06-30 06:03 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/003610562381.shtml)
+- 2026-06-30 06:13 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/660507.shtml)
+- 2026-06-30 06:23 - [美人鱼](http://www.share.minike.top/Article/details/78026.shtml)
+- 2026-06-30 06:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/57413.shtml)
+- 2026-06-30 06:33 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/520988.shtml)
+- 2026-06-30 06:08 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/95323575.shtml)
+- 2026-06-30 06:32 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/82040334.shtml)
+- 2026-06-30 06:26 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/768929.shtml)
+- 2026-06-30 06:25 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/98574680.shtml)
+- 2026-06-30 06:31 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/9029362.shtml)
+- 2026-06-30 06:30 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/0057263336.shtml)
+- 2026-06-30 06:33 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/138928.shtml)
+- 2026-06-30 06:20 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/325180540.shtml)
+- 2026-06-30 06:25 - [85花告别古偶](http://www.blog.minike.top/Article/details/51096962.shtml)
+- 2026-06-30 06:22 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/72032852031.shtml)
+- 2026-06-30 06:24 - [日本反击率先破门](https://www.share.minike.top/Article/details/121437.shtml)

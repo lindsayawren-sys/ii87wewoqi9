@@ -1,58 +1,57 @@
-# 陈茂波：香港投资管理有限公司已形成1元投资拉动8元跟投的耐心资本共感效应
+# （机遇香港）香港发展游艇经济为全球投资者打开新机遇
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财政司司长陈茂波表示，依托国家“十五五”规划战略指引，沪港两地将持续发挥差异化优势，从规模扩容迈向质量跃升，以全方位金融协同助力国家高水平双向对外开放。 陈茂波指出，国家“十五五”规划首次明确提出加快建设金融强国，为沪港金融发展锚定了核心方向、赋予了全新使命。在当
+中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。 香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，香港特别行政区政府财政司司长陈茂波表示，依托国家“十五五”规划战略指引，沪港两地将持续发挥差异化优势，从规模扩容迈向质量跃升，以全方位金融协同助力国家高水平双向对外开放。
+中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。
 
-陈茂波指出，国家“十五五”规划首次明确提出加快建设金融强国，为沪港金融发展锚定了核心方向、赋予了全新使命。
+分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。
 
-在当前地缘政治格局复杂多变、全球资产配置格局重塑，叠加人工智能等前沿技术加速重构全球产业与经济竞争格局的大背景下，全球投资者对稳健、优质的资产配置需求持续攀升，既需要稳定的资金“安全锚”，也亟需高潜力的增长新引擎，这为深耕中国市场、互联互通成熟的沪港两大金融中心带来了重大发展机遇。
+香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具备发展成为亚洲游艇枢纽的先天优势。
 
-他现场披露了沪港金融市场的亮眼成绩单，印证了国际市场对中国金融开放与发展的高度认可。
+香港特区行政长官李家超在2025年施政报告中明确提出发展游艇经济，优化游艇产业配套，推广高端游艇旅游。
 
-2025年香港IPO融资规模重回全球首位，跨境财富管理业务规模创下历史新高，香港国际金融中心排名稳居全球第三，与纽约、伦敦顶尖金融中心的分值差距仅为1至2分。
+提供高端海事服务 SKYTOPIA游艇港湾位于大湾区核心位置，规划提供超500个泊位，最大可容纳120米长的超级游艇，设有游艇港湾、海湾度假酒店及水上游乐活动区三大主题项目，将是亚洲顶级滨海地标，首期预计2028年建成。
 
-与此同时，上交所市场市值与交易流动性持续稳步提升，沪港两地资本市场凭借庞大的市场规模、深厚的行业底蕴和充沛的发展潜力，已然成为国际资本配置中国资产的核心枢纽。
+项目将直接拉动高端海事服务需求，涵盖游艇管理、船员招聘、保险经纪及维修保养等。
 
-“一系列亮眼数据的背后，是全球资本用真金白银对中国经济发展、市场开放创新、科创产业突破投出的信任票。
+目前已有来自中国内地、印尼、中东及新加坡的企业表达投资意向。
 
-”陈茂波表示，香港联通全球资本与国际规则、上海依托内地超大规模市场的独特双向区位优势，叠加两地互联互通机制的持续深化，持续释放强大市场吸引力。
+亚太超级游艇协会执行董事Suzy Rayment(苏茜·雷蒙特)指出，游艇产业能为香港带来完整服务生态系统，香港业界将整体受益。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 06:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 06:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 06:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 06:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 06:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 06:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 06:13 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 06:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 06:14 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 06:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 06:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 06:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 06:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 06:06 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 06:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 06:11 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 06:23 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:30 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:24 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [金刚川](http://www.share.minike.top/Article/details/021658188.shtml)
-- 2026-06-30 06:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/648936633.shtml)
-- 2026-06-30 06:10 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/913850.shtml)
-- 2026-06-30 06:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/85302213282.shtml)
-- 2026-06-30 06:11 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/53729.shtml)
-- 2026-06-30 06:26 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/2244364.shtml)
-- 2026-06-30 06:22 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/8822325.shtml)
-- 2026-06-30 06:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/86320555263.shtml)
-- 2026-06-30 06:20 - [流金岁月](https://www.share.kurohicncr.top/Article/details/18706975.shtml)
-- 2026-06-30 06:01 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/2022947687.shtml)
-- 2026-06-30 06:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/6407044168.shtml)
-- 2026-06-30 06:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/370073.shtml)
-- 2026-06-30 06:06 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/899044541.shtml)
-- 2026-06-30 06:08 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/90471668946.shtml)
-- 2026-06-30 06:16 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/36406460.shtml)
+- 2026-06-30 06:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/10227570285.shtml)
+- 2026-06-30 06:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/435609.shtml)
+- 2026-06-30 06:33 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/1836033742.shtml)
+- 2026-06-30 06:13 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/9074528.shtml)
+- 2026-06-30 06:19 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/481758.shtml)
+- 2026-06-30 06:27 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/9475379879.shtml)
+- 2026-06-30 06:33 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/9212636056.shtml)
+- 2026-06-30 06:31 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/752386897268.shtml)
+- 2026-06-30 06:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/33723404801.shtml)
+- 2026-06-30 06:35 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/759444.shtml)
+- 2026-06-30 06:10 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/08652210696.shtml)
+- 2026-06-30 06:32 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/83594.shtml)
+- 2026-06-30 06:08 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/180417427684.shtml)
+- 2026-06-30 06:17 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/526363401.shtml)
+- 2026-06-30 06:31 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/47688.shtml)

@@ -1,59 +1,43 @@
-# 国台办：两岸越早实现统一，越有利于台胞过上好日子
+# 视频|现场画面！白宫晚宴传出“巨大声响” 特朗普在安保人员护送下离开
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。国台办当日在北京举行例行新闻发布会。陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可
+责任编辑：杨赐
 
 ## 正文
 
-中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。
-
-国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。
-
-国台办当日在北京举行例行新闻发布会。
-
-陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可持续，台湾应主动寻求与大陆谈判两岸统一。
-
-两岸关系发展历程证明，以对话取代对抗、以合作取代争斗、以双赢取代零和，两岸关系才能行稳致远。
-
-我们愿意在坚持“九二共识”、反对“台独”的共同政治基础上，同台湾各政党、团体和社会各界人士一道，加强交流对话，推进政治谈判，就两岸关系和民族未来开展广泛深入的民主协商。
-
-他指出，近年来，民进党当局及其侧翼以唱衰大陆经济、诋毁大陆发展为能事，为其推动两岸“脱钩断链”、升高两岸对立对抗制造借口。
-
-但不管他们说什么、怎么说，都掩盖不了大陆经济基础稳、优势多、韧性强、潜能大、长期向好、稳定向好的基本面，改变不了两岸实力对比日益悬殊的客观事实，阻挡不了两岸同胞走亲走近、走到一起的大潮流。
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 06:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 06:09 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 06:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 06:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 06:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 06:25 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 06:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 06:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 06:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 06:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 06:25 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 06:27 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 06:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 06:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 06:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 06:07 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 06:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 06:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 06:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 06:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 06:35 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 06:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/94566557967.shtml)
-- 2026-06-30 06:09 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/79608466082.shtml)
-- 2026-06-30 06:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/024735614335.shtml)
-- 2026-06-30 06:25 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/466669402.shtml)
-- 2026-06-30 06:09 - [周生如故](https://www.share.kurohicncr.top/Article/details/43804309.shtml)
-- 2026-06-30 06:10 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/582190094.shtml)
-- 2026-06-30 06:18 - [《共患难》](https://www.share.kurohicncr.top/Article/details/729392.shtml)
-- 2026-06-30 06:06 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/6972539.shtml)
-- 2026-06-30 06:19 - [扫黑风暴](http://www.blog.minike.top/Article/details/728009104.shtml)
-- 2026-06-30 06:21 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/70635500377.shtml)
-- 2026-06-30 06:02 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/3428921.shtml)
-- 2026-06-30 06:21 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/649553196.shtml)
-- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/24434167394.shtml)
-- 2026-06-30 06:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/171437898.shtml)
-- 2026-06-30 06:25 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/08784655.shtml)
+- 2026-06-30 06:09 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/858599681288.shtml)
+- 2026-06-30 06:16 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/17533944773.shtml)
+- 2026-06-30 06:06 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/8751461.shtml)
+- 2026-06-30 06:08 - [85花告别古偶](http://www.blog.minike.top/Article/details/440646315.shtml)
+- 2026-06-30 06:18 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/4875586620.shtml)
+- 2026-06-30 06:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/948892.shtml)
+- 2026-06-30 06:12 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/147306.shtml)
+- 2026-06-30 06:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/97178432641.shtml)
+- 2026-06-30 06:21 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/176067304923.shtml)
+- 2026-06-30 06:24 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/6212446249.shtml)
+- 2026-06-30 06:25 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/65799360.shtml)
+- 2026-06-30 06:24 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/382350.shtml)
+- 2026-06-30 06:24 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/577271791680.shtml)
+- 2026-06-30 06:12 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/00236985.shtml)
+- 2026-06-30 06:35 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/61500.shtml)

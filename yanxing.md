@@ -1,61 +1,56 @@
-# 聚焦新型储能产业技术 中外嘉宾献策绿色低碳发展
+# 西安“十五五”规划锚定新质生产力 加快建设人工智能等创新中心
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网青岛6月17日电 (记者 沙见龙)“向绿向新 储动未来——新型储能产业技术发展论坛”6月17日在山东青岛举办。作为第七届跨国公司领导人青岛峰会平行配套活动之一，该论坛吸引350余位中外嘉宾参会。就新型储能产业技术创新与发展，与会嘉宾共话能源转型路径，为全球绿色低碳发展建言献策。 多年来，挪威康士伯集团旗下多家子公司，已与中国相关机构在储能技术落地应用领域开展多项务实合作。
+中新网西安4月23日电 (杨英琦)记者23日从陕西省人民政府新闻办公室召开的新闻发布会上获悉，西安市明确未来五年发展目标：全面提升城市综合能级和竞争力，实现GDP年均增长5.5%左右，2030年达到1.8万亿元、力争突破2万亿元，从而建设一个经济实力更强的西安。近日，西安印发《西安市国民经济和社会发展第十五个五年规划纲要》(以下简称《纲要》)，《纲要》立足带动全省、示范西部、服
 
 ## 正文
 
-中新网青岛6月17日电 (记者 沙见龙)“向绿向新 储动未来——新型储能产业技术发展论坛”6月17日在山东青岛举办。
+中新网西安4月23日电 (杨英琦)记者23日从陕西省人民政府新闻办公室召开的新闻发布会上获悉，西安市明确未来五年发展目标：全面提升城市综合能级和竞争力，实现GDP年均增长5.5%左右，2030年达到1.8万亿元、力争突破2万亿元，从而建设一个经济实力更强的西安。
 
-作为第七届跨国公司领导人青岛峰会平行配套活动之一，该论坛吸引350余位中外嘉宾参会。
+近日，西安印发《西安市国民经济和社会发展第十五个五年规划纲要》(以下简称《纲要》)，《纲要》立足带动全省、示范西部、服务全国的战略基点，提出了“五个追赶超越、先行示范”的总体目标以及5大类22项主要指标。
 
-就新型储能产业技术创新与发展，与会嘉宾共话能源转型路径，为全球绿色低碳发展建言献策。
+《纲要》明确，未来五年西安制造业总产值力争突破1.5万亿元，2030年工业增加值占GDP比重达到20%，西部经济中心建设迈上新台阶。
 
-多年来，挪威康士伯集团旗下多家子公司，已与中国相关机构在储能技术落地应用领域开展多项务实合作。
+将加力推进西安区域科技创新中心建设，提出全社会研发经费投入年均增长5%，集中力量突破一批关键核心技术，2030年数字经济核心产业增加值占GDP比重达到12%。
 
-据康士伯数字公司全球副总裁吴海锋介绍，自2024年与山东省煤田地质局达成地学数字化战略合作以来，双方持续夯实合作基础、拓展合作领域，为山东战略性新兴产业绿色低碳高质量发展持续赋能。
+同时，西安将加快建设中欧班列经济圈，《纲要》提出货物和服务贸易总额年均增长6%，对外交往中心地位更加凸显；将持续提升西安文化影响力和传播力，文化及相关产业增加值占GDP比重达到12%，中华文化和中华文明重要展示窗口作用更加彰显。
 
-康士伯集团持续关注山东海上风电、光伏制氢、深远海储能、零碳产业园等重点产业赛道，积极对接本土企业，寻求技术落地与产业合作契机。
+建设一个生态环境更美的西安，如期实现碳达峰目标，森林覆盖率保持在48.03%以上。
 
-吴海锋表示，期待在“十五五”期间，将深度参与中国储能装备研发、智慧能源基建等重点领域建设，落地一批示范项目与规模化商用项目，最大化释放科技创新与市场规模化应用的叠加价值。
+此外，西安将加快推进基本公共服务更加普惠均衡，每年投放创业担保不少于2亿元，实现全市学前教育普及普惠县全覆盖，建设10所左右特色高中，推动职工医保逐步覆盖全体城乡居民参保人员，基本养老保险参保人数力争达到1020万人。
 
-近年来，山东省煤田地质局深耕盐穴储能赛道，技术水平与项目建设规模位居中国前列，打造出多个可复制、可推广的项目。
+西安市委常委、常务副市长杨建强表示，今年是“十五五”开局之年，西安将以优化场景供给为牵引，培育发展新质生产力，加快大飞机、能源、人工智能等创新中心建设；推动城市内涵式发展，在全市划定48个重点片区，实施集中连片开发；把服务业扩能提质作为稳增长的关键支撑，加快现代服务业与先进制造业深度融合，推动服务业向专业化和价值链高端延伸。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 06:12 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 06:29 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 06:28 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 06:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 06:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 06:02 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 06:19 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 06:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 06:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 06:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 06:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 06:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 06:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 06:29 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 06:27 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 06:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:29 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 06:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 06:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 06:12 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 06:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 06:06 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 06:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/785289130000.shtml)
-- 2026-06-30 06:16 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/615075200.shtml)
-- 2026-06-30 06:11 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/55311.shtml)
-- 2026-06-30 06:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1498451027.shtml)
-- 2026-06-30 06:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/71277.shtml)
-- 2026-06-30 06:22 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/669357.shtml)
-- 2026-06-30 06:21 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/633975083635.shtml)
-- 2026-06-30 06:16 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/58756527264.shtml)
-- 2026-06-30 06:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/558266.shtml)
-- 2026-06-30 06:20 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/36521908145.shtml)
-- 2026-06-30 06:01 - [世界杯](http://www.blog.kurohicncr.top/Article/details/470067636.shtml)
-- 2026-06-30 06:11 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/99845.shtml)
-- 2026-06-30 06:12 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/684587.shtml)
-- 2026-06-30 06:16 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/354692161.shtml)
-- 2026-06-30 06:29 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/10666222467.shtml)
+- 2026-06-30 06:24 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/224299885479.shtml)
+- 2026-06-30 06:11 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/93437.shtml)
+- 2026-06-30 06:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/23469890369.shtml)
+- 2026-06-30 06:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/81334.shtml)
+- 2026-06-30 06:25 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/79724.shtml)
+- 2026-06-30 06:30 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/199150432208.shtml)
+- 2026-06-30 06:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/08712329031.shtml)
+- 2026-06-30 06:36 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/833733068.shtml)
+- 2026-06-30 06:33 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/38235380.shtml)
+- 2026-06-30 06:10 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/77557594.shtml)
+- 2026-06-30 06:34 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/085571349.shtml)
+- 2026-06-30 06:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/68871.shtml)
+- 2026-06-30 06:07 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/27032428960.shtml)
+- 2026-06-30 06:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/16615.shtml)
+- 2026-06-30 06:35 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/817798185393.shtml)

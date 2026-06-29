@@ -1,61 +1,60 @@
-# 《人工智能》特种邮票首发暨科普嘉年华活动在太原举办
+# 新疆全民阅读系列推广活动启动
 
-> 更新时间：2026-06-30 06:30:02 UTC+8
+> 更新时间：2026-06-30 06:36:03 UTC+8
 
 ## 摘要
 
-中新网太原6月18日电 (记者 胡健)《人工智能》特种邮票首发暨科普嘉年华系列活动18日在山西省科技馆启幕，旨在创新打造“科学普及+邮票文化”融合场景，推动前沿人工智能技术与传统集邮文化深度融合。 本次活动以“方寸邮品绘智联，科技赋能创未来”为主题，于6月18日至21日，开展《人工智能》特种邮票首发、“邮票上的科学技术”主题邮展、《中的人工智能》专题科普讲座等系列科普活动。 当
+大陆导航APP，也上了台当局“黑名单”诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力古特雷斯任期将于年底结束 谁会成为下一任联合国秘书长麦家：如果想保持创造力，一定要进行深阅读风靡北京的馕咖啡，戳穿了一个关于新疆的无耻谎言生日快乐！一起来看属于他的高光时刻！湖南腊元古村：军屯堡垒变身“没有围墙的博物馆”高校图书馆如何接住“全民阅读”的青年期待？方寸见世界：一对香港夫
 
 ## 正文
 
-中新网太原6月18日电 (记者 胡健)《人工智能》特种邮票首发暨科普嘉年华系列活动18日在山西省科技馆启幕，旨在创新打造“科学普及+邮票文化”融合场景，推动前沿人工智能技术与传统集邮文化深度融合。
+大陆导航APP，也上了台当局“黑名单”诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力古特雷斯任期将于年底结束 谁会成为下一任联合国秘书长麦家：如果想保持创造力，一定要进行深阅读风靡北京的馕咖啡，戳穿了一个关于新疆的无耻谎言生日快乐！
 
-本次活动以“方寸邮品绘智联，科技赋能创未来”为主题，于6月18日至21日，开展《人工智能》特种邮票首发、“邮票上的科学技术”主题邮展、《中的人工智能》专题科普讲座等系列科普活动。
+一起来看属于他的高光时刻！
 
-当天由中国邮政发行的《人工智能》特种邮票，一套4枚，邮票图案分别为：智启纪元、数智融合、具身智能、和谐共生。
+湖南腊元古村：军屯堡垒变身“没有围墙的博物馆”高校图书馆如何接住“全民阅读”的青年期待？
 
-本套邮票串联人工智能从诞生到未来的发展图景，以科技美学与人文内涵为双重内核，展现AI技术的演进历程、多元应用与社会价值。
+方寸见世界：一对香港夫妇的40载藏书票情缘河洛“三彩小镇”千年唐三彩焕新 年产值3.5亿元全民阅读续文脉 解缙故事咏流传相约三亚：共赴一场亚洲之约从造水库建林场到“时尚弄潮儿” 福建这群渔女们太飒了中东局势导致避孕套涨价？
 
-该套邮票在专用印刷油墨中首次创新性融入了硅基材料，既强化油墨质感，又深度贴合邮票主题。
+杜蕾斯、杰士邦、冈本客服回应订单已排到7月！
 
-“邮票上的科学技术”主题邮展，精选58套136枚经典科技题材邮票，涵盖中国科学家、数理科学之美、重大科技成果、新时代科技创新、人工智能发展等多元主题，完整展现中国科技事业发展脉络。
+老外正在疯抢中国电摩今天，翻开属于你的那本书义乌请量产！
 
-《中的人工智能》专题科普讲座，以 MOSS、数字生命和“人在回路”等电影设定为入口，探讨科幻作品如何把前沿科技、科学想象与人类命运连接起来，打破专业壁垒，普及前沿科技知识，让科技走进大众生活。
+这不是梗，是实力手机成新农具，物流通万家！
 
-本次系列活动由山西省科学技术协会、中国邮政山西省分公司主办。
+乡村消费早已不一样12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 06:05 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 06:02 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 06:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 06:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 06:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 06:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 06:03 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 06:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 06:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 06:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 06:29 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 06:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:02 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 06:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 06:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 06:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 06:13 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 06:25 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 06:25 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 06:07 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 06:31 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 06:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:12 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 06:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 06:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 06:24 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/09064833.shtml)
-- 2026-06-30 06:08 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/853531.shtml)
-- 2026-06-30 06:21 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/8282588.shtml)
-- 2026-06-30 06:02 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/150989066.shtml)
-- 2026-06-30 06:00 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/56172946.shtml)
-- 2026-06-30 06:29 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/9353004.shtml)
-- 2026-06-30 06:28 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/4077676.shtml)
-- 2026-06-30 06:24 - [扬名立万](http://www.blog.minike.top/Article/details/2056400232.shtml)
-- 2026-06-30 06:20 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/883302268.shtml)
-- 2026-06-30 06:05 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/0477737.shtml)
-- 2026-06-30 06:08 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/99079.shtml)
-- 2026-06-30 06:03 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/960164449.shtml)
-- 2026-06-30 06:05 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/15088.shtml)
-- 2026-06-30 06:00 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/60313.shtml)
-- 2026-06-30 06:11 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/61654756113.shtml)
+- 2026-06-30 06:09 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/748393377270.shtml)
+- 2026-06-30 06:19 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/104889035.shtml)
+- 2026-06-30 06:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/8697014.shtml)
+- 2026-06-30 06:22 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/880723.shtml)
+- 2026-06-30 06:13 - [日本16强魔咒](https://www.blog.minike.top/Article/details/1232362.shtml)
+- 2026-06-30 06:25 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/031996.shtml)
+- 2026-06-30 06:28 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/76115254.shtml)
+- 2026-06-30 06:22 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/96071.shtml)
+- 2026-06-30 06:10 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/99820870.shtml)
+- 2026-06-30 06:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/4407026.shtml)
+- 2026-06-30 06:28 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/929737924548.shtml)
+- 2026-06-30 06:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/62851281.shtml)
+- 2026-06-30 06:35 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/842013.shtml)
+- 2026-06-30 06:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/829905010737.shtml)
+- 2026-06-30 06:14 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/865370.shtml)
