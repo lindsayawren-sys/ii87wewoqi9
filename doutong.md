@@ -1,60 +1,59 @@
-# 强对流天气袭赣 公路部门连夜抢险保畅通
+# 午盘：美股涨跌不一 纳指一度突破26000点
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月10日电 (记者 吴鹏泉)江西公路部门10日介绍，强对流天气9日晚袭击赣鄱大地，该省南昌、上饶等地遭遇狂风暴雨，狂风导致辖区多条公路树木倒伏，断枝阻路，公路部门连夜抢险保畅通。 9日20时30分许，南昌湾里省道417望招线铜源峡景区路段，一棵长约8米的大树被狂风连根拔起，阻断半幅车道致交通拥堵。湾里公路分中心抢险队伍赶赴现场，布设警示标志、疏导交通，同时切割、搬运
+北京时间5月8日凌晨，美股周四午盘涨跌不一。纳指一度突破26000点。布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 道指跌121.39点，跌幅为0.24%，报49789.20点；纳指涨32.25点，涨幅为0.12%，报25871.19点；标普500指数跌7.46点，跌幅为0.10%，报7357.66点。
 
 ## 正文
 
-中新网南昌4月10日电 (记者 吴鹏泉)江西公路部门10日介绍，强对流天气9日晚袭击赣鄱大地，该省南昌、上饶等地遭遇狂风暴雨，狂风导致辖区多条公路树木倒伏，断枝阻路，公路部门连夜抢险保畅通。
+北京时间5月8日凌晨，美股周四午盘涨跌不一。
 
-9日20时30分许，南昌湾里省道417望招线铜源峡景区路段，一棵长约8米的大树被狂风连根拔起，阻断半幅车道致交通拥堵。
+纳指一度突破26000点。
 
-湾里公路分中心抢险队伍赶赴现场，布设警示标志、疏导交通，同时切割、搬运倒伏树木。
+布伦特原油连续第三天下跌。
 
-经约1小时的奋战，路面恢复畅通。
+交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
 
-南昌安义县同样遭遇雷暴大风天气，多条国省干道行道树倒伏，断枝阻路。
+道指跌121.39点，跌幅为0.24%，报49789.20点；纳指涨32.25点，涨幅为0.12%，报25871.19点；标普500指数跌7.46点，跌幅为0.10%，报7357.66点。
 
-安义公路分中心集结养护力量开展“拉网式”夜间巡查，对倒伏树木进行切割、清运，目前已清理倒伏路树10棵。
+布伦特原油交投于每桶99美元附近，延续前两个交易日累计12%的跌势，原因是市场越来越相信中东协议已近在眼前。
 
-9日22时许，上饶三清山境内突发强对流天气，雷暴大风裹挟着短时强降水突袭，导致沿线国省干线公路多处出现边坡溜塌、路树倒伏等险情。
+6月交割的WTI原油期货下跌2.5%，至每桶92.79美元。
 
-三清山公路中心工作人员在危险路段规范设置警示标识，快速清理路面落石，清理大小倒伏路树20余棵，所有受阻路段均已安全抢通。
+布伦特原油本周累计下跌逾10%。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 15:49 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 16:03 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 16:16 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 16:03 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 16:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 16:16 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 16:01 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 16:12 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 16:06 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 15:50 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 15:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 16:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 16:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 15:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 15:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 16:00 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 16:14 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 15:56 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 16:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:08 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 16:10 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 16:03 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 16:04 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 16:22 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/26780212.shtml)
-- 2026-06-29 16:17 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/8556829.shtml)
-- 2026-06-29 16:01 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/4641677727.shtml)
-- 2026-06-29 16:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/480255873838.shtml)
-- 2026-06-29 15:56 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/685846.shtml)
-- 2026-06-29 15:48 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/7966662.shtml)
-- 2026-06-29 15:55 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/34011051.shtml)
-- 2026-06-29 15:52 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/09212.shtml)
-- 2026-06-29 16:07 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/89409196.shtml)
-- 2026-06-29 15:59 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/389918.shtml)
-- 2026-06-29 16:17 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/80749.shtml)
-- 2026-06-29 16:11 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/381473.shtml)
-- 2026-06-29 15:58 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/88561775301.shtml)
-- 2026-06-29 16:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/0605731.shtml)
-- 2026-06-29 16:11 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/811516383.shtml)
+- 2026-06-29 16:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/047668.shtml)
+- 2026-06-29 15:55 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/728453.shtml)
+- 2026-06-29 16:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/543156.shtml)
+- 2026-06-29 16:07 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/326855134028.shtml)
+- 2026-06-29 16:11 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/736840856163.shtml)
+- 2026-06-29 16:06 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/674011246.shtml)
+- 2026-06-29 16:20 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/649877628233.shtml)
+- 2026-06-29 16:15 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/391294293950.shtml)
+- 2026-06-29 16:01 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/501842052764.shtml)
+- 2026-06-29 16:12 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/678855.shtml)
+- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/7761635.shtml)
+- 2026-06-29 16:08 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/137849212.shtml)
+- 2026-06-29 16:03 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/35803.shtml)
+- 2026-06-29 15:58 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/49716556.shtml)
+- 2026-06-29 15:55 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/535506500.shtml)

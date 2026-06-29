@@ -1,61 +1,57 @@
-# 《晋江侨厝故事》首发 46座侨厝见证华侨家国情怀
+# 巨额融资与商业变现共振！AI应用逆势活跃 融资客提前埋伏多股(名单)
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网福建晋江4月9日电 (记者 孙虹)《晋江侨厝故事》首发暨出版分享会9日在福建晋江梧林传统村落举行。这部历时一年编撰完成、约24万字的侨文化专著，精选晋江46座代表性侨厝，以建筑为载体、以故事为脉络，系统记录晋江华侨奋斗史与家国情怀，为侨乡文化保护传承留下重要文本。 作为中国知名侨乡，侨文化是晋江最鲜明的人文标识。在晋江，融合闽南传统规制与南洋建筑风格的侨厝遍布全市，一砖一
+受隔夜美股影响，5月8日早盘，AI应用板块表现活跃，截至11时，南威软件走出两连板，引力传媒、贝瑞基因、ST美克、*ST高科强势封板，酷特智能一度20cm涨停，博睿数据、新大陆、国子软件等多股跟涨。 消息面上，Kimi（月之暗面）即将完成新一轮20亿美元融资，DeepSeek首轮融资也有新消息。与此同时，豆包近日推出付费订阅，标志着国产大模型厂商正式进入商业化变现阶段。 大模型
 
 ## 正文
 
-中新网福建晋江4月9日电 (记者 孙虹)《晋江侨厝故事》首发暨出版分享会9日在福建晋江梧林传统村落举行。
+受隔夜美股影响，5月8日早盘，AI应用板块表现活跃，截至11时，南威软件走出两连板，引力传媒、贝瑞基因、ST美克、*ST高科强势封板，酷特智能一度20cm涨停，博睿数据、新大陆、国子软件等多股跟涨。
 
-这部历时一年编撰完成、约24万字的侨文化专著，精选晋江46座代表性侨厝，以建筑为载体、以故事为脉络，系统记录晋江华侨奋斗史与家国情怀，为侨乡文化保护传承留下重要文本。
+消息面上，Kimi（月之暗面）即将完成新一轮20亿美元融资，DeepSeek首轮融资也有新消息。
 
-作为中国知名侨乡，侨文化是晋江最鲜明的人文标识。
+与此同时，豆包近日推出付费订阅，标志着国产大模型厂商正式进入商业化变现阶段。
 
-在晋江，融合闽南传统规制与南洋建筑风格的侨厝遍布全市，一砖一瓦都镌刻着海外游子离乡打拼、心系故土、反哺桑梓的赤子情怀。
+大模型厂商融资不断 据媒体报道，大模型独角兽Kimi即将完成新一轮约20亿美元融资，投后估值突破200亿美元（约1400亿元人民币）。
 
-随着时间推移，部分侨厝的历史记忆与家族故事面临失传风险，抢救梳理侨厝文化、守护侨乡根脉成为当地文化传承的重要任务。
+本轮融资由美团龙珠领投，中国移动、CPE等参投，其中美团龙珠投资超过2亿美元。
 
-“侨厝是晋江独特的文化密码，是海内外晋江人共同的精神图腾。
+相关资金将用于进一步巩固Kimi在模型SOTA、算力储备及人才激励上的领先身位。
 
-”晋江市侨联党组书记、主席陈建军表示，《晋江侨厝故事》不仅是一部记录建筑的书籍，更是晋江华侨群体的精神丰碑，将为晋江凝侨心、引侨资、汇侨智、聚侨力提供强大精神动力与文化支撑。
+值得注意的是，今年1月和2月，Kimi密集完成了三轮融资，分别融得5亿美元、7亿美元和7亿美元。
 
-据了解，《晋江侨厝故事》编撰工作于2025年3月启动，编撰团队秉持客观、真实、生动、通俗的原则，以“以厝带人、以事见史”为创作理念，通过文献梳理、实地调研、口述历史采集、相关实物征集等多种方式，挖掘整理侨厝背后的鲜活故事。
+加上最新一轮融资，不到半年时间里，Kimi融资总额已超39亿美元，最新估值相比去年11月的约43亿美元翻了四倍多。
 
 ## 相关推荐
 
-- 2026-06-29 15:55 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 15:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 15:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 16:16 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 16:15 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 16:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 16:07 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 15:49 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 15:49 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 16:13 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:10 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 15:48 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 16:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 16:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 16:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 15:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 16:20 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 16:16 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 16:12 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 16:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 15:55 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 15:56 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 16:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 15:54 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 16:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 16:10 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/8261062291.shtml)
-- 2026-06-29 15:55 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/809906.shtml)
-- 2026-06-29 15:48 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/392225640.shtml)
-- 2026-06-29 16:13 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/240113664541.shtml)
-- 2026-06-29 15:59 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/2741861960.shtml)
-- 2026-06-29 15:56 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/930325183266.shtml)
-- 2026-06-29 15:49 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/12792022808.shtml)
-- 2026-06-29 16:03 - [恋与深空 731](https://www.blog.minike.top/Article/details/065434880382.shtml)
-- 2026-06-29 15:55 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/1634543.shtml)
-- 2026-06-29 16:02 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/637745996137.shtml)
-- 2026-06-29 16:16 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/9898412.shtml)
-- 2026-06-29 15:52 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/92860972609.shtml)
-- 2026-06-29 15:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/7998126829.shtml)
-- 2026-06-29 16:06 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/31373337064.shtml)
-- 2026-06-29 16:17 - [上班主打一个薪尽自然凉](https://www.blog.kurohicncr.top/Article/details/83543956212.shtml)
+- 2026-06-29 16:19 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/6008503.shtml)
+- 2026-06-29 16:05 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/7307936.shtml)
+- 2026-06-29 15:59 - [扬名立万](http://www.blog.minike.top/Article/details/785364563.shtml)
+- 2026-06-29 16:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/878338376357.shtml)
+- 2026-06-29 16:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/78235.shtml)
+- 2026-06-29 16:20 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/30570398230.shtml)
+- 2026-06-29 16:16 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/0173367510.shtml)
+- 2026-06-29 16:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/37295.shtml)
+- 2026-06-29 16:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/86968543087.shtml)
+- 2026-06-29 15:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/93131.shtml)
+- 2026-06-29 16:11 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/64268207.shtml)
+- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/0779657.shtml)
+- 2026-06-29 16:10 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/844089126.shtml)
+- 2026-06-29 16:10 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/96712571132.shtml)
+- 2026-06-29 16:20 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/71870328807.shtml)

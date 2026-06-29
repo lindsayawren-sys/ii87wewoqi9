@@ -1,57 +1,56 @@
-# 伊朗导弹命中率增长8倍，美以为何防不胜防？
+# 中越边境“生命直通车”已成功救助700余名两国急危重症患者
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。 外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。 比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化
+【东盟专线】中越边境“生命直通车”已成功救助700余名两国急危重症患者 中新社南宁5月8日电 (记者 黄艳梅)广西壮族自治区卫生健康委员会8日举行的新闻发布会披露，截至目前，“1369生命直通车”已成功救助700余名中越两国危急重症患者。 “1369生命直通车”于2016年8月开通，是广西防城港市立足边境口岸区位优势打造的跨境急救特色品牌，为危急重症患者提供24小时紧急医疗救助
 
 ## 正文
 
-中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。
+【东盟专线】中越边境“生命直通车”已成功救助700余名两国急危重症患者 中新社南宁5月8日电 (记者 黄艳梅)广西壮族自治区卫生健康委员会8日举行的新闻发布会披露，截至目前，“1369生命直通车”已成功救助700余名中越两国危急重症患者。
 
-外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。
+“1369生命直通车”于2016年8月开通，是广西防城港市立足边境口岸区位优势打造的跨境急救特色品牌，为危急重症患者提供24小时紧急医疗救助通关保障。
 
-比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化工厂储存设施，引发大火和危险化学品泄漏。
+防城港市卫生健康委员会主任戴三军介绍，为破解跨境医疗语言沟通难题，该市组建由护理骨干组成的越南语志愿服务队，全程提供翻译服务，精准对接患者病情问询、诊疗方案告知等工作，保障救治各环节高效衔接。
 
-值得注意的是，2025年“12日战争”结束后，《耶路撒冷邮报》曾称以方对伊朗导弹的拦截率约为80%。
+服务队全程参与院前评估、途中监护、病情监测、应急处置、专科护理及转运协调等工作，主动对接越方医疗机构、口岸联检等相关部门，高效完成患者信息核验、通关对接、转诊协调等工作，最大限度压缩通关时长，为救治争取黄金时间。
 
-而当时，伊朗的反击没有这次强烈持久，以色列的国土反导防空网也比现在体系更严密、弹药更充足。
+戴三军表示，作为国际医学开放试验区，防城港市将深化与越南等东盟国家的护理交流合作，持续优化跨境急救转运护理流程，完善跨境医疗协作机制，推动护理服务与跨境急救、国际诊疗、康复护理深度融合。
 
-英国防务智库披露，截至3月下旬，以色列的“箭-2”“箭-3”反导拦截弹已消耗约八成，“大卫投石索”近程拦截弹则剩40%左右。
-
-至于新闻中曝光率很高的“铁穹”防空系统，综合各方消息来看，其每次作战少则发射2至3枚，多则发射8至20枚拦截弹，消耗速度同样十分惊人。
-
-既然“盾”逐渐变得薄弱，那么“矛”的突防成功率随之提高，就是自然而然的事情了。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 16:02 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 15:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 15:56 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 16:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 16:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 15:53 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 16:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 15:49 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 16:15 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 16:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 15:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 16:10 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 16:00 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 16:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 16:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:59 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 15:57 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 16:14 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 15:58 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 16:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 16:04 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 16:09 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/2002453.shtml)
-- 2026-06-29 15:52 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/16447904825.shtml)
-- 2026-06-29 15:53 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/190406389895.shtml)
-- 2026-06-29 15:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/767368326490.shtml)
-- 2026-06-29 16:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/93755.shtml)
-- 2026-06-29 15:48 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/31507676.shtml)
-- 2026-06-29 15:57 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/48907073208.shtml)
-- 2026-06-29 15:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/97435.shtml)
-- 2026-06-29 15:53 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/4149906.shtml)
-- 2026-06-29 15:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/48208831.shtml)
-- 2026-06-29 16:15 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/48733.shtml)
-- 2026-06-29 16:15 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/0994692.shtml)
-- 2026-06-29 16:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/34953.shtml)
-- 2026-06-29 15:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/225452113955.shtml)
-- 2026-06-29 16:00 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/4725787884.shtml)
+- 2026-06-29 15:57 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/67592462.shtml)
+- 2026-06-29 16:11 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/958041756.shtml)
+- 2026-06-29 16:19 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/1105788301.shtml)
+- 2026-06-29 16:16 - [沙丘](http://www.share.minike.top/Article/details/50183667.shtml)
+- 2026-06-29 16:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/64505007.shtml)
+- 2026-06-29 16:23 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/992720.shtml)
+- 2026-06-29 16:01 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/54698713.shtml)
+- 2026-06-29 15:56 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/48524.shtml)
+- 2026-06-29 16:23 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/00393622708.shtml)
+- 2026-06-29 16:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/035712566.shtml)
+- 2026-06-29 15:55 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/6488258.shtml)
+- 2026-06-29 16:08 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/597202.shtml)
+- 2026-06-29 16:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/384306569623.shtml)
+- 2026-06-29 16:13 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/283409098.shtml)
+- 2026-06-29 15:55 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/154603170.shtml)

@@ -1,59 +1,56 @@
-# 建行上海市分行行长刘军退休 接任者来自河北省分行
+# 《纽约时报》：Meta拥抱AI令员工苦不堪言
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者周炎炎 原标题：21独家|建行上海市分行行长刘军退休 接任者来自河北省分行 21世纪经济报道记者独家获悉，近期中国建设银行上海市分行原行长刘军正式退休，而接任者已经到岗工作，为建行河北省分行行长周辉东。待监管核准其任职资格后，周辉东将正式出任上海市分行行长。 这一人事变动发生在3月末4月初。建行上海市分行原行长刘军出生于1965年，今年已达退休年龄，因此这一
+据报道，Meta全力押注人工智能的战略转型正让公司内部员工怨声载道。过去数月，多个团队因优先级调整而被重组，甚至取消，员工们正承受着巨大的内部压力。 内部动荡加剧 自扎克伯格宣布2026年为“AI效率年”以来，Meta已冻结非AI岗位的招聘，并将数千名员工重新分配到AI相关项目。一名在职工程师透露，现在“每个人都必须将AI融入日常工作，否则就得出局”。绩效考核标准也随之改变，A
 
 ## 正文
 
-21世纪经济报道记者周炎炎 原标题：21独家|建行上海市分行行长刘军退休 接任者来自河北省分行 21世纪经济报道记者独家获悉，近期中国建设银行上海市分行原行长刘军正式退休，而接任者已经到岗工作，为建行河北省分行行长周辉东。
+据报道，Meta全力押注人工智能的战略转型正让公司内部员工怨声载道。
 
-待监管核准其任职资格后，周辉东将正式出任上海市分行行长。
+过去数月，多个团队因优先级调整而被重组，甚至取消，员工们正承受着巨大的内部压力。
 
-这一人事变动发生在3月末4月初。
+内部动荡加剧 自扎克伯格宣布2026年为“AI效率年”以来，Meta已冻结非AI岗位的招聘，并将数千名员工重新分配到AI相关项目。
 
-建行上海市分行原行长刘军出生于1965年，今年已达退休年龄，因此这一重要分行人事的补位也在情理之中。
+一名在职工程师透露，现在“每个人都必须将AI融入日常工作，否则就得出局”。
 
-对科技金融“情有独钟”的行长 刘军在建行已经工作了超过30年。
+绩效考核标准也随之改变，AI技能的贡献权重远高于传统项目。
 
-他1986年毕业于安徽大学法学专业，2003年获香港浸会大学工商管理硕士学位。
+工作压力激增 员工普遍抱怨工作量呈指数级增长。
 
-他1993年开始在建行工作，2006年6月开始任建行广东省分行行长助理，2008年9月任广东省分行副行长，2011年4月起担任深圳市分行行长，2014年升任广东省分行行长，8年后的2022年7月担任建信基金董事长，2023年2月起担任上海市分行行长。
+为提高模型迭代速度，管理层要求缩短产品发布周期，导致团队不得不连续加班。
 
-2024年3月，在接受21世纪经济报道一次深度访谈时，时任上海市分行行长的刘军直言“在众多的银行业务中，我对科技金融情有独钟”。
+多名员工表示在周末和深夜收到通过AI内部工具生成的紧急任务，这种全天候响应机制严重挤占了休息时间。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 16:15 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:58 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 16:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 15:59 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 16:05 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 15:51 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 16:14 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 15:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 15:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 16:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 16:04 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 16:21 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 15:55 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 16:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 16:07 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 16:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 16:07 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 16:16 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 16:11 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 15:54 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 16:01 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/216974.shtml)
-- 2026-06-29 16:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/1063837482.shtml)
-- 2026-06-29 16:07 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/92721.shtml)
-- 2026-06-29 16:10 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/17109.shtml)
-- 2026-06-29 15:55 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/4217561.shtml)
-- 2026-06-29 15:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/068131546220.shtml)
-- 2026-06-29 16:14 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/78452135.shtml)
-- 2026-06-29 16:10 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/66356.shtml)
-- 2026-06-29 15:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/00908443869.shtml)
-- 2026-06-29 15:55 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/867578810.shtml)
-- 2026-06-29 16:16 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/485770.shtml)
-- 2026-06-29 15:52 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/438637595742.shtml)
-- 2026-06-29 16:06 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/522070224.shtml)
-- 2026-06-29 15:59 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/248374826894.shtml)
-- 2026-06-29 16:16 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/53135.shtml)
+- 2026-06-29 16:13 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/6815049804.shtml)
+- 2026-06-29 16:03 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/85403.shtml)
+- 2026-06-29 16:17 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/51001472.shtml)
+- 2026-06-29 16:20 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/703386521081.shtml)
+- 2026-06-29 16:11 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/107577058885.shtml)
+- 2026-06-29 16:15 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/899877220.shtml)
+- 2026-06-29 15:58 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/43810516.shtml)
+- 2026-06-29 16:18 - [恋与深空 731](https://www.share.minike.top/Article/details/422653.shtml)
+- 2026-06-29 16:15 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/5497717.shtml)
+- 2026-06-29 16:05 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/147341960481.shtml)
+- 2026-06-29 15:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/914440.shtml)
+- 2026-06-29 15:58 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/6085676.shtml)
+- 2026-06-29 15:58 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/0185732734.shtml)
+- 2026-06-29 16:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/326491174.shtml)
+- 2026-06-29 16:10 - [爱很美味](https://www.share.minike.top/Article/details/978322.shtml)

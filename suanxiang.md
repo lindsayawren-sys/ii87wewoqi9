@@ -1,59 +1,57 @@
-# 营收净利规模增长，增速放缓，1900亿巨头顺丰变“慢”了？
+# 港股本周收盘站稳26000点 腾讯、阿里、京东季度业绩成市场焦点
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。 近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。 回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。 下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。
 
-来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。
+回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。
 
-近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。
+下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场预判三家企业盈利表现将明显分化。
 
-受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3.48%，港股股价上涨5.76%。
+高歌证券金融首席分析师聂振邦表示，港股进入大型科技股业绩披露窗口期，有望持续吸引增量资金布局。
 
-近年来，物流行业竞争比较激烈，普遍陷入价格战的泥潭，顺丰交出的这份成绩单，似乎意味着物流龙头的王者归来。
+他认为，若香港恒生指数能够连续两日收市站稳在26500点上方，本月大盘有望进一步挑战27000点整数关口。
 
-然而，越是行业龙头，聚焦点越多。
+奕丰环球市场(iFAST Global Markets)投资总监温钢城表示，市场普遍预期腾讯控股、阿里巴巴、京东集团三家科技企业仍将持续加大人工智能领域投资，后续将重点观察各家核心业务增长韧性，以及管理层对公司未来发展前景的战略解读。
 
-如果将目光从顺丰亮眼的业绩移开，深入观察财报中细节部分，虽然顺丰2025年业绩规模取得进展，但营收净利增速均降至个位数。
+展望港股后市，渣打银行认为，行情走势或将主要受中东局势牵动，整体呈现“先跌后升”格局。
 
-同时，顺丰的盈利质量下滑，比如扣非净利润增速低于净利增速，且毛利率再次下滑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 16:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 16:14 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 16:16 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 15:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 15:53 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 15:59 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 15:52 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 16:09 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 15:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 16:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 15:57 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 16:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 16:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:01 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 16:09 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 16:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 16:16 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 16:22 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 16:19 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 15:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 15:55 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/96879789965.shtml)
-- 2026-06-29 15:49 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/16713.shtml)
-- 2026-06-29 16:07 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/52663969751.shtml)
-- 2026-06-29 16:16 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/80876512250.shtml)
-- 2026-06-29 16:15 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/34321200.shtml)
-- 2026-06-29 15:59 - [5万块的威力](http://www.blog.minike.top/Article/details/329570.shtml)
-- 2026-06-29 15:53 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/41157.shtml)
-- 2026-06-29 15:59 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/513805128148.shtml)
-- 2026-06-29 16:14 - [光与夜之恋](https://www.blog.minike.top/Article/details/996249.shtml)
-- 2026-06-29 16:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/77784126.shtml)
-- 2026-06-29 15:51 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/59693335210.shtml)
-- 2026-06-29 16:08 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/45597367.shtml)
-- 2026-06-29 15:55 - [女心理师](http://www.blog.kurohicncr.top/Article/details/606018.shtml)
-- 2026-06-29 16:11 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/11685988.shtml)
-- 2026-06-29 15:52 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/782655506004.shtml)
+- 2026-06-29 16:11 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/1199115542.shtml)
+- 2026-06-29 16:02 - [天道](https://www.blog.kurohicncr.top/Article/details/197999.shtml)
+- 2026-06-29 15:57 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/795064933633.shtml)
+- 2026-06-29 16:07 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/025451546.shtml)
+- 2026-06-29 16:21 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8343810.shtml)
+- 2026-06-29 16:09 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/6118230546.shtml)
+- 2026-06-29 16:17 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/7361356268.shtml)
+- 2026-06-29 15:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/06094859.shtml)
+- 2026-06-29 16:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/26473848539.shtml)
+- 2026-06-29 15:55 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/945883.shtml)
+- 2026-06-29 16:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/037093007.shtml)
+- 2026-06-29 16:01 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/986364482.shtml)
+- 2026-06-29 16:02 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/766217632.shtml)
+- 2026-06-29 15:54 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/529585963163.shtml)
+- 2026-06-29 16:06 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/1031397351.shtml)

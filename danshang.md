@@ -1,57 +1,56 @@
-# 中东局势反复引发避险需求叠加通胀预期升温，美元指数维持高位震荡
+# 【华创汽车】比亚迪：26Q1业绩符合预期，海外销量增长势头强劲
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美元指数在亚洲时段表现平稳，当前徘徊在99.00附近，此前已连续三个交易日回落。近期美元走势主要受到地缘局势变化与货币政策预期双重影响。 从基本面来看，中东局势再度出现反复，成为推动美元企稳的重要因素。尽管此前美国与伊朗达成短期停火协议，但最新进展显示协议稳定性较弱。伊朗方面指出停火条款遭到违反，并认为继续推进长期协议并不合理。同时，有消息称在以色列扩大对黎
+根据《证券期货投资者适当性管理办法》及配套指引，本资料仅面向华创证券客户中的金融机构专业投资者，请勿对本资料进行任何形式的转发。若您不是华创证券客户中的金融机构专业投资者，请勿订阅、接收或使用本资料中的信息。本资料难以设置访问权限，若给您造成不便，敬请谅解。感谢您的理解与配合。事项：公司发布2026年一季报，实现营收1502亿元，同比-12%，环比-37%；归母净利40.8亿元
 
 ## 正文
 
-汇通财经APP讯——美元指数在亚洲时段表现平稳，当前徘徊在99.00附近，此前已连续三个交易日回落。
+根据《证券期货投资者适当性管理办法》及配套指引，本资料仅面向华创证券客户中的金融机构专业投资者，请勿对本资料进行任何形式的转发。
 
-近期美元走势主要受到地缘局势变化与货币政策预期双重影响。
+若您不是华创证券客户中的金融机构专业投资者，请勿订阅、接收或使用本资料中的信息。
 
-从基本面来看，中东局势再度出现反复，成为推动美元企稳的重要因素。
+本资料难以设置访问权限，若给您造成不便，敬请谅解。
 
-尽管此前美国与伊朗达成短期停火协议，但最新进展显示协议稳定性较弱。
+感谢您的理解与配合。
 
-伊朗方面指出停火条款遭到违反，并认为继续推进长期协议并不合理。
+事项：公司发布2026年一季报，实现营收1502亿元，同比-12%，环比-37%；归母净利40.8亿元，同比-55%，环比-56%；扣非归母净利41.5亿元，同比-49%，环比-54%。
 
-同时，有消息称在以色列扩大对黎巴嫩的军事行动后，霍尔木兹海峡油轮运输一度中断，这进一步加剧了市场不确定性。
+评论：26Q1归母净利40.8亿元，符合预期。
 
-在这种背景下，避险需求再度回升。
+26Q1公司实现营收1,502亿元，同比-12%，环比-37%；毛利率18.8%，同比-1.3PP，环比+1.4PP；期间费用率16.2%，同比+2.5PP，环比+4.0PP。
 
-美元作为全球主要储备货币，在风险事件中往往获得资金青睐，从而对指数形成支撑。
+受汇兑亏损影响，26Q1财务费用21亿元，同比+40亿元；实现归母净利40.8亿元，同比-55%，环比-56%。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 16:11 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 16:04 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 16:12 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:16 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 15:53 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 16:13 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 16:13 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:49 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 16:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 16:10 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 16:21 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 15:54 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 15:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 16:21 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 16:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 16:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 16:21 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 16:03 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 16:16 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/792488587200.shtml)
-- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/33000393608.shtml)
-- 2026-06-29 16:11 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/65240.shtml)
-- 2026-06-29 15:57 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/560404239.shtml)
-- 2026-06-29 15:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/455362374.shtml)
-- 2026-06-29 16:15 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/2017544898.shtml)
-- 2026-06-29 15:52 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/62047202.shtml)
-- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/758539.shtml)
-- 2026-06-29 15:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/5832261.shtml)
-- 2026-06-29 15:55 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/521391039.shtml)
-- 2026-06-29 15:59 - [金刚川](https://www.share.kurohicncr.top/Article/details/77704.shtml)
-- 2026-06-29 16:17 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/795347977049.shtml)
-- 2026-06-29 16:17 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/38978508788.shtml)
-- 2026-06-29 16:09 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/773696919.shtml)
-- 2026-06-29 15:57 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/54070.shtml)
+- 2026-06-29 16:02 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/13605126631.shtml)
+- 2026-06-29 16:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/390106180.shtml)
+- 2026-06-29 16:04 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/04120942.shtml)
+- 2026-06-29 16:10 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/4513342702.shtml)
+- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/45108.shtml)
+- 2026-06-29 16:06 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/215509.shtml)
+- 2026-06-29 15:58 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/33152167.shtml)
+- 2026-06-29 16:22 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/73076960.shtml)
+- 2026-06-29 16:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/06733.shtml)
+- 2026-06-29 15:57 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/706111119.shtml)
+- 2026-06-29 16:08 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/87400.shtml)
+- 2026-06-29 16:18 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/36567126.shtml)
+- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/4271539.shtml)
+- 2026-06-29 16:14 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/00054.shtml)
+- 2026-06-29 15:54 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/024870262519.shtml)

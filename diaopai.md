@@ -1,57 +1,58 @@
-# 3月末我国外汇储备规模为33421亿美元
+# 从乳业到稀土 内蒙古以产业计量嵌入全国产业升级
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-来源：证券日报原标题：3月末我国外汇储备规模为33421亿美元4月7日，国家外汇管理局公布2026年3月末外汇储备规模数据。数据显示，截至2026年3月末，我国外汇储备规模为33421亿美元，较2月末下降857亿美元，降幅为2.5%。国家外汇管理局表示，2026年3月份，受全球宏观环境、主要经济体货币政策及预期等因素影响，美元指数上涨，全球主要金融资产价格下跌。汇率折算和资产价
+中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。 当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产
 
 ## 正文
 
-来源：证券日报原标题：3月末我国外汇储备规模为33421亿美元4月7日，国家外汇管理局公布2026年3月末外汇储备规模数据。
+中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。
 
-数据显示，截至2026年3月末，我国外汇储备规模为33421亿美元，较2月末下降857亿美元，降幅为2.5%。
+”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。
 
-国家外汇管理局表示，2026年3月份，受全球宏观环境、主要经济体货币政策及预期等因素影响，美元指数上涨，全球主要金融资产价格下跌。
+当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。
 
-汇率折算和资产价格变化等因素综合作用，当月外汇储备规模下降。
+乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产业计量测试中心也通报了筹建进展。
 
-我国经济运行总体平稳、稳中有进，高质量发展取得新成效，为外汇储备规模保持基本稳定提供支撑。
+计量是实现单位统一、保证量值准确可靠的活动。
 
-中银证券全球首席经济学家管涛在接受《证券日报》记者采访时表示，3月份外汇储备余额减少857亿美元至33421亿美元，结束了此前的月度“七连涨”，这主要反映了在主要经济体货币政策及预期、宏观经济数据等因素影响下，汇率折算和资产价格变化带来的负估值效应。
+国家市场监管总局2020年发布的指导意见提出，在节能环保、新一代信息技术、生物医药、高端装备制造、新能源、新材料等战略性新兴产业重点领域，优先建设国家产业计量测试中心。
 
-“3月份，原油价格暴涨，全球资产价格普跌。
+国家乳制品产业计量测试中心是内蒙古首个国家级产业计量测试中心，由内蒙古计量测试研究院联合伊利集团于2021年10月获批筹建，2025年9月通过现场评审验收。
 
-油价上涨引起通胀预期升温，在高利率维持更久、避险资金回流的双重支撑下，美元指数延续走强态势。
+该中心梳理出乳业产业参数838个，绘制量值溯源体系图776幅，建成12个相关计量实验室。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:48 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 15:59 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 15:56 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 16:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 16:11 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 16:07 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 15:54 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 15:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 16:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 16:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 16:07 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 16:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 16:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 16:17 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 16:03 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:16 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 16:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 16:06 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:14 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 16:17 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 16:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/7069797.shtml)
-- 2026-06-29 16:05 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/49481320568.shtml)
-- 2026-06-29 15:53 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/65801556265.shtml)
-- 2026-06-29 16:16 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/494944963210.shtml)
-- 2026-06-29 15:51 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/334722349.shtml)
-- 2026-06-29 16:00 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/152261648819.shtml)
-- 2026-06-29 15:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/956288352113.shtml)
-- 2026-06-29 16:06 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/339613.shtml)
-- 2026-06-29 16:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/003777.shtml)
-- 2026-06-29 15:58 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/29922892.shtml)
-- 2026-06-29 16:09 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/367460497230.shtml)
-- 2026-06-29 15:55 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/11916957443.shtml)
-- 2026-06-29 15:59 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.minike.top/Article/details/88899.shtml)
-- 2026-06-29 15:57 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/238561545403.shtml)
-- 2026-06-29 16:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/2963623341.shtml)
+- 2026-06-29 16:19 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/508884152906.shtml)
+- 2026-06-29 16:00 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/04211483.shtml)
+- 2026-06-29 16:07 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/46318428663.shtml)
+- 2026-06-29 16:14 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/259992898.shtml)
+- 2026-06-29 16:04 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/932951917025.shtml)
+- 2026-06-29 16:22 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/08568496000.shtml)
+- 2026-06-29 16:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/74375863.shtml)
+- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/386591367.shtml)
+- 2026-06-29 16:14 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/227561.shtml)
+- 2026-06-29 16:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/9155202783.shtml)
+- 2026-06-29 16:14 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/54107.shtml)
+- 2026-06-29 16:10 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/50416727.shtml)
+- 2026-06-29 16:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/607412924911.shtml)
+- 2026-06-29 15:55 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/2112466533.shtml)
+- 2026-06-29 16:12 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/932628297682.shtml)

@@ -1,57 +1,57 @@
-# 高瞻远“猪”：行业深度亏损下 3月存栏分化与4月走势展望
+# 特朗普警告伊朗：不尽快签署协议将遭更猛烈打击
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-卓创资讯生猪行业高级分析师容志发 【导语】3月能繁母猪存栏环比下滑，生猪存栏环比增加，呈现阶段性分化态势。能繁母猪下滑主要受行业深度亏损与政策调控双重驱动，养殖端淘汰低效母猪；生猪存栏增加则因前期产能充裕、出栏节奏受限及被动压栏。展望4月，能繁母猪存栏或稳步下滑，生猪存栏由增转减，整体供应压力或有所缓解。 3月能繁母猪存栏与生猪存栏走势相悖 卓创资讯监测196家样本养殖企业生猪
+美国总统特朗普在谈及伊朗时威胁称：“如果他们不很快签署协议，未来将更用力、更猛烈地摧毁他们。” 特朗普在Truth Social发文称。 特朗普表示，在伊朗发动袭击后，三艘美国军舰成功且无损地驶出霍尔木兹海峡。 他表示，伊朗的小型船只被“摧毁”，导弹被“击落”，无人机“在空中被烧毁”。 特朗普表示，这三艘军舰将重新加入美国的海上封锁。责任编辑：陈钰嘉
 
 ## 正文
 
-卓创资讯生猪行业高级分析师容志发 【导语】3月能繁母猪存栏环比下滑，生猪存栏环比增加，呈现阶段性分化态势。
+美国总统特朗普在谈及伊朗时威胁称：“如果他们不很快签署协议，未来将更用力、更猛烈地摧毁他们。
 
-能繁母猪下滑主要受行业深度亏损与政策调控双重驱动，养殖端淘汰低效母猪；生猪存栏增加则因前期产能充裕、出栏节奏受限及被动压栏。
+” 特朗普在Truth Social发文称。
 
-展望4月，能繁母猪存栏或稳步下滑，生猪存栏由增转减，整体供应压力或有所缓解。
+特朗普表示，在伊朗发动袭击后，三艘美国军舰成功且无损地驶出霍尔木兹海峡。
 
-3月能繁母猪存栏与生猪存栏走势相悖 卓创资讯监测196家样本养殖企业生猪存出栏数据显示，3月能繁母猪存栏与生猪存栏走势不同。
+他表示，伊朗的小型船只被“摧毁”，导弹被“击落”，无人机“在空中被烧毁”。
 
-能繁母猪存栏延续1月跌势，且跌幅扩大，2月份下滑0.98%。
+特朗普表示，这三艘军舰将重新加入美国的海上封锁。
 
-而生猪存栏量增幅收窄，由2月份增加0.80%收窄至3月份增加0.15%。
-
-养殖亏损叠加政策引导 3月能繁母猪存栏下滑 卓创资讯监测196家样本养殖企业数据显示，3月份能繁母猪存栏量环比下降。
-
-主要受行业深度亏损与政策调控双重驱动。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 16:10 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 16:11 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 16:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 15:48 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 15:55 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 15:59 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:03 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 16:10 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 16:13 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 16:05 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 16:20 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 16:19 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 16:20 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 16:08 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 16:21 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 16:09 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 16:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 16:16 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 16:13 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 16:21 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:14 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 15:57 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 16:03 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 16:18 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 16:23 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [起风了](https://www.share.kurohicncr.top/Article/details/967694797.shtml)
-- 2026-06-29 16:04 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/758795932.shtml)
-- 2026-06-29 16:16 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/36505.shtml)
-- 2026-06-29 15:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/74079.shtml)
-- 2026-06-29 15:53 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/02578388009.shtml)
-- 2026-06-29 16:12 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/05852060.shtml)
-- 2026-06-29 16:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/124603065.shtml)
-- 2026-06-29 16:10 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/58069.shtml)
-- 2026-06-29 16:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/779312435.shtml)
-- 2026-06-29 15:50 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/326015117432.shtml)
-- 2026-06-29 16:04 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/160683.shtml)
-- 2026-06-29 16:09 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/18311165280.shtml)
-- 2026-06-29 16:07 - [女心理师](https://www.share.kurohicncr.top/Article/details/44126897040.shtml)
-- 2026-06-29 16:11 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/84649287582.shtml)
-- 2026-06-29 16:03 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/9212521562.shtml)
+- 2026-06-29 16:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/819183.shtml)
+- 2026-06-29 16:01 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/976909860.shtml)
+- 2026-06-29 15:57 - [吴建豪老婆](http://www.blog.minike.top/Article/details/415406823887.shtml)
+- 2026-06-29 16:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/91464336.shtml)
+- 2026-06-29 16:15 - [绘画区你赢了](https://www.blog.minike.top/Article/details/455846682695.shtml)
+- 2026-06-29 16:20 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/1650757.shtml)
+- 2026-06-29 16:14 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/023910320.shtml)
+- 2026-06-29 16:12 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/272688527.shtml)
+- 2026-06-29 16:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/092526968343.shtml)
+- 2026-06-29 16:20 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/00456.shtml)
+- 2026-06-29 15:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/466602022.shtml)
+- 2026-06-29 16:09 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/109077579.shtml)
+- 2026-06-29 16:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/600341.shtml)
+- 2026-06-29 16:12 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/85878620.shtml)
+- 2026-06-29 15:58 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/77540682.shtml)

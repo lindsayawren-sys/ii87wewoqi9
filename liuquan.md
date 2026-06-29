@@ -1,57 +1,58 @@
-# 万国邮联首评世界最佳邮票 中国邮票摘得桂冠
+# 给发动机叶片做CT 西工大研发航空发动机气动载荷可视化系统
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。 该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)
+中新网西安5月8日电 (记者 阿琳娜)航空发动机要“更有劲”，叶片就必须更高效地对空气做功；飞机要飞得远、飞得稳，叶片又必须更轻、更省重。问题在于：推力越大，叶片越轻，单片叶片承受的气动载荷就越逼近它的物理极限，一旦某个点的受力超过材料承受能力，就可能诱发振动甚至叶片断裂。 如何找到这个最危险的受力点？传统的气动载荷测量方法像拿着听诊器做诊断：把传感器一个个粘在叶片表面，甚至打
 
 ## 正文
 
-中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。
+中新网西安5月8日电 (记者 阿琳娜)航空发动机要“更有劲”，叶片就必须更高效地对空气做功；飞机要飞得远、飞得稳，叶片又必须更轻、更省重。
 
-中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。
+问题在于：推力越大，叶片越轻，单片叶片承受的气动载荷就越逼近它的物理极限，一旦某个点的受力超过材料承受能力，就可能诱发振动甚至叶片断裂。
 
-该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。
+如何找到这个最危险的受力点？
 
-万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)以及联合国邮局的共计195枚邮票(纪念张)参加评选。
+传统的气动载荷测量方法像拿着听诊器做诊断：把传感器一个个粘在叶片表面，甚至打孔、走线，不仅风险高、效率低，测点还很有限。
 
-评选活动设立“最佳创新邮票”“最佳纪念张”“最佳凹版印刷邮票”“最佳胶版印刷邮票”和“最佳混合印刷邮票”5个类别，每个类别分别评出前3名。
+三个关键问题始终没有答案：载荷到底在哪里最大？
 
-国际评审团由世界集邮发展协会指定的学术专家、设计艺术家和国际集邮联合会认可的集邮评审员组成，在每个类别的获奖邮票(纪念张)中最终选出1枚“世界最佳邮票”。
+什么时候开始异常？
 
-(完)
+整片叶片的分布是什么样？
+
+这正是高速旋转叶片测量的核心痛点。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 16:12 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 15:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 15:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 15:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 15:53 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 15:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 16:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 16:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 16:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 16:10 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 15:50 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 15:58 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 16:22 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 16:01 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 15:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 16:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 16:04 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 16:07 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 16:00 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 15:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 15:59 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 16:16 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:59 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/881433.shtml)
-- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/085878.shtml)
-- 2026-06-29 16:13 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/50720.shtml)
-- 2026-06-29 15:52 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/88056.shtml)
-- 2026-06-29 16:10 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/528313.shtml)
-- 2026-06-29 16:17 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/260375.shtml)
-- 2026-06-29 15:55 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/2324711.shtml)
-- 2026-06-29 16:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/339678.shtml)
-- 2026-06-29 16:00 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/219410587849.shtml)
-- 2026-06-29 16:16 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/472426375621.shtml)
-- 2026-06-29 15:49 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/052311462.shtml)
-- 2026-06-29 16:08 - [一生一世](https://www.share.kurohicncr.top/Article/details/675525.shtml)
-- 2026-06-29 15:57 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/251481.shtml)
-- 2026-06-29 16:14 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/67038.shtml)
-- 2026-06-29 16:09 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/36808.shtml)
+- 2026-06-29 16:00 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/538196268.shtml)
+- 2026-06-29 16:08 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/257651678320.shtml)
+- 2026-06-29 15:56 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/2633124324.shtml)
+- 2026-06-29 16:04 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/19710513846.shtml)
+- 2026-06-29 16:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/11450.shtml)
+- 2026-06-29 16:05 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/4882175304.shtml)
+- 2026-06-29 16:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/8342529.shtml)
+- 2026-06-29 16:10 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/347936791168.shtml)
+- 2026-06-29 16:03 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/15475137.shtml)
+- 2026-06-29 16:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/708363141.shtml)
+- 2026-06-29 16:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/30291294.shtml)
+- 2026-06-29 16:05 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/03528771935.shtml)
+- 2026-06-29 15:54 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/6528062.shtml)
+- 2026-06-29 16:19 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/98979649282.shtml)
+- 2026-06-29 16:19 - [抓特务票房破亿](http://www.share.minike.top/Article/details/7555134.shtml)

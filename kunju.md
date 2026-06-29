@@ -1,45 +1,60 @@
-# 特发信息盘中涨停
+# 涉疫邮轮运营方：30名乘客曾在大西洋小岛离船
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，4月9日，特发信息（维权）盘中涨停，涨幅10.01%，成交额超33亿元。
+新华社北京5月8日电 发生汉坦病毒疫情的“洪迪厄斯”号邮轮运营方7日通报说，邮轮4月在大西洋中的圣赫勒拿岛停留时，曾有30名乘客离开邮轮。目前已追踪到所有离船人员。 总部设于荷兰的“泛海探险”公司在声明中说，4月1日，共有114名乘客登上“洪迪厄斯”号，从阿根廷乌斯怀亚港口出发，计划穿行大西洋，前往佛得角。4月11日，一名荷兰籍男子死亡。4月24日，29名乘客和这名荷兰男子的遗
 
 ## 正文
 
-每经AI快讯，4月9日，特发信息（维权）盘中涨停，涨幅10.01%，成交额超33亿元。
+新华社北京5月8日电 发生汉坦病毒疫情的“洪迪厄斯”号邮轮运营方7日通报说，邮轮4月在大西洋中的圣赫勒拿岛停留时，曾有30名乘客离开邮轮。
+
+目前已追踪到所有离船人员。
+
+总部设于荷兰的“泛海探险”公司在声明中说，4月1日，共有114名乘客登上“洪迪厄斯”号，从阿根廷乌斯怀亚港口出发，计划穿行大西洋，前往佛得角。
+
+4月11日，一名荷兰籍男子死亡。
+
+4月24日，29名乘客和这名荷兰男子的遗体在圣赫勒拿岛离船。
+
+声明说：“我们正在确认3月20日以来在‘洪迪厄斯’号航程中不同站点登船和离船的所有乘客和船员的详细信息。
+
+” 世界卫生组织表示，已通知在圣赫勒拿岛离开邮轮的乘客所属国家，其中包括英国、加拿大、丹麦、德国、荷兰、新西兰、新加坡、瑞典、瑞士、土耳其和美国等。
+
+圣赫勒拿岛是位于南大西洋的一座火山岛，面积122平方公里，人口仅4000多，首府为詹姆斯敦，离非洲西岸1900公里，离南美洲东岸3400公里。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:06 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 16:08 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 15:50 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 16:07 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 15:55 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 16:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 16:05 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 15:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 15:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 16:01 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 16:10 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 15:51 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:09 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 16:18 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 16:09 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 15:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 16:19 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 16:22 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 16:02 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 16:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 16:14 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 15:54 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 16:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 16:06 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 15:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 16:19 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/11116261.shtml)
-- 2026-06-29 15:54 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/513739.shtml)
-- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/719022420266.shtml)
-- 2026-06-29 16:03 - [东方风云榜](https://www.blog.minike.top/Article/details/003491995.shtml)
-- 2026-06-29 16:12 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/24672.shtml)
-- 2026-06-29 16:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/561782.shtml)
-- 2026-06-29 16:07 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/9682086569.shtml)
-- 2026-06-29 16:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/850435.shtml)
-- 2026-06-29 16:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/539064.shtml)
-- 2026-06-29 16:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/91334434182.shtml)
-- 2026-06-29 15:54 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/83578.shtml)
-- 2026-06-29 15:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/9052917.shtml)
-- 2026-06-29 16:05 - [105年初心滚烫](https://www.share.minike.top/Article/details/405478037.shtml)
-- 2026-06-29 16:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/48058566258.shtml)
-- 2026-06-29 16:12 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/3830301.shtml)
+- 2026-06-29 15:54 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/241697.shtml)
+- 2026-06-29 16:17 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/7029178467.shtml)
+- 2026-06-29 16:07 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/724998991.shtml)
+- 2026-06-29 16:19 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/366362601.shtml)
+- 2026-06-29 16:05 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/7593096714.shtml)
+- 2026-06-29 16:23 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/979003542373.shtml)
+- 2026-06-29 16:14 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/6632010804.shtml)
+- 2026-06-29 15:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/534336545051.shtml)
+- 2026-06-29 16:00 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/8880386.shtml)
+- 2026-06-29 16:14 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/923471.shtml)
+- 2026-06-29 16:04 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/4846574679.shtml)
+- 2026-06-29 16:11 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/333582930.shtml)
+- 2026-06-29 16:15 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/96853240484.shtml)
+- 2026-06-29 16:23 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/991252850.shtml)
+- 2026-06-29 15:59 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/453308.shtml)

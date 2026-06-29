@@ -1,59 +1,59 @@
-# 美伊“临时停火”的现实困境与未来前景
+# 马士基警告：伊朗冲突的经济冲击将持续数月
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-巴基斯坦总理夏巴兹4月8日清晨在社交媒体发文，宣布伊朗、美国以及两国的盟友已经同意立即在包括黎巴嫩在内的所有地区停火，“立即生效”。此次停火为持续40天的美以伊高强度战争带来了转机。然而，对特朗普政府而言，此次停火是其在无法实现作战目标形势下的被动选择，当前尽快结束战争以脱身已成为其主要关切。 首先，临时停火表明特朗普团队试图“速战速决”的计划已告破产。 特朗普政府的战术原则是
+航运巨头马士基警告称，伊朗战争引发的石油冲击正大幅推高运营成本，每月额外增加约5亿美元开支，其经济影响将持续数月之久。 马士基首席执行官文森特·克莱尔表示，成本上涨主要源于燃油价格飙升和船舶保险费用增加。公司正寻求将这些成本完全转嫁给客户，并相信在接下来的几个季度能够继续维持这一策略。尽管如此，马士基仍维持了全年业绩指引，预计全球集装箱市场增长2%至4%。 然而，这家被视为全球
 
 ## 正文
 
-巴基斯坦总理夏巴兹4月8日清晨在社交媒体发文，宣布伊朗、美国以及两国的盟友已经同意立即在包括黎巴嫩在内的所有地区停火，“立即生效”。
+航运巨头马士基警告称，伊朗战争引发的石油冲击正大幅推高运营成本，每月额外增加约5亿美元开支，其经济影响将持续数月之久。
 
-此次停火为持续40天的美以伊高强度战争带来了转机。
+马士基首席执行官文森特·克莱尔表示，成本上涨主要源于燃油价格飙升和船舶保险费用增加。
 
-然而，对特朗普政府而言，此次停火是其在无法实现作战目标形势下的被动选择，当前尽快结束战争以脱身已成为其主要关切。
+公司正寻求将这些成本完全转嫁给客户，并相信在接下来的几个季度能够继续维持这一策略。
 
-首先，临时停火表明特朗普团队试图“速战速决”的计划已告破产。
+尽管如此，马士基仍维持了全年业绩指引，预计全球集装箱市场增长2%至4%。
 
-特朗普政府的战术原则是以低成本投入获取高价值目标，通过制造目标国政权混乱来趁机实现政权更迭，但这一策略在对伊朗的战争中已被证明是失败的。
+然而，这家被视为全球贸易风向标的公司也坦言，2026年全球集装箱需求前景高度不确定。
 
-美国近年来凭借AI赋能的武器技术迭代升级，在对特定国家领导人及关键核心圈层实施“定点清除”战术方面屡获成功，尤其在突袭委内瑞拉并强行控制委总统马杜罗后，进一步强化了特朗普政府对伊朗发动战争的信心。
+上波斯湾地区在2025年约占全球集装箱贸易的6%，能源价格高涨和该地区的贸易限制对增长势头构成显著下行风险。
 
-然而，尽管时任伊朗最高领袖赛义德·阿里·哈梅内伊在开战当日便被“定点清除”，但伊朗政府并未陷入混乱，反而通过迅速选举新最高领袖、权力运作“去中心化”等方式维持了有效运转。
+克莱尔指出，需求在过去数年是市场的强劲支撑，预计第二季度将保持韧性，但下半年走势难以预测，很大程度上取决于战争持续时间及能源成本。
 
-伊朗的主要军队系统——伊斯兰革命卫队虽失去大批核心高层人物，但仍通过迅速补充替代人选、军事行动各自为政、分散式打击等方式保持了较强抵抗能力。
+他还透露，公司仍有船只被困在波斯湾，由于霍尔木兹海峡大部分区域布满水雷，在航行条件改善前将不会冒险通过。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 16:10 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 15:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 16:17 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 16:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 15:50 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 15:48 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 15:57 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 15:58 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 15:51 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 15:58 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 16:05 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 16:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 16:04 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 16:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 16:04 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 16:05 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 16:04 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 16:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 16:21 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 16:05 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 16:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 16:02 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 16:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 16:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 16:00 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/445151.shtml)
-- 2026-06-29 16:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/0687647.shtml)
-- 2026-06-29 15:58 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/053216.shtml)
-- 2026-06-29 15:58 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/80611506347.shtml)
-- 2026-06-29 16:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/88388.shtml)
-- 2026-06-29 15:54 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/389965.shtml)
-- 2026-06-29 15:51 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/17150.shtml)
-- 2026-06-29 16:00 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/936717.shtml)
-- 2026-06-29 15:52 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/0776421.shtml)
-- 2026-06-29 15:53 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/156480886270.shtml)
-- 2026-06-29 15:53 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/2844564.shtml)
-- 2026-06-29 15:54 - [新能源车能当外接空调用吗](http://www.share.kurohicncr.top/Article/details/47623905933.shtml)
-- 2026-06-29 15:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/95590.shtml)
-- 2026-06-29 15:50 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/31271393.shtml)
-- 2026-06-29 16:07 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/16565094384.shtml)
+- 2026-06-29 16:20 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/2351824324.shtml)
+- 2026-06-29 16:15 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/59008053468.shtml)
+- 2026-06-29 16:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/22716.shtml)
+- 2026-06-29 15:58 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/18655.shtml)
+- 2026-06-29 16:21 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/0319366.shtml)
+- 2026-06-29 16:08 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/4463558.shtml)
+- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/5857055707.shtml)
+- 2026-06-29 15:59 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/4372684016.shtml)
+- 2026-06-29 15:54 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/028676583155.shtml)
+- 2026-06-29 16:21 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/0176762952.shtml)
+- 2026-06-29 16:05 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/08015145012.shtml)
+- 2026-06-29 16:17 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/0444534551.shtml)
+- 2026-06-29 16:14 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/33902708.shtml)
+- 2026-06-29 16:22 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/16584941737.shtml)
+- 2026-06-29 16:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/274592108014.shtml)

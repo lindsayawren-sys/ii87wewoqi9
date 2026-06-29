@@ -1,60 +1,56 @@
-# 平陆运河企石枢纽进入船闸无水调试阶段
+# 凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网钦州4月9日电 (记者 杨陈)4月8日，平陆运河企石枢纽正式启动单机单闸无水调试工作，为后续无水联调和有水调试夯实基础。 平陆运河企石枢纽无水调试以“单机单闸、分步验证、全面排查”为原则，重点检验人字门机械传动系统的同步性、液压管路的密封性以及电气控制系统的响应灵敏度。本次单机单闸调试的位置为上闸首左线人字门，每扇人字门高11.6米、宽20.2米，门轴中心距达36.3米，
+ARK Invest创始人凯西·伍德对SpaceX和特斯拉表达了看涨观点，指出投资者对私人太空资产的强劲需求以及对自动驾驶技术日益增长的信心。 伍德在接受彭博社采访时表示，投资者对SpaceX预期中的IPO的胃口“非常强烈”，并称尽管该IPO据报规模达750亿美元，但需求仍可能超过可用股票数量。 伍德表示，SpaceX目前是ARK风险基金的最大持仓，并指出轨道数据中心等未来业务
 
 ## 正文
 
-中新网钦州4月9日电 (记者 杨陈)4月8日，平陆运河企石枢纽正式启动单机单闸无水调试工作，为后续无水联调和有水调试夯实基础。
+ARK Invest创始人凯西·伍德对SpaceX和特斯拉表达了看涨观点，指出投资者对私人太空资产的强劲需求以及对自动驾驶技术日益增长的信心。
 
-平陆运河企石枢纽无水调试以“单机单闸、分步验证、全面排查”为原则，重点检验人字门机械传动系统的同步性、液压管路的密封性以及电气控制系统的响应灵敏度。
+伍德在接受彭博社采访时表示，投资者对SpaceX预期中的IPO的胃口“非常强烈”，并称尽管该IPO据报规模达750亿美元，但需求仍可能超过可用股票数量。
 
-本次单机单闸调试的位置为上闸首左线人字门，每扇人字门高11.6米、宽20.2米，门轴中心距达36.3米，总重296吨。
+伍德表示，SpaceX目前是ARK风险基金的最大持仓，并指出轨道数据中心等未来业务可能会显著扩大该公司的长期收入机会。
 
-在调试过程中，技术人员模拟多种工况，包括正常启闭、局部开启、紧急制动等操作模式，重点记录门体运行速度、油缸压力曲线及限位开关触发时序，以此验证电气控制系统与液压装置的联动体系在启停冲击与结构振动控制方面的实际表现。
+在特斯拉方面，伍德认为，该公司垂直整合的结构使其在 emerging 的自动驾驶出租车行业中拥有重大优势。
 
-与此同时，技术人员通过反复比对设计参数与实际运行数据，重点关注机械卡阻、信号误差等可能影响后续运行的问题，建立隐患台账并实行闭环整改，以“零缺陷”目标护航每一道工序，高标准高质量高效率推进工程建设。
+她表示，ARK预计自动驾驶出行成本最终可能降至每英里约25美分，远低于当前的网约车价格。
 
-据悉，平陆运河企石枢纽无水单机单闸调试将分阶段、分区域持续推进，涵盖门体水封压缩量检测、背拉杆应力监测、底枢摩擦系数测定等18项专项检测内容，计划在5月下旬调试完成。
+伍德还表示，特斯拉能够维持比Waymo等竞争对手更低的运营成本，因为其在内部控制了更多的制造和供应链运营。
 
-平陆运河是西部陆海新通道骨干工程，将于今年全线通航。
+投资者继续密切关注特斯拉自动驾驶的推出以及SpaceX可能上市的时间表，这两者都被视为ARK长期投资战略的主要催化剂。
 
-通航后将成为中国西南地区运距最短、最经济、最便捷的出海大通道。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 15:48 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 16:13 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 16:13 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 15:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:03 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 15:59 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 16:08 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 16:12 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 16:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 16:10 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 16:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 15:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 16:17 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 16:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 16:08 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 16:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 16:22 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 16:14 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 15:57 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 16:05 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 16:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 16:14 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/493615453.shtml)
-- 2026-06-29 16:17 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/414913.shtml)
-- 2026-06-29 16:07 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/02551386706.shtml)
-- 2026-06-29 16:03 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/397850357539.shtml)
-- 2026-06-29 15:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/33310990557.shtml)
-- 2026-06-29 15:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/637427.shtml)
-- 2026-06-29 16:02 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/45969506.shtml)
-- 2026-06-29 15:51 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/5263035.shtml)
-- 2026-06-29 15:51 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/4203520920.shtml)
-- 2026-06-29 16:10 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/451592241.shtml)
-- 2026-06-29 16:02 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/867527.shtml)
-- 2026-06-29 15:59 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/60580684.shtml)
-- 2026-06-29 15:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5203701.shtml)
-- 2026-06-29 16:13 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/514678991505.shtml)
-- 2026-06-29 16:12 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/43644027.shtml)
+- 2026-06-29 16:09 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/85755392.shtml)
+- 2026-06-29 16:21 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/29378218.shtml)
+- 2026-06-29 16:05 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/03694.shtml)
+- 2026-06-29 16:07 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/69374.shtml)
+- 2026-06-29 16:23 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/317015664.shtml)
+- 2026-06-29 16:21 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/1075857666.shtml)
+- 2026-06-29 15:58 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/93467.shtml)
+- 2026-06-29 16:09 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/965842.shtml)
+- 2026-06-29 15:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/39975.shtml)
+- 2026-06-29 16:18 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/20640865627.shtml)
+- 2026-06-29 16:21 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/931095690504.shtml)
+- 2026-06-29 16:19 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/41449.shtml)
+- 2026-06-29 16:03 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/329894.shtml)
+- 2026-06-29 16:00 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/00648003552.shtml)
+- 2026-06-29 16:21 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/25426.shtml)

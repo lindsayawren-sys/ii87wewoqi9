@@ -1,59 +1,50 @@
-# 一口春菜一口鲜，浙江仙居飨世间
+# 可可西里藏羚羊年度迁徙季开启 同比增加近百只
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网台州4月10日电(张益聪 张光剑 应芳露)惊蛰地气动，春色好中分。清明过后谷雨近，天润地泽春菜生……经过了一整个三月的涵养，四月将半，浙江省台州市仙居县的市场上，春笋、蕨菜、草籽等本地特色春菜琳琅满目，将春日江南的一抹鲜味，飘香为别样的人间四月天。 从菜场、商超，到餐馆、农家乐，“拔出春菜带着泥”，经过洗净择菜，伴着辅料调和、灶火烹饪，直至春菜入馔，这抹春日气息才算拌着人
+中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。 每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏
 
 ## 正文
 
-中新网台州4月10日电(张益聪 张光剑 应芳露)惊蛰地气动，春色好中分。
+中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。
 
-清明过后谷雨近，天润地泽春菜生……经过了一整个三月的涵养，四月将半，浙江省台州市仙居县的市场上，春笋、蕨菜、草籽等本地特色春菜琳琅满目，将春日江南的一抹鲜味，飘香为别样的人间四月天。
+每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏族自治州的可可西里“羚羊大产房”卓乃湖区域迁徙，7月中下旬产仔结束后再携幼仔返回原栖息地。
 
-从菜场、商超，到餐馆、农家乐，“拔出春菜带着泥”，经过洗净择菜，伴着辅料调和、灶火烹饪，直至春菜入馔，这抹春日气息才算拌着人间烟火入喉下腹，不仅勾起本地人的味蕾记忆，更吸引着各地游客慕名而来，带动着“春日经济”走俏。
+目前栖息在可可西里地区的藏羚羊种群数量达7万多只，其迁徙之路被称为“世界最壮观的有蹄类动物大迁徙之一”。
 
-马兰头、荠菜、春笋……在仙居中心菜场，会吃的老饕们赶早前来，一眼便盯住几个位置显眼的春菜摊位，一拥而上将摊主们团团围住。
+可可西里自然保护区公安局索南达杰生态警务室负责人旦正才旦表示，藏羚羊迁徙季开启后，警方对羊群经过的青藏公路109国道沿线加大巡护频次，实行24小时不间断值守，疏通往来车辆、及时交通管制，加强藏羚羊保护知识科普，减少人类活动对迁徙的干扰。
 
-摊主王素娟一边为顾客打包春笋，一边笑称：“开春以来，春菜一天比一天好卖，本地春菜大量上市后，价格比春节期间降了不少。
-
-比如，马兰头、荠菜这些大众春菜，降幅大概在20%至30%，往往供不应求。
-
-” 春菜价格走低，伴随着春宴人气走高。
-
-在神仙居景区附近，民宿老板杨勇将春菜与仙居本土特色结合，推出了春菜套餐，其中油焖春笋卖相好、价格优，广受好评。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 16:11 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 15:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 16:09 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 16:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 15:59 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 15:53 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 15:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 15:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 15:55 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:12 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 15:58 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 15:56 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 16:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:08 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 16:23 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 16:05 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 16:04 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 15:58 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 16:07 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [新能源车能当外接空调用吗](https://www.blog.minike.top/Article/details/60890887160.shtml)
-- 2026-06-29 15:58 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/202253.shtml)
-- 2026-06-29 16:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/09633908.shtml)
-- 2026-06-29 15:53 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/42835.shtml)
-- 2026-06-29 15:52 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/2694516846.shtml)
-- 2026-06-29 15:56 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/40213751260.shtml)
-- 2026-06-29 16:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/398646307.shtml)
-- 2026-06-29 15:53 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/58413.shtml)
-- 2026-06-29 16:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/272943981.shtml)
-- 2026-06-29 16:17 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/17384719.shtml)
-- 2026-06-29 15:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/13312963087.shtml)
-- 2026-06-29 15:48 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/07793871817.shtml)
-- 2026-06-29 16:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/775042314450.shtml)
-- 2026-06-29 16:01 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/65139522.shtml)
-- 2026-06-29 15:56 - [流金岁月](https://www.share.minike.top/Article/details/329387147.shtml)
+- 2026-06-29 16:07 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/80554669897.shtml)
+- 2026-06-29 16:11 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/3870837.shtml)
+- 2026-06-29 16:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/2695763.shtml)
+- 2026-06-29 16:06 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/840515255.shtml)
+- 2026-06-29 15:55 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/83023640134.shtml)
+- 2026-06-29 16:05 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/846375113889.shtml)
+- 2026-06-29 16:10 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/29742699.shtml)
+- 2026-06-29 16:04 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/234413237063.shtml)
+- 2026-06-29 15:54 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/28430.shtml)
+- 2026-06-29 16:10 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/713051087662.shtml)
+- 2026-06-29 16:14 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/56597977.shtml)
+- 2026-06-29 16:22 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/86182.shtml)
+- 2026-06-29 16:08 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/336924079724.shtml)
+- 2026-06-29 16:20 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/47230.shtml)
+- 2026-06-29 16:19 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/36529540.shtml)

@@ -1,60 +1,57 @@
-# 乳企年报|新希望逆势增长：押中鲜奶和酸奶业务 港股上市背后财务压力不容忽视
+# 锂电正极材料上市公司业绩分化加剧
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，上市乳企陷入营收、净利润双下滑的困境。 根据Wind数据，目前已披露年报的5家乳企中有3家出现营收和净利润双降，包含光明乳业、天润乳业、燕塘乳业，其中光明乳业和燕塘乳业净利润下滑幅度分别达到120.67%及43.94%。 新乳
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 李万晨曦 Wind资讯数据显示，目前，A股锂电正极材料板块的26家企业均已披露2025年年报。其中，10家企业净利润同比正增长，8家企业减亏，3家扭亏为盈，5家企业净利润下滑。整体来看，行业迎来复苏拐点。 “A股26家锂电正极材料企业中，合计超八成经营边际改善，但同时仍有5家企业净利润同比下滑，中
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，上市乳企陷入营收、净利润双下滑的困境。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据Wind数据，目前已披露年报的5家乳企中有3家出现营收和净利润双降，包含光明乳业、天润乳业、燕塘乳业，其中光明乳业和燕塘乳业净利润下滑幅度分别达到120.67%及43.94%。
+本报记者 李万晨曦 Wind资讯数据显示，目前，A股锂电正极材料板块的26家企业均已披露2025年年报。
 
-新乳业是为数不多营收和净利润双增长的乳企，去年营收增长5.33%，净利润增长35.98%。
+其中，10家企业净利润同比正增长，8家企业减亏，3家扭亏为盈，5家企业净利润下滑。
 
-在年报发布后不久，公司向香港联交所递交了发行H股股票并在香港联交所主板挂牌上市的申请。
+整体来看，行业迎来复苏拐点。
 
-不过市场对此显然并不“买账”，3月11日首次宣布港股上市后，新乳业股价次日跌幅达到9.21%，4月3日发布公告后，股价再度下跌。
+“A股26家锂电正极材料企业中，合计超八成经营边际改善，但同时仍有5家企业净利润同比下滑，中小厂商经营承压。
 
-具体来看，新乳业业绩高增长背后仍存在诸多隐忧，现金流与利润背离、经销商大幅减少，尽管负债率在下降，但是现金远低于短债，面临着较大的财务压力。
+2025年锂电正极材料行业迎来结构性复苏拐点，强弱显著分化。
 
-鲜奶和酸奶业务带动业绩逆势增长 靓丽年报背后仍有隐忧 2025年新乳业实现营收112.33亿元，同比增长 5.33%；实现归母净利润7.31亿元，同比大增35.98%。
+”国际智能运载科技协会秘书长、黄河科技学院客座教授张翔在接受《证券日报》记者采访时表示。
 
-从收入结构来看，在常温纯牛奶陷入下滑之际，新乳业通过鲜奶和酸奶业务稳住了营业收入。
+行业迎结构性复苏拐点 锂电正极材料主要包括磷酸铁锂、三元、钴酸锂、锰酸锂四大传统品类，其中，磷酸铁锂、三元是行业两大主流路线。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 16:15 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 16:08 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:58 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 15:48 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 16:15 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:13 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 16:13 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 16:09 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 16:16 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 16:15 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 15:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 15:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 16:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 16:23 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 15:59 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 16:15 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 16:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 15:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 16:20 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 16:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 16:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 16:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 16:00 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/80838842795.shtml)
-- 2026-06-29 15:55 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/702466.shtml)
-- 2026-06-29 15:59 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/499421540984.shtml)
-- 2026-06-29 16:17 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/6422731.shtml)
-- 2026-06-29 16:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/996949630.shtml)
-- 2026-06-29 16:00 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/470065713210.shtml)
-- 2026-06-29 16:07 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/212668850659.shtml)
-- 2026-06-29 15:56 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/341851363.shtml)
-- 2026-06-29 16:09 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/80874.shtml)
-- 2026-06-29 16:07 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/858278430.shtml)
-- 2026-06-29 16:13 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/52945668.shtml)
-- 2026-06-29 16:16 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/93575514886.shtml)
-- 2026-06-29 16:09 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/8103817.shtml)
-- 2026-06-29 15:56 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/3017060137.shtml)
-- 2026-06-29 15:59 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/706295008.shtml)
+- 2026-06-29 16:16 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/3152607.shtml)
+- 2026-06-29 15:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/90333432.shtml)
+- 2026-06-29 16:05 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/021598648.shtml)
+- 2026-06-29 16:19 - [第一炉香](https://www.share.kurohicncr.top/Article/details/930920478663.shtml)
+- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/00483358.shtml)
+- 2026-06-29 15:57 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/581118.shtml)
+- 2026-06-29 16:08 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/3936885745.shtml)
+- 2026-06-29 16:02 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/7900180178.shtml)
+- 2026-06-29 16:01 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/565311642417.shtml)
+- 2026-06-29 16:06 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/9876281526.shtml)
+- 2026-06-29 16:02 - [沙丘](https://www.share.kurohicncr.top/Article/details/227014184.shtml)
+- 2026-06-29 16:18 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/323166253988.shtml)
+- 2026-06-29 16:05 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/956733376.shtml)
+- 2026-06-29 16:16 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/9185012197.shtml)
+- 2026-06-29 16:06 - [斗破苍穹](https://www.share.minike.top/Article/details/4198753244.shtml)

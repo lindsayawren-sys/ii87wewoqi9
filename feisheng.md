@@ -1,54 +1,61 @@
-# 日经指数上涨1.2% 受电子股带动
+# 母亲节活动文案引发争议 OPPO致歉
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-得益于市场对美国和伊朗冲突有望解决的持续憧憬，日本股市走高。日经指数上涨1.2%，至56，591.12点。电子股领涨。铠侠上涨6.4%，发那科上涨4.0%。优衣库母公司迅销上调盈利预测后，其股价上涨6.6%。投资者正在关注中东局势的任何发展及其对原油价格的影响。责任编辑：王永生
+中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。记者注意到，8日下午该文案已被删除。 同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示
 
 ## 正文
 
-得益于市场对美国和伊朗冲突有望解决的持续憧憬，日本股市走高。
+中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。
 
-日经指数上涨1.2%，至56，591.12点。
+其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。
 
-电子股领涨。
+跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
 
-铠侠上涨6.4%，发那科上涨4.0%。
+有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。
 
-优衣库母公司迅销上调盈利预测后，其股价上涨6.6%。
+记者注意到，8日下午该文案已被删除。
 
-投资者正在关注中东局势的任何发展及其对原油价格的影响。
+同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
 
-责任编辑：王永生
+OPPO表示，其创作初衷是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
+
+OPPO已第一时间下架全部相关物料，并将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 16:11 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 16:07 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 16:08 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 15:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 15:54 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 15:50 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:05 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 16:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 15:48 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 16:08 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 15:54 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:22 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 16:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 16:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 15:58 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 16:03 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 16:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 16:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 16:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 16:21 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 16:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 16:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/885646981.shtml)
-- 2026-06-29 16:01 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/0102803437.shtml)
-- 2026-06-29 15:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/19493719898.shtml)
-- 2026-06-29 15:59 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/40777479.shtml)
-- 2026-06-29 16:05 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/9526088.shtml)
-- 2026-06-29 15:58 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/22186398328.shtml)
-- 2026-06-29 15:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/00024407148.shtml)
-- 2026-06-29 15:59 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/24341.shtml)
-- 2026-06-29 16:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/893704.shtml)
-- 2026-06-29 16:17 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/174098505074.shtml)
-- 2026-06-29 16:11 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/096046624252.shtml)
-- 2026-06-29 16:16 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/64486846.shtml)
-- 2026-06-29 15:49 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/72076611.shtml)
-- 2026-06-29 15:48 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/22515958.shtml)
-- 2026-06-29 15:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/81990863767.shtml)
+- 2026-06-29 16:03 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/9138321.shtml)
+- 2026-06-29 15:59 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/5236911412.shtml)
+- 2026-06-29 16:09 - [光与夜之恋](http://www.blog.minike.top/Article/details/14967.shtml)
+- 2026-06-29 16:12 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/49385836.shtml)
+- 2026-06-29 16:02 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/4910022.shtml)
+- 2026-06-29 16:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/64585.shtml)
+- 2026-06-29 16:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/9049800286.shtml)
+- 2026-06-29 16:13 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/424222019244.shtml)
+- 2026-06-29 16:22 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/79753220.shtml)
+- 2026-06-29 16:07 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/57970669497.shtml)
+- 2026-06-29 16:05 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/73956306514.shtml)
+- 2026-06-29 15:54 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7136325.shtml)
+- 2026-06-29 16:14 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/846687307232.shtml)
+- 2026-06-29 16:19 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/98035023992.shtml)
+- 2026-06-29 16:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/741961.shtml)

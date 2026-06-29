@@ -1,58 +1,58 @@
-# 《中国电器质量安全提升行动倡议》发布
+# 大豆：厄尔尼诺担忧升温 国际大豆价格上行
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月9日电 (记者 刘亮)为进一步提升我国电器产品质量安全水平，中国消费品质量安全促进会9日联合多家电器生产企业及国内权威技术机构向全国电器产业链企业发出《中国电器质量安全提升行动倡议》(以下简称：倡议)。 倡议提出，加快建立企业首席质量官制度。完善企业质量治理体系，结合产业发展实际，全面加强质量管理，落实质量安全主体责任，培育企业质量文化，增强企业核心竞争力。 倡议
+卓创资讯大豆市场分析师王文深 【导语】中国五一假期期间，美豆期货价格震荡上行，一方面美豆油价格的上涨对美豆价格形成提振，另一方面市场担忧厄尔尼诺形成减产预期，供应端收紧导致价格走高。单从目前美豆的生长进度看，暂时没有受到影响，卓创资讯预计美豆价格短期稳定，中长期看震荡走高，5月份07合约价格预计上探至1250美分/蒲式耳附近。 供应端：厄尔尼诺话题升温 对大豆影响有限 根据NO
 
 ## 正文
 
-中新网北京4月9日电 (记者 刘亮)为进一步提升我国电器产品质量安全水平，中国消费品质量安全促进会9日联合多家电器生产企业及国内权威技术机构向全国电器产业链企业发出《中国电器质量安全提升行动倡议》(以下简称：倡议)。
+卓创资讯大豆市场分析师王文深 【导语】中国五一假期期间，美豆期货价格震荡上行，一方面美豆油价格的上涨对美豆价格形成提振，另一方面市场担忧厄尔尼诺形成减产预期，供应端收紧导致价格走高。
 
-倡议提出，加快建立企业首席质量官制度。
+单从目前美豆的生长进度看，暂时没有受到影响，卓创资讯预计美豆价格短期稳定，中长期看震荡走高，5月份07合约价格预计上探至1250美分/蒲式耳附近。
 
-完善企业质量治理体系，结合产业发展实际，全面加强质量管理，落实质量安全主体责任，培育企业质量文化，增强企业核心竞争力。
+供应端：厄尔尼诺话题升温 对大豆影响有限 根据NOAA的气候预测报告数据显示，从26年4月起一年内，全球发生厄尔尼诺的概率季度均值均在70%以上，其中6月起至年底，季均概率在90%以上。
 
-倡议提出，拒绝“内卷式”竞争。
+由于6月开始，美国大豆进入了关键的出苗生长期，因此气候对于大豆产区的影响主要集中在美国，叠加全球大豆期货基准在芝加哥交易所，因此气候对于美豆期货价格，以至全球大豆价格，均将形成直接影响。
 
-坚守质量生命线，不参与以牺牲产品和服务质量为代价的非理性竞争，不参与不计成本的各种“血拼”活动，不参与恶意比价、互黑互踩等市场踩踏式的无序竞争，避免卷入恶性竞争的漩涡，共同营造公平公正的市场环境。
+尽管目前厄尔尼诺天气已经开始发酵，但美豆播种进度继续正常推进，没有受到天气的影响。
 
-倡议提出，构建高水平新型质量基础设施。
+根据USDA数据显示，截至5月3日当周，美国大豆播种进度为33%，上周23%，去年同期28%，五年均值23%；出苗率13%，此前一周为8%，去年同期6%，五年均值5%。
 
-紧跟产业模式和企业组织形态变革，增强质量技术基础能力，协同探索数字化质量认证制度体系，充分释放技术和数据生产要素价值。
+单从目前供应端的实际数据看，目前市场没有减产的迹象。
 
-深化数字技术在质量管理中的应用。
+南美产区来看，巴西大豆收割进度达到95%，产量预估稳定，5月StoneX因巴西全国范围内作物单产预估提高，以及南里奥格兰德州种植面积预估上调，将巴西2025/26年度大豆产量环比上调1%至1.816亿吨。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 15:58 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 16:11 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 16:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 16:09 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 16:08 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 15:49 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 16:05 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 16:00 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 15:52 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 16:05 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 15:48 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 16:20 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 16:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 16:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 16:06 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 16:06 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:17 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 15:56 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 16:23 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 16:08 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 16:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 16:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 16:06 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/55556.shtml)
-- 2026-06-29 16:17 - [斛珠夫人](https://www.share.minike.top/Article/details/72926169834.shtml)
-- 2026-06-29 16:00 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/596862895.shtml)
-- 2026-06-29 15:55 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/226787400120.shtml)
-- 2026-06-29 15:50 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/3407371.shtml)
-- 2026-06-29 16:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/87497015.shtml)
-- 2026-06-29 16:15 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/79712295.shtml)
-- 2026-06-29 16:11 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/39791325.shtml)
-- 2026-06-29 15:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/72536811.shtml)
-- 2026-06-29 15:54 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/90017548.shtml)
-- 2026-06-29 15:55 - [当我回母校教书](https://www.blog.minike.top/Article/details/1147041.shtml)
-- 2026-06-29 16:02 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/93353030317.shtml)
-- 2026-06-29 16:11 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/959752288.shtml)
-- 2026-06-29 15:52 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/05088821.shtml)
-- 2026-06-29 16:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/03008137.shtml)
+- 2026-06-29 15:55 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/282957417.shtml)
+- 2026-06-29 16:21 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/6245692.shtml)
+- 2026-06-29 16:14 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/3731200.shtml)
+- 2026-06-29 16:12 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/1242892082.shtml)
+- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/2001733.shtml)
+- 2026-06-29 16:02 - [毒液2](http://www.share.kurohicncr.top/Article/details/302160334421.shtml)
+- 2026-06-29 16:17 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/41362.shtml)
+- 2026-06-29 16:11 - [一见倾心](https://www.share.kurohicncr.top/Article/details/949117.shtml)
+- 2026-06-29 15:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/5787551557.shtml)
+- 2026-06-29 16:09 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/6002352683.shtml)
+- 2026-06-29 16:00 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/654199411.shtml)
+- 2026-06-29 15:55 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/10798.shtml)
+- 2026-06-29 16:14 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/742988.shtml)
+- 2026-06-29 15:57 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/517482199.shtml)
+- 2026-06-29 15:54 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/7920346840.shtml)

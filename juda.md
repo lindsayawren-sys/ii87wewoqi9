@@ -1,58 +1,55 @@
-# 熊猫金控遭湖南证监局预处罚！符合条件投资者可登记索赔
+# 里昂：澜起科技目标价447.2港元 维持“高度确信跑赢大市”评级
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，熊猫金控股份有限公司（以下简称“熊猫金控”）收到湖南证监局下发的《行政处罚事先告知书》，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，符合以下区间的两类投资者，可通过“新浪股民维权平台”自愿登记索赔：（1）于2023年4月4日-2025年12月29日期间买入且有持仓，无论在20
+里昂发布研报称，随着AI从模型训练转向推理，特别是AI代理的发展，服务器CPU的需求正持续上升。该行认为澜起科技（06809）是CPU强劲需求的主要受惠者。此外，公司新产品的可服务市场规模大，增长正加速。该行上调对澜起科技的盈利预测，首次覆盖澜起科技港股并给予447.2港元目标价，同时将澜起科技（688008.SH）A股目标价由209.6元人民币上调至277.9元人民币，均维持
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，熊猫金控股份有限公司（以下简称“熊猫金控”）收到湖南证监局下发的《行政处罚事先告知书》，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，符合以下区间的两类投资者，可通过“新浪股民维权平台”自愿登记索赔：（1）于2023年4月4日-2025年12月29日期间买入且有持仓，无论在2025年12月30日及之后是否卖出；（2）于2025年1月23日-2025年4月27日期间买入且有持仓，无论在2025年4月28日及之后是否卖出。
+里昂发布研报称，随着AI从模型训练转向推理，特别是AI代理的发展，服务器CPU的需求正持续上升。
 
-回顾本案，2025年12月29日熊猫金控收到中国证监会下发的《立案告知书》，因熊猫金控涉嫌信息披露违法违规，中国证监会决定对其立案调查。
+该行认为澜起科技（06809）是CPU强劲需求的主要受惠者。
 
-2026年4月8日熊猫金控收到湖南证监局下发的《行政处罚事先告知书》，该告知书指出熊猫金控及相关当事人存在信披违法违规事实，并决定对其进行行政处罚。
+此外，公司新产品的可服务市场规模大，增长正加速。
 
-信本股民索赔团队提醒，目前熊猫金控已被预处罚，因此受损投资者可通过“新浪股民维权平台”自愿登记索赔。
+该行上调对澜起科技的盈利预测，首次覆盖澜起科技港股并给予447.2港元目标价，同时将澜起科技（688008.SH）A股目标价由209.6元人民币上调至277.9元人民币，均维持“高度确信跑赢大市”评级，同时将公司2026至2028年的净利润预测各上调9%、33%及25%，至41亿、68亿及87亿元人民币。
 
-索赔条件： 熊猫金控：（1）于2023年4月4日-2025年12月29日期间买入且有持仓，无论在2025年12月30日及之后是否卖出；（2）于2025年1月23日-2025年4月27日期间买入且有持仓，无论在2025年4月28日及之后是否卖出。
-
-（具体赔付范围由法院确定） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
-
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
-
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 15:53 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 16:12 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 15:52 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 15:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 15:50 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 16:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:54 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 16:01 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 15:58 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 15:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 15:57 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:11 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 16:14 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 16:00 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 16:00 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 16:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:18 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 16:18 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 16:00 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 16:07 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:57 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 16:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 15:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 16:07 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/56671194111.shtml)
-- 2026-06-29 16:05 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/6311466094.shtml)
-- 2026-06-29 16:10 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/15913.shtml)
-- 2026-06-29 16:00 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/03491.shtml)
-- 2026-06-29 16:01 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/55992399.shtml)
-- 2026-06-29 16:14 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/439509052.shtml)
-- 2026-06-29 16:08 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/506661539575.shtml)
-- 2026-06-29 15:58 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/51791150497.shtml)
-- 2026-06-29 16:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/653304.shtml)
-- 2026-06-29 15:49 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/8944380.shtml)
-- 2026-06-29 15:57 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/664478023.shtml)
-- 2026-06-29 15:58 - [我和我的家乡](http://www.blog.minike.top/Article/details/47179.shtml)
-- 2026-06-29 16:17 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/3702464.shtml)
-- 2026-06-29 16:05 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/434206145320.shtml)
-- 2026-06-29 15:51 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/375270247972.shtml)
+- 2026-06-29 16:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/8270661.shtml)
+- 2026-06-29 16:17 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/25623.shtml)
+- 2026-06-29 15:54 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/58988289111.shtml)
+- 2026-06-29 16:16 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/271500587078.shtml)
+- 2026-06-29 16:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/463078489.shtml)
+- 2026-06-29 15:56 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/13606429839.shtml)
+- 2026-06-29 16:07 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/84636830.shtml)
+- 2026-06-29 16:07 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/388825251.shtml)
+- 2026-06-29 16:10 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/84884923360.shtml)
+- 2026-06-29 16:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/76077675498.shtml)
+- 2026-06-29 16:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/9460316151.shtml)
+- 2026-06-29 16:20 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/3663393.shtml)
+- 2026-06-29 15:59 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/59870628121.shtml)
+- 2026-06-29 16:11 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/338113.shtml)
+- 2026-06-29 16:12 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/10146216.shtml)

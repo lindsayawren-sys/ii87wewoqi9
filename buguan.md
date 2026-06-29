@@ -1,46 +1,59 @@
-# 4月9日增减持汇总：松炀资源等8股拟减持，当日无A股增持（表）
+# 高油价或成常态：华尔街开始兴起NACHO交易
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，4月9日，盘后，松炀资源、金证股份、东方电气、杭钢股份、科华控股（维权）、东方电气、赛分科技、联测科技在内的8家A股上市公司披露拟减持情况，当日暂无A股公司披露增持情况。 责任编辑：宋雅芳
+财联社5月8日讯（编辑 马兰）随着美伊冲突的持续，市场越来越担忧霍尔木兹海峡的情况，一些交易员已经开始执行NACHO交易，即霍尔木兹绝无可能开放（Not A Chance Hormuz Open）。 市场怀疑美国总统特朗普关于重新开放霍尔木兹海峡的言论能否迅速解决问题。周三，特朗普表示，如果伊朗不同意和平协议，将遭到更大规模的轰炸。周四，美国和伊朗在霍尔木兹海峡交火，但特朗普随
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+财联社5月8日讯（编辑 马兰）随着美伊冲突的持续，市场越来越担忧霍尔木兹海峡的情况，一些交易员已经开始执行NACHO交易，即霍尔木兹绝无可能开放（Not A Chance Hormuz Open）。
 
-据统计，4月9日，盘后，松炀资源、金证股份、东方电气、杭钢股份、科华控股（维权）、东方电气、赛分科技、联测科技在内的8家A股上市公司披露拟减持情况，当日暂无A股公司披露增持情况。
+市场怀疑美国总统特朗普关于重新开放霍尔木兹海峡的言论能否迅速解决问题。
 
-责任编辑：宋雅芳
+周三，特朗普表示，如果伊朗不同意和平协议，将遭到更大规模的轰炸。
+
+周四，美国和伊朗在霍尔木兹海峡交火，但特朗普随后又表示，这些袭击“只是轻轻地打个招呼”，停火仍持续。
+
+eToro市场分析师Zavier Wong对媒体表示，市场正对快速解决问题失去希望。
+
+过去每一条停火消息都会引发石油价格暴跌，但危机从未真正解决。
+
+NACHO 的出现表明，油价上涨并非暂时的波动，而是当前市场环境的常态。
+
+虽然布伦特原油价格较4月底的高峰有所回落，自126美元/桶降至目前的100美元/桶左右，但仍比冲突前高出近40%。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 15:49 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 15:56 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 15:58 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 16:11 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 16:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 16:04 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 16:12 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 15:59 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 15:57 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 16:15 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 16:19 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 16:13 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 16:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 16:10 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 16:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 16:10 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:56 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 16:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:03 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 16:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/606389.shtml)
-- 2026-06-29 15:53 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/502843331.shtml)
-- 2026-06-29 16:15 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/37724938.shtml)
-- 2026-06-29 16:09 - [105年初心滚烫](https://www.share.minike.top/Article/details/1883572055.shtml)
-- 2026-06-29 16:17 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/547644.shtml)
-- 2026-06-29 15:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/06933763.shtml)
-- 2026-06-29 16:09 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/08447343.shtml)
-- 2026-06-29 16:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/087155.shtml)
-- 2026-06-29 16:00 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/035914033965.shtml)
-- 2026-06-29 16:05 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/4155641.shtml)
-- 2026-06-29 16:14 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/412775.shtml)
-- 2026-06-29 16:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/3245430.shtml)
-- 2026-06-29 16:06 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/135523871377.shtml)
-- 2026-06-29 16:12 - [普京介绍前线战事](https://www.share.minike.top/Article/details/850071549.shtml)
-- 2026-06-29 16:04 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/05863750.shtml)
+- 2026-06-29 16:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/57353942.shtml)
+- 2026-06-29 16:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/0364163236.shtml)
+- 2026-06-29 16:15 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/300617189.shtml)
+- 2026-06-29 16:07 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/47285339.shtml)
+- 2026-06-29 15:55 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/7886666.shtml)
+- 2026-06-29 15:57 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/7348288.shtml)
+- 2026-06-29 15:55 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/277435.shtml)
+- 2026-06-29 16:10 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/95351759.shtml)
+- 2026-06-29 16:06 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/144117570884.shtml)
+- 2026-06-29 16:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/561218481641.shtml)
+- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/45321.shtml)
+- 2026-06-29 16:00 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/94555.shtml)
+- 2026-06-29 16:21 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/6448404.shtml)
+- 2026-06-29 16:03 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/240380569762.shtml)
+- 2026-06-29 16:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/17231.shtml)

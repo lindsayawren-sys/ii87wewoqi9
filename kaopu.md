@@ -1,52 +1,60 @@
-# 黑水县宗教界积极开展义务植树活动
+# 对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-近日，黑水县统战民宗部门动员组织藏传佛教寺庙僧众，积极开展义务植树活动，以实际行动为宗教活动场所增添新绿、守护生态，践行宗教界服务社会的责任与担当。 统战民宗部门及时对接林草部门，协调红松、毛白杨等当地适种植株400余株分发各寺庙。各寺庙民管会组织僧俗群众挥锹挖坑、扶苗正干、培土围堰、提水浇灌，现场一派热火朝天的劳动景象。 植树活动不仅美化了寺庙生态环境，也促进了宗教界“三个意
+在第二次同意加入Millennium Management后，宏观交易员Pablo Duran Steinman再次反悔。 据知情人士透露，在原本即将开始为Izzy Englander的对冲基金帝国从事交易活动前不久，Steinman退出了已签署的工作合同。由于讨论人事问题，知情人士要求匿名。 其中一位知情人士透露，Steinman本周开始在纽约肯·格里芬的城堡投资担任高级投资
 
 ## 正文
 
-近日，黑水县统战民宗部门动员组织藏传佛教寺庙僧众，积极开展义务植树活动，以实际行动为宗教活动场所增添新绿、守护生态，践行宗教界服务社会的责任与担当。
+在第二次同意加入Millennium Management后，宏观交易员Pablo Duran Steinman再次反悔。
 
-统战民宗部门及时对接林草部门，协调红松、毛白杨等当地适种植株400余株分发各寺庙。
+据知情人士透露，在原本即将开始为Izzy Englander的对冲基金帝国从事交易活动前不久，Steinman退出了已签署的工作合同。
 
-各寺庙民管会组织僧俗群众挥锹挖坑、扶苗正干、培土围堰、提水浇灌，现场一派热火朝天的劳动景象。
+由于讨论人事问题，知情人士要求匿名。
 
-植树活动不仅美化了寺庙生态环境，也促进了宗教界“三个意识”教育成效。
+其中一位知情人士透露，Steinman本周开始在纽约肯·格里芬的城堡投资担任高级投资组合经理，并将在那里组建他的团队。
 
-参与活动的僧人纷纷表示，植树护绿是每个人的责任，将积极引导信教群众树立爱护生态的意识，以实际行动守护绿水青山，助力生态保护。
+Steinman这一动作是对冲基金行业“截胡”大战的最新例证。
 
-下一步，黑水县将持续引导宗教界落实“每名僧人每年至少植树1株、持续开展寺庙‘四化’建设”要求，形成宗教界关注生态保护、参与生态建设的良好氛围。
+这种席卷该行业的现象指的是随着人才争夺战达到白热化程度，交易员与一家公司签订入职协议，但在最后一刻跳槽到另一家公司以获得更好的待遇。
+
+Steinman已于2025年离开ExodusPoint Capital Management，休了一年的“园艺假”。
+
+他当时已同意加入Millennium。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 16:11 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 16:13 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 15:54 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 15:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 15:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 15:54 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 15:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 15:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 16:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 16:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 16:00 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 16:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 16:19 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 15:56 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:19 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 16:23 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 16:11 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 16:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 16:08 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 16:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 16:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/3531907.shtml)
-- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/296743.shtml)
-- 2026-06-29 16:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/1741949.shtml)
-- 2026-06-29 16:10 - [工作靠AI算不算职场作弊](https://www.share.kurohicncr.top/Article/details/908926.shtml)
-- 2026-06-29 16:16 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/24097.shtml)
-- 2026-06-29 16:08 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/56720032029.shtml)
-- 2026-06-29 16:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/6625452.shtml)
-- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/0374401.shtml)
-- 2026-06-29 16:06 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/5354798.shtml)
-- 2026-06-29 16:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/4689287111.shtml)
-- 2026-06-29 15:49 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/67024403.shtml)
-- 2026-06-29 15:55 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/73726.shtml)
-- 2026-06-29 16:15 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/472289472028.shtml)
-- 2026-06-29 16:03 - [千与千寻](http://www.blog.minike.top/Article/details/505236998.shtml)
-- 2026-06-29 15:56 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/7072603117.shtml)
+- 2026-06-29 16:04 - [一生一世](https://www.share.kurohicncr.top/Article/details/962457279470.shtml)
+- 2026-06-29 16:14 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/705402756.shtml)
+- 2026-06-29 16:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/487047.shtml)
+- 2026-06-29 16:00 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/27085435.shtml)
+- 2026-06-29 16:03 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/96624.shtml)
+- 2026-06-29 15:55 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/4604638.shtml)
+- 2026-06-29 16:22 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/34971436.shtml)
+- 2026-06-29 15:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/798815351077.shtml)
+- 2026-06-29 16:15 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/33745792721.shtml)
+- 2026-06-29 16:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/453977.shtml)
+- 2026-06-29 15:56 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/4318001132.shtml)
+- 2026-06-29 16:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/874009229091.shtml)
+- 2026-06-29 16:20 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/323500486060.shtml)
+- 2026-06-29 16:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/5869320.shtml)
+- 2026-06-29 16:19 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/0099056536.shtml)

@@ -1,56 +1,57 @@
-# 以军袭击加沙地带致多人丧生 包括一名记者
+# 剧集年报｜欢瑞世纪信披违规再遭立案 隐瞒财政部行政处罚长达5个月 会计差错更正后2022年由盈转亏
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 综合消息：以色列当地时间8日对加沙地带发动袭击，一日内造成至少4人丧生，其中包括一名记者。 卡塔尔半岛电视台称，该台记者穆罕默德·维沙8日在加沙地带北部加沙城的主干道上驾驶车辆时，遭以色列无人机袭击身亡。此次事件还导致另一名巴勒斯坦人丧生。 该台当日发表声明，称此次事件公然违反了国际法律和准则，旨在恐吓记者，阻止他们履行职责。 加沙地带政府媒体办公室发表声
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。全年共上新长剧624部，同比减少3
 
 ## 正文
 
-中新社北京4月9日电 综合消息：以色列当地时间8日对加沙地带发动袭击，一日内造成至少4人丧生，其中包括一名记者。
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。
 
-卡塔尔半岛电视台称，该台记者穆罕默德·维沙8日在加沙地带北部加沙城的主干道上驾驶车辆时，遭以色列无人机袭击身亡。
+2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。
 
-此次事件还导致另一名巴勒斯坦人丧生。
+全年共上新长剧624部，同比减少31部；上新长剧霸屏榜TOP20正片有效播放296亿，同比缩减20%。
 
-该台当日发表声明，称此次事件公然违反了国际法律和准则，旨在恐吓记者，阻止他们履行职责。
+反观短剧市场，2025年重点网络微短剧规划备案3182部（横屏+竖屏），同比增长20%；获得发行许可网络微短剧691部（横屏+竖屏），同比增长15%。
 
-加沙地带政府媒体办公室发表声明称，维沙遇害事件是以色列“系统性针对和暗杀巴勒斯坦记者”的又一个例子：2023年10月以来，至少有262名记者在以色列对加沙地带的袭击中丧生。
+视频平台上新短剧527部（横屏，单集时长3-20分钟），同比增长31%。
 
-声明呼吁国际社会和相关组织“制止这些反复发生的袭击”，在国际法庭起诉肇事者，“施加严肃有效的压力，制止种族灭绝罪行”，并保护加沙地带的记者。
+集数时长≥16分钟、总时长≥360分钟的部数占比均增加一成。
 
-另据路透社报道，以色列8日对加沙地带中部发动空袭，造成2人死亡。
+2025上新短剧公开累计分账票房5.74亿（截至2026.1.21，共100部公开），同比增长42%。
 
-截至目前，以色列官方未回应相关消息。
+《朱雀堂》以4500万刷新行业票房纪录，但仍有8成短剧票房未过百万，行业马太效应加剧。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 16:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 16:08 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 16:04 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 16:13 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 15:49 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 16:16 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 16:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 16:16 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 15:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 16:23 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 16:10 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 16:18 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 16:08 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:00 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 16:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 16:10 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 16:07 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 16:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 16:05 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/451076902.shtml)
-- 2026-06-29 15:58 - [斗破苍穹](http://www.share.minike.top/Article/details/2348493708.shtml)
-- 2026-06-29 16:03 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/794073926.shtml)
-- 2026-06-29 16:15 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/73269.shtml)
-- 2026-06-29 15:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/451456319.shtml)
-- 2026-06-29 15:53 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/2860545.shtml)
-- 2026-06-29 16:07 - [《贺子珍》](https://www.blog.minike.top/Article/details/74465457411.shtml)
-- 2026-06-29 15:48 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/2675228761.shtml)
-- 2026-06-29 15:50 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/0713761.shtml)
-- 2026-06-29 16:09 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/73593995616.shtml)
-- 2026-06-29 15:53 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/033861.shtml)
-- 2026-06-29 16:17 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/406438028187.shtml)
-- 2026-06-29 16:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/6499073674.shtml)
-- 2026-06-29 16:00 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/76264046497.shtml)
-- 2026-06-29 16:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/03934234.shtml)
+- 2026-06-29 16:09 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/6829013920.shtml)
+- 2026-06-29 16:15 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/9800253845.shtml)
+- 2026-06-29 16:08 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/48487.shtml)
+- 2026-06-29 16:07 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/2710394770.shtml)
+- 2026-06-29 15:54 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/546521349789.shtml)
+- 2026-06-29 16:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/0643593825.shtml)
+- 2026-06-29 16:11 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/697262110975.shtml)
+- 2026-06-29 16:20 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/77283773.shtml)
+- 2026-06-29 16:15 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/314906554977.shtml)
+- 2026-06-29 15:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/1482692001.shtml)
+- 2026-06-29 16:17 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/28459205407.shtml)
+- 2026-06-29 16:05 - [女心理师](https://www.share.minike.top/Article/details/989656779031.shtml)
+- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/74744430253.shtml)
+- 2026-06-29 16:15 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/63791514947.shtml)
+- 2026-06-29 15:56 - [速度与激情9](https://www.share.minike.top/Article/details/970226.shtml)

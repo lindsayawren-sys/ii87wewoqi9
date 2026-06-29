@@ -1,50 +1,57 @@
-# 民航局：第一季度民航旅客运输量2.0亿人次，同比增长6.5%
+# 从“看景”到“入景” 国风沉浸 令人“上头”
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据中国民用航空局网站消息，4月8日，民航局召开4月安委会(扩大)会议。据悉，第一季度，全行业累计完成运输飞行377.1万小时、140.6万架次，同比分别增长5.2%、3.4%；运输总周转量428.0亿吨公里，旅客运输量2.0亿人次，同比分别增长10.9%、6.5%。同时，行业安全运行态势保持平稳，一季度各项工作实现了良好开局。
+今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。 从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。 在河北吴桥，全国首
 
 ## 正文
 
-中新网4月10日电 据中国民用航空局网站消息，4月8日，民航局召开4月安委会(扩大)会议。
+今年“五一”假期，国风沉浸体验游受到游客欢迎，成为文旅市场的一大亮点。
 
-据悉，第一季度，全行业累计完成运输飞行377.1万小时、140.6万架次，同比分别增长5.2%、3.4%；运输总周转量428.0亿吨公里，旅客运输量2.0亿人次，同比分别增长10.9%、6.5%。
+多地以国风为魂、以沉浸为韵，融合多业态的体验游让游客从“观众”变身“剧中人”，在沉浸体验中感受传统文化的魅力。
 
-同时，行业安全运行态势保持平稳，一季度各项工作实现了良好开局。
+从“旁观者”变“参与者” 探访一座古城、体验一门非遗技艺……如今，游客对中华优秀传统文化的探索热情持续升温。
+
+携程数据显示，“五一”期间，参与“深度文化游”人次同比增长52.3%。
+
+在河北吴桥，全国首个杂技主题沉浸式文旅综合体——吴桥杂技幻乐城于5月1日开业迎客。
+
+石家庄游客李思琪体验后兴奋地说：“第一次在现场近距离看杂技表演，都是真功夫！
+
+我们还上台跟杂技演员一起互动，尝试抖空竹和顶碗，太刺激了！
+
+”吴桥杂技幻乐城打破传统景区“台下看、台上演”的单一模式，创新打造“玩中看、看中玩、游中学、学中乐”的全沉浸、交互式全新体验，让游客从“旁观者”变“参与者”。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 15:58 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 16:16 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 15:54 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 16:01 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 16:16 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 15:48 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 15:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:01 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 15:48 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 16:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 16:13 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:07 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 16:01 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 15:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 16:06 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 16:00 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 16:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 16:18 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 16:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 16:00 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 16:20 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 15:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 15:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/6010021603.shtml)
-- 2026-06-29 15:57 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/7811184468.shtml)
-- 2026-06-29 16:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/0803116987.shtml)
-- 2026-06-29 15:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/2232504.shtml)
-- 2026-06-29 16:07 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/2400186102.shtml)
-- 2026-06-29 16:00 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/355548938.shtml)
-- 2026-06-29 15:50 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/74643813708.shtml)
-- 2026-06-29 16:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/658968021872.shtml)
-- 2026-06-29 15:51 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/0731553046.shtml)
-- 2026-06-29 16:13 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/9313529615.shtml)
-- 2026-06-29 15:58 - [流金岁月](https://www.blog.minike.top/Article/details/695278.shtml)
-- 2026-06-29 15:51 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/25052244.shtml)
-- 2026-06-29 16:01 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/604375.shtml)
-- 2026-06-29 15:58 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/429656253.shtml)
-- 2026-06-29 16:17 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/224180376.shtml)
+- 2026-06-29 16:23 - [爱很美味](http://www.share.minike.top/Article/details/6102177756.shtml)
+- 2026-06-29 16:11 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/15026.shtml)
+- 2026-06-29 16:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/479345861486.shtml)
+- 2026-06-29 16:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/366087015.shtml)
+- 2026-06-29 16:06 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/05082.shtml)
+- 2026-06-29 15:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/223303.shtml)
+- 2026-06-29 16:21 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/90376997738.shtml)
+- 2026-06-29 15:57 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/9903689811.shtml)
+- 2026-06-29 16:07 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/336409.shtml)
+- 2026-06-29 16:20 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/50266153.shtml)
+- 2026-06-29 16:09 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/5341742.shtml)
+- 2026-06-29 16:22 - [斗破苍穹](https://www.blog.minike.top/Article/details/5666464323.shtml)
+- 2026-06-29 16:06 - [周生如故](https://www.share.minike.top/Article/details/27337290820.shtml)
+- 2026-06-29 16:12 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/4110548.shtml)
+- 2026-06-29 16:00 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/393665237.shtml)

@@ -1,55 +1,48 @@
-# 义利天下 | 义乌手电点亮中国智造户外之光
+# 新疆乌恰：伪装零食寄递假烟 公安联合烟草部门严格查处
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 11:56 来源：中国新闻网 “这就是从中国制造到中国智造的表现。”从摇式发电的单一白光，到五光源多功能款，再到专业级潜水手电——徐盈盈把一枚小小的手电，做成了中国智造的鲜活注脚。 她想吸引更多海外年轻人。客户来了，户外选品可以完全交给她。带着坚持与创新的信念，这个义乌姑娘手中的手电，正点亮中国智造的户外之光，走向全球。(制作 陈庆洋 赵昕宇)
+发布时间：2026年05月09日 11:10 来源：中国新闻网 5月8日，新疆克州乌恰县公安局刑事侦查大队在工作中发现辖区一快递站点有可疑线索，第一时间联合县烟草专卖局启动联合执法机制，迅速对可疑寄递线索开展落地核查。经查，违法行为人刻意假借邮寄零食作为伪装掩护，暗中违规寄递假冒香烟共计6条(假冒中华香烟2条、假冒外国香烟4条)。目前，该案已按照行刑衔接相关工作要求，依法移交烟
 
 ## 正文
 
-发布时间：2026年04月10日 11:56 来源：中国新闻网 “这就是从中国制造到中国智造的表现。
+发布时间：2026年05月09日 11:10 来源：中国新闻网 5月8日，新疆克州乌恰县公安局刑事侦查大队在工作中发现辖区一快递站点有可疑线索，第一时间联合县烟草专卖局启动联合执法机制，迅速对可疑寄递线索开展落地核查。
 
-”从摇式发电的单一白光，到五光源多功能款，再到专业级潜水手电——徐盈盈把一枚小小的手电，做成了中国智造的鲜活注脚。
+经查，违法行为人刻意假借邮寄零食作为伪装掩护，暗中违规寄递假冒香烟共计6条(假冒中华香烟2条、假冒外国香烟4条)。
 
-她想吸引更多海外年轻人。
+目前，该案已按照行刑衔接相关工作要求，依法移交烟草部门作进一步处理。
 
-客户来了，户外选品可以完全交给她。
-
-带着坚持与创新的信念，这个义乌姑娘手中的手电，正点亮中国智造的户外之光，走向全球。
-
-(制作 陈庆洋 赵昕宇) 责任编辑：【岳川】
+(作者：沙辉) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 15:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 16:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 15:55 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 16:05 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:56 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 16:08 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 16:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 16:15 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 15:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 16:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 16:00 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 16:06 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 16:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 16:05 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 16:14 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 16:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 16:10 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 15:55 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 16:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 15:56 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 15:55 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/269566438247.shtml)
-- 2026-06-29 16:16 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/428209.shtml)
-- 2026-06-29 16:07 - [BB大王横店拍戏](http://www.blog.minike.top/Article/details/359139385.shtml)
-- 2026-06-29 16:04 - [急先锋](http://www.share.minike.top/Article/details/487692198.shtml)
-- 2026-06-29 16:05 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/375023752.shtml)
-- 2026-06-29 16:16 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/08396494194.shtml)
-- 2026-06-29 16:06 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/81196742.shtml)
-- 2026-06-29 15:49 - [起风了](http://www.blog.minike.top/Article/details/661458992.shtml)
-- 2026-06-29 15:56 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/068613.shtml)
-- 2026-06-29 15:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/13675082.shtml)
-- 2026-06-29 16:10 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/60537.shtml)
-- 2026-06-29 15:59 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/64155640.shtml)
-- 2026-06-29 15:52 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/59929958.shtml)
-- 2026-06-29 16:01 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/35127845913.shtml)
-- 2026-06-29 16:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/36870395.shtml)
+- 2026-06-29 16:17 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/204106093.shtml)
+- 2026-06-29 16:14 - [明星大侦探第四季](https://www.share.minike.top/Article/details/06054136.shtml)
+- 2026-06-29 16:11 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/098272.shtml)
+- 2026-06-29 16:03 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/4459635064.shtml)
+- 2026-06-29 16:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/0699234606.shtml)
+- 2026-06-29 16:13 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/14167662873.shtml)
+- 2026-06-29 16:02 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/0084756.shtml)
+- 2026-06-29 15:58 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/87229476541.shtml)
+- 2026-06-29 16:21 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/17554256.shtml)
+- 2026-06-29 16:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/45804715.shtml)
+- 2026-06-29 16:02 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/531287785.shtml)
+- 2026-06-29 16:16 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/03339773207.shtml)
+- 2026-06-29 16:09 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/40777493.shtml)
+- 2026-06-29 15:57 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/117493090962.shtml)
+- 2026-06-29 16:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/4823884816.shtml)

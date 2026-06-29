@@ -1,50 +1,60 @@
-# 路透：俄罗斯特使访美会晤特朗普政府成员
+# 受权发布丨中华人民共和国行政复议法实施条例
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-路透援引知情人士的消息报道，俄罗斯特使Kirill Dmitriev目前正在美国与特朗普政府成员会面。 报道称，双方正在讨论乌克兰和平协议以及美俄经济合作。责任编辑：丁文武
+新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。 第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行
 
 ## 正文
 
-路透援引知情人士的消息报道，俄罗斯特使Kirill Dmitriev目前正在美国与特朗普政府成员会面。
+新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。
 
-报道称，双方正在讨论乌克兰和平协议以及美俄经济合作。
+第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行政机关依法行使职权，推动行政争议实质性化解，促进从源头上预防和减少行政争议。
 
-责任编辑：丁文武
+第三条 各级行政复议机关应当认真履行行政复议职责，领导并支持本机关行政复议机构依法办理行政复议事项，依照有关规定配备、充实、调剂专职行政复议人员，保证行政复议机构的办案能力与工作任务相适应。
+
+第四条 行政复议机构依照行政复议法和本条例的规定，履行下列职责： (一)受理行政复议申请； (二)组织开展行政复议调解； (三)审理行政复议案件，拟定行政复议决定； (四)办理行政复议法第五十六条、第五十七条规定的附带审查事项； (五)办理行政复议法第七十二条规定的行政赔偿等事项； (六)按照职责权限，指导、监督下级行政复议机构依法履行行政复议职责； (七)按照职责权限，督促被申请人、其他有关行政机关依法履行行政复议决定书、调解书、意见书； (八)办理行政复议案件统计、行政复议决定抄告事项； (九)研究行政复议工作中发现的问题，及时向有关机关提出改进建议，重大问题及时向行政复议机关报告； (十)法律、法规规定的其他事项。
+
+第五条 行政复议人员应当具备与履行行政复议职责相适应的政治、业务素质和道德品行。
+
+第六条 行政复议机关应当加强行政复议调解工作，支持和保障行政复议机构依法开展调解工作，有关行政机关应当予以配合。
+
+第七条 行政复议机关应当加强行政复议工作规范化建设，提升行政复议工作流程、保障等规范化水平。
+
+具体规范由国务院行政复议机构会同国务院有关部门制定。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 16:07 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 16:04 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 15:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:58 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 16:15 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:11 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 15:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 15:59 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 16:01 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 16:15 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 15:50 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 16:07 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 16:03 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 16:07 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 16:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 16:21 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 16:13 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 16:18 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 16:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 16:18 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 16:11 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 15:55 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 16:05 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 16:18 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 16:12 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 16:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 15:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/032929196815.shtml)
-- 2026-06-29 16:15 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/79055824095.shtml)
-- 2026-06-29 16:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/800735645.shtml)
-- 2026-06-29 15:53 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/986278031517.shtml)
-- 2026-06-29 16:02 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/912431.shtml)
-- 2026-06-29 15:54 - [T1 KC](http://www.blog.minike.top/Article/details/4904809.shtml)
-- 2026-06-29 15:48 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/2622947.shtml)
-- 2026-06-29 16:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/841216875.shtml)
-- 2026-06-29 16:15 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/5120284.shtml)
-- 2026-06-29 15:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/36007437009.shtml)
-- 2026-06-29 15:52 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/65334.shtml)
-- 2026-06-29 16:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/18900645768.shtml)
-- 2026-06-29 15:48 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/250067753.shtml)
-- 2026-06-29 16:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/162172403.shtml)
-- 2026-06-29 16:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/601751270.shtml)
+- 2026-06-29 16:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/639149.shtml)
+- 2026-06-29 16:02 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/17479.shtml)
+- 2026-06-29 16:23 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/1565564.shtml)
+- 2026-06-29 15:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/3562167.shtml)
+- 2026-06-29 15:55 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/6529703.shtml)
+- 2026-06-29 15:59 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/88902724190.shtml)
+- 2026-06-29 16:22 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/52719.shtml)
+- 2026-06-29 16:02 - [急先锋](http://www.blog.minike.top/Article/details/1578846550.shtml)
+- 2026-06-29 16:09 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/09212050.shtml)
+- 2026-06-29 15:56 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/82598.shtml)
+- 2026-06-29 16:05 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/676706658022.shtml)
+- 2026-06-29 16:12 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/43754966.shtml)
+- 2026-06-29 15:57 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/473208226939.shtml)
+- 2026-06-29 16:14 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/4200394698.shtml)
+- 2026-06-29 16:05 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/622001.shtml)

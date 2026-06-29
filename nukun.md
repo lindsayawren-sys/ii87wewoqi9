@@ -1,58 +1,59 @@
-# 打马印——内蒙古草原上的马驹迎来“成年礼”
+# 应李书福邀请，董明珠正式出任“极氪品质体验官”
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-花粉过敏为何越来越普遍？致敏树种能否一砍了之？伊朗高原的一个太子，他的中文译词何以流传千年？超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结硕果打“飞的”也要去的咖啡馆，卖的只是咖啡吗？人这一辈子，一定要去一趟雅安！“我准备倒闭了！”多位书记省长会见一位外企高管美伊以战事真是“文明的冲突”吗？事关我国产供链安全
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。 吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。 今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。期间，董明珠特意邀请李书福访问
 
 ## 正文
 
-花粉过敏为何越来越普遍？
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。
 
-致敏树种能否一砍了之？
+活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。
 
-伊朗高原的一个太子，他的中文译词何以流传千年？
+吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。
 
-超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结硕果打“飞的”也要去的咖啡馆，卖的只是咖啡吗？
+今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。
 
-人这一辈子，一定要去一趟雅安！
+期间，董明珠特意邀请李书福访问珠海格力总部。
 
-“我准备倒闭了！
+此次到访，李书福一行参观了格力科技生态展厅，董明珠分享企业发展历程。
 
-”多位书记省长会见一位外企高管美伊以战事真是“文明的冲突”吗？
+在对话中，李书福表示：“品牌源自于品质，品牌源自于人品，我们一定要尊重人。
 
-事关我国产供链安全 专家解读新规四大看点全国服务业大会提出“两业融合”，有何深意？
+一个企业发展，要对内部员工尊重，对同行尊重，对行业自律尊重，以及对合规、法律等各方面尊重，最重要的是，我们要对用户尊重，对市场要尊重。
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 15:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 16:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 16:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 15:48 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 16:09 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 16:01 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 15:56 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 16:06 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 15:57 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 15:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 16:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 16:01 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 16:10 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 16:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 16:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:13 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 15:54 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 16:11 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 16:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 16:00 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 16:06 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:06 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 16:15 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:04 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/471723.shtml)
-- 2026-06-29 15:54 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/72705.shtml)
-- 2026-06-29 16:08 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/46304.shtml)
-- 2026-06-29 16:08 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/4515805274.shtml)
-- 2026-06-29 15:57 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/7145501.shtml)
-- 2026-06-29 16:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/68764701.shtml)
-- 2026-06-29 16:06 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/6968082854.shtml)
-- 2026-06-29 15:55 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/7662249716.shtml)
-- 2026-06-29 16:10 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/7306558538.shtml)
-- 2026-06-29 16:17 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/333494.shtml)
-- 2026-06-29 15:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/3941773.shtml)
-- 2026-06-29 16:09 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/4942406988.shtml)
-- 2026-06-29 16:08 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/48902.shtml)
-- 2026-06-29 15:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/289782568177.shtml)
-- 2026-06-29 16:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/95940716516.shtml)
+- 2026-06-29 16:18 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/19211.shtml)
+- 2026-06-29 16:19 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/6261860.shtml)
+- 2026-06-29 15:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/4130481006.shtml)
+- 2026-06-29 16:01 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/501362273179.shtml)
+- 2026-06-29 16:09 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/9098283.shtml)
+- 2026-06-29 16:08 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/9831026141.shtml)
+- 2026-06-29 16:16 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/156377391.shtml)
+- 2026-06-29 15:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/05562.shtml)
+- 2026-06-29 16:15 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/85206558530.shtml)
+- 2026-06-29 16:07 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/573308921.shtml)
+- 2026-06-29 16:21 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/12720572452.shtml)
+- 2026-06-29 16:19 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/9146545.shtml)
+- 2026-06-29 15:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/371042649480.shtml)
+- 2026-06-29 16:07 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/476822061.shtml)
+- 2026-06-29 16:13 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/057818438.shtml)

@@ -1,58 +1,56 @@
-# 数据差错、整改不力被约谈，新华基金称已自查反思
+# 酒价内参5月8日价格发布：精品茅台下跌1元/瓶
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 金融统计质量再敲警钟！ 因金融统计数据报送差错较多且整改不力，央行重庆分行日前约谈新华基金，要求该公司压实整改责任，加强源头数据质量管理，切实做好金融统计数据报送。 央行重庆分行在约谈时，通报了新华基金近年在金融统计工作中的差错情况，重申了防范和惩治统计造假、弄虚作假有关要求精神，并明确指出新华基金存在数据报送差错较多，且约谈后
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨四跌两平，赢家略占上风。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 金融统计质量再敲警钟！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。
 
-因金融统计数据报送差错较多且整改不力，央行重庆分行日前约谈新华基金，要求该公司压实整改责任，加强源头数据质量管理，切实做好金融统计数据报送。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。
 
-央行重庆分行在约谈时，通报了新华基金近年在金融统计工作中的差错情况，重申了防范和惩治统计造假、弄虚作假有关要求精神，并明确指出新华基金存在数据报送差错较多，且约谈后整改不力等问题。
+市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。
 
-面对监管约谈，新华基金就数据质量管理机制不健全、数据报送差错进行了深刻检讨，并汇报了下一步整改计划。
+今日白酒市场11大单品五涨四跌两平，赢家略占上风。
 
-新华基金对第一财经称，该公司高度重视、诚恳接受并坚决落实监管要求，已对相关问题进行深刻自查反思，全面梳理数据报送全流程，明确整改责任与完成时限，加快推进源头数据质量管控、报送流程优化等各项整改工作，确保严格规范金融统计数据报送行为。
+上涨方面，青花郎涨幅居前，上涨7元/瓶，重返700元关口上方；洋河梦之蓝M6+上涨4元/瓶，平近一月最高价格；五粮液1618上涨2元/瓶；古井贡古20与习酒君品均上涨1元/瓶。
 
-央行重庆分行也在公告中明确提到，后续将向有关部门通报新华基金数据报送差错、管理失职等问题，并根据新华基金数据质量管控整改情况采取针对性措施，切实履行好金融业综合统计管理职责。
+下跌方面，国窖1573跌幅居前，下跌5元/瓶，近期该酒品的价格波动较为剧烈，在900元大关附近反复震荡；水晶剑南春下跌3元/瓶；飞天茅台与精品茅台均下跌1元/瓶。
 
-有基金业内人士向第一财经透露，公告提及的金融统计数据并非面向公众的信息披露常规报告，而是需定期向监管机构报送的专项数据，具有固定接口和格式要求。
+五粮液普五八代与青花汾20的价格环比保持不变。
 
-一位合规人士介绍，此类数据通常由公司内部多部门协同生成，经内部复核后上报，不同机构的牵头部门也可能存在差异，有的由IT部门负责，有的归属数据管理部或合规部统筹。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 15:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 16:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 15:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 15:59 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 16:06 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 15:48 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 16:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 15:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 16:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 16:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 16:01 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:12 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 16:10 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 16:10 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 15:57 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 16:04 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 16:12 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 15:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 16:16 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 16:11 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/515912425.shtml)
-- 2026-06-29 15:55 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/98639.shtml)
-- 2026-06-29 15:56 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/7002834.shtml)
-- 2026-06-29 15:58 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/956440.shtml)
-- 2026-06-29 15:55 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/462223417111.shtml)
-- 2026-06-29 16:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/3607293.shtml)
-- 2026-06-29 16:15 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/107710136.shtml)
-- 2026-06-29 16:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/82825374576.shtml)
-- 2026-06-29 15:59 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/599732166012.shtml)
-- 2026-06-29 16:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/684457744.shtml)
-- 2026-06-29 16:06 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/41988915936.shtml)
-- 2026-06-29 15:56 - [急先锋](http://www.blog.kurohicncr.top/Article/details/84225.shtml)
-- 2026-06-29 16:10 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/7736012677.shtml)
-- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/6037986074.shtml)
-- 2026-06-29 16:11 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/675951720802.shtml)
+- 2026-06-29 16:17 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/7274716271.shtml)
+- 2026-06-29 16:23 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/81020784768.shtml)
+- 2026-06-29 16:18 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/02383439.shtml)
+- 2026-06-29 16:10 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2865020.shtml)
+- 2026-06-29 16:21 - [青春环游记第三季](https://www.blog.minike.top/Article/details/4023824.shtml)
+- 2026-06-29 16:16 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/46510.shtml)
+- 2026-06-29 16:00 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/83026120.shtml)
+- 2026-06-29 16:08 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/530701470.shtml)
+- 2026-06-29 16:20 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/178510392.shtml)
+- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/47563390.shtml)
+- 2026-06-29 15:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/17908.shtml)
+- 2026-06-29 15:55 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/3845225850.shtml)
+- 2026-06-29 16:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/07054.shtml)
+- 2026-06-29 16:07 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/055715047.shtml)
+- 2026-06-29 16:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/05262178.shtml)

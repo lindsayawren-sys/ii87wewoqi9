@@ -1,50 +1,56 @@
-# 中国开发的东南亚单体最大光伏项目投运
+# 谁来为无子女老人暮年“兜底”？
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。 据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。 据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业
+既要晚年照护有保障，也需妥善处置“身后事” 谁来为无子女老人暮年“兜底”？ 阅读提示 对老人来说，要根据自己的风险点进行组合安排，把“生前照护、失能监护、身后处理”三件事分开设计，这样才是真正有兜底能力的方案。家住北京的贺女士今年77岁，在北京有三处住房，退休金充裕，但她一生未婚，无儿无女，父母早已过世，虽有两个哥哥和两个姐姐，却也都年事已高。因此，今后的养老问题一直是她的一个
 
 ## 正文
 
-发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。
+既要晚年照护有保障，也需妥善处置“身后事” 谁来为无子女老人暮年“兜底”？
 
-据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。
+阅读提示 对老人来说，要根据自己的风险点进行组合安排，把“生前照护、失能监护、身后处理”三件事分开设计，这样才是真正有兜底能力的方案。
 
-据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业，以及老挝本地施工单位、机械供应、原材料供应等30余家企业共同参与建设。
+家住北京的贺女士今年77岁，在北京有三处住房，退休金充裕，但她一生未婚，无儿无女，父母早已过世，虽有两个哥哥和两个姐姐，却也都年事已高。
 
-后续，中广核将加快推进老挝北部五省后续清洁能源项目落地，开拓中部、南部市场，推动中老互联互通向更深层次、更广领域迈进。
+因此，今后的养老问题一直是她的一个心病。
 
-(记者 索有为 制作 王佳琪） 责任编辑：【于晓】
+她曾向社区求助，也咨询过律师，有人建议她去养老院，有人提议她办理遗嘱。
+
+但这些都未能解决她最核心的担忧——当她生病卧床、意识不清时，该怎么办？
+
+贺女士的情况并非个案，对于无子女老人来说，其既需要晚年照护有保障，也需要“身后事”能得到妥善处置，这就指向了一个关键性的问题：谁来为无子女老人的暮年做最后的“兜底”？
+
+与最信任的人签订意定监护 2025年6月，贺女士来到了北京市信德公证处。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 16:12 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 16:00 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 15:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:58 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 15:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 16:00 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 15:50 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 16:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 16:18 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 15:57 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 15:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:22 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 16:17 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 16:19 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 16:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:00 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 16:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/126297253.shtml)
-- 2026-06-29 15:48 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/41703851.shtml)
-- 2026-06-29 16:12 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/9043539272.shtml)
-- 2026-06-29 16:01 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/568450535.shtml)
-- 2026-06-29 15:59 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/6375357800.shtml)
-- 2026-06-29 16:15 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/043146940.shtml)
-- 2026-06-29 16:01 - [请回答王牌2019](http://www.blog.minike.top/Article/details/045280599767.shtml)
-- 2026-06-29 15:50 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/125601324031.shtml)
-- 2026-06-29 16:03 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/6066988.shtml)
-- 2026-06-29 15:51 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/07049.shtml)
-- 2026-06-29 16:03 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/451573554.shtml)
-- 2026-06-29 16:01 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/61576691.shtml)
-- 2026-06-29 15:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/05482.shtml)
-- 2026-06-29 15:56 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/31009.shtml)
-- 2026-06-29 15:53 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/91896.shtml)
+- 2026-06-29 15:54 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/1950505319.shtml)
+- 2026-06-29 16:12 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/510355.shtml)
+- 2026-06-29 15:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/6887666398.shtml)
+- 2026-06-29 16:14 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/187005244034.shtml)
+- 2026-06-29 16:12 - [青春环游记第三季](http://www.blog.minike.top/Article/details/40083.shtml)
+- 2026-06-29 16:19 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/61707.shtml)
+- 2026-06-29 15:57 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/7303975.shtml)
+- 2026-06-29 15:56 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/100765707.shtml)
+- 2026-06-29 16:15 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/868356.shtml)
+- 2026-06-29 15:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/68660701873.shtml)
+- 2026-06-29 16:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/3952978856.shtml)
+- 2026-06-29 16:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/000957326.shtml)
+- 2026-06-29 16:10 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/07128521485.shtml)
+- 2026-06-29 16:02 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/628150240.shtml)
+- 2026-06-29 16:14 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/59420.shtml)

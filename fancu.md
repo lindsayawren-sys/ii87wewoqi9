@@ -1,57 +1,54 @@
-# 新疆拜城：“辣”味十足！7万亩辣椒移栽正当时
+# 中国最高检挂牌督办湖南浏阳烟花爆炸重大责任事故案
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-随着气温逐渐回升，位于塔克拉玛干沙漠北缘的新疆拜城县，农户们抢抓墒情，全面展开7万亩辣椒的移栽工作。 在拜城县赛里木镇1.5万亩辣椒种植基地中，20多台辣椒移栽机匀速作业，栽苗、覆土一气呵成。种植户们分散田间，有的搬运辣椒苗，有的辅助机械补栽，各司其职、配合默契。 当地农业部门也派出技术人员下沉一线，全程抓好定植、水肥管理等关键环节。同时，辣椒移栽季也带动了当地富余劳动力灵活就
+中新社北京5月7日电 (记者 张素)记者7日从中国最高人民检察院获悉，为依法从严惩治危害生产安全刑事犯罪，保护人民群众生命财产安全，最高检决定对湖南浏阳烟花爆炸重大责任事故一案挂牌督办。 5月4日，湖南浏阳市华盛烟花制造燃放有限公司车间发生爆炸，事故造成26人死亡、61人受伤。案发当日，浏阳市公安局以涉嫌重大责任事故罪进行立案侦查，后对涉事企业相关责任人员刑事拘留，案件正在进一
 
 ## 正文
 
-随着气温逐渐回升，位于塔克拉玛干沙漠北缘的新疆拜城县，农户们抢抓墒情，全面展开7万亩辣椒的移栽工作。
+中新社北京5月7日电 (记者 张素)记者7日从中国最高人民检察院获悉，为依法从严惩治危害生产安全刑事犯罪，保护人民群众生命财产安全，最高检决定对湖南浏阳烟花爆炸重大责任事故一案挂牌督办。
 
-在拜城县赛里木镇1.5万亩辣椒种植基地中，20多台辣椒移栽机匀速作业，栽苗、覆土一气呵成。
+5月4日，湖南浏阳市华盛烟花制造燃放有限公司车间发生爆炸，事故造成26人死亡、61人受伤。
 
-种植户们分散田间，有的搬运辣椒苗，有的辅助机械补栽，各司其职、配合默契。
+案发当日，浏阳市公安局以涉嫌重大责任事故罪进行立案侦查，后对涉事企业相关责任人员刑事拘留，案件正在进一步侦查中。
 
-当地农业部门也派出技术人员下沉一线，全程抓好定植、水肥管理等关键环节。
+最高检要求湖南省检察机关充分履行检察职能，协同公安机关及有关部门，依法查清事故原因、案件事实和严重后果；查明涉案有关人员的违法违规责任，对于罪责严重的责任人员，依法从严惩处。
 
-同时，辣椒移栽季也带动了当地富余劳动力灵活就业。
+最高检有关负责人表示，检察机关要在依法严厉打击危害生产安全刑事犯罪的同时，注重分析案件暴露出的安全生产风险防范等方面的突出问题，协同有关部门持续落实最高检“八号检察建议”，促进压实安全生产责任，推动重点行业领域风险排查整治，切实维护人民群众生命财产安全和社会大局稳定。
 
-此次辣椒移栽工作从4月初开始，预计在5月前可以全部完成，机械化率可以达到95%以上。
+“八号检察建议”即最高检于2022年向应急管理部制发的安全生产溯源治理方面的检察建议。
 
-(监制 张立 王新宇 主编 苏蒙 编辑 李振贤 合作媒体 拜城县融媒体中心)
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:08 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 16:17 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 16:11 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 16:14 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 16:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 15:56 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 15:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 16:05 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 16:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:15 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 16:11 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 16:16 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 16:09 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 16:19 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 16:21 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 15:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 16:01 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 16:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 16:21 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 15:59 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 15:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 15:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/475816.shtml)
-- 2026-06-29 15:50 - [一生一世](http://www.blog.minike.top/Article/details/93238.shtml)
-- 2026-06-29 16:16 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/5276635105.shtml)
-- 2026-06-29 16:14 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/27432733.shtml)
-- 2026-06-29 15:59 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/437497771.shtml)
-- 2026-06-29 15:50 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/830387.shtml)
-- 2026-06-29 15:56 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/68869.shtml)
-- 2026-06-29 16:09 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/83293564.shtml)
-- 2026-06-29 15:51 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/0926151.shtml)
-- 2026-06-29 16:09 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/23604.shtml)
-- 2026-06-29 15:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/464327715732.shtml)
-- 2026-06-29 15:59 - [第一炉香](http://www.share.kurohicncr.top/Article/details/0923602185.shtml)
-- 2026-06-29 16:05 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/0380109.shtml)
-- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/87856984.shtml)
-- 2026-06-29 16:01 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/965663.shtml)
+- 2026-06-29 15:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/7248022734.shtml)
+- 2026-06-29 16:01 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/347140479526.shtml)
+- 2026-06-29 16:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3605710670.shtml)
+- 2026-06-29 16:12 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/26317221.shtml)
+- 2026-06-29 16:01 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/08891.shtml)
+- 2026-06-29 16:14 - [当我回母校教书](http://www.blog.minike.top/Article/details/88852569.shtml)
+- 2026-06-29 15:54 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/737638066528.shtml)
+- 2026-06-29 16:06 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/588383.shtml)
+- 2026-06-29 16:04 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/324517487.shtml)
+- 2026-06-29 16:03 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/33103.shtml)
+- 2026-06-29 16:13 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/97926.shtml)
+- 2026-06-29 16:03 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/159694664785.shtml)
+- 2026-06-29 16:05 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/4528250.shtml)
+- 2026-06-29 16:11 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/77976593062.shtml)
+- 2026-06-29 15:58 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/83367829750.shtml)

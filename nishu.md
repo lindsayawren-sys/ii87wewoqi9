@@ -1,44 +1,58 @@
-# KIM YOUNG JUN（金暎埈）获批担任韩亚银行（中国）董事、董事长
+# 供应端支撑稳固 5月沥青价格表现或偏强
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。 责任编辑：曹睿潼
+卓创资讯分析师 张艳飞 ［导语］4月霍尔木兹海峡通行依旧不畅，国际油价高位波动且炼厂原料供应持续偏紧，沥青成本端及供应端支撑依旧偏强，沥青现货价格延续涨势。进入5月份，沥青排产进一步减少，供应端支撑稳固，沥青现货价格走势或相对偏强。 成本及供应双重利好沥青均价延续涨势 4月沥青均价在成本支撑及供应收紧的双重利好下延续上涨走势，全国沥青月度均价涨至4494元/吨，环比上涨310元
 
 ## 正文
 
-4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。
+卓创资讯分析师 张艳飞 ［导语］4月霍尔木兹海峡通行依旧不畅，国际油价高位波动且炼厂原料供应持续偏紧，沥青成本端及供应端支撑依旧偏强，沥青现货价格延续涨势。
 
-责任编辑：曹睿潼
+进入5月份，沥青排产进一步减少，供应端支撑稳固，沥青现货价格走势或相对偏强。
+
+成本及供应双重利好沥青均价延续涨势 4月沥青均价在成本支撑及供应收紧的双重利好下延续上涨走势，全国沥青月度均价涨至4494元/吨，环比上涨310元/吨或7.41%。
+
+4月美伊停火但双方和谈延期，国际油价呈现高位宽幅波动走势，沥青成本支撑持续偏强。
+
+同时，霍尔木兹海峡通行依旧不畅，国内炼厂原料供应仍面临偏紧的状态，沥青开工负荷率继续下降导致沥青产量下滑。
+
+在供应收紧以及成本高位支撑下，全国沥青均价延续上涨走势。
+
+高价沥青抑制需求释放，项目开工推迟导致沥青刚性需求低迷，市场购销情绪谨慎。
+
+进入5月份，炼厂排产量进一步减少，叠加沥青社会库存同比明显偏低，沥青供应端支撑持续稳固，预计沥青现货价格将维持高位波动。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 15:49 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 16:15 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:51 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 16:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 15:49 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 15:48 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:53 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 16:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:14 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 16:01 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:55 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 16:00 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 15:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 16:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 16:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 16:18 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 16:18 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 15:59 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:16 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 16:00 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 15:57 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [流金岁月](http://www.blog.minike.top/Article/details/7668895.shtml)
-- 2026-06-29 15:51 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/4424248160.shtml)
-- 2026-06-29 15:57 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/65792458.shtml)
-- 2026-06-29 16:02 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/421641329492.shtml)
-- 2026-06-29 16:04 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/73050.shtml)
-- 2026-06-29 16:07 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/4958065.shtml)
-- 2026-06-29 16:05 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/062116449.shtml)
-- 2026-06-29 15:59 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/05591559.shtml)
-- 2026-06-29 15:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/7438907.shtml)
-- 2026-06-29 16:09 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/67141371.shtml)
-- 2026-06-29 16:03 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/114652153964.shtml)
-- 2026-06-29 16:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/419456741411.shtml)
-- 2026-06-29 16:07 - [5万块的威力](http://www.share.minike.top/Article/details/32680.shtml)
-- 2026-06-29 16:00 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/315907627948.shtml)
-- 2026-06-29 16:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/5110055.shtml)
+- 2026-06-29 16:21 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/54418875088.shtml)
+- 2026-06-29 16:01 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/9238196.shtml)
+- 2026-06-29 16:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/896298.shtml)
+- 2026-06-29 16:07 - [小娘惹](https://www.share.minike.top/Article/details/44248.shtml)
+- 2026-06-29 16:23 - [急先锋](https://www.blog.kurohicncr.top/Article/details/7004865800.shtml)
+- 2026-06-29 16:10 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/0347233.shtml)
+- 2026-06-29 16:08 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/70330696754.shtml)
+- 2026-06-29 16:15 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/1256877.shtml)
+- 2026-06-29 16:06 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/0867517.shtml)
+- 2026-06-29 15:55 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/15060.shtml)
+- 2026-06-29 15:57 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/376712336966.shtml)
+- 2026-06-29 16:09 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/01499249.shtml)
+- 2026-06-29 16:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/76788.shtml)
+- 2026-06-29 16:24 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/671124996.shtml)
+- 2026-06-29 16:00 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/40349.shtml)

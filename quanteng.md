@@ -1,44 +1,57 @@
-# 一句“那时候多年轻啊” 迟重瑞对陈丽华的温柔被导演林大庆记了20年
+# 这种皮肤病，要挂心理科
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 14:30 来源：中国新闻网 4月9日，陈丽华告别仪式于北京八宝山殡仪馆举办，仪式现场，《西游记》扮演者六小龄童、马德华及白岩松、史国良等知名人士到场悼念，雨中众人排起长队送别陈丽华女士。 责任编辑：【李光伟】
+唠“科”话丨这种皮肤病，要挂心理科 新华社北京5月8日电(记者李佳巍 杨琳)“痛可忍，痒难挨。”皮肤瘙痒反复发作、寝食难安，涂遍药膏也不见好转，严重影响睡眠和工作。不少患者看遍皮肤科门诊，但病情并不见好。专家提醒，有一种皮肤病，症状在皮肤，根子却在心理，应就诊心理科。 皮肤是人体的“情绪晴雨表”。专家所说的这种皮肤病，就是神经性皮炎，也叫“压力疹”。神经性皮炎和“情绪压力”密切
 
 ## 正文
 
-发布时间：2026年04月09日 14:30 来源：中国新闻网 4月9日，陈丽华告别仪式于北京八宝山殡仪馆举办，仪式现场，《西游记》扮演者六小龄童、马德华及白岩松、史国良等知名人士到场悼念，雨中众人排起长队送别陈丽华女士。
+唠“科”话丨这种皮肤病，要挂心理科 新华社北京5月8日电(记者李佳巍 杨琳)“痛可忍，痒难挨。
 
-责任编辑：【李光伟】
+”皮肤瘙痒反复发作、寝食难安，涂遍药膏也不见好转，严重影响睡眠和工作。
+
+不少患者看遍皮肤科门诊，但病情并不见好。
+
+专家提醒，有一种皮肤病，症状在皮肤，根子却在心理，应就诊心理科。
+
+皮肤是人体的“情绪晴雨表”。
+
+专家所说的这种皮肤病，就是神经性皮炎，也叫“压力疹”。
+
+神经性皮炎和“情绪压力”密切相关，治疗的关键处方在于“解心宽”。
+
+“压力疹”与情绪密切相关神经性皮炎是一种以阵发性剧烈瘙痒和皮肤苔藓样变为特征的常见皮肤病。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 16:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:53 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 15:53 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 15:49 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 16:01 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 15:54 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 16:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 16:08 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 15:56 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 16:04 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:57 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 16:03 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 16:10 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 16:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 16:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 16:21 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 16:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 16:07 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 16:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:02 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/89945445.shtml)
-- 2026-06-29 15:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/777032.shtml)
-- 2026-06-29 15:49 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/26775146349.shtml)
-- 2026-06-29 15:59 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/6754535314.shtml)
-- 2026-06-29 15:48 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/523758443.shtml)
-- 2026-06-29 16:17 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/74412349933.shtml)
-- 2026-06-29 16:03 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/151191118.shtml)
-- 2026-06-29 15:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/60339.shtml)
-- 2026-06-29 16:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/12986907092.shtml)
-- 2026-06-29 16:11 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/93668579.shtml)
-- 2026-06-29 15:59 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/4893785706.shtml)
-- 2026-06-29 15:52 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/40730733.shtml)
-- 2026-06-29 15:56 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/762261914963.shtml)
-- 2026-06-29 16:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/20237735877.shtml)
-- 2026-06-29 16:02 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/64355.shtml)
+- 2026-06-29 16:01 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/66683.shtml)
+- 2026-06-29 15:59 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/2597883792.shtml)
+- 2026-06-29 15:54 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/59062920085.shtml)
+- 2026-06-29 16:06 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/766750614044.shtml)
+- 2026-06-29 16:03 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/792948.shtml)
+- 2026-06-29 16:16 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/3006541.shtml)
+- 2026-06-29 16:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/57351412.shtml)
+- 2026-06-29 15:55 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/88417386.shtml)
+- 2026-06-29 16:08 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/5512108507.shtml)
+- 2026-06-29 16:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/1281996.shtml)
+- 2026-06-29 16:01 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/8323606.shtml)
+- 2026-06-29 16:04 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/182509178.shtml)
+- 2026-06-29 16:10 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/410881069.shtml)
+- 2026-06-29 16:19 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/048011.shtml)
+- 2026-06-29 15:58 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/3133799197.shtml)

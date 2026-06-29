@@ -1,42 +1,56 @@
-# 瑞芯微业绩快报：2025年度归母净利润10.4亿元，同比增长74.82%
+# 海内外信众齐聚“妈祖故里”湄洲岛共庆妈祖诞辰1066周年
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-瑞芯微4月9日发布2025年度业绩快报，报告期内实现营业总收入44.02亿元，同比增长40.36%；归属于上市公司股东的净利润10.4亿元，同比增长74.82%；基本每股收益2.48元。
+中新社福建湄洲岛5月9日电 (叶秋云)5月9日(农历三月廿三)，海内外妈祖信众齐聚“妈祖故里”福建莆田湄洲岛，湄洲妈祖祖庙纪念妈祖诞辰1066周年大会暨春祭大典在此举行。来自法国、泰国、马来西亚等多个国家及港澳台地区的上万名信众参与了盛会。据了解，有近50家台湾妈祖文化机构参加了此次活动。台湾林氏宗亲总会总会长林晋章在受访时表示，台湾妈祖文化传承兴盛，多地妈祖宫庙举行绕境进香活
 
 ## 正文
 
-瑞芯微4月9日发布2025年度业绩快报，报告期内实现营业总收入44.02亿元，同比增长40.36%；归属于上市公司股东的净利润10.4亿元，同比增长74.82%；基本每股收益2.48元。
+中新社福建湄洲岛5月9日电 (叶秋云)5月9日(农历三月廿三)，海内外妈祖信众齐聚“妈祖故里”福建莆田湄洲岛，湄洲妈祖祖庙纪念妈祖诞辰1066周年大会暨春祭大典在此举行。
+
+来自法国、泰国、马来西亚等多个国家及港澳台地区的上万名信众参与了盛会。
+
+据了解，有近50家台湾妈祖文化机构参加了此次活动。
+
+台湾林氏宗亲总会总会长林晋章在受访时表示，台湾妈祖文化传承兴盛，多地妈祖宫庙举行绕境进香活动，吸引众多信众参与，年轻人占比颇高。
+
+台湾各地香火鼎盛的妈祖宫庙，见证着两岸同根同源、血脉相连的不争事实。
+
+8日晚至9日凌晨，湄洲妈祖祖庙举行“守夜庆妈祖诞辰”活动。
+
+9日零时许，大典进入高潮，钟鼓齐鸣，烟花绽放，海内外信众共同祈福，共庆妈祖诞辰。
+
+“‘回家’的路再远，也挡不住我们回来的脚步。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 15:58 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 16:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 16:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 15:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 16:00 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 16:14 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 16:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 16:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 16:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 16:22 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 15:58 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 16:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:20 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 15:56 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 15:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 16:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 16:07 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 15:58 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 16:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/3795768149.shtml)
-- 2026-06-29 15:54 - [人形机器人](https://www.blog.minike.top/Article/details/16562591879.shtml)
-- 2026-06-29 15:58 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/428572.shtml)
-- 2026-06-29 16:17 - [行程万里不忘初心](http://www.share.minike.top/Article/details/03854.shtml)
-- 2026-06-29 16:11 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/3478914.shtml)
-- 2026-06-29 16:03 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/613295880.shtml)
-- 2026-06-29 16:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/160251.shtml)
-- 2026-06-29 16:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/11803989798.shtml)
-- 2026-06-29 15:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/572412.shtml)
-- 2026-06-29 15:49 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/366130482.shtml)
-- 2026-06-29 15:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/050875184.shtml)
-- 2026-06-29 16:04 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/791341551.shtml)
-- 2026-06-29 16:15 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/6158494.shtml)
-- 2026-06-29 16:15 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/34525778615.shtml)
-- 2026-06-29 16:10 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/38882840.shtml)
+- 2026-06-29 16:16 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/59648104200.shtml)
+- 2026-06-29 15:59 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/555431255.shtml)
+- 2026-06-29 15:56 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/952322.shtml)
+- 2026-06-29 15:58 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/29733354022.shtml)
+- 2026-06-29 15:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/47605.shtml)
+- 2026-06-29 16:10 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/407939930.shtml)
+- 2026-06-29 16:17 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/13061493956.shtml)
+- 2026-06-29 16:18 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/41213.shtml)
+- 2026-06-29 16:22 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/89552707018.shtml)
+- 2026-06-29 15:54 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/89841.shtml)
+- 2026-06-29 15:57 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/6713836.shtml)
+- 2026-06-29 16:15 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/8619473.shtml)
+- 2026-06-29 15:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/701246802.shtml)
+- 2026-06-29 16:04 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/39842835982.shtml)
+- 2026-06-29 16:20 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/152730416427.shtml)

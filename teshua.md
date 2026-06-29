@@ -1,56 +1,59 @@
-# 中巴“五点倡议”的建设性作用
+# 商务部召开第十届中国—俄罗斯博览会新闻发布会（实录）
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊作者：朱兆一 发于总第1231期《中国新闻周刊》杂志 北京时间4月8日早晨，美国和伊朗宣布停火并开启为期两周的谈判。美国总统特朗普在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡，并强调，“这将是一次双向停火”。伊朗最高国家安全委员会发表声明称，根据最高领袖穆杰塔巴的建议和最高国家安全委员
+商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。 以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。欢迎参加商务部专题
 
 ## 正文
 
-中国新闻周刊作者：朱兆一 发于总第1231期《中国新闻周刊》杂志 北京时间4月8日早晨，美国和伊朗宣布停火并开启为期两周的谈判。
+商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。
 
-美国总统特朗普在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡，并强调，“这将是一次双向停火”。
+以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。
 
-伊朗最高国家安全委员会发表声明称，根据最高领袖穆杰塔巴的建议和最高国家安全委员会的批准，伊朗将同美方举行为期两周的谈判，但伊方对美方“抱有完全的不信任”。
+欢迎参加商务部专题新闻发布会。
 
-经双方同意，谈判时间可以延长。
+今天我们非常高兴地邀请到商务部欧亚司副司长马驰先生，黑龙江省贸促会副会长王欣梅女士，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃女士，请他们为大家介绍第十届中俄博览会有关情况，并回答大家关心的问题。
 
-巴基斯坦总理夏巴兹当天证实，伊朗和美国以及双方各自盟友同意在包括黎巴嫩和其他地区在内的所有地点立即停火，即日起生效。
+下面我们首先请马驰副司长作介绍。
 
-他还邀请伊美双方代表团于4月10日在伊斯兰堡进一步谈判，以达成解决所有争端的最终协议。
+马驰 各位媒体朋友，大家下午好！
 
-此前，中国外长王毅与巴基斯坦副总理兼外长达尔在北京联合发表关于恢复海湾和中东地区和平稳定的五点倡议，呼吁立即停止敌对行动、尽快开启和谈、确保非军事目标安全、确保航道安全、确保联合国宪章的首要地位。
+2026年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年。
 
-这一倡议是在局势持续升级、民用设施被不断卷入战争之际，尝试提供一套可供国际社会援引的降级框架，防止冲突进一步突破底线，滑向更严重的人道灾难，导致地区局势进一步失控。
+在这一具有里程碑意义的重要节点，由商务部、黑龙江省人民政府与俄罗斯联邦经济发展部、工业和贸易部共同主办的第十届中国—俄罗斯博览会，将于5月17-21日在哈尔滨国际会展中心举办，黑龙江省还将同期举办第三十五届哈尔滨国际经济贸易洽谈会。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:51 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 16:02 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 16:06 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 16:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 15:48 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 16:14 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:58 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 16:12 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 16:06 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 15:57 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 15:58 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 16:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:04 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 16:20 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 15:59 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 16:07 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 16:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 16:08 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/56976233338.shtml)
-- 2026-06-29 16:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/746724.shtml)
-- 2026-06-29 16:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/21869.shtml)
-- 2026-06-29 15:50 - [中国战机大片上新](http://www.blog.minike.top/Article/details/294365811.shtml)
-- 2026-06-29 16:11 - [永远有话聊的原因](http://www.share.minike.top/Article/details/22931.shtml)
-- 2026-06-29 16:09 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/6773139.shtml)
-- 2026-06-29 15:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/8228911.shtml)
-- 2026-06-29 15:53 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/333992.shtml)
-- 2026-06-29 16:02 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/89021231073.shtml)
-- 2026-06-29 15:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/0558659254.shtml)
-- 2026-06-29 16:09 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/8912242.shtml)
-- 2026-06-29 16:07 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/222890467450.shtml)
-- 2026-06-29 15:56 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/466976898.shtml)
-- 2026-06-29 16:17 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/858763221931.shtml)
-- 2026-06-29 15:54 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/80834.shtml)
+- 2026-06-29 15:57 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/811578260937.shtml)
+- 2026-06-29 16:11 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/4828669.shtml)
+- 2026-06-29 16:07 - [乔家的儿女](https://www.share.minike.top/Article/details/30542449.shtml)
+- 2026-06-29 16:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/407299.shtml)
+- 2026-06-29 16:23 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/628247.shtml)
+- 2026-06-29 16:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/144196.shtml)
+- 2026-06-29 15:54 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/78153490.shtml)
+- 2026-06-29 15:59 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/1132386943.shtml)
+- 2026-06-29 16:15 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/200094303692.shtml)
+- 2026-06-29 16:20 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/97618608.shtml)
+- 2026-06-29 16:23 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/74337760.shtml)
+- 2026-06-29 16:22 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/3334608.shtml)
+- 2026-06-29 16:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/31075618810.shtml)
+- 2026-06-29 16:04 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/23290055757.shtml)
+- 2026-06-29 15:55 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/404318.shtml)

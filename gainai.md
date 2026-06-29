@@ -1,46 +1,58 @@
-# 两高：依法加大对新型隐性腐败惩治力度
+# 一个昔日国家级贫困县的脱贫经验为何赢得多国官员点赞？
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电(记者 高萌)4月10日，最高人民法院、最高人民检察院发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。《解释(二)》进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。(完)
+中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。与会人
 
 ## 正文
 
-中新网4月10日电(记者 高萌)4月10日，最高人民法院、最高人民检察院发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。
+中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。
 
-《解释(二)》进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。
+”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。
 
-(完)
+“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。
+
+与会人士在会前参观多家行唐企业，实地了解当地脱贫经验。
+
+一个曾经的国家级贫困县，为何能赢得多国官员点赞？
+
+答案藏在行唐这些年的蜕变之中。
+
+行唐县素有“五山二坡三分田”之称，2011年贫困发生率达24.5%。
+
+行唐县于2019年正式脱贫摘帽，2020年实现贫困村和贫困人口“双清零”目标。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 16:06 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 16:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 15:54 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 16:03 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 16:10 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 16:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 16:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 15:55 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 15:49 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 16:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 16:09 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 16:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 15:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 16:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 16:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 15:57 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 16:19 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 16:10 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 16:00 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 16:22 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/957785.shtml)
-- 2026-06-29 15:55 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/835708.shtml)
-- 2026-06-29 16:01 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/501134702298.shtml)
-- 2026-06-29 15:55 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/3244970.shtml)
-- 2026-06-29 16:07 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/331442.shtml)
-- 2026-06-29 15:48 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/1207772754.shtml)
-- 2026-06-29 15:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/5949821.shtml)
-- 2026-06-29 16:03 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/99932125.shtml)
-- 2026-06-29 16:12 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/10401.shtml)
-- 2026-06-29 16:16 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/926226433.shtml)
-- 2026-06-29 16:10 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/38338914184.shtml)
-- 2026-06-29 15:59 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/466638561.shtml)
-- 2026-06-29 16:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/685255318242.shtml)
-- 2026-06-29 15:57 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/4318675.shtml)
-- 2026-06-29 15:50 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/761648390.shtml)
+- 2026-06-29 15:59 - [毒液2](https://www.share.minike.top/Article/details/120984.shtml)
+- 2026-06-29 16:14 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/654876469.shtml)
+- 2026-06-29 16:13 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/40636447.shtml)
+- 2026-06-29 16:10 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/0812185934.shtml)
+- 2026-06-29 16:12 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/77307655.shtml)
+- 2026-06-29 16:08 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/18045.shtml)
+- 2026-06-29 15:56 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/63973.shtml)
+- 2026-06-29 15:59 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/79892820675.shtml)
+- 2026-06-29 16:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/980028311788.shtml)
+- 2026-06-29 16:11 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/8267846042.shtml)
+- 2026-06-29 16:07 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/329690327456.shtml)
+- 2026-06-29 16:22 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/37120085343.shtml)
+- 2026-06-29 16:21 - [女心理师](https://www.blog.kurohicncr.top/Article/details/450314.shtml)
+- 2026-06-29 16:16 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/15023.shtml)
+- 2026-06-29 16:20 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/17373.shtml)

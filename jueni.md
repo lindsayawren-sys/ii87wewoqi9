@@ -1,57 +1,53 @@
-# 3连板后，华远控股实控人透露重组计划
+# 花旗：农夫山泉目标价升至59.20港元 给予“买入”评级
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-华远控股4月9日晚公告称，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组。 公告显示，4月9日，公司收到控股股东华远集团发送的《北京市华远集团有限公司对的回函》。 根据回函内容，截至公告披露之日，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组，本次重组可能涉及公司控股股东华远集团。相关事项仍处于筹划阶段，交易各方尚未签署任何具有法律约束力
+花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。 该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及
 
 ## 正文
 
-华远控股4月9日晚公告称，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组。
+花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。
 
-公告显示，4月9日，公司收到控股股东华远集团发送的《北京市华远集团有限公司对的回函》。
+该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。
 
-根据回函内容，截至公告披露之日，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组，本次重组可能涉及公司控股股东华远集团。
+该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及2027财年的纯利预测大致维持不变。
 
-相关事项仍处于筹划阶段，交易各方尚未签署任何具有法律约束力的正式协议，尚存在不确定性。
-
-本次重组不涉及公司的重大资产重组事项，不会导致公司实际控制人发生变更。
-
-同日，公司披露股票交易异常波动公告称，公司股票连续三个交易日内（4月7日、4月8日、4月9日）收盘价格涨幅偏离值累计达到20%，属于股票交易异常波动的情况。
-
-经公司自查，公司目前日常生产经营活动正常，市场环境、行业政策等外部经营环境以及公司内部经营情况均未发生重大变化或调整。
-
-华远控股2025年业绩预告显示，公司预计2025年实现营业收入3.06亿元—3.16亿元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为3.01亿元—3.07亿元；归母净利润预计亏损8500万元—1.15亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 15:59 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 15:54 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 16:13 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 16:17 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 16:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 16:06 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 16:09 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 15:54 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 16:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 16:20 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 16:16 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 16:12 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 16:02 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 15:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 16:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:12 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 16:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 16:21 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 16:08 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 16:08 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 15:59 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 16:04 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 16:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/73145.shtml)
-- 2026-06-29 16:12 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/946149929514.shtml)
-- 2026-06-29 16:04 - [金刚川](http://www.share.kurohicncr.top/Article/details/35761929129.shtml)
-- 2026-06-29 16:06 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/92504076.shtml)
-- 2026-06-29 15:54 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/422499.shtml)
-- 2026-06-29 15:48 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/746251.shtml)
-- 2026-06-29 15:55 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/9339922.shtml)
-- 2026-06-29 16:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/69365294.shtml)
-- 2026-06-29 15:48 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/411427757.shtml)
-- 2026-06-29 16:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/49939810.shtml)
-- 2026-06-29 16:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/76490.shtml)
-- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/500100276.shtml)
-- 2026-06-29 16:03 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/204184547622.shtml)
-- 2026-06-29 16:01 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/5563831687.shtml)
-- 2026-06-29 16:15 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/207956.shtml)
+- 2026-06-29 16:05 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/1949238638.shtml)
+- 2026-06-29 16:14 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/577102754.shtml)
+- 2026-06-29 16:23 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/3152087.shtml)
+- 2026-06-29 15:57 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/0580059.shtml)
+- 2026-06-29 16:20 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/170655721624.shtml)
+- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/20696890209.shtml)
+- 2026-06-29 16:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/20873584244.shtml)
+- 2026-06-29 16:09 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/344637.shtml)
+- 2026-06-29 16:15 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/8930987387.shtml)
+- 2026-06-29 16:01 - [金刚川](https://www.blog.kurohicncr.top/Article/details/625945.shtml)
+- 2026-06-29 15:57 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/521566193761.shtml)
+- 2026-06-29 16:12 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/06441790.shtml)
+- 2026-06-29 16:15 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/957744.shtml)
+- 2026-06-29 16:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/709779955.shtml)
+- 2026-06-29 16:15 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/216954219554.shtml)

@@ -1,50 +1,47 @@
-# 今年一季度全国共侦办妨害国（边）境管理犯罪案件5507起
+# 大美边疆看我家丨云南弥渡：初夏如约 紫韵满城
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据“国家移民管理局”微信公众号消息，4月10日，国家移民管理局召开新闻发布会，发布2026年一季度移民管理工作主要数据。 一季度，全国移民管理机构扎实统筹推进打击整治移民管理领域违法犯罪，共侦办妨害国(边)境管理犯罪案件5507起，抓获犯罪嫌疑人10487人，打掉犯罪团伙67个，挂牌督办重特大案件37起。依法严厉打击口岸边境涉枪爆、贩毒走私等违法犯罪，破获毒
+发布时间：2026年05月08日 14:55 来源：中国新闻网 近日，五月的云南弥渡，蓝花楹如约而至，以漫天的温柔与梦幻，晕染出一场绚烂的花事。一路繁花相送，满目皆是浪漫的诗行。(来源：弥渡县融媒体中心 作者：鞠强 王玺涵） 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新网4月10日电 据“国家移民管理局”微信公众号消息，4月10日，国家移民管理局召开新闻发布会，发布2026年一季度移民管理工作主要数据。
+发布时间：2026年05月08日 14:55 来源：中国新闻网 近日，五月的云南弥渡，蓝花楹如约而至，以漫天的温柔与梦幻，晕染出一场绚烂的花事。
 
-一季度，全国移民管理机构扎实统筹推进打击整治移民管理领域违法犯罪，共侦办妨害国(边)境管理犯罪案件5507起，抓获犯罪嫌疑人10487人，打掉犯罪团伙67个，挂牌督办重特大案件37起。
+一路繁花相送，满目皆是浪漫的诗行。
 
-依法严厉打击口岸边境涉枪爆、贩毒走私等违法犯罪，破获毒品案件109起，抓获犯罪嫌疑人172人，缴获各类毒品约1.5吨，破获万克以上案件16起；查缴各类枪支342支，子弹1.3万余发。
+(来源：弥渡县融媒体中心 作者：鞠强 王玺涵） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 15:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 15:48 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 15:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:55 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 15:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 16:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 16:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 16:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 15:57 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 16:13 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 16:15 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 16:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 16:06 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 16:16 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 15:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 16:16 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 16:10 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 16:14 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 16:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 15:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 16:08 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:58 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 15:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 15:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [毒液2](http://www.share.minike.top/Article/details/1847676.shtml)
-- 2026-06-29 16:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/371585.shtml)
-- 2026-06-29 15:54 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/660334.shtml)
-- 2026-06-29 16:17 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/9111919691.shtml)
-- 2026-06-29 16:05 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/28538725.shtml)
-- 2026-06-29 16:04 - [毒液2](https://www.blog.minike.top/Article/details/484850877.shtml)
-- 2026-06-29 16:15 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/359261504.shtml)
-- 2026-06-29 15:52 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/697758142.shtml)
-- 2026-06-29 16:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/8485901070.shtml)
-- 2026-06-29 16:02 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/2617260728.shtml)
-- 2026-06-29 16:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/8782342687.shtml)
-- 2026-06-29 16:06 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/72699384043.shtml)
-- 2026-06-29 15:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/981806.shtml)
-- 2026-06-29 16:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/943920.shtml)
-- 2026-06-29 16:03 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/81270904.shtml)
+- 2026-06-29 15:55 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/8467471708.shtml)
+- 2026-06-29 16:11 - [东方风云榜](https://www.share.minike.top/Article/details/921766.shtml)
+- 2026-06-29 16:18 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/702279557111.shtml)
+- 2026-06-29 16:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/537534044.shtml)
+- 2026-06-29 15:57 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/88504108.shtml)
+- 2026-06-29 16:23 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/97913859.shtml)
+- 2026-06-29 16:06 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/61321438.shtml)
+- 2026-06-29 16:23 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/776579574.shtml)
+- 2026-06-29 15:59 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/0964673.shtml)
+- 2026-06-29 16:20 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/830309.shtml)
+- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/5421801.shtml)
+- 2026-06-29 16:01 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/15347.shtml)
+- 2026-06-29 15:54 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/8856689.shtml)
+- 2026-06-29 16:05 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/99408944.shtml)
+- 2026-06-29 16:13 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/4973567087.shtml)

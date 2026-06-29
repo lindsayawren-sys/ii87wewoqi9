@@ -1,56 +1,61 @@
-# 68艘空油轮正驶向美国：亚洲抢油，美国出口料将创纪录
+# 证监会严肃查处元道通信财务造假案件
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 根据Kpler的数据，目前有68艘空载油轮正在驶往美国的途中，而2月28日战争爆发前一周这一数字为24艘。去年的平均水平是27艘。Kpler的数据基于油轮预订和预计抵达时间。 “一支油轮舰队正朝这边驶来，”Kpler分析师马特·史密斯（Matt Smith）表示。 出口激增凸显了美国作为全球
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证监会发布 近日，证监会对元道通信（维权）股份有限公司（简称元道通信）财务造假案件作出行政处罚事先告知。经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公司罚款23，884万元，对3名责任人员合计罚
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：金十数据 根据Kpler的数据，目前有68艘空载油轮正在驶往美国的途中，而2月28日战争爆发前一周这一数字为24艘。
+来源：证监会发布 近日，证监会对元道通信（维权）股份有限公司（简称元道通信）财务造假案件作出行政处罚事先告知。
 
-去年的平均水平是27艘。
+经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。
 
-Kpler的数据基于油轮预订和预计抵达时间。
+证监会拟对上市公司罚款23，884万元，对3名责任人员合计罚款1，800万元并对相关人员采取5年证券市场禁入措施。
 
-“一支油轮舰队正朝这边驶来，”Kpler分析师马特·史密斯（Matt Smith）表示。
+元道通信涉嫌触及重大违法强制退市情形，深交所将依法启动退市程序。
 
-出口激增凸显了美国作为全球“摇摆供应者”的角色日益重要，但来自亚洲的竞争也可能推高美国国内价格，加深对特朗普发动的伊朗战争引发新一轮通胀的担忧。
+证监会已冻结元道通信募集资金相关账户，目前正在对中介机构执业情况开展调查。
 
-这场冲突使亚洲特别容易受到供应中断的影响，因为2025年通过霍尔木兹海峡的石油和石油产品中，约80%是运往亚洲。
+对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
 
-周二美伊宣布的为期两周的脆弱停火，给人们带来了希望：这条至关重要的水道在经过数周几乎完全关闭后，将重新对油轮全面开放。
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 16:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 16:17 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 16:07 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 16:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 16:07 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 16:15 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 16:17 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 16:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 16:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 16:19 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 16:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 16:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 16:04 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 16:14 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 15:54 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 16:07 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 16:20 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 16:23 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 16:08 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 15:54 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 16:07 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 16:08 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:02 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 15:56 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:06 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/1948108501.shtml)
-- 2026-06-29 16:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/937918255811.shtml)
-- 2026-06-29 16:12 - [小娘惹](http://www.share.minike.top/Article/details/686262205.shtml)
-- 2026-06-29 16:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/90830418954.shtml)
-- 2026-06-29 16:15 - [普京介绍前线战事](http://www.share.minike.top/Article/details/7697481.shtml)
-- 2026-06-29 15:49 - [速度与激情9](http://www.blog.minike.top/Article/details/23296.shtml)
-- 2026-06-29 16:11 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/06436.shtml)
-- 2026-06-29 15:51 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/014259.shtml)
-- 2026-06-29 16:10 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/720863.shtml)
-- 2026-06-29 16:01 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/233807776.shtml)
-- 2026-06-29 16:11 - [东方风云榜](https://www.share.minike.top/Article/details/719652427454.shtml)
-- 2026-06-29 16:15 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/22081659820.shtml)
-- 2026-06-29 16:14 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/7288419.shtml)
-- 2026-06-29 16:13 - [周生如故](http://www.share.minike.top/Article/details/67266488142.shtml)
-- 2026-06-29 16:04 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/764727379.shtml)
+- 2026-06-29 16:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/1719443.shtml)
+- 2026-06-29 16:19 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/679580343144.shtml)
+- 2026-06-29 16:10 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/6630678477.shtml)
+- 2026-06-29 16:04 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/400298761394.shtml)
+- 2026-06-29 15:55 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/19070927.shtml)
+- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/018731063.shtml)
+- 2026-06-29 16:00 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/687954382592.shtml)
+- 2026-06-29 16:07 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/952880.shtml)
+- 2026-06-29 16:03 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/98700.shtml)
+- 2026-06-29 16:09 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/79534602348.shtml)
+- 2026-06-29 16:12 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/303951479.shtml)
+- 2026-06-29 15:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/7148160.shtml)
+- 2026-06-29 15:56 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/4696524.shtml)
+- 2026-06-29 16:07 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/62521.shtml)
+- 2026-06-29 15:54 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/4744806452.shtml)

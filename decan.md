@@ -1,61 +1,56 @@
-# 顺丰硬核链通“江门制造”向新向远
+# 余额宝收益率为何跌破“1”？
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。会
+来源：华夏时报 天弘余额宝货币基金的7日年化收益率已跌破0.9%‌，5月7日的最新数据显示为‌0.89%‌，万份收益为‌0.2416元‌，即1万元每日收益约0.24元。 从5月2日，天弘余额宝货币基金的7日年化收益率就跌破1%，此后一路向下，穿破0.9%。不过，这一收益率水平在目前货币基金里是普遍现象。 回顾历史，真乃沧海桑田，余额宝曾于2014年创下‌6.763%‌的峰值，经
 
 ## 正文
 
-为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。
+来源：华夏时报 天弘余额宝货币基金的7日年化收益率已跌破0.9%‌，5月7日的最新数据显示为‌0.89%‌，万份收益为‌0.2416元‌，即1万元每日收益约0.24元。
 
-本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。
+从5月2日，天弘余额宝货币基金的7日年化收益率就跌破1%，此后一路向下，穿破0.9%。
 
-市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。
+不过，这一收益率水平在目前货币基金里是普遍现象。
 
-会上，江门市政府副秘书长汪世雷指出，本次推进会是江门市推动制造业与服务业深度融合、加快建设万亿工业强市的重要举措。
+回顾历史，真乃沧海桑田，余额宝曾于2014年创下‌6.763%‌的峰值，经过12年的旅途，余额宝的收益率是一个陡峭的下行通道，这个曲线隐藏了十多年中国货币形势的所有变化。
 
-当前江门正全力构建“13158”新型工业体系，打造珠江西岸先进制造产业集群和综合物流枢纽城市，亟需现代化、数智化、一体化的供应链体系提供有力支撑。
+货币基金投资的资产主要是同业存单，短期国债等，还包括一些银行存款，这些资产的收益率下行，主要拜央行货币政策宽松所赐。
 
-希望以此次活动为契机，持续深化政企协作、企业联动，推动物流、制造、商贸、跨境电商等产业高效协同，为江门产业转型升级、扩大对外开放、实现高质量发展注入强劲动能。
+市场利率持续走低，导致这些资产收益率下降，进而传导货币基金等。
 
-顺丰速运粤西区总经理王宁表示，顺丰长期深耕粤港澳大湾区，高度重视江门产业布局与发展机遇，将充分发挥全球综合物流、数智化供应链、全场景行业解决方案、全球化跨境服务四大核心优势，全面对接江门制造业升级、现代服务业融合、企业跨境出海等核心需求，以全链条、一体化、高安全的供应链服务，为江门打造万亿工业强市、建设综合物流枢纽贡献力量。
+但是过去几个月，央行在逆回购降至地量操作，3月份MLF回笼流动性达8500亿元。
 
-现场，顺丰围绕整体供应链能力、高科技、工业设备、跨境出海等作主题分享，展示多领域定制化服务及全球化物贸一体化实力。
+关于4月份央行的操作情况，5月7日， 央行公布了4月流动性投放情况，4月，中期借贷便利（MLF）净投放-2000亿元，常备借贷便利（SLF）净投放-7亿元，抵押补充贷款（PSL）净投放-2000亿元，其他结构性货币政策工具净投放3667亿元。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 16:13 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 16:04 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 16:08 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 15:57 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:56 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 15:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 15:56 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 15:56 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 15:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 16:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 15:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:05 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 16:07 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 16:20 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 16:19 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 16:18 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 16:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 16:06 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 16:23 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 16:04 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:12 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/14283.shtml)
-- 2026-06-29 15:58 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/45822310.shtml)
-- 2026-06-29 16:00 - [天道](https://www.blog.kurohicncr.top/Article/details/293864286.shtml)
-- 2026-06-29 15:48 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/987354.shtml)
-- 2026-06-29 15:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/45441.shtml)
-- 2026-06-29 15:56 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/983873.shtml)
-- 2026-06-29 16:17 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/805207.shtml)
-- 2026-06-29 16:07 - [斗破苍穹](https://www.share.minike.top/Article/details/99136.shtml)
-- 2026-06-29 16:00 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2435849.shtml)
-- 2026-06-29 16:02 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/287776439573.shtml)
-- 2026-06-29 16:08 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/231610448.shtml)
-- 2026-06-29 16:11 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/595382502444.shtml)
-- 2026-06-29 16:16 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/8349207025.shtml)
-- 2026-06-29 16:09 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/9908048404.shtml)
-- 2026-06-29 16:13 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/6979116109.shtml)
+- 2026-06-29 16:05 - [第一炉香](https://www.share.kurohicncr.top/Article/details/09471392.shtml)
+- 2026-06-29 16:03 - [沉睡花园](http://www.blog.minike.top/Article/details/19965100.shtml)
+- 2026-06-29 16:14 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/05799.shtml)
+- 2026-06-29 16:18 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/15380.shtml)
+- 2026-06-29 16:23 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/208780.shtml)
+- 2026-06-29 16:20 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/303454129433.shtml)
+- 2026-06-29 15:55 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/67589028.shtml)
+- 2026-06-29 16:09 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/954070.shtml)
+- 2026-06-29 16:14 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/09524248175.shtml)
+- 2026-06-29 15:59 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/4273346.shtml)
+- 2026-06-29 16:05 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/999606597347.shtml)
+- 2026-06-29 15:55 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/278867.shtml)
+- 2026-06-29 16:13 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/5890757736.shtml)
+- 2026-06-29 16:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/28409161452.shtml)
+- 2026-06-29 16:07 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/02635315868.shtml)

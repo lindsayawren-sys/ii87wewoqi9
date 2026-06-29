@@ -1,56 +1,61 @@
-# 商务部：希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法
+# 看似“背景板” 却是太空探索的起点 来听发射场系统的幕后故事→
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-4月9日，商务部新闻发言人何亚东主持例行新闻发布会。他谈了中欧经贸的话题。 他说，中方对中欧双边经贸安排一直持开放的态度，并且对欧洲领导人的相关提议表示欢迎。然而欧盟近年来使用多项经贸工具对中国企业调查设限，近期还接连推出网络安全法修订草案和工业加速器法案，这严重影响了中欧企业合作的信心和预期。希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法，与中方相向而行，以开放
+在火箭腾空的壮丽画面中，发射场常被视为“背景板”，但这里却是所有太空探索的起点。载人空间站运营与发展阶段酒泉发射场系统总体主任设计师谭云涛和团队以安全为底线，一次次托举飞天梦想。 北京跟踪与通信技术研究所航天发射总体领域专家 载人空间站运营与发展阶段酒泉发射场系统总体主任设计师 谭云涛：空间站建成以来，取得的成就和突破举世瞩目。比如实现了载人飞船发射后3.5小时与空间站快速交会
 
 ## 正文
 
-4月9日，商务部新闻发言人何亚东主持例行新闻发布会。
+在火箭腾空的壮丽画面中，发射场常被视为“背景板”，但这里却是所有太空探索的起点。
 
-他谈了中欧经贸的话题。
+载人空间站运营与发展阶段酒泉发射场系统总体主任设计师谭云涛和团队以安全为底线，一次次托举飞天梦想。
 
-他说，中方对中欧双边经贸安排一直持开放的态度，并且对欧洲领导人的相关提议表示欢迎。
+北京跟踪与通信技术研究所航天发射总体领域专家 载人空间站运营与发展阶段酒泉发射场系统总体主任设计师 谭云涛：空间站建成以来，取得的成就和突破举世瞩目。
 
-然而欧盟近年来使用多项经贸工具对中国企业调查设限，近期还接连推出网络安全法修订草案和工业加速器法案，这严重影响了中欧企业合作的信心和预期。
+比如实现了载人飞船发射后3.5小时与空间站快速交会对接，航天员单次出舱活动时长刷新世界纪录，空间科学实(试)验不断取得创新成果等等。
 
-希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法，与中方相向而行，以开放合作代替筑墙设垒，以对话协商妥处摩擦分歧，共同的推动中欧经贸关系健康向好发展。
+相对而言，发射场系统则略显“低调”，经常是在发射任务电视转播画面中作为“背景板”亮相。
 
-责任编辑：刘万里 SF014
+事实上，每一次发射任务的“启航”都在发射场进行，可以说发射场是太空探索的起点，在航天工程中不可或缺。
+
+我们经常说，“成功不必在我、功成必定有我”，就是这种角色定位的写照。
+
+在中国空间站建成运行的三年间，令我印象最为深刻的，是前不久圆满完成的神舟二十二号飞行任务。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 15:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 15:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 15:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 15:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 15:48 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 16:02 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 16:14 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 16:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 16:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 16:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 16:12 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 16:12 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 16:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 16:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 15:59 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 15:57 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 16:15 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 15:54 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 15:56 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 16:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 16:10 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 16:13 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 16:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 16:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 16:17 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:06 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 16:03 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 15:54 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/38178685.shtml)
-- 2026-06-29 16:01 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/07716440.shtml)
-- 2026-06-29 16:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/969303.shtml)
-- 2026-06-29 16:01 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/28962683.shtml)
-- 2026-06-29 16:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/846569401275.shtml)
-- 2026-06-29 15:51 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/42913480209.shtml)
-- 2026-06-29 16:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/379289.shtml)
-- 2026-06-29 16:08 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/52323533.shtml)
-- 2026-06-29 16:06 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/7399870055.shtml)
-- 2026-06-29 15:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/64398768676.shtml)
-- 2026-06-29 16:11 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/5114354544.shtml)
-- 2026-06-29 16:01 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/297363.shtml)
-- 2026-06-29 16:17 - [吴建豪老婆](http://www.blog.minike.top/Article/details/690436583.shtml)
-- 2026-06-29 16:17 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/89655502468.shtml)
-- 2026-06-29 16:16 - [爸爸当家](https://www.share.minike.top/Article/details/071401011655.shtml)
+- 2026-06-29 16:17 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/2970019435.shtml)
+- 2026-06-29 16:05 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/5188730831.shtml)
+- 2026-06-29 16:04 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/69628.shtml)
+- 2026-06-29 16:19 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/7788989051.shtml)
+- 2026-06-29 16:13 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/10005434953.shtml)
+- 2026-06-29 16:03 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/5865486.shtml)
+- 2026-06-29 16:09 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/37428.shtml)
+- 2026-06-29 16:16 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/7257330386.shtml)
+- 2026-06-29 16:06 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/24558.shtml)
+- 2026-06-29 16:00 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/07455.shtml)
+- 2026-06-29 15:55 - [乔家的儿女](http://www.blog.minike.top/Article/details/538978.shtml)
+- 2026-06-29 16:06 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/186234721833.shtml)
+- 2026-06-29 16:12 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/738264185747.shtml)
+- 2026-06-29 16:05 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/600238.shtml)
+- 2026-06-29 16:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/57827841088.shtml)

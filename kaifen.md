@@ -1,59 +1,56 @@
-# 平陆运河货源对接会在广西贵港举办 推动打造服务东盟黄金水运通道
+# 中国银行协助伊斯兰开发银行发行10亿美元伊斯兰债券
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网贵港4月9日电 (黄麟淞 林洁琪)4月9日，广西壮族自治区发展和改革委员会党组成员、自治区能源局局长熊祥忠表示，广西将围绕船舶过闸、江铁海联运、江海联运中转换装等出台系列支持政策，把平陆运河打造成通江达海、服务东盟的黄金水运通道。 当天，由西部陆海新通道领导小组办公室主办的平陆运河货源对接会在广西贵港市举办。本次活动聚焦运河通航筹备、货源组织保障等，面向贵港及周边地区企业
+来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。该笔债券发行期限5年，票面利率4.227%。 伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。此次发行在全球市场获得
 
 ## 正文
 
-中新网贵港4月9日电 (黄麟淞 林洁琪)4月9日，广西壮族自治区发展和改革委员会党组成员、自治区能源局局长熊祥忠表示，广西将围绕船舶过闸、江铁海联运、江海联运中转换装等出台系列支持政策，把平陆运河打造成通江达海、服务东盟的黄金水运通道。
+来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。
 
-当天，由西部陆海新通道领导小组办公室主办的平陆运河货源对接会在广西贵港市举办。
+该笔债券发行期限5年，票面利率4.227%。
 
-本次活动聚焦运河通航筹备、货源组织保障等，面向贵港及周边地区企业推介运河优势与物流方案。
+伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。
 
-平陆运河是西部陆海新通道骨干工程，将于今年9月正式建成通航。
+此次发行在全球市场获得广泛关注，中国银行依托全球化优势，通过境内外协同的强大合力，助力该订单峰值突破28亿美元，充分体现了国际投资者对中国银行债券承销能力的高度认可。
 
-作为全国内河主要港口城市、大西南出海重要门户，贵港地处珠江—西江经济带与平陆运河经济带交汇关键节点，区位优越、产业扎实、货源充足。
+长期以来，中国银行凭借全球布局优势及在跨境债券市场的领先优势与专业能力，服务多边开发机构债务融资需求，协助亚洲基础设施投资银行、新开发银行等多家国际开发机构发行债券。
 
-熊祥忠在致辞中表示，贵港是平陆运河核心货源腹地，广西将以举办此次对接会为契机，深化政企合作，切实降低企业综合物流成本，汇聚西南货源，全力培育物流新通道。
+同时，依托广泛的境内外债券承分销网络，积极参与各类主体多币种债券发行，债务资本市场业务品牌影响力不断增强。
 
-贵港市市长林海波表示，贵港将抢抓平陆运河通航机遇，提档升级港口基础设施，做大做强临港产业，加速建设港园城综合体，大力发展多式联运，持续优化营商环境，借助平陆运河推动更多原料进来、产品出去。
+中国银行将继续发挥全球化优势、综合化特色，深耕跨境债务资本市场业务，助力高质量共建“一带一路”，持续促进金融市场双向开放，为国际金融合作与可持续发展注入源源不断强劲动力。
 
-据悉，平陆运河建成通航后，将实现西江与北部湾国际门户港直接贯通，广西及云南、贵州等西南地区货物经运河出海，可大幅缩短航程、降低物流成本。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 16:15 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 16:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 16:04 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 15:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 16:05 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 15:54 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 15:53 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 15:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 15:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 16:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 15:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 16:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 16:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 16:00 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 16:07 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 16:19 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 16:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 16:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/074533.shtml)
-- 2026-06-29 16:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/66619070274.shtml)
-- 2026-06-29 15:51 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/707288295.shtml)
-- 2026-06-29 16:08 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/65113.shtml)
-- 2026-06-29 16:14 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/68437134624.shtml)
-- 2026-06-29 16:04 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/71575.shtml)
-- 2026-06-29 16:13 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/4345211251.shtml)
-- 2026-06-29 15:50 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/72283824.shtml)
-- 2026-06-29 15:53 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/011541781391.shtml)
-- 2026-06-29 16:01 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/149845496.shtml)
-- 2026-06-29 16:06 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/68469276924.shtml)
-- 2026-06-29 15:50 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/87596401.shtml)
-- 2026-06-29 16:17 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/113640.shtml)
-- 2026-06-29 16:16 - [绘画区你赢了](https://www.blog.minike.top/Article/details/872845126145.shtml)
-- 2026-06-29 16:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/196755.shtml)
+- 2026-06-29 16:06 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/407010893.shtml)
+- 2026-06-29 16:08 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/438896698.shtml)
+- 2026-06-29 15:54 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/20782.shtml)
+- 2026-06-29 16:12 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/9612697.shtml)
+- 2026-06-29 16:21 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/798988988614.shtml)
+- 2026-06-29 16:05 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/54244051.shtml)
+- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/755944954337.shtml)
+- 2026-06-29 16:04 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/10096.shtml)
+- 2026-06-29 16:22 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/070950.shtml)
+- 2026-06-29 16:16 - [扫黑风暴](http://www.blog.minike.top/Article/details/172719.shtml)
+- 2026-06-29 16:15 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/5421661.shtml)
+- 2026-06-29 16:23 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/5232729.shtml)
+- 2026-06-29 15:58 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/5144497.shtml)
+- 2026-06-29 16:19 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/112744222.shtml)
+- 2026-06-29 15:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/40173524272.shtml)

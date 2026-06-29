@@ -1,58 +1,46 @@
-# 多重利好叠加，一季度我国汽车出口222.6万辆同比增长56.7%
+# 深交所对中富通下发监管函
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。此外，一季度出口延续强劲增长态势。 最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。专家表示，3月份，汽车产销环比快速增长，既符合季节性历史规律，也与各地方补贴细则全面落地、春季车展促销启动、车企新品陆续上市有直接
+人民财讯5月8日电，深交所5月8日对中富通（维权）（300560）下发监管函，公司2025年度业绩预告披露的预计净利润与年度报告披露的经审计净利润相比，盈亏性质发生变化且未及时修正。公司上述行为违反了深交所《创业板股票上市规则（2026年修订）》相关规定。责任编辑：刘万里 SF014
 
 ## 正文
 
-记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。
+人民财讯5月8日电，深交所5月8日对中富通（维权）（300560）下发监管函，公司2025年度业绩预告披露的预计净利润与年度报告披露的经审计净利润相比，盈亏性质发生变化且未及时修正。
 
-此外，一季度出口延续强劲增长态势。
+公司上述行为违反了深交所《创业板股票上市规则（2026年修订）》相关规定。
 
-最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。
-
-专家表示，3月份，汽车产销环比快速增长，既符合季节性历史规律，也与各地方补贴细则全面落地、春季车展促销启动、车企新品陆续上市有直接的关系。
-
-另外，3月汽车出口也呈现超预期增长。
-
-3月汽车出口87.5万辆，环比增长30.2%，同比增长72.7%。
-
-其中，新能源汽车出口37.1万辆，同比增长1.3倍。
-
-不仅如此，1—3月，汽车出口222.6万辆，同比增长56.7%。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 16:16 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 16:02 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:48 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 16:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 16:03 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 15:59 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 15:56 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 16:07 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 15:57 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:11 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 16:17 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 15:56 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 16:01 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 16:12 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 15:58 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 15:59 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 16:21 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 16:02 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 16:14 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/11163591.shtml)
-- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/024223209552.shtml)
-- 2026-06-29 16:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/546171971.shtml)
-- 2026-06-29 15:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/473455381.shtml)
-- 2026-06-29 16:07 - [乔家的儿女](https://www.blog.minike.top/Article/details/948351339476.shtml)
-- 2026-06-29 15:49 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/491367289.shtml)
-- 2026-06-29 15:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/3862528.shtml)
-- 2026-06-29 16:14 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/1838553.shtml)
-- 2026-06-29 16:09 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/319292408.shtml)
-- 2026-06-29 16:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9694877768.shtml)
-- 2026-06-29 16:04 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/32129413.shtml)
-- 2026-06-29 15:59 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/58550674232.shtml)
-- 2026-06-29 15:59 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/39477012954.shtml)
-- 2026-06-29 16:01 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/597464.shtml)
-- 2026-06-29 16:17 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/8428290814.shtml)
+- 2026-06-29 16:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/064200087.shtml)
+- 2026-06-29 16:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/7063527371.shtml)
+- 2026-06-29 16:06 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/9642274220.shtml)
+- 2026-06-29 16:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/55971122.shtml)
+- 2026-06-29 16:13 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/4155935.shtml)
+- 2026-06-29 15:57 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/89347138.shtml)
+- 2026-06-29 16:18 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/780664787.shtml)
+- 2026-06-29 16:07 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/1000356.shtml)
+- 2026-06-29 15:55 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/922400.shtml)
+- 2026-06-29 16:21 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/78403288.shtml)
+- 2026-06-29 15:56 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/5216664557.shtml)
+- 2026-06-29 16:10 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/3951658921.shtml)
+- 2026-06-29 16:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/98493.shtml)
+- 2026-06-29 16:00 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/147731501.shtml)
+- 2026-06-29 15:55 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/80243197220.shtml)

@@ -1,53 +1,59 @@
-# 特朗普：美军将继续驻扎伊朗境内及周边直至协议全面履行
+# 内存芯片紧缺冲击市场 任天堂上调Switch 2售价、主机销量预计下滑
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 当地时间4月8日，美国总统特朗普在社交媒体上发文称，“所有美国舰船、飞机及军事人员，连同额外弹药、武器以及任何其他适当且必要的物资，将继续驻扎在伊朗境内及其周边地区，直到达成的协议得到全面遵守。” 特朗普还称，“倘若因任何原因未能遵守——尽管这种可能性极低——那么战火将燃起，其规模将比以往任何时候都更大、更猛、更强势。” 特朗普喊话“霍尔木兹海峡必须保持开放”
+核心要点 日股任天堂上涨 263 日元，涨幅 3.55% 受全球内存芯片紧缺冲击，日本游戏巨头任天堂宣布上调旗舰主机 Switch 2 售价，并同时下调主机销量预期。 任天堂周五表示，预计在 2027 年 3 月 31 日结束的财年中，Switch 2 销量为 1650 万台，低于上一财年的 1986 万台。 公司本年度各项业绩预期也远低于分析师预估。 任天堂公布：美国市场自
 
 ## 正文
 
-中新网4月9日电 当地时间4月8日，美国总统特朗普在社交媒体上发文称，“所有美国舰船、飞机及军事人员，连同额外弹药、武器以及任何其他适当且必要的物资，将继续驻扎在伊朗境内及其周边地区，直到达成的协议得到全面遵守。
+核心要点 日股任天堂上涨 263 日元，涨幅 3.55% 受全球内存芯片紧缺冲击，日本游戏巨头任天堂宣布上调旗舰主机 Switch 2 售价，并同时下调主机销量预期。
 
-” 特朗普还称，“倘若因任何原因未能遵守——尽管这种可能性极低——那么战火将燃起，其规模将比以往任何时候都更大、更猛、更强势。
+任天堂周五表示，预计在 2027 年 3 月 31 日结束的财年中，Switch 2 销量为 1650 万台，低于上一财年的 1986 万台。
 
-” 特朗普喊话“霍尔木兹海峡必须保持开放”。
+公司本年度各项业绩预期也远低于分析师预估。
 
-他还称，“美军正在装弹备战、养精蓄锐，翘首以待下一次征服。
+任天堂公布：美国市场自 9 月 1 日起，Switch 2 售价上调 50 美元，从 449.99 美元升至 499.99 美元； 日本市场自 5 月 25 日起，售价从 49980 日元上调至 59980 日元。
 
-美国回来了！
+加拿大、欧洲地区也将同步上调 Switch 2 售价。
 
-”
+任天堂称，此次调价是 “考虑市场环境变化” 并综合评估 “全球商业前景” 后做出的决定。
+
+受全球 AI 数据中心大规模建设带动，Switch 2 所用内存芯片价格创下历史罕见涨幅。
+
+竞品索尼已于今年 3 月将旗舰机型 PS5 最高上调 150 美元，受行业成本压力传导，任天堂被迫跟进涨价。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 15:54 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 15:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 16:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 15:56 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 16:04 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 16:17 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 15:59 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 16:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 15:59 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 16:15 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:00 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 16:07 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 16:14 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 16:22 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 16:01 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 16:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 16:07 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 16:03 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 16:21 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 16:07 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 15:57 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 16:08 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/86259.shtml)
-- 2026-06-29 16:17 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/2958124.shtml)
-- 2026-06-29 16:04 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/1310168697.shtml)
-- 2026-06-29 16:15 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/632916261.shtml)
-- 2026-06-29 15:49 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/795446.shtml)
-- 2026-06-29 16:11 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/90205.shtml)
-- 2026-06-29 16:05 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/57906.shtml)
-- 2026-06-29 15:51 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/645090712524.shtml)
-- 2026-06-29 16:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/949972139169.shtml)
-- 2026-06-29 16:04 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/26165076.shtml)
-- 2026-06-29 16:09 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/17811419.shtml)
-- 2026-06-29 16:08 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/845371467.shtml)
-- 2026-06-29 16:03 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/063545644.shtml)
-- 2026-06-29 16:04 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/36062.shtml)
-- 2026-06-29 15:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/24215508.shtml)
+- 2026-06-29 16:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/790220400.shtml)
+- 2026-06-29 16:06 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/374327600.shtml)
+- 2026-06-29 16:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/1419484001.shtml)
+- 2026-06-29 16:21 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/031245697656.shtml)
+- 2026-06-29 16:21 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/173857.shtml)
+- 2026-06-29 16:19 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/63048464236.shtml)
+- 2026-06-29 16:05 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/91533939.shtml)
+- 2026-06-29 16:08 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/833903.shtml)
+- 2026-06-29 16:18 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/513240185331.shtml)
+- 2026-06-29 16:18 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/258491.shtml)
+- 2026-06-29 16:15 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/029795944.shtml)
+- 2026-06-29 16:19 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/3950720012.shtml)
+- 2026-06-29 15:56 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/25888991.shtml)
+- 2026-06-29 16:07 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/538671460367.shtml)
+- 2026-06-29 16:17 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/52776254.shtml)

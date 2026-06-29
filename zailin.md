@@ -1,46 +1,49 @@
-# 越共中央总书记、国家主席苏林将访华
+# 中科生物医药成果转化基地在杭州揭牌 助推创新成果转化
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-新华社北京4月9日电 中共中央对外联络部发言人胡兆明4月9日宣布：应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。(完)
+发布时间：2026年05月09日 11:31 来源：中国新闻网 5月8日，中国医药港-中国科学院杭州医学研究所生物医药学术和产业高质量发展大会在杭州举行。现场，“中科生物医药成果转化基地”正式揭牌。未来，医学所将依托该基地，实现从“以研究为主”向“研究+转化+产业”复合型机构的转型，努力建成国内一流、国际知名的生物医药成果转化基地。(张煜欢） 责任编辑：【罗攀】
 
 ## 正文
 
-新华社北京4月9日电 中共中央对外联络部发言人胡兆明4月9日宣布：应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。
+发布时间：2026年05月09日 11:31 来源：中国新闻网 5月8日，中国医药港-中国科学院杭州医学研究所生物医药学术和产业高质量发展大会在杭州举行。
 
-(完)
+现场，“中科生物医药成果转化基地”正式揭牌。
+
+未来，医学所将依托该基地，实现从“以研究为主”向“研究+转化+产业”复合型机构的转型，努力建成国内一流、国际知名的生物医药成果转化基地。
+
+(张煜欢） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 16:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 16:16 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 16:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 15:55 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 16:05 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 16:14 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 15:58 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 16:02 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 15:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 16:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:00 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 16:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 16:23 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 16:14 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:03 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 16:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 16:03 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 16:01 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 16:11 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 15:58 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/201106293007.shtml)
-- 2026-06-29 15:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/810333.shtml)
-- 2026-06-29 16:09 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/7236427328.shtml)
-- 2026-06-29 16:18 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/37379.shtml)
-- 2026-06-29 15:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1342486027.shtml)
-- 2026-06-29 16:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/042614815.shtml)
-- 2026-06-29 16:08 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/9239512415.shtml)
-- 2026-06-29 16:16 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/89016143.shtml)
-- 2026-06-29 16:13 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/18324.shtml)
-- 2026-06-29 16:09 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/993609550.shtml)
-- 2026-06-29 16:17 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/069820884828.shtml)
-- 2026-06-29 16:14 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/7907615926.shtml)
-- 2026-06-29 16:14 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/28693470017.shtml)
-- 2026-06-29 16:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/1413358.shtml)
-- 2026-06-29 16:16 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/30910.shtml)
+- 2026-06-29 16:13 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/76140.shtml)
+- 2026-06-29 16:18 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/7945313567.shtml)
+- 2026-06-29 16:12 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/16284955146.shtml)
+- 2026-06-29 16:10 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/7610846.shtml)
+- 2026-06-29 16:00 - [金牌调解](http://www.blog.minike.top/Article/details/098731614.shtml)
+- 2026-06-29 16:22 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/0722861143.shtml)
+- 2026-06-29 16:14 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/9196659.shtml)
+- 2026-06-29 16:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/001973.shtml)
+- 2026-06-29 16:05 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/3788863722.shtml)
+- 2026-06-29 15:54 - [恋与深空失控领地](http://www.share.minike.top/Article/details/7482023.shtml)
+- 2026-06-29 16:21 - [恋与深空失控领地](https://www.share.minike.top/Article/details/21355.shtml)
+- 2026-06-29 16:01 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/5533686901.shtml)
+- 2026-06-29 16:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/2404370.shtml)
+- 2026-06-29 16:02 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/063518488655.shtml)
+- 2026-06-29 16:21 - [请回答王牌2019](https://www.share.minike.top/Article/details/10981.shtml)

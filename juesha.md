@@ -1,57 +1,60 @@
-# 国家大剧院制作瓦格纳歌剧《指环》之《齐格弗里德》将演
+# 元道通信（301139）收到处罚事先告知书，股民索赔已获法院立案
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月9日电 (记者 高凯)继2024年、2025年，国家大剧院制作瓦格纳歌剧《指环》之《莱茵的黄金》与《女武神》接连成功上演后，2026年4月28日、30日、5月2日、4日，国家大剧院制作瓦格纳歌剧《指环》系列第三部——《齐格弗里德》将重磅登陆国家大剧院歌剧节·2026。 今年，恰逢《指环》首演150周年，国家大剧院将以四联剧中这部最具英雄主义气质与抒情牧歌气息的篇章
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月8日晚，元道通信（维权）（301139）公告收到证监会出具的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，元道通信涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。 此前许峰律师代理的元道通信投资者索赔案
 
 ## 正文
 
-中新网北京4月9日电 (记者 高凯)继2024年、2025年，国家大剧院制作瓦格纳歌剧《指环》之《莱茵的黄金》与《女武神》接连成功上演后，2026年4月28日、30日、5月2日、4日，国家大剧院制作瓦格纳歌剧《指环》系列第三部——《齐格弗里德》将重磅登陆国家大剧院歌剧节·2026。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今年，恰逢《指环》首演150周年，国家大剧院将以四联剧中这部最具英雄主义气质与抒情牧歌气息的篇章，向这份世界宝贵的艺术遗产深情致敬。
+2026年5月8日晚，元道通信（维权）（301139）公告收到证监会出具的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，元道通信涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。
 
-国家大剧院制作瓦格纳歌剧《指环》之《齐格弗里德》于日前举行新闻发布会，国家大剧院剧目制作部部长、歌剧《齐格弗里德》制作人韦兰芬，指挥马库斯·博施、导演劳伦斯·戴尔、主演马格努斯·维吉利乌斯、迈达·洪德林、埃吉尔·西林斯、阿诺德·贝聚延、奥拉维尔·西于尔扎松等共同出席，分享了本次《齐格弗里德》在制作上的亮点以及创排过程中的种种细节。
+此前许峰律师代理的元道通信投资者索赔案获得法院立案，目前正在等待法院的下一步安排。
 
-该剧的编舞卡尔米内·德阿米西斯等主创也悉数出席发布会。
+律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-作为瓦格纳四联剧《尼伯龙人的指环》中承上启下的关键篇章，歌剧《齐格弗里德》呈现了“指环”系列中的关键人物——英雄齐格弗里德的成长与觉醒历程，也为第四联《众神的黄昏》的剧情发展做出铺垫，同时因为音乐中恢弘气象与自然意趣的完美融合，该剧被评论界誉为《指环》系列中“最具阳光气质”的篇章。
+（许峰律师专栏） 上述《行政处罚事先告知书》公告信息显示，经查明，元道通信及相关人员违法事实如下： （一）元道通信公告的证券发行文件编造重大虚假内容 2020年10月12日至2021年6月28日，元道通信多次披露《首次公开发行股票并在创业板上市招股说明书》（以下简称《招股说明书》）申报稿。
 
-韦兰芬当日介绍称，很多观看过前两部的观众朋友应该已经发现前两部在艺术风格和主创团队上完全不同，今年推出的第三部《齐格弗里德》还将延续这一理念，启用全新团队，打造不同的舞台视觉效果，呈现不一样的《指环》。
+2021年7月28日，元道通信披露《招股说明书》上会稿。
 
-据悉，为打造这一力作，国家大剧院再度集结国际顶尖主创、主演团队，包括中国在内，共有来自十个国家的优秀艺术家参与本轮创作。
+2021年11月12日至2022年6月8日，元道通信多次披露《招股说明书》注册稿，所涉报告期最终为2019年至2021年。
 
-本轮演出将由德国指挥界最杰出、最具创新精神的指挥家之一——马库斯·博施执棒国家大剧院管弦乐团精彩奉献。
+2022年6月13日，元道通信披露《关于同意元道通信股份有限公司首次公开发行股票注册的批复》；2022年7月7日，元道通信披露《首次公开发行并在创业板上市公告书》，自2022年7月8日起在深圳证券交易所创业板上市交易，发行募集资金总额为116，918.40万元。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 16:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 15:57 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 15:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 15:48 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 16:09 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:51 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 16:09 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 16:15 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 16:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 15:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 16:22 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 16:15 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 16:22 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 16:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 16:16 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 16:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 16:02 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 15:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 16:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 16:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 16:07 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 16:01 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/040757285.shtml)
-- 2026-06-29 15:56 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/402118.shtml)
-- 2026-06-29 16:03 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/060362.shtml)
-- 2026-06-29 15:51 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/29682705951.shtml)
-- 2026-06-29 16:08 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/05138177227.shtml)
-- 2026-06-29 16:12 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/12572572416.shtml)
-- 2026-06-29 15:52 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/520820462.shtml)
-- 2026-06-29 16:02 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/17734735.shtml)
-- 2026-06-29 15:55 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/649979.shtml)
-- 2026-06-29 16:15 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/292316.shtml)
-- 2026-06-29 16:17 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/153391685.shtml)
-- 2026-06-29 16:17 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/5870975561.shtml)
-- 2026-06-29 15:57 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/144254136757.shtml)
-- 2026-06-29 16:12 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/683818462777.shtml)
-- 2026-06-29 16:17 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/2744139.shtml)
+- 2026-06-29 16:04 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/488920.shtml)
+- 2026-06-29 15:58 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/778638123317.shtml)
+- 2026-06-29 16:18 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/1369428.shtml)
+- 2026-06-29 16:14 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/35131387784.shtml)
+- 2026-06-29 15:59 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/887008004.shtml)
+- 2026-06-29 16:06 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/960385.shtml)
+- 2026-06-29 16:15 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/27706889.shtml)
+- 2026-06-29 15:55 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/86297181640.shtml)
+- 2026-06-29 16:21 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/594477.shtml)
+- 2026-06-29 16:13 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/7919888.shtml)
+- 2026-06-29 16:07 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/9675292.shtml)
+- 2026-06-29 16:04 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/52410119.shtml)
+- 2026-06-29 16:13 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/5376068257.shtml)
+- 2026-06-29 16:13 - [恋与深空 731](https://www.share.minike.top/Article/details/285134338.shtml)
+- 2026-06-29 16:17 - [扬名立万](https://www.share.kurohicncr.top/Article/details/46223548.shtml)

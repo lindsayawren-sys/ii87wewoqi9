@@ -1,58 +1,61 @@
-# 上市银行净息差全景图： 股份行整体更优，中小银行分化明显
+# 国家队又在卖ETF了
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-随着近期上市银行2025年年报的持续披露，市场对各银行净息差数据所透露出的信息愈发关注。净息差作为衡量银行盈利能力与经营健康状况的关键指标，其变化的背后蕴含着诸多重要信号。相关专家在接受金融投资报记者采访时指出，在中国银行业，利息收入占营业收入的比重高达七成，这一特性决定了净息差状况对银行至关重要。它不仅直接关系到银行内源性资本的补充能力，还深刻影响着银行放贷的正向激励，良好的
+今天A股整体是一个“探底回升”的走势。指数看着不算强，大盘基本收平，但体感其实比指数好不少。全市场涨多跌少，个股中位数大概在 +0.73% 左右，万得全A指数、中证1000指数还继续创了阶段新高。而且，成交额虽然缩了900多亿，但依然维持在3万亿以上。这一点还挺重要的，因为很多时候，市场最怕的不是缩量，而是“缩量下跌”。现在这种状态，更像是上涨之后的一次正常换气，情绪没退潮，只
 
 ## 正文
 
-随着近期上市银行2025年年报的持续披露，市场对各银行净息差数据所透露出的信息愈发关注。
+今天A股整体是一个“探底回升”的走势。
 
-净息差作为衡量银行盈利能力与经营健康状况的关键指标，其变化的背后蕴含着诸多重要信号。
+指数看着不算强，大盘基本收平，但体感其实比指数好不少。
 
-相关专家在接受金融投资报记者采访时指出，在中国银行业，利息收入占营业收入的比重高达七成，这一特性决定了净息差状况对银行至关重要。
+全市场涨多跌少，个股中位数大概在 +0.73% 左右，万得全A指数、中证1000指数还继续创了阶段新高。
 
-它不仅直接关系到银行内源性资本的补充能力，还深刻影响着银行放贷的正向激励，良好的净息差状况能够激发银行放贷的积极性，促进信贷资金的合理流动，支持实体经济发展。
+而且，成交额虽然缩了900多亿，但依然维持在3万亿以上。
 
-那么，在当前已披露2025年年报中，上市银行的净息差究竟呈现出哪些新特征？
+这一点还挺重要的，因为很多时候，市场最怕的不是缩量，而是“缩量下跌”。
 
-不同类型银行，它们的息差走势又存在哪些区别？
+现在这种状态，更像是上涨之后的一次正常换气，情绪没退潮，只是资金稍微切了下方向。
 
-此外，面对息差收窄的压力，银行持续推进的一系列稳息差举措，是否已经显现出实效了呢？
+今天板块轮动也比较明显。
 
-商业银行净息差持续企稳多数国有行高管态度乐观国家金融监督管理总局今年2月披露的2025年银行业主要监管指标显示，2025年四季度末的商业银行净息差维持在1.42%，与三季度末持平，并且已连续三个季度稳定在该水平。
+前几天很猛的半导体、新能源偏弱，机器人、军工、地产这些方向比较强。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 15:51 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 15:53 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:58 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 15:53 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 16:17 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 16:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 15:51 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 15:54 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 16:09 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 16:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 15:51 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 16:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 16:15 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 16:21 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 16:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 16:12 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 16:03 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:10 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 16:23 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 16:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 15:59 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 16:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 16:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 16:02 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 16:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 16:05 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/15372.shtml)
-- 2026-06-29 16:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/9031009.shtml)
-- 2026-06-29 16:13 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/74639457950.shtml)
-- 2026-06-29 16:05 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/85836480585.shtml)
-- 2026-06-29 16:15 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/66157.shtml)
-- 2026-06-29 15:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/58733701.shtml)
-- 2026-06-29 16:15 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/787387.shtml)
-- 2026-06-29 15:50 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/72241.shtml)
-- 2026-06-29 16:00 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/391687408.shtml)
-- 2026-06-29 15:52 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/18239964129.shtml)
-- 2026-06-29 16:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/05640846.shtml)
-- 2026-06-29 16:16 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/246168004131.shtml)
-- 2026-06-29 15:54 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/318473355675.shtml)
-- 2026-06-29 16:13 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/459609.shtml)
-- 2026-06-29 16:09 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/908151274625.shtml)
+- 2026-06-29 16:14 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/61383584.shtml)
+- 2026-06-29 15:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/0640295324.shtml)
+- 2026-06-29 16:22 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/94495364644.shtml)
+- 2026-06-29 15:56 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/38005508906.shtml)
+- 2026-06-29 16:17 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/0845035.shtml)
+- 2026-06-29 16:18 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/562915224787.shtml)
+- 2026-06-29 16:23 - [5万块的威力](http://www.blog.minike.top/Article/details/731039676496.shtml)
+- 2026-06-29 16:23 - [千与千寻](https://www.share.kurohicncr.top/Article/details/70970535.shtml)
+- 2026-06-29 16:04 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/860137849.shtml)
+- 2026-06-29 16:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/99719324043.shtml)
+- 2026-06-29 16:24 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/679421394509.shtml)
+- 2026-06-29 16:18 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/966013699871.shtml)
+- 2026-06-29 15:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/507014.shtml)
+- 2026-06-29 16:01 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/6219117.shtml)
+- 2026-06-29 16:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/229992.shtml)

@@ -1,57 +1,57 @@
-# 北京各类学校人工智能应用覆盖率达87.7%
+# 弗吉尼亚州最高法院否决选区重划提案 重挫民主党
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中国青年报客户端北京4月10日电（中青报·中青网记者 杨洁）记者今天从教育部新闻发布会上获悉，截至2025年底，北京学校人工智能应用覆盖率达到了87.7%，同时推动教师从“会用AI”向“善用AI”升级。北京市教委主任李奕介绍，在基础教育阶段，北京研制《北京市中小学人工智能教育地方课程纲要》。全市中小学每学年开足开好8学时的通识课程，组建市、区两级的“AI教育讲师团”，汇聚高校、
+核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。 这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。 此次裁决正值美国两党选区操纵博弈持续之际。最高法院一项关键判决削弱了《选举权法
 
 ## 正文
 
-中国青年报客户端北京4月10日电（中青报·中青网记者 杨洁）记者今天从教育部新闻发布会上获悉，截至2025年底，北京学校人工智能应用覆盖率达到了87.7%，同时推动教师从“会用AI”向“善用AI”升级。
+核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。
 
-北京市教委主任李奕介绍，在基础教育阶段，北京研制《北京市中小学人工智能教育地方课程纲要》。
+这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。
 
-全市中小学每学年开足开好8学时的通识课程，组建市、区两级的“AI教育讲师团”，汇聚高校、科研院所、高科技企业的专家“送课到校”。
+原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。
 
-在高等教育和职业教育阶段，高质量开设459门人工智能通识课，建设人工智能及“人工智能+”这个辅修专业和微专业，打造数智书院。
+此次裁决正值美国两党选区操纵博弈持续之际。
 
-北京市高校现在已经建成11个“智能科学与技术”一级学科、36个人工智能本专科专业，支持48所高校设立人工智能学院（系）和研究院，高水平建设北京市中关村学院，探索人才培养新模式。
+最高法院一项关键判决削弱了《选举权法案》部分条款后，共和党主导的南部多州正着手重新划分众议院选区。
 
-此外，北京支持国家智慧教育示范区，以及教育部人工智能教育基地校的建设，培育百所北京市智慧校园示范校、百所人工智能标杆校，25项高校应用入选了教育部人工智能典型应用场景。
+弗吉尼亚州众议院议长、民主党人唐・斯科特发表声明称： “我们尊重法院裁决。
 
-来源：中国青年报客户端
+但我们会继续捍卫民主体制，让最终决定权掌握在选民手中，而非政客手中。
+
+因为在弗吉尼亚州，权力永远属于人民。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 16:06 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 16:07 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 16:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 16:00 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 15:55 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 16:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 16:13 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 15:49 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 15:57 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 16:06 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 15:59 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 16:11 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 16:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 16:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 16:10 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 16:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 16:05 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 16:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 16:10 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 16:03 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 16:04 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 15:59 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/87257461994.shtml)
-- 2026-06-29 16:00 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/514750.shtml)
-- 2026-06-29 15:59 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/48772392.shtml)
-- 2026-06-29 15:57 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/57550080.shtml)
-- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0596295.shtml)
-- 2026-06-29 15:50 - [普京介绍前线战事](http://www.share.minike.top/Article/details/9421237.shtml)
-- 2026-06-29 16:08 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/894146973.shtml)
-- 2026-06-29 16:04 - [恋与深空 731](https://www.share.minike.top/Article/details/243522072119.shtml)
-- 2026-06-29 16:14 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/89791372.shtml)
-- 2026-06-29 16:13 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/06462549.shtml)
-- 2026-06-29 15:58 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/252752.shtml)
-- 2026-06-29 16:17 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/6268573884.shtml)
-- 2026-06-29 16:06 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/2494452935.shtml)
-- 2026-06-29 15:53 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/242267206756.shtml)
-- 2026-06-29 15:50 - [20年前的周杰伦](https://www.share.minike.top/Article/details/07986915453.shtml)
+- 2026-06-29 15:59 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/52037641540.shtml)
+- 2026-06-29 16:12 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/96061907248.shtml)
+- 2026-06-29 16:04 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/45896329.shtml)
+- 2026-06-29 16:12 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/9511357.shtml)
+- 2026-06-29 16:07 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/065656.shtml)
+- 2026-06-29 15:58 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/96185771.shtml)
+- 2026-06-29 16:07 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/318701.shtml)
+- 2026-06-29 16:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/708159.shtml)
+- 2026-06-29 16:13 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/0488446.shtml)
+- 2026-06-29 15:56 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/9043494.shtml)
+- 2026-06-29 16:09 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/5052684547.shtml)
+- 2026-06-29 16:03 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/3899913.shtml)
+- 2026-06-29 16:22 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.kurohicncr.top/Article/details/82314389.shtml)
+- 2026-06-29 15:58 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/3660551.shtml)
+- 2026-06-29 16:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/333022387.shtml)

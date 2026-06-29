@@ -1,59 +1,58 @@
-# 伊朗冲突加剧物价与增长风险 韩国央行维持利率不变
+# 豪掷百亿美元押注：全球资本追捧印度板球超级联赛
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-韩国央行维持基准利率不变，释放出谨慎立场。伊朗冲突引发能源价格飙升，既推高通胀风险又威胁经济增长，令政策前景复杂化。 韩国银行（韩国央行）周五将七天期回购利率维持在2.5%，延续自去年7月以来的按兵不动态势。该决定符合媒体调查的全部18位经济学家的预期。此次维持利率的背景是通胀保持平稳、经济增长颇具韧性。 上月消费者物价同比上涨2.2%，较2月的2%有所回升，且仍接近央行目标水
+核心要点 在南亚大陆，板球运动风靡全球，相关商业生态蓬勃发展，印度板球产业正成为各路投资者争抢的优质标的。 短短一个多月内，印度板球超级联赛已有两支球队以超百亿美金估值易主。最新一笔交易为本周日成交的拉贾斯坦皇家队收购案，整体估值 16.5 亿美元。 多家媒体报道，由卡尔・索马尼牵头、背靠沃尔玛集团罗布・沃尔顿的美国投资财团，曾参与竞标拉贾斯坦皇家队，但最终不敌钢铁大亨米塔尔与
 
 ## 正文
 
-韩国央行维持基准利率不变，释放出谨慎立场。
+核心要点 在南亚大陆，板球运动风靡全球，相关商业生态蓬勃发展，印度板球产业正成为各路投资者争抢的优质标的。
 
-伊朗冲突引发能源价格飙升，既推高通胀风险又威胁经济增长，令政策前景复杂化。
+短短一个多月内，印度板球超级联赛已有两支球队以超百亿美金估值易主。
 
-韩国银行（韩国央行）周五将七天期回购利率维持在2.5%，延续自去年7月以来的按兵不动态势。
+最新一笔交易为本周日成交的拉贾斯坦皇家队收购案，整体估值 16.5 亿美元。
 
-该决定符合媒体调查的全部18位经济学家的预期。
+多家媒体报道，由卡尔・索马尼牵头、背靠沃尔玛集团罗布・沃尔顿的美国投资财团，曾参与竞标拉贾斯坦皇家队，但最终不敌钢铁大亨米塔尔与疫苗巨头普纳瓦拉组成的收购方。
 
-此次维持利率的背景是通胀保持平稳、经济增长颇具韧性。
+据 ESPN 消息，索马尼财团对竞标失利表示遗憾。
 
-上月消费者物价同比上涨2.2%，较2月的2%有所回升，且仍接近央行目标水平。
+该财团称：“我们原本十分期待助力印度板球超级联赛迈向全新国际高度。
 
-此外，韩国央行在2月上调了2026年经济增长预期。
+” 今年 3 月末，黑石集团与美国知名体育投资人戴维・布利策联手，以18 亿美元收购 IPL 班加罗尔皇家挑战者队。
 
-而当前中东冲突正对通胀与增长两端构成风险。
+印度板球超级联赛创立于 2008 年，是赛制紧凑、俱乐部运营模式的职业板球联赛，汇聚全球及印度本土顶尖球员。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 15:59 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 16:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 16:03 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 15:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 15:50 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 16:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 16:07 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 15:56 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 15:55 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 15:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:52 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 15:59 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 16:08 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 16:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 16:23 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 15:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 16:08 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 16:09 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 16:07 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 16:17 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 16:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 15:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 16:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 15:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/8117544.shtml)
-- 2026-06-29 16:07 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/697379062.shtml)
-- 2026-06-29 15:54 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/204329850.shtml)
-- 2026-06-29 16:08 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/341100634.shtml)
-- 2026-06-29 16:08 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2754958215.shtml)
-- 2026-06-29 15:54 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/05900791.shtml)
-- 2026-06-29 16:00 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/92925819.shtml)
-- 2026-06-29 15:51 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/5467555.shtml)
-- 2026-06-29 16:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/374489176.shtml)
-- 2026-06-29 16:16 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/16415348.shtml)
-- 2026-06-29 16:02 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/54276134.shtml)
-- 2026-06-29 15:52 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/9993995561.shtml)
-- 2026-06-29 16:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/745870599.shtml)
-- 2026-06-29 16:01 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/516441954.shtml)
-- 2026-06-29 16:16 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/634388887.shtml)
+- 2026-06-29 16:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/30334252990.shtml)
+- 2026-06-29 16:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/2081628.shtml)
+- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/694187803.shtml)
+- 2026-06-29 15:54 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/4292978268.shtml)
+- 2026-06-29 16:08 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/7406579695.shtml)
+- 2026-06-29 16:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/93714484.shtml)
+- 2026-06-29 16:20 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/210168.shtml)
+- 2026-06-29 15:56 - [我和我的家乡](http://www.share.minike.top/Article/details/11096533709.shtml)
+- 2026-06-29 15:56 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/48838868.shtml)
+- 2026-06-29 16:15 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/175998.shtml)
+- 2026-06-29 16:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/337715166.shtml)
+- 2026-06-29 15:59 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/96976703825.shtml)
+- 2026-06-29 16:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/20549871722.shtml)
+- 2026-06-29 15:57 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/90321637545.shtml)
+- 2026-06-29 16:12 - [起风了](https://www.blog.kurohicncr.top/Article/details/92450.shtml)

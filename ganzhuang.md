@@ -1,61 +1,61 @@
-# 亚马逊首次转播美国大师赛，成为赛事史上第四家媒体合作伙伴
+# 世界首条环沙漠铁路旁 他们用绿守护铁道
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。观众将首次可以通过亚马逊 Prime Video 观看赛事直播。 亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。亚马逊的《走进阿门角》节目将呈现高级数据统计和专属
+在塔克拉玛干沙漠南缘，有一群铁路人，他们用脚步一寸寸丈量，用坚持一点点扎根，在世界首条环沙漠铁路沿线，筑起一道绵延的绿色屏障。 杨斌山是中国铁路乌鲁木齐局集团有限公司若羌基础设施段且末综合工区的班长。2021年，和若铁路还未开通时，他就跟着施工队一起种树。那时候的沙漠里没有路，风沙肆虐，梭梭苗成活率极低。治沙队员们扛着二百多斤重的梭梭苗、芦苇秆和铁锨，在沙漠中反复开沟、铺草方格
 
 ## 正文
 
-要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。
+在塔克拉玛干沙漠南缘，有一群铁路人，他们用脚步一寸寸丈量，用坚持一点点扎根，在世界首条环沙漠铁路沿线，筑起一道绵延的绿色屏障。
 
-观众将首次可以通过亚马逊 Prime Video 观看赛事直播。
+杨斌山是中国铁路乌鲁木齐局集团有限公司若羌基础设施段且末综合工区的班长。
 
-亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。
+2021年，和若铁路还未开通时，他就跟着施工队一起种树。
 
-赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。
+那时候的沙漠里没有路，风沙肆虐，梭梭苗成活率极低。
 
-亚马逊的《走进阿门角》节目将呈现高级数据统计和专属镜头角度，让观众直观感受不同球手如何策略性应对这三个球洞。
+治沙队员们扛着二百多斤重的梭梭苗、芦苇秆和铁锨，在沙漠中反复开沟、铺草方格、补种梭梭。
 
-该平台还将全程转播 15 号、16 号洞，并播出部分焦点组画面，但这部分内容并非亚马逊制作。
+如今梭梭林已与人比肩，紧挨铁轨的草方格牢牢锁住流沙，梯次防沙体系成形见效。
 
-在弗雷德・里德利担任主席的奥古斯塔国家高尔夫俱乐部，亚马逊成为继派拉蒙旗下 CBS、维森特旗下美国电视网（1982—2007 年）以及迪士尼旗下 ESPN 之后，史上第四家媒体合作伙伴。
+一道道绿色屏障不仅守护着世界首条环沙漠铁路大动脉的安全畅通，更在塔克拉玛干沙漠边缘书写了“人进沙退”的奇迹。
 
-去年，美国大师赛将派拉蒙 + 纳入转播阵营，在周六、周日中午至下午 2 点提供两小时独家流媒体转播，该安排今年将继续保留。
+作者：姜赛 李泓栎 王海清 周后盛 蒋瑶 宋芷蕙 视频来源：中国铁路乌鲁木齐局集团有限公司融媒体中心 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:15 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 16:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 16:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 15:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 16:08 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 15:54 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 16:13 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 16:05 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 16:17 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 15:53 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 16:08 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 16:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 16:19 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 16:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 15:59 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:12 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 16:06 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:54 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 16:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 15:57 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 16:20 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:58 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 16:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 16:13 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 16:02 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 16:05 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 16:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/1623353.shtml)
-- 2026-06-29 16:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/0974910.shtml)
-- 2026-06-29 15:56 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/3358748721.shtml)
-- 2026-06-29 16:07 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/261627.shtml)
-- 2026-06-29 16:07 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/35383.shtml)
-- 2026-06-29 16:03 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/48455161.shtml)
-- 2026-06-29 16:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/054975518087.shtml)
-- 2026-06-29 16:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/5112533.shtml)
-- 2026-06-29 15:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/92979.shtml)
-- 2026-06-29 16:11 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/82010706.shtml)
-- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/65315390815.shtml)
-- 2026-06-29 15:56 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/29032753467.shtml)
-- 2026-06-29 16:01 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/99294.shtml)
-- 2026-06-29 15:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/99115904585.shtml)
-- 2026-06-29 16:11 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/5548868793.shtml)
+- 2026-06-29 16:06 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/7101054.shtml)
+- 2026-06-29 16:13 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/23218352998.shtml)
+- 2026-06-29 16:21 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/99965.shtml)
+- 2026-06-29 16:01 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/81149.shtml)
+- 2026-06-29 16:10 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/045488711357.shtml)
+- 2026-06-29 16:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/67672599256.shtml)
+- 2026-06-29 16:20 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/96853.shtml)
+- 2026-06-29 16:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/3019814.shtml)
+- 2026-06-29 16:23 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/842189770501.shtml)
+- 2026-06-29 16:02 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/45374305210.shtml)
+- 2026-06-29 16:11 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/58725695.shtml)
+- 2026-06-29 16:23 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/20730.shtml)
+- 2026-06-29 16:03 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/85227.shtml)
+- 2026-06-29 16:22 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/7424140.shtml)
+- 2026-06-29 15:59 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/79484.shtml)

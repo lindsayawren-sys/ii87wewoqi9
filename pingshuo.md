@@ -1,48 +1,60 @@
-# 中央网信办、国家铁路局联合约谈7家涉火车票销售第三方平台
+# 霍尔木兹海峡突发！美军再次对多艘伊朗油轮发动空袭
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据“网信中国”微信公众号消息，近日，依据《网络安全法》《关键信息基础设施安全保护条例》有关规定，中央网信办、国家铁路局联合约谈携程、同程、去哪儿、飞猪、美团、智行火车票、高铁管家等7家涉火车票销售业务的第三方互联网平台，要求相关平台应当严格落实网络安全相关法律法规要求，不得利用自动化程序实施大规模、高频次的抢票操作干扰铁路12306平台的安全核验措施，不得干
+霍尔木兹海峡附近的伊朗锡里克地区传出爆炸声 据伊朗媒体报道，靠近霍尔木兹海峡的伊朗锡里克地区8日发生爆炸，原因不明。 美军再次对多艘伊朗油轮发动空袭 据美国媒体报道，美军8日在霍尔木兹海峡对多艘试图突破封锁的空载伊朗油轮发动空袭。 伊朗称美军袭击伊民用船只致10人受伤5人失踪 据伊朗迈赫尔通讯社8日报道，美军7日晚袭击伊朗民用船只，造成10人受伤，5人失踪。 报道援引伊朗霍尔木
 
 ## 正文
 
-中新网4月10日电 据“网信中国”微信公众号消息，近日，依据《网络安全法》《关键信息基础设施安全保护条例》有关规定，中央网信办、国家铁路局联合约谈携程、同程、去哪儿、飞猪、美团、智行火车票、高铁管家等7家涉火车票销售业务的第三方互联网平台，要求相关平台应当严格落实网络安全相关法律法规要求，不得利用自动化程序实施大规模、高频次的抢票操作干扰铁路12306平台的安全核验措施，不得干扰、危害铁路12306平台的安全稳定运行。
+霍尔木兹海峡附近的伊朗锡里克地区传出爆炸声 据伊朗媒体报道，靠近霍尔木兹海峡的伊朗锡里克地区8日发生爆炸，原因不明。
 
-后续相关部门将加强技术监测，如发现利用技术手段干扰、危害铁路12306平台安全的行为，将依据《网络安全法》《关键信息基础设施安全保护条例》等法律法规严肃查处。
+美军再次对多艘伊朗油轮发动空袭 据美国媒体报道，美军8日在霍尔木兹海峡对多艘试图突破封锁的空载伊朗油轮发动空袭。
+
+伊朗称美军袭击伊民用船只致10人受伤5人失踪 据伊朗迈赫尔通讯社8日报道，美军7日晚袭击伊朗民用船只，造成10人受伤，5人失踪。
+
+报道援引伊朗霍尔木兹甘省米纳卜市官员穆罕默德·拉德迈赫尔的话说，美军在霍尔木兹海峡和阿曼海水域发动侵略行动，一艘货船在米纳卜附近水域被击中并起火。
+
+货船上共有15名船员，其中10人受伤被送往医院。
+
+相关部门及搜救小组正全力搜寻其余船员。
+
+报道说，美国海军声称在一次旨在开放霍尔木兹海峡的行动中摧毁了数艘伊朗伊斯兰革命卫队导弹艇，但随后被证实这些是渔船和货船。
+
+伊朗哈尔克岛附近疑似发生石油泄漏 据路透社8日报道，卫星图像显示，伊朗关键石油出口枢纽哈尔克岛附近疑似发生石油泄漏。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 15:54 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 15:52 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 16:09 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 15:59 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:51 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 16:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 16:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:56 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 16:03 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 16:12 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 15:49 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 15:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 15:57 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 16:17 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 16:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 16:20 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 15:57 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 16:09 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 16:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 15:57 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 16:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 16:16 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 15:56 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 16:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/0887803.shtml)
-- 2026-06-29 16:04 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/9585116.shtml)
-- 2026-06-29 16:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9068645.shtml)
-- 2026-06-29 16:13 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/90096020.shtml)
-- 2026-06-29 15:51 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/796449317711.shtml)
-- 2026-06-29 15:55 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/6024940.shtml)
-- 2026-06-29 15:50 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/8709754004.shtml)
-- 2026-06-29 15:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/620352387363.shtml)
-- 2026-06-29 16:09 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/38905.shtml)
-- 2026-06-29 15:49 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/29228.shtml)
-- 2026-06-29 16:02 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/219882950.shtml)
-- 2026-06-29 16:10 - [千与千寻](http://www.share.kurohicncr.top/Article/details/07772584596.shtml)
-- 2026-06-29 15:56 - [人形机器人](http://www.share.minike.top/Article/details/0826058116.shtml)
-- 2026-06-29 15:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/54913667495.shtml)
-- 2026-06-29 16:08 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/2135675.shtml)
+- 2026-06-29 16:09 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/31683466.shtml)
+- 2026-06-29 16:03 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/9053256.shtml)
+- 2026-06-29 16:09 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/68258.shtml)
+- 2026-06-29 16:17 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/40696078.shtml)
+- 2026-06-29 16:04 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/811271.shtml)
+- 2026-06-29 16:09 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/926768936959.shtml)
+- 2026-06-29 15:58 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/33500.shtml)
+- 2026-06-29 15:55 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/203569891.shtml)
+- 2026-06-29 16:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/8892245414.shtml)
+- 2026-06-29 15:55 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/9422650922.shtml)
+- 2026-06-29 16:10 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/7758964.shtml)
+- 2026-06-29 16:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/4931005.shtml)
+- 2026-06-29 16:18 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5914770648.shtml)
+- 2026-06-29 16:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/938309462.shtml)
+- 2026-06-29 16:06 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/62391855.shtml)

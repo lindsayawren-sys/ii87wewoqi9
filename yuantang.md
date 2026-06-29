@@ -1,53 +1,52 @@
-# 广西贺州警方通报：一男子在家中刺伤他人致死 嫌犯已被刑拘
+# 受能源和机械设备制造业拖累，三月德国工业产值继续下降
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网贺州4月9日电(韦佳秀)广西贺州市公安局八步分局9日发布警情通报称，4月4日3时许，贺州市八步区发生一起刑事案件。接报警后，公安机关迅速出警处置。 经查，犯罪嫌疑人贺某某(男，39岁)在家中持水果刀刺伤李某某(男，42岁)，致李某某经抢救无效死亡。犯罪嫌疑人贺某某自动投案并于当天被刑事拘留，案件正在进一步侦办中。(完)
+德国3月工业产值第二个月连续下降，在伊朗战争持续之际，这一下降加剧了外界对欧洲最大经济体的担忧。 德国统计机构周五表示，工业产值较2月下降0.7%，受能源和机械设备制造业下滑的影响。此前，大多数经济学家预测德国工业产值将增长。此外，德国3月出口增长0.5%，进口增5.1%。责任编辑：龙运翔
 
 ## 正文
 
-中新网贺州4月9日电(韦佳秀)广西贺州市公安局八步分局9日发布警情通报称，4月4日3时许，贺州市八步区发生一起刑事案件。
+德国3月工业产值第二个月连续下降，在伊朗战争持续之际，这一下降加剧了外界对欧洲最大经济体的担忧。
 
-接报警后，公安机关迅速出警处置。
+德国统计机构周五表示，工业产值较2月下降0.7%，受能源和机械设备制造业下滑的影响。
 
-经查，犯罪嫌疑人贺某某(男，39岁)在家中持水果刀刺伤李某某(男，42岁)，致李某某经抢救无效死亡。
+此前，大多数经济学家预测德国工业产值将增长。
 
-犯罪嫌疑人贺某某自动投案并于当天被刑事拘留，案件正在进一步侦办中。
+此外，德国3月出口增长0.5%，进口增5.1%。
 
-(完)
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:50 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 16:17 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 15:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 16:17 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 16:08 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 15:55 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 15:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 16:05 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 16:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 16:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 16:12 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 15:58 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 16:23 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 16:21 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 16:05 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 16:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 16:01 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 15:56 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:13 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 16:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 16:08 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 16:00 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:06 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/725638.shtml)
-- 2026-06-29 15:57 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/243867152.shtml)
-- 2026-06-29 15:50 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/04255847598.shtml)
-- 2026-06-29 16:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/45269.shtml)
-- 2026-06-29 15:50 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/693781205.shtml)
-- 2026-06-29 16:04 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/6923095.shtml)
-- 2026-06-29 16:01 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/340807033019.shtml)
-- 2026-06-29 16:14 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/7029105352.shtml)
-- 2026-06-29 15:58 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/078785454572.shtml)
-- 2026-06-29 16:16 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/93893683.shtml)
-- 2026-06-29 16:08 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/713835030.shtml)
-- 2026-06-29 16:02 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/005055922.shtml)
-- 2026-06-29 15:58 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/73914215443.shtml)
-- 2026-06-29 15:56 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/60606.shtml)
-- 2026-06-29 16:11 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/631060534.shtml)
+- 2026-06-29 15:56 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/145076.shtml)
+- 2026-06-29 16:01 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/902929.shtml)
+- 2026-06-29 16:13 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/6079534.shtml)
+- 2026-06-29 15:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/875168.shtml)
+- 2026-06-29 16:06 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/067850.shtml)
+- 2026-06-29 16:09 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/53833614.shtml)
+- 2026-06-29 15:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/4328084.shtml)
+- 2026-06-29 16:11 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/64947521418.shtml)
+- 2026-06-29 16:17 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/759520506.shtml)
+- 2026-06-29 15:57 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/394271667.shtml)
+- 2026-06-29 16:03 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/3552788.shtml)
+- 2026-06-29 16:09 - [一生一世](http://www.blog.kurohicncr.top/Article/details/3872778.shtml)
+- 2026-06-29 16:13 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/3275718.shtml)
+- 2026-06-29 16:11 - [女心理师](http://www.blog.kurohicncr.top/Article/details/65105.shtml)
+- 2026-06-29 16:03 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/74169966.shtml)

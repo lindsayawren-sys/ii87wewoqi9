@@ -1,57 +1,48 @@
-# 狂飙470%！“词元第一股”，再创新高
+# 中国工信部批复第六代移动通信系统技术试验频率
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】年内狂飙超470%！“词元第一股”再创历史新高！中信证券一季度净利润大增54.60% 中国基金报记者 郭玟君 4月9日，港股震荡走低，科网股全线回调。恒生指数收跌0.54%，恒生科技指数下挫2.06%，恒生中国企业指数下跌0.75%。全天市场总成交额为2449.77亿港元，较前一交易日的3724.3
+中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。 工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。(完)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。
 
-【导读】年内狂飙超470%！
+工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。
 
-“词元第一股”再创历史新高！
-
-中信证券一季度净利润大增54.60% 中国基金报记者 郭玟君 4月9日，港股震荡走低，科网股全线回调。
-
-恒生指数收跌0.54%，恒生科技指数下挫2.06%，恒生中国企业指数下跌0.75%。
-
-全天市场总成交额为2449.77亿港元，较前一交易日的3724.37亿港元锐减。
-
-南向资金净买入125.93亿港元。
-
-恒生指数成份股中，36只上涨，53只下跌。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 16:04 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 15:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 15:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 16:02 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 15:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:56 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 16:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 15:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 15:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:00 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 16:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 16:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 15:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 15:54 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 16:06 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 16:03 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 15:56 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 16:14 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 16:01 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 16:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/644045531.shtml)
-- 2026-06-29 16:04 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/911886431.shtml)
-- 2026-06-29 16:03 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/880996022.shtml)
-- 2026-06-29 15:49 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/608342.shtml)
-- 2026-06-29 15:57 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/83885934.shtml)
-- 2026-06-29 15:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/325325.shtml)
-- 2026-06-29 15:49 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/51880633946.shtml)
-- 2026-06-29 16:00 - [扫黑风暴](http://www.share.minike.top/Article/details/687508410.shtml)
-- 2026-06-29 16:07 - [第一炉香](http://www.share.minike.top/Article/details/722277210.shtml)
-- 2026-06-29 16:03 - [新一代影后杨紫](http://www.share.minike.top/Article/details/47784.shtml)
-- 2026-06-29 16:07 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/22041675685.shtml)
-- 2026-06-29 15:57 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/445785829.shtml)
-- 2026-06-29 15:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/963186382.shtml)
-- 2026-06-29 16:02 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/6569410574.shtml)
-- 2026-06-29 15:53 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/664985.shtml)
+- 2026-06-29 16:19 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/631472.shtml)
+- 2026-06-29 16:04 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/753028547.shtml)
+- 2026-06-29 16:15 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/74987.shtml)
+- 2026-06-29 16:13 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/8473834976.shtml)
+- 2026-06-29 16:04 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/642913.shtml)
+- 2026-06-29 16:15 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/76408.shtml)
+- 2026-06-29 16:04 - [TFING全员黑西装](https://www.share.minike.top/Article/details/320522818.shtml)
+- 2026-06-29 15:54 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/874340.shtml)
+- 2026-06-29 16:05 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/165026.shtml)
+- 2026-06-29 16:16 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/8462482757.shtml)
+- 2026-06-29 15:55 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/728520146.shtml)
+- 2026-06-29 16:21 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/91991.shtml)
+- 2026-06-29 16:19 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/27627483.shtml)
+- 2026-06-29 16:17 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/8167281.shtml)
+- 2026-06-29 16:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/065581318.shtml)

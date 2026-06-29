@@ -1,59 +1,59 @@
-# 十几万娶的“外籍新娘”全跑路 揭秘跨境骗婚黑色产业链
+# 越秀地产盘中涨超3% 机构指公司将受惠于一线城市房产复苏
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-十几万就能娶越南、缅甸“温柔新娘”？这样的违规广告吸引了一些单身人士的目光。但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，
+越秀地产（00123）盘中涨超3%，截至发稿，股价上涨2.30%，现报4.44港元，成交额3984.83万港元。 2026年五一黄金周，全国房地产市场迎来全面升温，走出一波火爆行情。其中越秀地产表现尤为亮眼，五一小长假最后一天单日狂揽16亿元销售额，整个黄金周期间累计成交55亿元，交出了一份行业瞩目的成绩单。在大本营广州，越秀地产实现销售金额超22亿元，占全市成交量近六分之一，
 
 ## 正文
 
-十几万就能娶越南、缅甸“温柔新娘”？
+越秀地产（00123）盘中涨超3%，截至发稿，股价上涨2.30%，现报4.44港元，成交额3984.83万港元。
 
-这样的违规广告吸引了一些单身人士的目光。
+2026年五一黄金周，全国房地产市场迎来全面升温，走出一波火爆行情。
 
-但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。
+其中越秀地产表现尤为亮眼，五一小长假最后一天单日狂揽16亿元销售额，整个黄金周期间累计成交55亿元，交出了一份行业瞩目的成绩单。
 
-国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。
+在大本营广州，越秀地产实现销售金额超22亿元，占全市成交量近六分之一，豪宅、改善、刚需全产品线热销，成为提振市场信心的重要标杆。
 
-近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，牵出一桩特大跨境婚骗案。
+汇丰研究指出，越秀地产受惠于一线城市带领的行业复苏。
 
-一条可疑网帖牵出特大跨境婚骗案 2025年2月，山东边检总站石岛边检站民警在日常网络巡查时，一条高频刷屏的违规广告，瞬间触发预警。
+公司总部城市广州正显示复苏迹象，将有助扭转市场对表现最弱的一线城市的质疑，并支持集团项目销售。
 
-有人长期公开揽客，专业介绍越南、缅甸美女入境结婚生子。
+该行预计，集团今年将加快土地收购及资本循环。
 
-话术极具诱惑，专门瞄准单身男性。
+管理层在5月6日的分析员简报会上表示，正积极监控进一步资产出售、分拆中国房地产投资信托基金（C-REIT）及政府回购闲置土地的机会。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 16:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 15:59 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 16:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 16:11 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 16:10 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 16:02 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 16:00 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 15:54 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 15:58 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 15:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 16:19 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 16:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 16:11 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 16:21 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 16:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 16:23 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 16:00 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 16:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 16:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:13 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 16:22 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:23 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 16:16 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/25837828156.shtml)
-- 2026-06-29 16:13 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/22950.shtml)
-- 2026-06-29 15:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/32960922.shtml)
-- 2026-06-29 15:49 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/939596634.shtml)
-- 2026-06-29 16:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/383760306.shtml)
-- 2026-06-29 15:53 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/624910.shtml)
-- 2026-06-29 16:04 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/55407309282.shtml)
-- 2026-06-29 15:48 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/72019945.shtml)
-- 2026-06-29 16:14 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/682924.shtml)
-- 2026-06-29 15:57 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/21276.shtml)
-- 2026-06-29 16:14 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/226762871.shtml)
-- 2026-06-29 15:50 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/222790.shtml)
-- 2026-06-29 16:03 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/076389296.shtml)
-- 2026-06-29 16:10 - [金刚川](https://www.share.kurohicncr.top/Article/details/25813.shtml)
-- 2026-06-29 16:15 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/92183.shtml)
+- 2026-06-29 16:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/331788853879.shtml)
+- 2026-06-29 16:16 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/82631242941.shtml)
+- 2026-06-29 16:06 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/0974274377.shtml)
+- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/793050589275.shtml)
+- 2026-06-29 16:07 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/42380.shtml)
+- 2026-06-29 16:18 - [天道](http://www.share.kurohicncr.top/Article/details/0860490.shtml)
+- 2026-06-29 16:03 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/558365.shtml)
+- 2026-06-29 16:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/8344626507.shtml)
+- 2026-06-29 16:00 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/316998.shtml)
+- 2026-06-29 16:17 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/98599316.shtml)
+- 2026-06-29 16:11 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/13059.shtml)
+- 2026-06-29 16:10 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/092933.shtml)
+- 2026-06-29 16:02 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/144205426473.shtml)
+- 2026-06-29 16:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/798720.shtml)
+- 2026-06-29 16:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/25976982828.shtml)

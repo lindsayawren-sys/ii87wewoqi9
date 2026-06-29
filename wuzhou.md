@@ -1,47 +1,58 @@
-# 真主党呼吁黎巴嫩政府不要向以色列做出“无条件让步”
+# 欧洲基建投资提振需求，威克诺森一季度业绩强劲增长
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-据Al-Manar电视台报道，真主党秘书长Naim Qasem在一封信中呼吁黎巴嫩政府停止向以色列做出“无条件让步”。 在对抗以色列的战争中，“抵抗将持续下去，直到剩下最后一口气”。责任编辑：刘明亮
+受益于欧洲基础设施和现代化项目的推进，德国建筑设备制造商威克诺森在2026年第一季度实现营收与利润的显著增长。 这家总部位于慕尼黑的公司周四公布，一季度营收同比增长19.8%，至5.914亿欧元。营业利润从去年同期的1210万欧元大幅攀升至4150万欧元，息税前利润率从2.5%提升至7.0%。 威克诺森首席执行官卡尔·特拉格尔表示：“欧洲核心市场明显复苏，紧凑型设备需求增长，为
 
 ## 正文
 
-据Al-Manar电视台报道，真主党秘书长Naim Qasem在一封信中呼吁黎巴嫩政府停止向以色列做出“无条件让步”。
+受益于欧洲基础设施和现代化项目的推进，德国建筑设备制造商威克诺森在2026年第一季度实现营收与利润的显著增长。
 
-在对抗以色列的战争中，“抵抗将持续下去，直到剩下最后一口气”。
+这家总部位于慕尼黑的公司周四公布，一季度营收同比增长19.8%，至5.914亿欧元。
 
-责任编辑：刘明亮
+营业利润从去年同期的1210万欧元大幅攀升至4150万欧元，息税前利润率从2.5%提升至7.0%。
+
+威克诺森首席执行官卡尔·特拉格尔表示：“欧洲核心市场明显复苏，紧凑型设备需求增长，为集团在2026年实现稳健开局创造了条件。
+
+”他补充说，公司已成功实施计划中的效率提升措施，盈利能力显著增强。
+
+区域表现方面，欧洲市场收入增长26.7%，成为主要增长引擎。
+
+紧凑型设备部门表现尤为突出，营收增幅达40%。
+
+尽管面临美国关税压力，北美市场经汇率调整后仍实现7.6%的增长。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 15:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 16:02 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 16:06 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 15:56 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 16:03 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 15:49 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 16:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 16:04 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:56 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 16:17 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 16:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 16:01 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 16:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:16 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 16:15 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 16:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 16:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 16:06 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 15:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 16:20 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 15:57 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4799737.shtml)
-- 2026-06-29 15:50 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/9742844629.shtml)
-- 2026-06-29 16:05 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/693585308.shtml)
-- 2026-06-29 16:15 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/17354.shtml)
-- 2026-06-29 16:04 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/2217098120.shtml)
-- 2026-06-29 16:05 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/95631046596.shtml)
-- 2026-06-29 16:14 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/74616254.shtml)
-- 2026-06-29 16:15 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/01094.shtml)
-- 2026-06-29 16:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/6539108.shtml)
-- 2026-06-29 16:01 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/443782118722.shtml)
-- 2026-06-29 16:01 - [斗破苍穹](https://www.blog.minike.top/Article/details/24721.shtml)
-- 2026-06-29 15:48 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/102319405585.shtml)
-- 2026-06-29 15:49 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/45566689538.shtml)
-- 2026-06-29 16:16 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/61955.shtml)
-- 2026-06-29 16:04 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/4047303002.shtml)
+- 2026-06-29 16:20 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/3929991245.shtml)
+- 2026-06-29 16:17 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/17308460.shtml)
+- 2026-06-29 16:22 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/406945892172.shtml)
+- 2026-06-29 16:08 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/554394858.shtml)
+- 2026-06-29 16:10 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/3043097.shtml)
+- 2026-06-29 16:17 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/0995346678.shtml)
+- 2026-06-29 16:20 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/521872275.shtml)
+- 2026-06-29 16:22 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/06265048.shtml)
+- 2026-06-29 16:01 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/39530.shtml)
+- 2026-06-29 15:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/236426789.shtml)
+- 2026-06-29 16:14 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/086220.shtml)
+- 2026-06-29 16:19 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/796945621.shtml)
+- 2026-06-29 16:11 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/53400966835.shtml)
+- 2026-06-29 16:05 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/043250596.shtml)
+- 2026-06-29 16:19 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/093071157.shtml)

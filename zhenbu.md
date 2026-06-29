@@ -1,61 +1,58 @@
-# 理想汽车-W午前涨近6% 一季度交付量突破指引
+# 资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-理想汽车-W（02015）盘中涨超6%，截至发稿，涨5.52%，报75.15港元，成交额8.64亿港元。 3月，理想汽车交付量达4.1万辆，环比增长55%，同比增长11.9%。一季度累计交付9.51万辆，超出此前9万辆的交付指引上限。其中，纯电车型理想i6月销突破2.4万辆，占当月销量近六成。爱建证券指出，理想汽车纯电战略成效初显。 此外，理想汽车第一产品线总裁汤靖在社交媒体平
+每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。截至今年一季度末，全球ETF总规模达到20.08万亿美元。 而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规
 
 ## 正文
 
-理想汽车-W（02015）盘中涨超6%，截至发稿，涨5.52%，报75.15港元，成交额8.64亿港元。
+每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。
 
-3月，理想汽车交付量达4.1万辆，环比增长55%，同比增长11.9%。
+截至今年一季度末，全球ETF总规模达到20.08万亿美元。
 
-一季度累计交付9.51万辆，超出此前9万辆的交付指引上限。
+而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规模为13.55万亿美元。
 
-其中，纯电车型理想i6月销突破2.4万辆，占当月销量近六成。
+在欧洲市场，3月欧洲ETF行业净流入136.2亿美元，带动今年一季度净流入规模达到1287.1亿美元。
 
-爱建证券指出，理想汽车纯电战略成效初显。
+截至一季度末，欧洲ETF行业资产管理规模达3.29万亿美元，较今年2月末的3.53万亿美元历史高点有所回落。
 
-此外，理想汽车第一产品线总裁汤靖在社交媒体平台发文称，理想L系列未来产品矩阵迎来调整，分旗舰SUV和高端SUV两个序列。
+下面我们就对这几个市场的ETF表现进行详细梳理。
 
-汤靖表示，全新理想L8是理想新一代的旗舰五座SUV，目标是将宝马X5M的运动性能与迈巴赫GLS的空间体验集于一身。
+来自ETFGI的数据显示，截至今年一季度末，全球ETF总规模为20.08万亿美元，低于今年2月创下的21.24万亿美元历史高点。
 
-全新理想L8将于三季度开启交付。
+仅在3月，全球ETF净流入规模就达到1744.2亿美元，连续第82个月实现资金净流入。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 15:51 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:14 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 15:55 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 16:13 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 15:58 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 15:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 16:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 16:12 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 15:54 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 15:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 15:50 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 15:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 16:09 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 16:04 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 16:21 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:03 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 16:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 16:17 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 16:12 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 16:21 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 16:15 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:02 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 15:59 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 16:20 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 16:17 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 16:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/59069963756.shtml)
-- 2026-06-29 16:11 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/86053872.shtml)
-- 2026-06-29 16:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/368424492079.shtml)
-- 2026-06-29 16:03 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/792092.shtml)
-- 2026-06-29 15:49 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/0914145.shtml)
-- 2026-06-29 15:58 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/48324.shtml)
-- 2026-06-29 16:02 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/9772167.shtml)
-- 2026-06-29 16:15 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/254156.shtml)
-- 2026-06-29 15:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/75729156424.shtml)
-- 2026-06-29 15:58 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/14592640853.shtml)
-- 2026-06-29 16:13 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/3695489368.shtml)
-- 2026-06-29 15:52 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/351479.shtml)
-- 2026-06-29 16:01 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/21776.shtml)
-- 2026-06-29 16:10 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/453459.shtml)
-- 2026-06-29 16:09 - [四川宜宾地震](https://www.blog.minike.top/Article/details/63541878455.shtml)
+- 2026-06-29 16:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/83645.shtml)
+- 2026-06-29 16:13 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/037829.shtml)
+- 2026-06-29 15:56 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/4601989624.shtml)
+- 2026-06-29 16:22 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/89732988.shtml)
+- 2026-06-29 15:57 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/439920.shtml)
+- 2026-06-29 16:22 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1380889087.shtml)
+- 2026-06-29 16:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/2940011.shtml)
+- 2026-06-29 16:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/88310881216.shtml)
+- 2026-06-29 16:13 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/55318865.shtml)
+- 2026-06-29 16:07 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/376619.shtml)
+- 2026-06-29 16:07 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/140487084213.shtml)
+- 2026-06-29 16:12 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/04733043150.shtml)
+- 2026-06-29 16:07 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/036276.shtml)
+- 2026-06-29 16:04 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/675953807660.shtml)
+- 2026-06-29 16:12 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/2527593986.shtml)

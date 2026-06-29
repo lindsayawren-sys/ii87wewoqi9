@@ -1,61 +1,57 @@
-# 江南等地有较强降水和强对流天气 内蒙古新疆等地有大风天气
+# 德国3月出口超预期 工业产值意外下滑
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据中央气象台网站消息，昨日，江淮西部和江南北部出现强降雨和强对流天气，海南岛、广西等地出现高温；今晨，华北和华中出现大雾。预计未来三天，江南部分地区将有较强降雨和强对流天气，关注对交通、农业生产等影响，防范局地强降雨引发的次生灾害。内蒙古和新疆等地有大风，做好防风加固及森林草原和城乡防火工作。 江南等地有较强降水和强对流天气 10日至12日，江南中部和东部等
+德国官方周五公布数据显示，受欧洲市场需求增长拉动，德国 3 月出口意外走高；但工业产值未如预期增长反而回落，主要受能源产量下滑拖累。 德国联邦统计局表示，3 月德国出口环比上涨 0.5%，其中对欧盟其他成员国出口发货量增长 3.4%。路透社调查的分析师此前预期出口将下滑 1.7%。 联邦统计局周四已公布德国 3 月工业订单增速高于预期，VP 银行经济学家托马斯・吉策尔称：“利好
 
 ## 正文
 
-中新网4月10日电 据中央气象台网站消息，昨日，江淮西部和江南北部出现强降雨和强对流天气，海南岛、广西等地出现高温；今晨，华北和华中出现大雾。
+德国官方周五公布数据显示，受欧洲市场需求增长拉动，德国 3 月出口意外走高；但工业产值未如预期增长反而回落，主要受能源产量下滑拖累。
 
-预计未来三天，江南部分地区将有较强降雨和强对流天气，关注对交通、农业生产等影响，防范局地强降雨引发的次生灾害。
+德国联邦统计局表示，3 月德国出口环比上涨 0.5%，其中对欧盟其他成员国出口发货量增长 3.4%。
 
-内蒙古和新疆等地有大风，做好防风加固及森林草原和城乡防火工作。
+路透社调查的分析师此前预期出口将下滑 1.7%。
 
-江南等地有较强降水和强对流天气 10日至12日，江南中部和东部等地的部分地区有中到大雨，局地暴雨或大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+联邦统计局周四已公布德国 3 月工业订单增速高于预期，VP 银行经济学家托马斯・吉策尔称：“利好经济数据仍在接连出炉。
 
-中央气象台4月10日06时继续发布暴雨蓝色预警和强对流天气蓝色预警。
+” 伊朗战事拖累工业产出 他补充道，新增工业订单回暖，使得此次公布的工业产值环比下滑 0.7% 的表现尚可接受。
 
-预计，4月10日08时至11日08时，湖北南部、湖南中北部、江西中北部、福建西北部、重庆中部、贵州东北部、四川中部等地部分地区有大到暴雨，其中，湖南中部等地部分地区有大暴雨(100～110毫米)。
+市场分析师此前原本预期工业产值环比增长 0.5%。
 
-江南中部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，湖南中南部、江西中东部、福建西北部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；江南中部、西南地区东北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南中部的部分地区小时雨量大于50毫米。
+统计局将工业产值下滑归因于能源产量下降以及机械设备制造业产出走低。
 
-内蒙古新疆等地有大风天气 10日至11日，新疆东部、内蒙古中东部、西藏中西部、云南东部等地有大风天气。
+吉策尔表示：“旺盛的新增订单预计将在未来数月提振工业生产，进而带动出口增长。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 15:58 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 15:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 16:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 15:54 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 15:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 16:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 15:50 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 15:51 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 15:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 16:02 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 16:02 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 16:12 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 16:11 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 16:13 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 16:06 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 16:06 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 15:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 15:59 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 16:19 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 16:22 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/15257.shtml)
-- 2026-06-29 15:57 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/52254998.shtml)
-- 2026-06-29 16:09 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/3425696.shtml)
-- 2026-06-29 16:07 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/1344929096.shtml)
-- 2026-06-29 15:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/28835674171.shtml)
-- 2026-06-29 16:07 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/130716446.shtml)
-- 2026-06-29 15:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/061589879811.shtml)
-- 2026-06-29 16:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/6836018203.shtml)
-- 2026-06-29 15:48 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/80115.shtml)
-- 2026-06-29 16:04 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/48304004006.shtml)
-- 2026-06-29 15:51 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/66295402497.shtml)
-- 2026-06-29 15:59 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/4483314.shtml)
-- 2026-06-29 15:59 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/025325950.shtml)
-- 2026-06-29 16:11 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/332239250.shtml)
-- 2026-06-29 16:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/84802284865.shtml)
+- 2026-06-29 16:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/04541572.shtml)
+- 2026-06-29 16:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/99488800839.shtml)
+- 2026-06-29 16:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/141427087534.shtml)
+- 2026-06-29 16:10 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/60928090268.shtml)
+- 2026-06-29 16:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/044592583.shtml)
+- 2026-06-29 15:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/839488051661.shtml)
+- 2026-06-29 16:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/1704243868.shtml)
+- 2026-06-29 16:19 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/701348233.shtml)
+- 2026-06-29 16:04 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/323439371057.shtml)
+- 2026-06-29 16:11 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/720973690.shtml)
+- 2026-06-29 15:58 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/783266649941.shtml)
+- 2026-06-29 15:57 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/98429.shtml)
+- 2026-06-29 16:01 - [扬名立万](https://www.blog.minike.top/Article/details/3926854.shtml)
+- 2026-06-29 16:01 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/66849658.shtml)
+- 2026-06-29 16:07 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/679603723.shtml)

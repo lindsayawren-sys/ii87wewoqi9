@@ -1,43 +1,49 @@
-# 惠而浦：2025年归母净利润同比增长157.55%
+# 瑞银：澜起科技目标价升至380港元 重申“买入”评级
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，惠而浦4月9日公告，2025年实现营业收入44.97亿元，同比增长23.23%；归属于上市公司股东的净利润5.2亿元，同比增长157.55%；基本每股收益0.68元。
+瑞银发布研报称，尽管澜起科技（06809）农历新年后股价表现强劲，升幅达52%，目前估值相当于2027年市盈率58倍，但若对应2027-2030年每股盈利复合年增长率45%，动态市盈率为1.3倍，该行认为仍具吸引力。随着多重结构性成长动能浮现，目标价由237港元升至380港元，相当综合预测市盈率70倍（此前为54倍），并重申“买入”评级。 该行上调澜起科技2027年及2028年
 
 ## 正文
 
-每经AI快讯，惠而浦4月9日公告，2025年实现营业收入44.97亿元，同比增长23.23%；归属于上市公司股东的净利润5.2亿元，同比增长157.55%；基本每股收益0.68元。
+瑞银发布研报称，尽管澜起科技（06809）农历新年后股价表现强劲，升幅达52%，目前估值相当于2027年市盈率58倍，但若对应2027-2030年每股盈利复合年增长率45%，动态市盈率为1.3倍，该行认为仍具吸引力。
+
+随着多重结构性成长动能浮现，目标价由237港元升至380港元，相当综合预测市盈率70倍（此前为54倍），并重申“买入”评级。
+
+该行上调澜起科技2027年及2028年存储器、PCIe互联营收预测14%及30%，各至81亿及118亿元人民币，并将2027年及2028年PCIe互联营收预估上调19%及40%，各至23亿及37亿元人民币。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 15:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 15:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 15:51 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 16:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 16:17 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 15:49 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 16:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 16:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 15:55 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 16:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 16:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 16:10 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 16:19 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 16:03 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 16:05 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 15:58 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 15:59 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 16:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:19 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 16:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 16:17 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/7775844876.shtml)
-- 2026-06-29 16:06 - [恋与深空 731](https://www.share.minike.top/Article/details/324710.shtml)
-- 2026-06-29 16:13 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/35978497.shtml)
-- 2026-06-29 15:56 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/77175022599.shtml)
-- 2026-06-29 16:14 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/444587104388.shtml)
-- 2026-06-29 16:03 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/2094949.shtml)
-- 2026-06-29 16:13 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/4262007478.shtml)
-- 2026-06-29 16:11 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/19226393.shtml)
-- 2026-06-29 15:56 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/95881.shtml)
-- 2026-06-29 15:52 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/44106955289.shtml)
-- 2026-06-29 16:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/4942594.shtml)
-- 2026-06-29 16:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/0441759.shtml)
-- 2026-06-29 15:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/211835434707.shtml)
-- 2026-06-29 16:09 - [送你一朵小红花](https://www.share.minike.top/Article/details/82907.shtml)
-- 2026-06-29 15:58 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/4212580789.shtml)
+- 2026-06-29 16:04 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/845222946.shtml)
+- 2026-06-29 16:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/559295978.shtml)
+- 2026-06-29 16:06 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/7931034020.shtml)
+- 2026-06-29 16:19 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/889946607171.shtml)
+- 2026-06-29 15:57 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/908343991.shtml)
+- 2026-06-29 15:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/21962795893.shtml)
+- 2026-06-29 15:58 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/722158719415.shtml)
+- 2026-06-29 16:16 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/63590303797.shtml)
+- 2026-06-29 16:19 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/7817839410.shtml)
+- 2026-06-29 16:03 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/977642.shtml)
+- 2026-06-29 16:23 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/8759006.shtml)
+- 2026-06-29 16:16 - [毒液2](https://www.share.kurohicncr.top/Article/details/822475.shtml)
+- 2026-06-29 15:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/48170.shtml)
+- 2026-06-29 16:19 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/279608773.shtml)
+- 2026-06-29 16:17 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/48911.shtml)

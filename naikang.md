@@ -1,58 +1,59 @@
-# 湖南永州爱心人士深山慰问“中国好人”谢红军
+# 软银下调OpenAI保证金贷款目标规模
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新网永州4月10日电 (邓卓 陈鹏博 唐佳莉)近日，湖南永州东安县爱心人士与青年志愿者一行，走进舜皇山深处，为坚守无名红军墓半生的谢红军送去一台冰箱，致敬其家族三代人九十二年的红色坚守。 爱心人士赵波带领青年志愿者从县城出发，前往舜皇山红军村。该村山路崎岖陡峭、草木丛生，四名志愿者轮流扛起百余斤的冰箱，历经2个小时跋涉，抵达住在半山腰的谢红军家中。 “一百多斤的冰箱，我们四个
+彭博社周五援引知情人士消息报道，因部分债权方态度审慎犹豫，软银集团缩减了以所持 OpenAI 股份为抵押、规模 100 亿美元保证金贷款的原定计划。 报道称，软银及合作银行在磋商中提出，拟将贷款目标规模下调至最低 600 亿美元。 消息指出，软银最初的融资方案令投资方心存顾虑：OpenAI 作为未上市企业，其估值难以合理敲定。 路透社暂无法核实该报道真实性，软银与 OpenAI
 
 ## 正文
 
-中新网永州4月10日电 (邓卓 陈鹏博 唐佳莉)近日，湖南永州东安县爱心人士与青年志愿者一行，走进舜皇山深处，为坚守无名红军墓半生的谢红军送去一台冰箱，致敬其家族三代人九十二年的红色坚守。
+彭博社周五援引知情人士消息报道，因部分债权方态度审慎犹豫，软银集团缩减了以所持 OpenAI 股份为抵押、规模 100 亿美元保证金贷款的原定计划。
 
-爱心人士赵波带领青年志愿者从县城出发，前往舜皇山红军村。
+报道称，软银及合作银行在磋商中提出，拟将贷款目标规模下调至最低 600 亿美元。
 
-该村山路崎岖陡峭、草木丛生，四名志愿者轮流扛起百余斤的冰箱，历经2个小时跋涉，抵达住在半山腰的谢红军家中。
+消息指出，软银最初的融资方案令投资方心存顾虑：OpenAI 作为未上市企业，其估值难以合理敲定。
 
-“一百多斤的冰箱，我们四个人轮流扛还把肩膀磨红了，但这趟值得。
+路透社暂无法核实该报道真实性，软银与 OpenAI 均未立即回应路透社的置评请求。
 
-”青年志愿者周云文说。
+保证金贷款：指投资者向机构借贷资金用于投资证券，并以购入的资产作为贷款抵押。
 
-红军村原名大坳村，因红军途经此地更名。
+彭博社今年 4 月曾报道，这笔两年期保证金贷款附带条款，软银可选择将贷款期限再延长一年。
 
-1934年湘江战役后，一支红军队伍路过舜皇山时，将一名重伤员托付给谢红军的爷爷。
+报道补充，目前相关磋商仍在进行，最终贷款规模等细节仍有可能变动。
 
-战士牺牲后，谢红军的爷爷将其安葬并许下“世代守护”的承诺。
+软银自 2024 年 9 月起投资布局 OpenAI；2025 年 1 月，双方还携手合作美国人工智能基建项目星门计划（Stargate）。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 16:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 15:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 15:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 16:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 16:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 15:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 16:01 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 15:51 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 15:49 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 16:00 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 15:57 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 16:17 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:00 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 16:09 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 16:19 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 15:55 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 16:19 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 16:16 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 15:55 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 16:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 15:57 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 16:04 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 16:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/233083784839.shtml)
-- 2026-06-29 16:07 - [行程万里不忘初心](http://www.share.minike.top/Article/details/385481.shtml)
-- 2026-06-29 15:56 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/727872387.shtml)
-- 2026-06-29 15:51 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/9297815.shtml)
-- 2026-06-29 15:54 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/70645.shtml)
-- 2026-06-29 15:52 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/7282426040.shtml)
-- 2026-06-29 15:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/16733493455.shtml)
-- 2026-06-29 15:49 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4642828.shtml)
-- 2026-06-29 15:52 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/4363983306.shtml)
-- 2026-06-29 16:10 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/8231388043.shtml)
-- 2026-06-29 16:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/9164198.shtml)
-- 2026-06-29 16:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/421548723.shtml)
-- 2026-06-29 16:06 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/925477542747.shtml)
-- 2026-06-29 15:58 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/0074969.shtml)
-- 2026-06-29 16:17 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/773715662420.shtml)
+- 2026-06-29 16:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/86322.shtml)
+- 2026-06-29 16:16 - [扬名立万](https://www.share.minike.top/Article/details/9116011.shtml)
+- 2026-06-29 16:03 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/688557684.shtml)
+- 2026-06-29 15:56 - [博主：全球股市进入“AI极端共振”](http://www.share.minike.top/Article/details/538248595274.shtml)
+- 2026-06-29 15:55 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/9544755.shtml)
+- 2026-06-29 16:16 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/3461441458.shtml)
+- 2026-06-29 16:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/48410.shtml)
+- 2026-06-29 15:57 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/99560809943.shtml)
+- 2026-06-29 16:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/536785850748.shtml)
+- 2026-06-29 16:19 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/914740209979.shtml)
+- 2026-06-29 15:55 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/883499562403.shtml)
+- 2026-06-29 16:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/745978633.shtml)
+- 2026-06-29 16:15 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/032725386.shtml)
+- 2026-06-29 16:10 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/747115415.shtml)
+- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/2953441.shtml)

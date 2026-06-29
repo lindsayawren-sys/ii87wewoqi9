@@ -1,61 +1,57 @@
-# 泽连斯基高级助手预计可能无需太久便可与俄罗斯达成和平协议
+# AMD业绩提振，半导体强势上扬！芯片涨价+业绩兑现，华宝基金科创人工智能ETF（589520）涨近3%冲击前高
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-乌克兰方面负责与俄罗斯谈判的核心代表表示，他看到在与克里姆林宫达成潜在和平协议方面出现进展，并称这场战争的解决可能无需太久就能实现。 尽管结束这场二战以来欧洲最血腥冲突的谈判从公开结果看收效甚微，但Kyrylo Budanov仍表示乐观，认为谈判正朝着达成解决方案的方向演变。这位乌克兰前军事情报部门负责人说，他相信俄罗斯也希望结束战争。 “所有人都明白，这场战争必须结束。这就是
+或由于美国半导体巨头AMD（超威半导体）亮眼业绩提振，今日（5月7日）国产AI芯片龙头延续强势表现，澜起科技涨超5%，寒武纪涨逾2%，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内价格上涨2.97%，收于日内高点，斩获日线4连阳，不断逼近历史高点（0.750）。 宏观层面，有消息称，中美双方正在考虑启动有关人工智能的官方讨论，预计在接下来北京中美元首会晤期间
 
 ## 正文
 
-乌克兰方面负责与俄罗斯谈判的核心代表表示，他看到在与克里姆林宫达成潜在和平协议方面出现进展，并称这场战争的解决可能无需太久就能实现。
+或由于美国半导体巨头AMD（超威半导体）亮眼业绩提振，今日（5月7日）国产AI芯片龙头延续强势表现，澜起科技涨超5%，寒武纪涨逾2%，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内价格上涨2.97%，收于日内高点，斩获日线4连阳，不断逼近历史高点（0.750）。
 
-尽管结束这场二战以来欧洲最血腥冲突的谈判从公开结果看收效甚微，但Kyrylo Budanov仍表示乐观，认为谈判正朝着达成解决方案的方向演变。
+宏观层面，有消息称，中美双方正在考虑启动有关人工智能的官方讨论，预计在接下来北京中美元首会晤期间讨论AI，美国财长贝森特将会牵头，中方牵头人暂无明确消息。
 
-这位乌克兰前军事情报部门负责人说，他相信俄罗斯也希望结束战争。
+此前，高层在讲话中指出，要多路线布局前沿技术探索，全链条推进关键核心技术攻关，不断巩固人工智能发展领先地位。
 
-“所有人都明白，这场战争必须结束。
+在科技博弈的背景下，AI作为核心技术，实现自主可控至关重要。
 
-这就是他们进行谈判的原因，”Budanov在4月4日接受采访时表示。
+产业层面，2026年以来，半导体行业上游材料、晶圆代工以及封装环节纷纷涨价，推动行业成本上涨，逐渐形成了全产业链价格普涨之势。
 
-“我认为不会太久。
+国泰君安证券表示，DeepSeek-V4与国产芯片的原生适配取得关键进展，或将重塑全球AI产业链的利润分配格局，硬件端有望优先享受行业发展红利。
 
-” Kyrylo Budanov，4月4日表示，俄罗斯有明确动力达成协议。
+国产算力产业链的业绩兑现确定性大幅提升，市场尚未充分定价这一变化带来的估值修复空间*。
 
-“他们和我们不同，他们花的是自己的钱，”他说，“这是一笔极其庞大的开支 —— 已经达到数万亿。
+业绩层面，寒武纪一季度实现营业收入28.85亿元，同比增长159.56%；归母净利润10.13亿元，同比增长185.04%。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:54 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 15:53 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:54 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 16:03 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 15:55 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 16:17 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 16:17 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 16:06 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 15:53 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 16:02 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 16:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 16:09 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 15:51 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 16:12 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:08 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 15:58 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 16:11 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 16:23 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 16:00 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 15:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 15:58 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 16:17 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 16:21 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 16:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 16:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/39938859823.shtml)
-- 2026-06-29 16:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/618094.shtml)
-- 2026-06-29 15:54 - [T1 KC](http://www.share.kurohicncr.top/Article/details/789320751.shtml)
-- 2026-06-29 15:59 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/176840128.shtml)
-- 2026-06-29 15:57 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/26099237.shtml)
-- 2026-06-29 16:09 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/75311244956.shtml)
-- 2026-06-29 16:16 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/668243595.shtml)
-- 2026-06-29 16:08 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/226476.shtml)
-- 2026-06-29 16:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/35371.shtml)
-- 2026-06-29 15:59 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/279589454874.shtml)
-- 2026-06-29 15:58 - [毒液2](https://www.blog.kurohicncr.top/Article/details/223154064363.shtml)
-- 2026-06-29 15:57 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/1736499164.shtml)
-- 2026-06-29 15:48 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/8234047.shtml)
-- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/05587192252.shtml)
-- 2026-06-29 15:48 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/569029279382.shtml)
+- 2026-06-29 15:59 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/848856.shtml)
+- 2026-06-29 16:11 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/321585913133.shtml)
+- 2026-06-29 16:13 - [天道](https://www.share.minike.top/Article/details/93012752.shtml)
+- 2026-06-29 16:03 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/42375584.shtml)
+- 2026-06-29 16:12 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/939591.shtml)
+- 2026-06-29 16:05 - [起风了](http://www.share.minike.top/Article/details/88697183.shtml)
+- 2026-06-29 16:03 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/792019.shtml)
+- 2026-06-29 16:11 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/329638304670.shtml)
+- 2026-06-29 16:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/3201005459.shtml)
+- 2026-06-29 16:15 - [AG 宫斗](http://www.share.minike.top/Article/details/4030531.shtml)
+- 2026-06-29 16:06 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/120714332.shtml)
+- 2026-06-29 16:22 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/204466536.shtml)
+- 2026-06-29 16:14 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/325841260640.shtml)
+- 2026-06-29 16:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8667098524.shtml)
+- 2026-06-29 16:16 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/3686011683.shtml)

@@ -1,59 +1,61 @@
-# 蔚来-SW盘中涨超4% 全新旗舰SUV ES9将于今晚正式亮相
+# 财政部组织开展公共数据资源治理成本归集试点工作
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-蔚来-SW（09866）盘中涨超4%，截至发稿，股价上涨3.45%，现报52.50港元，成交额2.29亿港元。 4月9日，蔚来汽车宣布，旗下全新旗舰大型SUV——蔚来ES9全国首批展车已陆续抵达各地门店，正式面向公众开放品鉴。官方将其定义为“蔚来十一年体系创新的集大成之作”和“智能电动行政旗舰SUV品类的开创者”。据了解，新车将于今晚19：00在蔚来ES9产品技术发布会上正式亮
+中新网北京5月7日电 (记者 赵建华)财政部近日发布《关于开展公共数据资源治理成本归集试点工作的通知》，决定在北京市、河北省、辽宁省、上海市、浙江省、安徽省、福建省、青岛市、重庆市、四川省等地区组织开展行政事业单位公共数据资源治理成本归集试点工作。试点工作自通知印发之日起启动。2026年7月31日前，各省级财政部门选择试点单位，完成工作部署。2026年12月31日前，各试点单位
 
 ## 正文
 
-蔚来-SW（09866）盘中涨超4%，截至发稿，股价上涨3.45%，现报52.50港元，成交额2.29亿港元。
+中新网北京5月7日电 (记者 赵建华)财政部近日发布《关于开展公共数据资源治理成本归集试点工作的通知》，决定在北京市、河北省、辽宁省、上海市、浙江省、安徽省、福建省、青岛市、重庆市、四川省等地区组织开展行政事业单位公共数据资源治理成本归集试点工作。
 
-4月9日，蔚来汽车宣布，旗下全新旗舰大型SUV——蔚来ES9全国首批展车已陆续抵达各地门店，正式面向公众开放品鉴。
+试点工作自通知印发之日起启动。
 
-官方将其定义为“蔚来十一年体系创新的集大成之作”和“智能电动行政旗舰SUV品类的开创者”。
+2026年7月31日前，各省级财政部门选择试点单位，完成工作部署。
 
-据了解，新车将于今晚19：00在蔚来ES9产品技术发布会上正式亮相并开启预售，预计5月底上市，6月1日开启交付。
+2026年12月31日前，各试点单位做好准备工作。
 
-华泰证券指出，2026年为蔚来产品大年，公司计划于年内密集推出多款全新及改款车型。
+2027年1月至6月，各试点单位进行成本归集。
 
-其中旗舰SUVES9将于4月开启技术发布，该车搭载第三代纯电平台、5nm车规级智驾芯片与天行智能底盘，CLTC工况最高续航达620公里，定位高端全尺寸纯电SUV市场，补齐品牌旗舰产品序列。
+2027年9月30日前，各试点地区完成试点任务，形成总结材料。
 
-乐道品牌将推出基于NT3.0平台打造的大五座SUVL80。
+根据《公共数据资源登记管理暂行办法》，公共数据资源是指各级党政机关、企事业单位依法履职或提供公共服务过程中产生的具有利用价值的数据集合。
 
-该行认为，2026年蔚来密集的新车投放，将成为公司兑现全年盈利目标的核心抓手。
+通知中的公共数据资源是指由试点单位管理的、符合上述定义的原始数据以及对原始数据进行加工处理形成的数据产品或服务。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 15:49 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:59 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 16:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 15:57 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 16:10 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 16:13 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 16:11 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 15:56 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 15:55 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:54 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 16:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:02 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 16:04 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 15:55 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 16:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:11 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 15:55 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 16:11 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 16:14 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 16:02 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 16:23 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 15:56 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 15:58 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 16:04 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 15:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 15:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/796248.shtml)
-- 2026-06-29 16:15 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/49700.shtml)
-- 2026-06-29 16:05 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/867773747.shtml)
-- 2026-06-29 16:17 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/114169.shtml)
-- 2026-06-29 15:59 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/5853186700.shtml)
-- 2026-06-29 15:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/942946595073.shtml)
-- 2026-06-29 15:49 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/7899654441.shtml)
-- 2026-06-29 16:13 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/142487048131.shtml)
-- 2026-06-29 15:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/2734230.shtml)
-- 2026-06-29 15:56 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/35700037.shtml)
-- 2026-06-29 16:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/026460979239.shtml)
-- 2026-06-29 15:53 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/171763581883.shtml)
-- 2026-06-29 15:57 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/43423010460.shtml)
-- 2026-06-29 16:11 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/4624863652.shtml)
-- 2026-06-29 15:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/69184033298.shtml)
+- 2026-06-29 15:59 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/997141.shtml)
+- 2026-06-29 16:21 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/590541838398.shtml)
+- 2026-06-29 16:02 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/69211576076.shtml)
+- 2026-06-29 16:22 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/179306.shtml)
+- 2026-06-29 15:54 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/42501565.shtml)
+- 2026-06-29 16:18 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/012209859.shtml)
+- 2026-06-29 16:09 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/84570.shtml)
+- 2026-06-29 16:16 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/53328064215.shtml)
+- 2026-06-29 16:15 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/142596160.shtml)
+- 2026-06-29 15:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/83543533943.shtml)
+- 2026-06-29 16:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/03470419956.shtml)
+- 2026-06-29 15:54 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5169946.shtml)
+- 2026-06-29 16:02 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/57113800.shtml)
+- 2026-06-29 16:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/895106289.shtml)
+- 2026-06-29 16:07 - [天道](http://www.share.kurohicncr.top/Article/details/85087.shtml)

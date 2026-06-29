@@ -1,59 +1,61 @@
-# 中斯警方合作打击跨国电诈犯罪 125人被遣返回中国
+# 美国债市：和平预期降温和油价反弹推动国债下跌
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 (记者 郭超凯)记者9日从中国公安部获悉，近日，在中国与斯里兰卡警方持续深化国际执法合作、不断加大打击跨国电信网络诈骗犯罪工作力度的基础上，斯里兰卡警方将前期清查行动中抓获的125名涉电诈人员遣返中国。今年以来，针对部分电诈及相关黑灰产人员从其他国家向斯里兰卡转移的突出动向，中国与斯里兰卡警方不断深化务实执法合作，加大打击力度。近期，斯里兰卡警方开展多次清
+美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。 纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点
 
 ## 正文
 
-中新社北京4月9日电 (记者 郭超凯)记者9日从中国公安部获悉，近日，在中国与斯里兰卡警方持续深化国际执法合作、不断加大打击跨国电信网络诈骗犯罪工作力度的基础上，斯里兰卡警方将前期清查行动中抓获的125名涉电诈人员遣返中国。
+美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。
 
-今年以来，针对部分电诈及相关黑灰产人员从其他国家向斯里兰卡转移的突出动向，中国与斯里兰卡警方不断深化务实执法合作，加大打击力度。
+受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。
 
-近期，斯里兰卡警方开展多次清查行动并打掉多个诈骗窝点，抓获一批涉电诈人员。
+早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。
 
-在中国驻斯里兰卡使馆的大力支持下，3月29日，公安部组织湖北公安机关民警有序接返相关人员。
+纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点。
 
-目前，湖北公安机关正在全力开展案件侦办工作。
+美国10年期国债收益率交投在4.395%附近，日内上涨近5个基点。
 
-公安部有关负责人表示，公安机关将与更多国家持续开展警务执法合作，坚决打击电信网络诈骗犯罪，共同构建务实高效的打击跨国犯罪新格局。
+由于市场对重新开放霍尔木兹海峡的担忧加剧，WTI原油期货在尾盘回升至接近盘中高点，日内上涨近2%。
 
-(完)
+美股早盘的涨幅也悉数回吐，标普500指数在收盘前下跌约0.5%。
+
+当日其他方面，5月联邦基金利率期货在午后交易时段出现一些大额买盘。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 16:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 16:07 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 16:02 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 16:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 16:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 15:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 16:15 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 16:14 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 16:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 16:14 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 16:10 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 15:48 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 16:13 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 16:17 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 16:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 16:04 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 16:03 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 16:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 16:05 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 16:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 16:09 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 15:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 16:08 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 16:01 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 16:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 15:56 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 16:20 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 15:59 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 16:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:04 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/575304828830.shtml)
-- 2026-06-29 16:17 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/852649868.shtml)
-- 2026-06-29 15:56 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/2146005451.shtml)
-- 2026-06-29 16:06 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/84569.shtml)
-- 2026-06-29 15:53 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/0557517.shtml)
-- 2026-06-29 15:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/152823409.shtml)
-- 2026-06-29 16:09 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/531603443827.shtml)
-- 2026-06-29 15:58 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/898690773423.shtml)
-- 2026-06-29 15:53 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/628826569.shtml)
-- 2026-06-29 15:53 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/37192.shtml)
-- 2026-06-29 16:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/6592739036.shtml)
-- 2026-06-29 15:49 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/660124389285.shtml)
-- 2026-06-29 16:05 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/63303543.shtml)
-- 2026-06-29 16:13 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/408539601.shtml)
-- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/040642.shtml)
+- 2026-06-29 16:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/15509.shtml)
+- 2026-06-29 16:22 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/8746800.shtml)
+- 2026-06-29 16:15 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/30542094480.shtml)
+- 2026-06-29 16:08 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/0335946836.shtml)
+- 2026-06-29 16:06 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/202951274.shtml)
+- 2026-06-29 16:15 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/19219714.shtml)
+- 2026-06-29 16:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/76668773.shtml)
+- 2026-06-29 16:00 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8995757787.shtml)
+- 2026-06-29 15:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/3769114.shtml)
+- 2026-06-29 15:57 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/401399716.shtml)
+- 2026-06-29 16:04 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/689726073.shtml)
+- 2026-06-29 15:54 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/51149015.shtml)
+- 2026-06-29 16:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/22575244732.shtml)
+- 2026-06-29 16:13 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/71690.shtml)
+- 2026-06-29 16:17 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/29984.shtml)

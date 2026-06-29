@@ -1,57 +1,59 @@
-# 台积电一季度营收大涨35% 创历史新高
+# 花旗集团计划大规模扩招财富管理部门
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2025年第四季度财报 核心要点 受人工智能芯片需求驱动，台积电周五公布的季度营收再创新高。 据伦敦证券交易所集团（LSEG）汇总的分析师预测，这家全球最大芯片制造商今年 1—3 月营收达 1.13 万亿新台币（约 356 亿美元），超出市场预期的 1.12 万亿新台币，同比增幅达 35%。 仅 3 月份单月，台积电营收就达到 4152 亿新台币，同比增长 45.
+花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。 扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。花旗计划在未来三年内将财富管理业务的客户资产规模从
 
 ## 正文
 
-专题：聚焦美股2025年第四季度财报 核心要点 受人工智能芯片需求驱动，台积电周五公布的季度营收再创新高。
+花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。
 
-据伦敦证券交易所集团（LSEG）汇总的分析师预测，这家全球最大芯片制造商今年 1—3 月营收达 1.13 万亿新台币（约 356 亿美元），超出市场预期的 1.12 万亿新台币，同比增幅达 35%。
+扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。
 
-仅 3 月份单月，台积电营收就达到 4152 亿新台币，同比增长 45.2%。
+新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。
 
-尽管市场仍担忧中东冲突可能导致供应链中断并影响需求，但这家芯片巨头仍从苹果、英伟达等核心客户对先进半导体的持续需求中获益。
+花旗计划在未来三年内将财富管理业务的客户资产规模从当前的约1.2万亿美元提升至1.5万亿美元。
 
-行业分析机构 SemiAnalysis 分析师斯雷万・昆多贾拉在给美国消费者新闻与商业频道（CNBC）的邮件中表示：“我们认为台积电将轻松实现全年 30% 的增长目标。
+该主管称，扩招是为了填补市场空白，花旗在财富管理领域的市场份额与商业银行龙头地位并不匹配。
 
-” 他补充道：“虽然智能手机和个人电脑终端市场因内存短缺受到冲击，但台积电的人工智能业务板块扛起了增长大旗。
+背景与战略 此次扩招正值花旗集团推进其“Project Phoenix”重组计划的收尾阶段，该计划旨在简化管理层级、削减成本并聚焦核心业务。
 
-” 台积电的代工产品覆盖消费电子到数据中心等各类芯片，也是全球数千亿美元投入人工智能基础设施建设的主要受益者之一。
+财富管理与交易咨询业务被列为优先增长领域。
 
-它是全球极少数能够生产最尖端芯片的企业之一。
+花旗此前在财富管理领域的投入不及同业，其财富管理营收占公司总营收约15%，而摩根士丹利这一比例超过40%。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 15:48 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 15:58 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 15:59 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 16:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 16:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 16:14 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 16:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 15:55 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 16:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 16:03 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 16:15 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 16:12 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 16:11 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:17 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 16:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 16:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 16:05 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 16:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 16:18 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 16:04 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 16:06 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 16:08 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 16:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/65942.shtml)
-- 2026-06-29 16:03 - [速度与激情9](https://www.share.minike.top/Article/details/886246733925.shtml)
-- 2026-06-29 16:01 - [当我回母校教书](http://www.share.minike.top/Article/details/24721.shtml)
-- 2026-06-29 16:08 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/48420963.shtml)
-- 2026-06-29 15:48 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/090201609476.shtml)
-- 2026-06-29 16:15 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/08474114.shtml)
-- 2026-06-29 16:05 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/1337009.shtml)
-- 2026-06-29 16:10 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/19000.shtml)
-- 2026-06-29 16:17 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/549313456012.shtml)
-- 2026-06-29 16:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/935462519.shtml)
-- 2026-06-29 15:53 - [扬名立万](https://www.share.kurohicncr.top/Article/details/022656696.shtml)
-- 2026-06-29 16:13 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/66745471.shtml)
-- 2026-06-29 15:48 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/456410935.shtml)
-- 2026-06-29 15:49 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/342166.shtml)
-- 2026-06-29 16:16 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/53212.shtml)
+- 2026-06-29 16:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/880329537.shtml)
+- 2026-06-29 16:15 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/266856811.shtml)
+- 2026-06-29 16:01 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/59443.shtml)
+- 2026-06-29 16:07 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/238157.shtml)
+- 2026-06-29 16:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/738100.shtml)
+- 2026-06-29 16:20 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/90908303969.shtml)
+- 2026-06-29 16:22 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/364400699498.shtml)
+- 2026-06-29 16:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/6404803305.shtml)
+- 2026-06-29 16:09 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/48216585.shtml)
+- 2026-06-29 16:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/326699692.shtml)
+- 2026-06-29 16:15 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/896439666271.shtml)
+- 2026-06-29 15:56 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/72893252.shtml)
+- 2026-06-29 16:21 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/033082337082.shtml)
+- 2026-06-29 15:59 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/22367.shtml)
+- 2026-06-29 16:00 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/53679603.shtml)

@@ -1,59 +1,59 @@
-# 台积电获华尔街最高目标价600美元 分析师预计到2028年利润增长两倍
+# 赵乐际会见美国国会参议员代表团
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。新的目标价意味着该股可能从当前交易水平上涨约64%。 该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。 这一评级背后的逻辑很简单：台积电正在加快增长。这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划
+中新社北京5月7日电 全国人大常委会委员长赵乐际7日在北京会见美国国会参议员代表团戴安斯一行。 赵乐际表示，中美关系稳定、健康、可持续发展，符合两国人民共同利益和国际社会普遍期待。去年以来，在两国元首战略引领下，中美关系实现总体稳定。中方愿同美方落实好两国元首重要共识，加强对话沟通，妥善管控分歧，拓展务实合作。台湾问题是中国核心利益中的核心，是中美关系中最重要的问题，希望美方恪
 
 ## 正文
 
-根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。
+中新社北京5月7日电 全国人大常委会委员长赵乐际7日在北京会见美国国会参议员代表团戴安斯一行。
 
-新的目标价意味着该股可能从当前交易水平上涨约64%。
+赵乐际表示，中美关系稳定、健康、可持续发展，符合两国人民共同利益和国际社会普遍期待。
 
-该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。
+去年以来，在两国元首战略引领下，中美关系实现总体稳定。
 
-这一评级背后的逻辑很简单：台积电正在加快增长。
+中方愿同美方落实好两国元首重要共识，加强对话沟通，妥善管控分歧，拓展务实合作。
 
-这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划。
+台湾问题是中国核心利益中的核心，是中美关系中最重要的问题，希望美方恪守一个中国原则，慎重对待和处理台湾问题。
 
-这些新增产能中的大部分预计将在2027年和2028年投产。
+赵乐际表示，中国全国人大愿同美国国会加强交往，实现更多交流和互访。
 
-如果这些生产线全力运转，在已经预测到2027年复合年增长率超过30%的基础上，台积电可能会迎来另一轮爆发式的收入增长。
+各位参议员此访有助于促进中美接触交往和两国立法机构对话交流。
 
-该分析师认为，到2028年，公司利润可能比2025年的水平增长近两倍。
+希望美方客观理性看待中国和中国的发展，欢迎更多美国议员来中国参访。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 16:03 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 16:16 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 16:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 16:05 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 16:03 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 15:50 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 16:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 16:13 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 15:52 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 15:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 16:17 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 15:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:22 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 15:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 15:56 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 15:54 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:01 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 16:09 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 16:14 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 15:56 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 16:13 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 15:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 16:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 16:16 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/591907492802.shtml)
-- 2026-06-29 16:02 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/34550.shtml)
-- 2026-06-29 15:49 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/899622777646.shtml)
-- 2026-06-29 15:57 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/349441.shtml)
-- 2026-06-29 16:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/85380103.shtml)
-- 2026-06-29 16:06 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/68954243.shtml)
-- 2026-06-29 16:03 - [周生如故](http://www.blog.minike.top/Article/details/854876.shtml)
-- 2026-06-29 16:06 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/5166503.shtml)
-- 2026-06-29 16:09 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/41655403046.shtml)
-- 2026-06-29 16:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/1479668.shtml)
-- 2026-06-29 16:10 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/1338162166.shtml)
-- 2026-06-29 15:49 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/9667295772.shtml)
-- 2026-06-29 16:11 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/4248372708.shtml)
-- 2026-06-29 16:06 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/586100131656.shtml)
-- 2026-06-29 16:02 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/510704797908.shtml)
+- 2026-06-29 16:01 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/537885.shtml)
+- 2026-06-29 16:17 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/0721738096.shtml)
+- 2026-06-29 16:21 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/42891998.shtml)
+- 2026-06-29 15:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/415072.shtml)
+- 2026-06-29 16:16 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/476835.shtml)
+- 2026-06-29 16:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/900996.shtml)
+- 2026-06-29 16:09 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/44167418.shtml)
+- 2026-06-29 16:07 - [我和我的家乡](http://www.share.minike.top/Article/details/94762.shtml)
+- 2026-06-29 16:01 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/8024268377.shtml)
+- 2026-06-29 16:08 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/80062611.shtml)
+- 2026-06-29 16:05 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/4986167146.shtml)
+- 2026-06-29 16:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/647300287.shtml)
+- 2026-06-29 16:13 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/5486207.shtml)
+- 2026-06-29 15:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/3399736973.shtml)
+- 2026-06-29 16:03 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/002277611124.shtml)

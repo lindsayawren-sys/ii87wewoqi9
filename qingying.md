@@ -1,56 +1,57 @@
-# 41亿，“宁王”开始布局算电协同
+# 一年填上百张表？部分科研人员仍困在表格里
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：界面新闻 记者：高菁 宁德时代（300750.SZ）投资版图再扩张。 4月8日，数字能源公司中恒电气（002364.SZ）公告，公司控股股东杭州中恒科技投资有限公司（下称中恒科技投资），拟接受宁德时代对其进行增资，以促进宁德时代与中恒电气围绕绿色ICT基础设施、交通电动化、新型电力系统（算电协同）等领
+本文为《半月谈》2026年第8期内容 “十五五”规划纲要明确提出“一体推进教育科技人才发展”。然而，半月谈记者采访了解到，有的科研人员每年仍需填写各类报表数百份，大量精力消耗于非学术事务；有的为追求短平快效应，论文集中于热门领域，忽视原始创新；有的基础研究，因实施“工程化管理”而被迫中断或终止……科研领域的形式主义束缚亟待破除。 一年填上百张表，耗费大量科研时间 “我每天要申请
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+本文为《半月谈》2026年第8期内容 “十五五”规划纲要明确提出“一体推进教育科技人才发展”。
 
-来源：界面新闻 记者：高菁 宁德时代（300750.SZ）投资版图再扩张。
+然而，半月谈记者采访了解到，有的科研人员每年仍需填写各类报表数百份，大量精力消耗于非学术事务；有的为追求短平快效应，论文集中于热门领域，忽视原始创新；有的基础研究，因实施“工程化管理”而被迫中断或终止……科研领域的形式主义束缚亟待破除。
 
-4月8日，数字能源公司中恒电气（002364.SZ）公告，公司控股股东杭州中恒科技投资有限公司（下称中恒科技投资），拟接受宁德时代对其进行增资，以促进宁德时代与中恒电气围绕绿色ICT基础设施、交通电动化、新型电力系统（算电协同）等领域开展相关业务及战略合作。
+一年填上百张表，耗费大量科研时间 “我每天要申请的东西可多了，一年要填一百到两百个表。
 
-宁德时代计划，以约41亿元认购中恒科技投资新增注册资本。
+”采访中，一位高校的“90后”海归教授向半月谈记者吐露了自己的困惑。
 
-其中，宁德时代拟以其所持时代天源（深圳）科技有限公司（下称时代天源）99.697%股权作价11.96亿元，其余增资对价则通过现金支付。
+这名教授回国到学校的第一年，提交了安家费申请材料，第二年又被通知重新填写申请。
 
-这意味着，宁德时代将加码算电协同布局。
+“安家费第二年正常发就好，但还要再申请。
 
-今年政府工作报告首次提及“算电协同”，被列为与超大规模智算集群并列的“新基建工程”核心内容，标志着行业正式从探索期进入规模化落地期。
+”他无奈地说，作为科研人员，不少时间却要用来“填表”，甚至重复填写。
 
-算电协同的本质是电力与算力的双向赋能。
+为了应付填表要求，他不得不招了一名助理帮忙。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:57 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 16:02 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 16:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 16:04 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 16:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 16:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 15:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 16:03 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 16:10 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 16:05 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 15:54 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 16:22 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 16:21 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 16:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 16:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 16:08 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 16:04 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 16:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 16:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/832079.shtml)
-- 2026-06-29 15:57 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/21601105759.shtml)
-- 2026-06-29 16:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/91472579050.shtml)
-- 2026-06-29 15:50 - [爸爸当家](http://www.blog.minike.top/Article/details/911587.shtml)
-- 2026-06-29 15:53 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/285367.shtml)
-- 2026-06-29 15:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/91934.shtml)
-- 2026-06-29 15:57 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/13399.shtml)
-- 2026-06-29 16:15 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/45636922243.shtml)
-- 2026-06-29 16:08 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/559209360.shtml)
-- 2026-06-29 16:01 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/00552487125.shtml)
-- 2026-06-29 15:55 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/537255361.shtml)
-- 2026-06-29 16:13 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/044993276.shtml)
-- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/28184.shtml)
-- 2026-06-29 15:53 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/71440454170.shtml)
-- 2026-06-29 15:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/2510259336.shtml)
+- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/9755329855.shtml)
+- 2026-06-29 16:11 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/119414.shtml)
+- 2026-06-29 16:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/0546944.shtml)
+- 2026-06-29 16:22 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/846411826.shtml)
+- 2026-06-29 16:18 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/5508559.shtml)
+- 2026-06-29 16:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/166051140214.shtml)
+- 2026-06-29 16:13 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/819605433.shtml)
+- 2026-06-29 16:10 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/781580423.shtml)
+- 2026-06-29 16:21 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/209805026.shtml)
+- 2026-06-29 16:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/2472562.shtml)
+- 2026-06-29 15:57 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/89924.shtml)
+- 2026-06-29 16:16 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/5711390.shtml)
+- 2026-06-29 16:18 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/09572433097.shtml)
+- 2026-06-29 15:57 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/58561839.shtml)
+- 2026-06-29 16:19 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/1336789.shtml)

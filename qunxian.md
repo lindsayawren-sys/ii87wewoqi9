@@ -1,61 +1,57 @@
-# 【光明时评】持续提升新质生产力的绿色效能
+# “五一”假期广西新能源汽车充电量创历史同期新高
 
-> 更新时间：2026-06-29 16:18:02 UTC+8
+> 更新时间：2026-06-29 16:24:02 UTC+8
 
 ## 摘要
 
-作者：叶堂林、常英伟(分别系首都经济贸易大学特大城市经济社会发展研究院执行院长、教授，首都经济贸易大学特大城市经济社会发展研究院研究员) 我国新能源汽车产销量多年稳居全球第一，全球首台商用超临界二氧化碳发电机组成功商运，白鹤滩水电站、自主三代核电“华龙一号”等世界级工程建成投运……这些绿色创新与产业创新的融合实践，正持续提升新质生产力的绿色效能。 “十五五”规划纲要就建设现代化
+中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。从5月1日起，广西连续5天单日充电量均突破700万千瓦时。亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。 在“五一”假期期间，广西文旅市场持续火热。南方电网
 
 ## 正文
 
-作者：叶堂林、常英伟(分别系首都经济贸易大学特大城市经济社会发展研究院执行院长、教授，首都经济贸易大学特大城市经济社会发展研究院研究员) 我国新能源汽车产销量多年稳居全球第一，全球首台商用超临界二氧化碳发电机组成功商运，白鹤滩水电站、自主三代核电“华龙一号”等世界级工程建成投运……这些绿色创新与产业创新的融合实践，正持续提升新质生产力的绿色效能。
+中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。
 
-“十五五”规划纲要就建设现代化产业体系作出部署，明确提出“坚持智能化、绿色化、融合化方向”。
+从5月1日起，广西连续5天单日充电量均突破700万千瓦时。
 
-当前，外部发展环境错综复杂，全球科技与产业竞争愈发激烈，绿色产业自主安全发展的紧迫性日益凸显。
+亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。
 
-从国内来看，我国全面绿色转型仍有一定的提升空间。
+在“五一”假期期间，广西文旅市场持续火热。
 
-推动绿色创新与产业创新深度融合、加快产业结构绿色转型，是我国突破资源环境约束，构建现代化产业体系、推进美丽中国建设的重要路径，也是在全球绿色技术与产业竞争中抢占制高点的必由之路。
+南方电网广西电动汽车服务有限公司作为广西站点最多、容量最大的充换电运营服务商，全力保障假期充电需求。
 
-推动绿色创新与产业创新深度融合，首要的是筑牢科技根基。
+该公司运营服务部副总经理韦静媛介绍，假期期间累计服务新能源汽车超24万辆次，高速服务区、热门景区、县域乡镇充电需求尤为旺盛。
 
-聚焦能源转型、气候治理等核心技术难题，不断夯实原始创新能力。
+针对南宁、桂林阳朔等充电需求激增区域，该公司提前优化站点运维，保障充电效率，全力保障民众出行补能。
 
-可以龙头企业为引领，联合产业链上下游与科研院所协同攻关，持续提升自主研发和产业配套能力，全力突破绿色技术领域的相关问题。
+假期期间，南宁青秀山等核心景区结合节日特点推出系列活动，南方电网南宁区域充电量同比增长98.4%。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 15:55 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 15:50 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 15:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 16:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 16:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 15:52 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 16:00 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 15:59 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 16:01 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 16:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 16:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 15:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 16:07 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 15:59 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 16:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 16:17 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 16:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 16:21 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 16:17 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 15:57 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 15:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 16:04 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 15:59 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 15:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/64148540.shtml)
-- 2026-06-29 16:04 - [恋与深空失控领地](https://www.share.minike.top/Article/details/18088468.shtml)
-- 2026-06-29 16:11 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/437466332.shtml)
-- 2026-06-29 16:01 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/43427463.shtml)
-- 2026-06-29 16:14 - [第一炉香](http://www.blog.minike.top/Article/details/705907.shtml)
-- 2026-06-29 16:17 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/0418876101.shtml)
-- 2026-06-29 15:48 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/5598509.shtml)
-- 2026-06-29 16:11 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/11680157.shtml)
-- 2026-06-29 16:04 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/7685430.shtml)
-- 2026-06-29 15:52 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/052740043.shtml)
-- 2026-06-29 16:07 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/80459.shtml)
-- 2026-06-29 15:56 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/087927.shtml)
-- 2026-06-29 16:03 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/397098858456.shtml)
-- 2026-06-29 16:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/37736211.shtml)
-- 2026-06-29 15:59 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/3910683.shtml)
+- 2026-06-29 15:56 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/51689865855.shtml)
+- 2026-06-29 15:56 - [当我回母校教书](https://www.blog.minike.top/Article/details/278278.shtml)
+- 2026-06-29 16:00 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/55492.shtml)
+- 2026-06-29 16:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/919029390.shtml)
+- 2026-06-29 16:19 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/240745.shtml)
+- 2026-06-29 16:19 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/005205469871.shtml)
+- 2026-06-29 16:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/50876685175.shtml)
+- 2026-06-29 15:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/0748457076.shtml)
+- 2026-06-29 16:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/807092015433.shtml)
+- 2026-06-29 16:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/1223673.shtml)
+- 2026-06-29 16:08 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/8459700431.shtml)
+- 2026-06-29 15:57 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/766953217.shtml)
+- 2026-06-29 16:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/678795.shtml)
+- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/53173194.shtml)
+- 2026-06-29 16:04 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/4755957415.shtml)
