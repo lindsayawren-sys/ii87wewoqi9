@@ -1,60 +1,57 @@
-# 巨灾保险扩容之现实考题：灾害频发、覆盖率不足，何以解困？
+# 虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-来源：中保新知 近期，青海海西州直辖区发生6.3级地震，为保障人民群众生命财产安全，中国地震局启动三级应急响应，各大险企也纷纷第一时间展开快速理赔、救灾救助工作。 事实上，近两年来，我国大陆地区地震活动水平整体有所增强，今年5月份，我国大陆地区发生4.0级以上地震18次。2025年，我国共发生三级以上地震752次，该年最大地震是西藏日喀则市定日县发生的6.8级地震。并且，在全球
+5月12日，虎牙公司(NYSE:HUYA)公布了2026年第一季度财报。财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。其中，游戏相关服务、广告及其他收入同比大增69.4%至6.3亿元，毛利润和毛利率也均实现同比、环比提升。 《鹅鸭杀》验证商业化潜力 高毛利业务占比
 
 ## 正文
 
-来源：中保新知 近期，青海海西州直辖区发生6.3级地震，为保障人民群众生命财产安全，中国地震局启动三级应急响应，各大险企也纷纷第一时间展开快速理赔、救灾救助工作。
+5月12日，虎牙公司(NYSE:HUYA)公布了2026年第一季度财报。
 
-事实上，近两年来，我国大陆地区地震活动水平整体有所增强，今年5月份，我国大陆地区发生4.0级以上地震18次。
+财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。
 
-2025年，我国共发生三级以上地震752次，该年最大地震是西藏日喀则市定日县发生的6.8级地震。
+非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。
 
-并且，在全球极端气候加剧、地质活动周期变化等诸多因素影响下，我国不止地震活动增多，台风、暴雨、洪涝等自然灾害也频繁发生。
+其中，游戏相关服务、广告及其他收入同比大增69.4%至6.3亿元，毛利润和毛利率也均实现同比、环比提升。
 
-在此背景下，作为抵御灾害风险的重要手段，巨灾保险在我国的发展情况也日益受到关注。
+《鹅鸭杀》验证商业化潜力 高毛利业务占比持续扩大 虎牙公司CEO黄俊洪表示：“得益于战略转型的持续深化，虎牙2026年第一季度业绩保持稳健。
 
-中保新知注意到，最近甘肃省综合巨灾保险试点工作正式落地，折射出我国巨灾保险试点步伐加快的趋势。
+值得关注的是，本季度游戏相关服务、广告及其他业务在总收入中的占比再创新高，达到36.3%。
 
-不过，在专业人士看来，我国巨灾保险的覆盖率仍然明显不足，保障缺口较大。
+” 今年第一季度，虎牙继续重点推进全网游戏内容生态布局，为道具售卖、游戏发行、广告等多元业务提供丰沛的增长动能。
 
-那么，在极端天气多发、人民生命财产亟须“守护”的现实痛点下，我国巨灾保障体系该如何进一步完善，保险业又该怎样深度参与其中，发挥好“两器”功能，值得深入思考。
+“以游戏发行业务为例，《鹅鸭杀》在国内市场‘不负众望’，自1月7日上线以来，在一季度的大部分时间位居App Store免费游戏排行榜第一。
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 15:29 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 15:33 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 15:47 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 15:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:43 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 15:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 15:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 15:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 15:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 15:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 15:21 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 15:18 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 15:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 15:35 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 15:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 15:24 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 15:28 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 15:45 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 15:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 15:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 15:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 15:46 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 15:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 15:42 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/942498995.shtml)
-- 2026-06-29 15:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/1340032214.shtml)
-- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/2927935284.shtml)
-- 2026-06-29 15:43 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/75789844.shtml)
-- 2026-06-29 15:23 - [当我回母校教书](https://www.blog.minike.top/Article/details/4531929026.shtml)
-- 2026-06-29 15:18 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/69379.shtml)
-- 2026-06-29 15:37 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/04367648665.shtml)
-- 2026-06-29 15:43 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/14448.shtml)
-- 2026-06-29 15:37 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/1077831.shtml)
-- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/20075886.shtml)
-- 2026-06-29 15:24 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/750624.shtml)
-- 2026-06-29 15:38 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/016925.shtml)
-- 2026-06-29 15:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/38547571394.shtml)
-- 2026-06-29 15:34 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/8970712597.shtml)
-- 2026-06-29 15:40 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/508891401.shtml)
+- 2026-06-29 15:31 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/822695.shtml)
+- 2026-06-29 15:36 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/7727533.shtml)
+- 2026-06-29 15:36 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/733736712049.shtml)
+- 2026-06-29 15:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/25761711.shtml)
+- 2026-06-29 15:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/52151852215.shtml)
+- 2026-06-29 15:40 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/56191.shtml)
+- 2026-06-29 15:34 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/00688.shtml)
+- 2026-06-29 15:45 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/39107091076.shtml)
+- 2026-06-29 15:44 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/39827.shtml)
+- 2026-06-29 15:50 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/97874.shtml)
+- 2026-06-29 15:24 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/845240020.shtml)
+- 2026-06-29 15:45 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/7511999842.shtml)
+- 2026-06-29 15:41 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/832856.shtml)
+- 2026-06-29 15:50 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/9080542032.shtml)
+- 2026-06-29 15:30 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/21272.shtml)

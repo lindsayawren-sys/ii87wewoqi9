@@ -1,46 +1,48 @@
-# 英国首相斯塔默宣布辞职
+# 康特隆：呈请人撤回对附属公司的清盘呈请
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-新华社快讯：英国首相斯塔默宣布辞职。
+康特隆（01912）发布公告，有关对飞环电子有限公司及英浩科技有限公司的呈请，附属公司的法律代表于今日接获法院的短简，说明法院已于2026年5月5日颁发命令，批准撤回呈请。因此，呈请已由呈请人撤回，且于本公告日期概无其他涉及附属公司的法律程序。责任编辑：卢昱君
 
 ## 正文
 
-新华社快讯：英国首相斯塔默宣布辞职。
+康特隆（01912）发布公告，有关对飞环电子有限公司及英浩科技有限公司的呈请，附属公司的法律代表于今日接获法院的短简，说明法院已于2026年5月5日颁发命令，批准撤回呈请。
+
+因此，呈请已由呈请人撤回，且于本公告日期概无其他涉及附属公司的法律程序。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 15:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 15:33 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 15:47 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 15:37 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 15:42 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 15:30 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 15:32 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 15:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 15:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 15:22 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 15:18 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 15:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 15:53 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 15:46 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 15:41 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 15:50 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 15:27 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 15:25 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 15:30 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 15:29 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 15:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 15:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 15:50 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/39776691.shtml)
-- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/05754916769.shtml)
-- 2026-06-29 15:32 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/6521982.shtml)
-- 2026-06-29 15:38 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/844759.shtml)
-- 2026-06-29 15:40 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/934019145596.shtml)
-- 2026-06-29 15:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/60505054755.shtml)
-- 2026-06-29 15:38 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/71604311.shtml)
-- 2026-06-29 15:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/468654846133.shtml)
-- 2026-06-29 15:36 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/728658513312.shtml)
-- 2026-06-29 15:27 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/170787564.shtml)
-- 2026-06-29 15:47 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/99483.shtml)
-- 2026-06-29 15:43 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/616504918.shtml)
-- 2026-06-29 15:22 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/8724636809.shtml)
-- 2026-06-29 15:36 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/315827638.shtml)
-- 2026-06-29 15:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/245090115820.shtml)
+- 2026-06-29 15:38 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/60135002444.shtml)
+- 2026-06-29 15:29 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/97263329551.shtml)
+- 2026-06-29 15:35 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/783093147009.shtml)
+- 2026-06-29 15:33 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/1282991571.shtml)
+- 2026-06-29 15:29 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/35280394513.shtml)
+- 2026-06-29 15:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/206008930590.shtml)
+- 2026-06-29 15:25 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/484246157648.shtml)
+- 2026-06-29 15:35 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/72835.shtml)
+- 2026-06-29 15:40 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/6971550401.shtml)
+- 2026-06-29 15:43 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/695136169.shtml)
+- 2026-06-29 15:26 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/8221161.shtml)
+- 2026-06-29 15:44 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/4013028218.shtml)
+- 2026-06-29 15:41 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/8758785380.shtml)
+- 2026-06-29 15:36 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/4038514.shtml)
+- 2026-06-29 15:40 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/766286569.shtml)

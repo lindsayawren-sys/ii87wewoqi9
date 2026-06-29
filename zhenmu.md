@@ -1,50 +1,58 @@
-# 共享电单车公司Lime据悉拟将优步列为其IPO的基石投资者
+# 澳大利亚一士兵在跳伞训练事故中身亡
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-据知情人士称，电动自行车和滑板车运营商Lime计划在其首次公开募股（IPO）中将网约车巨头优步（Uber）列为基石投资者。 据报道，Lime预计将于本周启动路演，与IPO投资者洽谈，计划以约18亿美元的估值筹集约2亿美元资金。责任编辑：于健 SF069
+中新社悉尼5月12日电(记者 薄雯雯)澳大利亚国防部12日证实，该国一名士兵11日在跳伞训练事故中身亡。 澳大利亚国防部当天发表声明称，特种空勤团(Special Air Service Regiment)二级准尉拉克兰·马德尔(Lachlan Muddle)于11日晚在跳伞训练事故中不幸身亡。国防部对马德尔的离世表示哀悼，并向其家属、朋友及所属部队致以慰问，同时恳请外界在此期
 
 ## 正文
 
-据知情人士称，电动自行车和滑板车运营商Lime计划在其首次公开募股（IPO）中将网约车巨头优步（Uber）列为基石投资者。
+中新社悉尼5月12日电(记者 薄雯雯)澳大利亚国防部12日证实，该国一名士兵11日在跳伞训练事故中身亡。
 
-据报道，Lime预计将于本周启动路演，与IPO投资者洽谈，计划以约18亿美元的估值筹集约2亿美元资金。
+澳大利亚国防部当天发表声明称，特种空勤团(Special Air Service Regiment)二级准尉拉克兰·马德尔(Lachlan Muddle)于11日晚在跳伞训练事故中不幸身亡。
 
-责任编辑：于健 SF069
+国防部对马德尔的离世表示哀悼，并向其家属、朋友及所属部队致以慰问，同时恳请外界在此期间尊重国防人员及其家属的隐私。
+
+声明还称，澳大利亚国防军已暂时中止所有跳伞训练。
+
+据澳大利亚广播公司报道，当地时间11日下午5时40分左右，马德尔在跳伞训练过程中与另一名澳大利亚陆军士兵在空中相撞，随后坠地身亡。
+
+另一名士兵受伤，但无需住院治疗。
+
+澳大利亚总理阿尔巴尼斯12日在社交媒体上发表声明，对马德尔的不幸离世表示哀悼，并祝愿伤者早日康复。
+
+报道称，这是澳大利亚近年来发生的第二起因跳伞训练事故导致士兵死亡的事件。
 
 ## 相关推荐
 
-- 2026-06-29 15:42 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 15:34 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:23 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 15:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 15:37 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 15:33 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 15:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 15:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 15:43 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:40 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 15:34 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 15:28 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 15:40 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 15:47 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 15:25 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 15:45 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 15:24 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 15:32 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 15:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 15:25 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 15:45 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 15:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 15:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 15:48 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 15:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/4791230410.shtml)
-- 2026-06-29 15:31 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/139147.shtml)
-- 2026-06-29 15:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/51426815029.shtml)
-- 2026-06-29 15:28 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/0303746.shtml)
-- 2026-06-29 15:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/76309.shtml)
-- 2026-06-29 15:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/94938.shtml)
-- 2026-06-29 15:40 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/433503.shtml)
-- 2026-06-29 15:34 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/42896.shtml)
-- 2026-06-29 15:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6227455.shtml)
-- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/071960497.shtml)
-- 2026-06-29 15:45 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/6317585.shtml)
-- 2026-06-29 15:20 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/527372.shtml)
-- 2026-06-29 15:36 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/979576029904.shtml)
-- 2026-06-29 15:35 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/5836745.shtml)
-- 2026-06-29 15:36 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/720391935432.shtml)
+- 2026-06-29 15:50 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/4804094852.shtml)
+- 2026-06-29 15:42 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/48279308846.shtml)
+- 2026-06-29 15:24 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/748827658.shtml)
+- 2026-06-29 15:38 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/87624502861.shtml)
+- 2026-06-29 15:44 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/78464491800.shtml)
+- 2026-06-29 15:36 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/80695104462.shtml)
+- 2026-06-29 15:39 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/3851485578.shtml)
+- 2026-06-29 15:34 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/2870774.shtml)
+- 2026-06-29 15:47 - [20年前的周杰伦](https://www.share.minike.top/Article/details/33564.shtml)
+- 2026-06-29 15:29 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/527159486498.shtml)
+- 2026-06-29 15:33 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/89865067.shtml)
+- 2026-06-29 15:47 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/2729201.shtml)
+- 2026-06-29 15:45 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/4485095.shtml)
+- 2026-06-29 15:46 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/14275651.shtml)
+- 2026-06-29 15:26 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/156699297220.shtml)

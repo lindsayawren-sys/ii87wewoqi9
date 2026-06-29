@@ -1,58 +1,52 @@
-# 发掘端午调养身心民俗 中国科技馆举办心理健康主题科普活动
+# 天舟十号货运飞船与空间站组合体完成交会对接
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电 (记者 孙自法)中国科技馆6月22日向媒体通报，在刚刚过去的2026年端午假期，通过深入发掘端午民俗调养身心的文化智慧，“端阳心语·健康同行”心理健康主题科普活动在该馆顺利举办。 活动紧扣“共建共享、全民健康”的健康中国战略主题，整合脑认知科学、航天心理学及人工智能(AI)情绪识别等前沿技术和科研成果，精心打造兼具趣味性、专业性与实用性于一体的心理科普平
+中新网海南文昌5月11日电 (记者马帅莎)据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间5月11日13时11分，成功对接于空间站天和核心舱后向端口。交会对接完成后，天舟十号将转入组合体飞行段。 后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。(完)
 
 ## 正文
 
-中新网北京6月22日电 (记者 孙自法)中国科技馆6月22日向媒体通报，在刚刚过去的2026年端午假期，通过深入发掘端午民俗调养身心的文化智慧，“端阳心语·健康同行”心理健康主题科普活动在该馆顺利举办。
+中新网海南文昌5月11日电 (记者马帅莎)据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间5月11日13时11分，成功对接于空间站天和核心舱后向端口。
 
-活动紧扣“共建共享、全民健康”的健康中国战略主题，整合脑认知科学、航天心理学及人工智能(AI)情绪识别等前沿技术和科研成果，精心打造兼具趣味性、专业性与实用性于一体的心理科普平台。
+交会对接完成后，天舟十号将转入组合体飞行段。
 
-来自中国科学院心理研究所的刘晓倩博士以《神奇的AI读心术》为题，科普解读日常情绪与交流背后的认知机制，并借助互动游戏与可视化设备，带领青少年直观感受自身情绪背后的脑科学基础。
+后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。
 
-北京理工大学心理健康教育与咨询中心主任王晶晶以《从星辰大海到内心宇宙——航天员太空生活的心理健康启示》为题，分享航天员在极端环境下面临的心理挑战及调适方法，并通过模拟游戏，为青少年化解日常焦虑、疏导心理压力提供科学思路。
-
-主题科普活动上，心理咨询师谷志伟结合中医药文化和传统香笼制作，解读背后嗅觉机制。
-
-林思恩博士带来充满科技感的脑电设备和脑控机器人，介绍AI时代学习力提升与亲子沟通新方法。
-
-同时，活动设置多个特色“实践工坊”：“大脑‘折’学”工坊通过互动游戏展示大脑与肢体协调控制的关系；“视错觉”工坊通过视错觉画的制作，揭秘视觉偏差背后隐藏的心理认知规律。
-
-本次端午心理健康主题科普活动，由中国科技馆主办，中国科学院心理研究所、北京理工大学心理健康教育与咨询中心、中国心理学会协办，通过集合学会、高校和科研院所的优质科普资源，为公众提供科学、可行的心理调节技巧和家庭教育新思路。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 15:26 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 15:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 15:19 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 15:22 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 15:25 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 15:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 15:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 15:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 15:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 15:52 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 15:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 15:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 15:27 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 15:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 15:45 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 15:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 15:39 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 15:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 15:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 15:52 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 15:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 15:30 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 15:29 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/36141625.shtml)
-- 2026-06-29 15:18 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/95637944.shtml)
-- 2026-06-29 15:41 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/352513.shtml)
-- 2026-06-29 15:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/3446049476.shtml)
-- 2026-06-29 15:47 - [AG 宫斗](https://www.share.minike.top/Article/details/473454161948.shtml)
-- 2026-06-29 15:31 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/6376567.shtml)
-- 2026-06-29 15:24 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/192403873073.shtml)
-- 2026-06-29 15:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/619114966.shtml)
-- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/84169819847.shtml)
-- 2026-06-29 15:20 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/436773139.shtml)
-- 2026-06-29 15:31 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/849234091883.shtml)
-- 2026-06-29 15:36 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/82397318.shtml)
-- 2026-06-29 15:43 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/9870755172.shtml)
-- 2026-06-29 15:38 - [5万块的威力](https://www.share.minike.top/Article/details/6280472867.shtml)
-- 2026-06-29 15:22 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/45299.shtml)
+- 2026-06-29 15:34 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/65702217029.shtml)
+- 2026-06-29 15:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/72233806685.shtml)
+- 2026-06-29 15:38 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/29353581.shtml)
+- 2026-06-29 15:29 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/018550649.shtml)
+- 2026-06-29 15:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/089331154498.shtml)
+- 2026-06-29 15:29 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/2968708.shtml)
+- 2026-06-29 15:28 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/6448153834.shtml)
+- 2026-06-29 15:35 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/506344992.shtml)
+- 2026-06-29 15:33 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/911745.shtml)
+- 2026-06-29 15:36 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/973765530862.shtml)
+- 2026-06-29 15:44 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/083415.shtml)
+- 2026-06-29 15:43 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/5447460.shtml)
+- 2026-06-29 15:33 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/16278.shtml)
+- 2026-06-29 15:41 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/3511381.shtml)
+- 2026-06-29 15:38 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/550259963449.shtml)

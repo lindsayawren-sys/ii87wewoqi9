@@ -1,50 +1,58 @@
-# 霍启刚：需警惕运动员遭遇网暴
+# 知名基金经理，最新调仓
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 15:32 来源：中国新闻网 香港特别行政区立法会议员霍启刚23日在夏季达沃斯论坛上表示，运动员直接和粉丝、观众对话固然好，但是不管什么工具，往往都是一把双刃剑。我们看到运动员遭遇网暴的情况，必须清楚意识这一点并引起警惕。社交媒体有时会出现吞噬性的影响，要注意这种现象的存在，帮助运动员健康成长。(李京泽 李雪飞） 责任编辑：【李光伟】
+近日，力源信息、乖宝宠物、小熊电器、新宝股份等多家A股上市公司，因回购等事项披露了最新的前十大股东情况。任桀、周云、张璐等多位知名基金经理的调仓操作，随之浮出水面。 基金经理最新调仓浮现 力源信息5月11日发布公告，截至5月8日，基金经理任桀管理的永赢科技智选混合现身力源信息前十大流通股股东之列，持股量932.49万股，期末参考市值超1.3亿元。而记者在永赢科技智选混合的202
 
 ## 正文
 
-发布时间：2026年06月23日 15:32 来源：中国新闻网 香港特别行政区立法会议员霍启刚23日在夏季达沃斯论坛上表示，运动员直接和粉丝、观众对话固然好，但是不管什么工具，往往都是一把双刃剑。
+近日，力源信息、乖宝宠物、小熊电器、新宝股份等多家A股上市公司，因回购等事项披露了最新的前十大股东情况。
 
-我们看到运动员遭遇网暴的情况，必须清楚意识这一点并引起警惕。
+任桀、周云、张璐等多位知名基金经理的调仓操作，随之浮出水面。
 
-社交媒体有时会出现吞噬性的影响，要注意这种现象的存在，帮助运动员健康成长。
+基金经理最新调仓浮现 力源信息5月11日发布公告，截至5月8日，基金经理任桀管理的永赢科技智选混合现身力源信息前十大流通股股东之列，持股量932.49万股，期末参考市值超1.3亿元。
 
-(李京泽 李雪飞） 责任编辑：【李光伟】
+而记者在永赢科技智选混合的2025年年报和2026年一季报中未找到力源信息的重仓信息，力源信息一季度末披露的前十大流通股股东中也未出现永赢科技智选混合的名字。
+
+这意味着，任桀或许在一季度结束后逐步加仓。
+
+4月以来，力源信息迎来了一波上涨行情。
+
+4月1日，力源信息收报11.06元/股；5月12日，力源信息收报14.62元/股，股价区间涨幅超35%。
+
+值得一提的是，永赢科技智选混合在2025年以233%的年度回报率成为当年的主动权益基金冠军。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 15:26 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 15:32 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 15:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 15:39 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 15:37 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 15:18 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:44 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 15:42 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 15:27 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 15:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 15:50 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 15:24 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:53 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 15:33 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 15:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 15:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 15:30 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:47 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 15:41 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 15:33 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:53 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 15:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2901242489.shtml)
-- 2026-06-29 15:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/60848476.shtml)
-- 2026-06-29 15:34 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/58488.shtml)
-- 2026-06-29 15:34 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/626757981.shtml)
-- 2026-06-29 15:42 - [明星大侦探第一季](https://www.share.minike.top/Article/details/381541157578.shtml)
-- 2026-06-29 15:20 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/1706413.shtml)
-- 2026-06-29 15:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/31182918000.shtml)
-- 2026-06-29 15:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/795650.shtml)
-- 2026-06-29 15:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/59904617.shtml)
-- 2026-06-29 15:42 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/07815250138.shtml)
-- 2026-06-29 15:27 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/85101590813.shtml)
-- 2026-06-29 15:35 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/106863506233.shtml)
-- 2026-06-29 15:41 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/154664738.shtml)
-- 2026-06-29 15:20 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/508881043871.shtml)
-- 2026-06-29 15:29 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/515470.shtml)
+- 2026-06-29 15:53 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/4232482.shtml)
+- 2026-06-29 15:27 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/5102618663.shtml)
+- 2026-06-29 15:39 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/3721148.shtml)
+- 2026-06-29 15:37 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/4630828.shtml)
+- 2026-06-29 15:51 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/75306643914.shtml)
+- 2026-06-29 15:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/262057.shtml)
+- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/587933.shtml)
+- 2026-06-29 15:27 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/91662.shtml)
+- 2026-06-29 15:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/693544969.shtml)
+- 2026-06-29 15:42 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/244926799.shtml)
+- 2026-06-29 15:29 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/911259062284.shtml)
+- 2026-06-29 15:35 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/160593293478.shtml)
+- 2026-06-29 15:37 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/346497627196.shtml)
+- 2026-06-29 15:35 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/83379147.shtml)
+- 2026-06-29 15:49 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/30964785349.shtml)

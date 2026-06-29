@@ -1,52 +1,58 @@
-# 西藏边检总站执法调查支队开展国际禁毒日宣传活动
+# Cerebras上调IPO发行区间，目标融资额高达48亿美元
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网拉萨6月23日电 (徐锡万)22日，在第39个“6·26”国际禁毒日即将到来之际，西藏边检总站执法调查支队统筹部署、多点联动，组织警力分别在拉萨市区、阿里地区普兰县以及日喀则市仲巴县、吉隆县、聂拉木县、定日县、亚东县同步开展禁毒集中宣传活动。 宣传现场，民警通过展示常见毒品图册、悬挂禁毒宣传横幅、现场以案释法、面对面答疑解惑等多种形式，生动讲解传统毒品、新型合成毒品、伪装
+人工智能芯片制造商Cerebras Systems已上调其首次公开募股的预估价格区间。根据周一的一份文件，公司目前预计每股售价在150至160美元之间，高于上周披露的115至125美元区间。 若按新区间的上限计算，Cerebras将通过此次IPO募资高达48亿美元。按fully diluted（完全稀释后）口径计算，公司估值最高可达488亿美元，这高于公司2月份在一轮融资中宣布
 
 ## 正文
 
-中新网拉萨6月23日电 (徐锡万)22日，在第39个“6·26”国际禁毒日即将到来之际，西藏边检总站执法调查支队统筹部署、多点联动，组织警力分别在拉萨市区、阿里地区普兰县以及日喀则市仲巴县、吉隆县、聂拉木县、定日县、亚东县同步开展禁毒集中宣传活动。
+人工智能芯片制造商Cerebras Systems已上调其首次公开募股的预估价格区间。
 
-宣传现场，民警通过展示常见毒品图册、悬挂禁毒宣传横幅、现场以案释法、面对面答疑解惑等多种形式，生动讲解传统毒品、新型合成毒品、伪装式新型毒品的外观特征、成瘾危害、辨别方法。
+根据周一的一份文件，公司目前预计每股售价在150至160美元之间，高于上周披露的115至125美元区间。
 
-并呼吁广大民众自觉抵制各类毒品侵害，积极检举揭发跨境贩毒、非法运毒、藏匿毒品等涉毒违法线索。
+若按新区间的上限计算，Cerebras将通过此次IPO募资高达48亿美元。
 
-此次活动共累计发放宣传资料500余份，接受民众咨询百余次，有效提升了辖区民众识毒、防毒、拒毒意识和法治素养。
+按fully diluted（完全稀释后）口径计算，公司估值最高可达488亿美元，这高于公司2月份在一轮融资中宣布的230亿美元估值。
 
-(完)
+在希望训练和运行生成式人工智能模型（如为OpenAI的ChatGPT提供动力的模型）的公司中，英伟达的图形处理器（GPU）一直是行业标准。
+
+Cerebras声称其芯片比GPU运行速度更快且成本更低。
+
+Cerebras所宣传的高速度帮助公司获得了来自OpenAI超过200亿美元的承诺——OpenAI依赖Cerebras的芯片来运行一个用于编写代码的模型。
+
+Cerebras并未主要专注于销售硬件，而是一直在用自家芯片填充数据中心，并向客户提供云服务。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 15:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 15:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 15:22 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 15:38 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 15:39 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 15:40 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 15:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 15:24 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 15:38 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 15:39 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 15:38 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 15:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 15:50 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 15:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 15:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 15:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 15:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 15:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 15:40 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 15:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 15:38 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 15:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/761336732.shtml)
-- 2026-06-29 15:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/32705279211.shtml)
-- 2026-06-29 15:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/5805845449.shtml)
-- 2026-06-29 15:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/5049932.shtml)
-- 2026-06-29 15:41 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/555301028.shtml)
-- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/10697.shtml)
-- 2026-06-29 15:30 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/478673766412.shtml)
-- 2026-06-29 15:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/0118433525.shtml)
-- 2026-06-29 15:22 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/383709919.shtml)
-- 2026-06-29 15:40 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/240530797.shtml)
-- 2026-06-29 15:23 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/140116254801.shtml)
-- 2026-06-29 15:34 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/4370429.shtml)
-- 2026-06-29 15:25 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/02562490361.shtml)
-- 2026-06-29 15:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/11401246.shtml)
-- 2026-06-29 15:23 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/124831748890.shtml)
+- 2026-06-29 15:46 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/317286169572.shtml)
+- 2026-06-29 15:32 - [斛珠夫人](http://www.share.minike.top/Article/details/655681.shtml)
+- 2026-06-29 15:31 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/970508.shtml)
+- 2026-06-29 15:29 - [我和我的家乡](http://www.blog.minike.top/Article/details/818918409.shtml)
+- 2026-06-29 15:26 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/1749388134.shtml)
+- 2026-06-29 15:41 - [时光音乐会](http://www.share.minike.top/Article/details/1006483617.shtml)
+- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/50737.shtml)
+- 2026-06-29 15:29 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/860997830.shtml)
+- 2026-06-29 15:38 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/950261.shtml)
+- 2026-06-29 15:49 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/014551.shtml)
+- 2026-06-29 15:32 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/742864443.shtml)
+- 2026-06-29 15:45 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/2285909491.shtml)
+- 2026-06-29 15:49 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/8148491.shtml)
+- 2026-06-29 15:27 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/37582914315.shtml)
+- 2026-06-29 15:29 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/4386653.shtml)

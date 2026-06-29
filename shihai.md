@@ -1,58 +1,58 @@
-# 探访海南陵水分界洲岛：畅享一片蔚蓝
+# 美股三大指数集体收涨，纳指、标普500指数续创新高，芯片股多数上涨
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是
+中新经纬5月12日电 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。 来源：Wind 盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.59%，苹果跌0.13%，特斯拉涨近4%，英伟达涨近2
 
 ## 正文
 
-美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象？
+中新经纬5月12日电 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+来源：Wind 盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.59%，苹果跌0.13%，特斯拉涨近4%，英伟达涨近2%。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
+银行股多数下跌，富国银行跌超2%，摩根士丹利、美国银行跌逾1%，摩根大通跌0.71%，高盛涨近1%，花旗涨0.28%。
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+航空股普遍下跌，美国航空跌超4%，西南航空跌超3%，达美航空、美联航跌近3%，波音涨0.35%。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+芯片股多数上涨，高通涨超8%，美光科技涨逾6%，恩智浦半导体涨近4%，英特尔涨超3%，超威半导体涨0.79%，台积电、阿斯麦跌逾1%。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+能源股集体上涨，西方石油、埃克森美孚、斯伦贝谢涨逾3%，康菲石油涨超2%，雪佛龙涨逾1%。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+中概股多数上涨，纳斯达克中国金龙指数涨1.03%。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:29 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 15:46 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 15:43 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 15:38 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 15:22 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 15:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 15:31 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 15:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 15:33 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 15:42 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 15:34 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 15:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 15:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 15:36 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 15:36 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 15:50 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 15:40 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 15:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 15:39 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 15:38 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 15:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 15:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 15:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [小娘惹](http://www.share.minike.top/Article/details/65974.shtml)
-- 2026-06-29 15:20 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/19302299459.shtml)
-- 2026-06-29 15:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/60590831684.shtml)
-- 2026-06-29 15:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/163074240.shtml)
-- 2026-06-29 15:42 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/53322854.shtml)
-- 2026-06-29 15:39 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/07424172.shtml)
-- 2026-06-29 15:23 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/24787.shtml)
-- 2026-06-29 15:40 - [T1 KC](https://www.share.kurohicncr.top/Article/details/108891.shtml)
-- 2026-06-29 15:29 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/6444451.shtml)
-- 2026-06-29 15:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/309247168108.shtml)
-- 2026-06-29 15:31 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/932242731359.shtml)
-- 2026-06-29 15:37 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/815448458825.shtml)
-- 2026-06-29 15:39 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/57399854.shtml)
-- 2026-06-29 15:35 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/363194.shtml)
-- 2026-06-29 15:30 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/73722829.shtml)
+- 2026-06-29 15:40 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/6929848111.shtml)
+- 2026-06-29 15:34 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/5232373.shtml)
+- 2026-06-29 15:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/8407151148.shtml)
+- 2026-06-29 15:42 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/24044282.shtml)
+- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/72637.shtml)
+- 2026-06-29 15:47 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/036460.shtml)
+- 2026-06-29 15:36 - [毒液2](https://www.blog.kurohicncr.top/Article/details/9140161766.shtml)
+- 2026-06-29 15:26 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/52269442.shtml)
+- 2026-06-29 15:24 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/4330644463.shtml)
+- 2026-06-29 15:31 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/48189020.shtml)
+- 2026-06-29 15:45 - [灿如繁星定档](https://www.share.minike.top/Article/details/76391594.shtml)
+- 2026-06-29 15:44 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/063309.shtml)
+- 2026-06-29 15:51 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/965445518.shtml)
+- 2026-06-29 15:29 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/04707935.shtml)
+- 2026-06-29 15:49 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/035852074082.shtml)

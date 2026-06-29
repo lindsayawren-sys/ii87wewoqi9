@@ -1,56 +1,56 @@
-# 资管大佬：美国财政债务是核心支撑，黄金长牛根基仍在
+# Autodesk股价上涨 美银美林给予买入评级 称其在人工智能领域具有优势
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。 沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日
+设计软件公司欧特克（Autodesk）的股价上涨1.1%，报238.69美元。 美银全球研究重启覆盖，给予“买入”评级；目标价定为300美元，较该股上一交易日收盘价有23.1%的上行空间。 美银指出ADSK的“数据、3D场景以及长达十年的AI投资，赋予其难以复制的结构性优势”。 该券商表示，公司拥有“对几何和装配逻辑的深刻情境理解，这是公开网络上无法获得的”，这使ADSK相对于
 
 ## 正文
 
-汇通财经APP讯——市场普遍担忧新任美联储主席抗通胀政策会打压黄金，但默克投资创始人阿克塞尔·默克（Axel Merk）提出截然不同的判断。
+设计软件公司欧特克（Autodesk）的股价上涨1.1%，报238.69美元。
 
-他认为沃什偏鹰举措仅会带来短期金价扰动，长期反而稳定市场波动，美国债务高企、持续财政赤字等结构性问题，才是支撑黄金牛市的底层逻辑，投资者不应单纯以利率涨跌判断黄金价值。
+美银全球研究重启覆盖，给予“买入”评级；目标价定为300美元，较该股上一交易日收盘价有23.1%的上行空间。
 
-沃什偏鹰表态短期压制金价，改革举措降低市场剧烈波动 上周三（6月17日），凯文·沃什（Kevin Warsh）完成就任美联储主席后的首场新闻发布会，全程将稳定物价、遏制通胀作为政策核心，强硬措辞令市场大幅上调加息预期，金价随之迎来短期回调。
+美银指出ADSK的“数据、3D场景以及长达十年的AI投资，赋予其难以复制的结构性优势”。
 
-阿克塞尔·默克表示，单纯从利率维度看，偏鹰政策确实会形成阶段性利空，但沃什推行的制度改革具备长远利好。
+该券商表示，公司拥有“对几何和装配逻辑的深刻情境理解，这是公开网络上无法获得的”，这使ADSK相对于通用AI模型更具优势。
 
-他取消过度前瞻指引、弱化点阵图预期引导，减少央行频繁干预市场的行为，避免过往政策信号混乱带来的大幅行情震荡。
+33位分析师的平均评级为“买入”，其目标价中位数为327.50美元。
 
-他说：“美联储过往政策调整总是滞后，容易放大市场冲击，减少政策预判类沟通，能够规避重大决策失误，整体降低资产波动率。
+该股今年以来累计下跌19.4%。
 
-”在他看来，稳定的市场环境更利于黄金走出持续性行情。
-
-利率机会成本逻辑存在局限，黄金核心价值在于购买力保值 行业主流观点认为，美债收益率走高会抬升无息黄金的持有成本，进而压制金价，但默克对这套单一逻辑提出质疑。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 15:23 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 15:43 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 15:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 15:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 15:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 15:42 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 15:46 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 15:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 15:49 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 15:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 15:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 15:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 15:36 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 15:26 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 15:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 15:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 15:47 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 15:48 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/74756.shtml)
-- 2026-06-29 15:23 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/93321162.shtml)
-- 2026-06-29 15:23 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/10654.shtml)
-- 2026-06-29 15:24 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/27732483235.shtml)
-- 2026-06-29 15:19 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/75518.shtml)
-- 2026-06-29 15:25 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/4407922596.shtml)
-- 2026-06-29 15:37 - [金牌调解](http://www.blog.minike.top/Article/details/68427.shtml)
-- 2026-06-29 15:32 - [千与千寻](http://www.share.minike.top/Article/details/63402.shtml)
-- 2026-06-29 15:19 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/2056998047.shtml)
-- 2026-06-29 15:33 - [扬名立万](https://www.share.minike.top/Article/details/4607175.shtml)
-- 2026-06-29 15:34 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/608010.shtml)
-- 2026-06-29 15:38 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/4494998.shtml)
-- 2026-06-29 15:33 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/79218512179.shtml)
-- 2026-06-29 15:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/5542625662.shtml)
-- 2026-06-29 15:43 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/4078617.shtml)
+- 2026-06-29 15:24 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/46195817966.shtml)
+- 2026-06-29 15:50 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/78014208966.shtml)
+- 2026-06-29 15:26 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/52136714915.shtml)
+- 2026-06-29 15:40 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/603689251446.shtml)
+- 2026-06-29 15:45 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/8908045.shtml)
+- 2026-06-29 15:41 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/47974225.shtml)
+- 2026-06-29 15:48 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/81987752930.shtml)
+- 2026-06-29 15:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/16897646219.shtml)
+- 2026-06-29 15:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/024684.shtml)
+- 2026-06-29 15:51 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/0512877343.shtml)
+- 2026-06-29 15:48 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/73639074716.shtml)
+- 2026-06-29 15:39 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/8282122.shtml)
+- 2026-06-29 15:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/32335477120.shtml)
+- 2026-06-29 15:53 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/3233237.shtml)
+- 2026-06-29 15:34 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/167521.shtml)

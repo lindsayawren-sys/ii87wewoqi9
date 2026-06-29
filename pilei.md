@@ -1,61 +1,57 @@
-# 东风-17发射状态首次公开！多车齐射场面硬核
+# 王祥基：将力邀张凌赫、刘宇宁等大陆艺人赴台交流
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-这是火箭军某野外训练场，数枚新型导弹正在起竖。从火力突击的过程中可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。 官兵们表示，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。 装备的迭代升级，本质是科技实力的硬核落地。近年来，东风-17、东风-26D、东风-31、东风-61
+发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会
 
 ## 正文
 
-这是火箭军某野外训练场，数枚新型导弹正在起竖。
+发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。
 
-从火力突击的过程中可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。
+台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。
 
-官兵们表示，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。
+他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会风貌的重要窗口，两岸民众也能借此看清彼此差异、互相借鉴学习，在潜移默化中增进理解与认同。
 
-装备的迭代升级，本质是科技实力的硬核落地。
+王祥基举例称，张凌赫、刘宇宁等大陆艺人在台湾人气极高，相关动态一经传出便备受民众关注追捧，大陆艺人身上深厚的文化底蕴也值得台湾演艺界学习。
 
-近年来，东风-17、东风-26D、东风-31、东风-61等一大批我国自主研发的新型主战装备列装、常态参训。
+他透露，协会今年将持续发力推动两岸文化交流，力邀大陆高人气知名艺人赴台开展演出、合作座谈、签名会等活动。
 
-专家解读：多车齐射对阵地安全、打击效果作用至关重要在东风-17实战化演练的画面当中，我们还看到了有多辆导弹发射车在公路上一字排开、导弹起竖、多车齐射的场景，这实战中会体现出什么优势？
+据他介绍，协会此前已在台北小巨蛋、大巨蛋等地成功举办四五十场两岸大型演艺交流活动，收获了扎实的交流成果，未来也将继续深耕两岸演艺文化融合事业。
 
-军事评论员杜文龙表示，公路发射只是视频中展示出的一种样式，依托公路尽快发射是重点。
-
-只要能够展开发射车，就可以完成起竖发射等动作。
+记者 范思忆 北京报道 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 15:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 15:42 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 15:22 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 15:27 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 15:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 15:22 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 15:42 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 15:44 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 15:47 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 15:40 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 15:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 15:29 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 15:23 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 15:36 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 15:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 15:42 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 15:41 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 15:24 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 15:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 15:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 15:42 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 15:46 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 15:26 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 15:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 15:48 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/2732499026.shtml)
-- 2026-06-29 15:45 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/366422910.shtml)
-- 2026-06-29 15:21 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/74103548.shtml)
-- 2026-06-29 15:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/1540560684.shtml)
-- 2026-06-29 15:25 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/439688.shtml)
-- 2026-06-29 15:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/0060011.shtml)
-- 2026-06-29 15:44 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/88841946289.shtml)
-- 2026-06-29 15:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/35238.shtml)
-- 2026-06-29 15:23 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/34515626.shtml)
-- 2026-06-29 15:29 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/44844.shtml)
-- 2026-06-29 15:42 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/863811.shtml)
-- 2026-06-29 15:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/993911833511.shtml)
-- 2026-06-29 15:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/14863965488.shtml)
-- 2026-06-29 15:46 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/0914335655.shtml)
-- 2026-06-29 15:40 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/25200.shtml)
+- 2026-06-29 15:52 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/590237864880.shtml)
+- 2026-06-29 15:53 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/865354783707.shtml)
+- 2026-06-29 15:24 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/1618000211.shtml)
+- 2026-06-29 15:26 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/5771114.shtml)
+- 2026-06-29 15:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/9466177710.shtml)
+- 2026-06-29 15:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/33885228.shtml)
+- 2026-06-29 15:32 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/62879.shtml)
+- 2026-06-29 15:37 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/530888438240.shtml)
+- 2026-06-29 15:46 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/07400112920.shtml)
+- 2026-06-29 15:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/5149906.shtml)
+- 2026-06-29 15:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/74616801165.shtml)
+- 2026-06-29 15:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/052431892.shtml)
+- 2026-06-29 15:38 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/9485967.shtml)
+- 2026-06-29 15:43 - [斗破苍穹](http://www.share.minike.top/Article/details/10851.shtml)
+- 2026-06-29 15:45 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/87984.shtml)

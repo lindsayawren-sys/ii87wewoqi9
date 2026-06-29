@@ -1,58 +1,60 @@
-# 青海大柴旦震区帐篷中考开考 多方守护80名考生
+# 吉林省从四个维度精准发力 建设现代化产业体系
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 20:34 来源：中国新闻网 6月21日，青海海西大柴旦震后第六天，当地80名初三考生迎来特殊的帐篷中考。受地震影响校舍无法使用，操场临时搭建标准化帐篷考场如期开考。 公安、消防、教育等多部门提前统筹，划分考试、医疗、应急等功能区域，民警细致排查帐篷、桌椅安全隐患，全程闭环押运试卷、静音巡逻维护考场安静。考生统一入住安置帐篷，民警帮忙铺好被褥，
+中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。 具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物
 
 ## 正文
 
-发布时间：2026年06月21日 20:34 来源：中国新闻网 6月21日，青海海西大柴旦震后第六天，当地80名初三考生迎来特殊的帐篷中考。
+中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。
 
-受地震影响校舍无法使用，操场临时搭建标准化帐篷考场如期开考。
+具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物制造、低空经济、轻工纺织6个百亿元级产业。
 
-公安、消防、教育等多部门提前统筹，划分考试、医疗、应急等功能区域，民警细致排查帐篷、桌椅安全隐患，全程闭环押运试卷、静音巡逻维护考场安静。
+12日，吉林省政府新闻办在长春召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，李平就构建吉林特色现代化产业体系相关情况作介绍。
 
-考生统一入住安置帐篷，民警帮忙铺好被褥，教师驻点辅导，生活人员全程照料。
+李平表示，围绕建设现代化产业体系，该省重点从传统产业、新兴产业、未来产业、现代服务业四个维度精准发力。
 
-考生有序安检入场，在帐篷内静心答题。
+传统产业是现代化产业体系根基，要运用绿色技术、数智技术促进转型升级。
 
-场外公安民辅警坚守值守，兼顾安全保障与暖心服务。
+据悉，吉林省瞄准汽车产业智能化、网联化、电动化方向，支持整车企业扩大新能源汽车产能，聚力打造世界先进水平智能网联新能源汽车产业基地。
 
-简易帐篷隔绝风雨，各方细致守护，让学子安心执笔奔赴考场。
+同时，做实做深“粮头食尾”“畜头肉尾”“农头工尾”全产业链，延伸加工链条，向精深加工、高附加值环节迈进，建设全国重要农产品精深加工基地。
 
-(孙睿 制作 王佳琪 视频来源 海西州融媒 海西公安 大柴旦公安） 责任编辑：【李季】
+“新兴产业是吉林省振兴发展的增长极，要加快培育壮大，推动技术和产品迭代，稳步做优增量。
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 15:42 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 15:31 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 15:40 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 15:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 15:25 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 15:43 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 15:28 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 15:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 15:24 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 15:45 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 15:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 15:30 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 15:46 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 15:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:32 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 15:49 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 15:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 15:33 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 15:36 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 15:50 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 15:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 15:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 15:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 15:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/0025459812.shtml)
-- 2026-06-29 15:39 - [流金岁月](http://www.share.kurohicncr.top/Article/details/295200.shtml)
-- 2026-06-29 15:29 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/7009159248.shtml)
-- 2026-06-29 15:20 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/83754.shtml)
-- 2026-06-29 15:42 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/570849375.shtml)
-- 2026-06-29 15:43 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/638937256.shtml)
-- 2026-06-29 15:36 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/55274900.shtml)
-- 2026-06-29 15:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/3794601497.shtml)
-- 2026-06-29 15:23 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/27860.shtml)
-- 2026-06-29 15:35 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/382612094898.shtml)
-- 2026-06-29 15:28 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/0418539.shtml)
-- 2026-06-29 15:34 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/552979.shtml)
-- 2026-06-29 15:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/484673963.shtml)
-- 2026-06-29 15:45 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/972040721.shtml)
-- 2026-06-29 15:18 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/74623.shtml)
+- 2026-06-29 15:41 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/97616.shtml)
+- 2026-06-29 15:37 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/1773530837.shtml)
+- 2026-06-29 15:53 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/393955713259.shtml)
+- 2026-06-29 15:41 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/5079861884.shtml)
+- 2026-06-29 15:32 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/78137808572.shtml)
+- 2026-06-29 15:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/28890750980.shtml)
+- 2026-06-29 15:34 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/942365.shtml)
+- 2026-06-29 15:42 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/956216497.shtml)
+- 2026-06-29 15:28 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/91767.shtml)
+- 2026-06-29 15:52 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/5160208062.shtml)
+- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/4597563.shtml)
+- 2026-06-29 15:26 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/77895560112.shtml)
+- 2026-06-29 15:36 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/96097.shtml)
+- 2026-06-29 15:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9562326.shtml)
+- 2026-06-29 15:40 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/11416.shtml)

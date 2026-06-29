@@ -1,61 +1,58 @@
-# 今日，2只新股申购！“高中签率”新股来了
+# 英国国债与英镑下滑，斯塔默为政治生存而战
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-本周两只新股均在今日（6月22日）申购。 根据发行安排，本周（6月22日—6月26日），A股市场将有2只新股申购，为北交所的益坤电气和深市主板的华润新能源，两股均将于本周一（6月22日）开启申购。 资料显示，华润新能源是国内新能源发电龙头企业；益坤电气是绝缘及电压保护领域“小巨人”企业，公司是中国中车、国铁集团、中国中铁等轨道交通龙头企业长期合作供应商。 具体来看，华润新能源的
+由于基尔·斯塔默领导地位的政治不确定性可能使英国财政状况复杂化，英国国债收益率攀升，英镑走软。 英国30年期国债收益率升至5.63%，上涨5个基点，而英镑兑美元下跌0.14%至1.3608美元。此前，基尔·斯塔默领导的政府上周遭遇了一系列选举失利，工党在英格兰失去了超过1000个议会席位，在苏格兰排名第二，在威尔士排名第三。工党在全国的得票率降至17%。 英国国债和英镑的下跌反
 
 ## 正文
 
-本周两只新股均在今日（6月22日）申购。
+由于基尔·斯塔默领导地位的政治不确定性可能使英国财政状况复杂化，英国国债收益率攀升，英镑走软。
 
-根据发行安排，本周（6月22日—6月26日），A股市场将有2只新股申购，为北交所的益坤电气和深市主板的华润新能源，两股均将于本周一（6月22日）开启申购。
+英国30年期国债收益率升至5.63%，上涨5个基点，而英镑兑美元下跌0.14%至1.3608美元。
 
-资料显示，华润新能源是国内新能源发电龙头企业；益坤电气是绝缘及电压保护领域“小巨人”企业，公司是中国中车、国铁集团、中国中铁等轨道交通龙头企业长期合作供应商。
+此前，基尔·斯塔默领导的政府上周遭遇了一系列选举失利，工党在英格兰失去了超过1000个议会席位，在苏格兰排名第二，在威尔士排名第三。
 
-具体来看，华润新能源的发行价为10.11元/股，单一账户申购上限为63.2万股，顶格申购需持深市市值632万元。
+工党在全国的得票率降至17%。
 
-值得注意的是，华润新能源此次IPO计划募集资金245亿元，为深市史上最大规模IPO。
+英国国债和英镑的下跌反映出投资者的担忧，即旷日持久的领导层之争可能使英国的财政状况复杂化。
 
-华润新能源本次公开发行数量为21.07亿股，占发行后总股本的16.20%（超额配售选择权行使前）。
+借贷成本已然高企，而油价又加剧了通胀压力。
 
-同时，授予中金公司不超过初始发行规模15%的超额配售选择权，若超额配售选择权全额行使，则发行总股数将扩大至24.23亿股。
+超过40名工党议员公开呼吁斯塔默下台。
 
-公司拟发行股份总数、网上发行股份数量，分别位列2026年以来沪深两市新股第一和第二位。
+安吉拉·雷纳和安迪·伯纳姆均被视为潜在的继任者，尽管两人都尚未正式宣布参选。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 15:35 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:43 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 15:35 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 15:34 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 15:24 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 15:33 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 15:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 15:41 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 15:25 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 15:25 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 15:43 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 15:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 15:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 15:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 15:30 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 15:42 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 15:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 15:45 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 15:41 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 15:49 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 15:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 15:24 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 15:41 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 15:24 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 15:47 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 15:47 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/725674680870.shtml)
-- 2026-06-29 15:32 - [周生如故](http://www.share.minike.top/Article/details/400507.shtml)
-- 2026-06-29 15:43 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/2493217.shtml)
-- 2026-06-29 15:29 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/79164770.shtml)
-- 2026-06-29 15:38 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/42263.shtml)
-- 2026-06-29 15:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/738970.shtml)
-- 2026-06-29 15:44 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/061588847718.shtml)
-- 2026-06-29 15:24 - [第一炉香](https://www.blog.minike.top/Article/details/1737489.shtml)
-- 2026-06-29 15:32 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/9416726599.shtml)
-- 2026-06-29 15:38 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/82237.shtml)
-- 2026-06-29 15:25 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/5432329224.shtml)
-- 2026-06-29 15:22 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/55936618.shtml)
-- 2026-06-29 15:45 - [极限挑战第一季](https://www.share.minike.top/Article/details/165012407.shtml)
-- 2026-06-29 15:37 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/08076.shtml)
-- 2026-06-29 15:19 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/924278.shtml)
+- 2026-06-29 15:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/034772004503.shtml)
+- 2026-06-29 15:25 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/02516863296.shtml)
+- 2026-06-29 15:26 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/621865865.shtml)
+- 2026-06-29 15:48 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/187481476196.shtml)
+- 2026-06-29 15:34 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/226327.shtml)
+- 2026-06-29 15:38 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/16529181.shtml)
+- 2026-06-29 15:47 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/01063757.shtml)
+- 2026-06-29 15:25 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/4454926.shtml)
+- 2026-06-29 15:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/34143.shtml)
+- 2026-06-29 15:28 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/363969275794.shtml)
+- 2026-06-29 15:42 - [周生如故](https://www.share.minike.top/Article/details/5849093.shtml)
+- 2026-06-29 15:32 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/0221242250.shtml)
+- 2026-06-29 15:38 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/0684833980.shtml)
+- 2026-06-29 15:32 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/863321533788.shtml)
+- 2026-06-29 15:41 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/37038989928.shtml)

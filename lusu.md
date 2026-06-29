@@ -1,44 +1,57 @@
-# 木林森：公司主要的业务、技术布局及经营规划均已在定期报告中披露
+# 鉴于人工智能存在重大风险，德国金融监管机构将开展针对性检查
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月22日，木林森在互动平台回答投资者提问时表示，公司主要的业务、技术布局及经营规划，均已在定期报告中披露，请以报告内容为准。
+德国联邦金融监管局（BaFin）周二警告称，受人工智能技术发展影响，网络安全风险持续加剧且已达到重大级别，并宣布将成立新部门，对金融机构开展定向专项检查。 安索帕（Anthropic）推出 Mythos 大模型后，全球银行业纷纷争相接入并测试这项技术；与此同时，各国监管机构正加紧评估这款全新人工智能模型带来的网络安全风险，以及金融机构应对相关风险的准备情况。 德国联邦金融监管局
 
 ## 正文
 
-证券日报网讯6月22日，木林森在互动平台回答投资者提问时表示，公司主要的业务、技术布局及经营规划，均已在定期报告中披露，请以报告内容为准。
+德国联邦金融监管局（BaFin）周二警告称，受人工智能技术发展影响，网络安全风险持续加剧且已达到重大级别，并宣布将成立新部门，对金融机构开展定向专项检查。
+
+安索帕（Anthropic）推出 Mythos 大模型后，全球银行业纷纷争相接入并测试这项技术；与此同时，各国监管机构正加紧评估这款全新人工智能模型带来的网络安全风险，以及金融机构应对相关风险的准备情况。
+
+德国联邦金融监管局局长马克・布兰森表示：“这类新型人工智能模型能够以惊人的速度识别新旧信息技术系统中的大量安全漏洞。
+
+” “而且它们利用所发现漏洞实施攻击的速度也会越来越快。
+
+” 布兰森指出，金融业完全有能力加大网络安全投入，并将其称作紧迫且必要的投资。
+
+网络安全专家认为，Mythos 对银行业及其老旧存量技术系统构成严峻挑战，也已引发多国监管机构与政策制定者接连发出风险警示。
+
+目前已有多家美国银行获准接入 Mythos 模型。
+
+布兰森透露，监管局将设立全新部门，专门对各类金融机构开展针对性巡检。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 15:23 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 15:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:29 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 15:36 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 15:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 15:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:24 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 15:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 15:21 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 15:25 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 15:47 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 15:47 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 15:51 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 15:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 15:40 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 15:31 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 15:40 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 15:53 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 15:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 15:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 15:51 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/17292.shtml)
-- 2026-06-29 15:28 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/47235906853.shtml)
-- 2026-06-29 15:46 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/8950509063.shtml)
-- 2026-06-29 15:18 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/42579.shtml)
-- 2026-06-29 15:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4166073112.shtml)
-- 2026-06-29 15:42 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/69841256082.shtml)
-- 2026-06-29 15:45 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/07241915.shtml)
-- 2026-06-29 15:37 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/2773907.shtml)
-- 2026-06-29 15:30 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/20916961113.shtml)
-- 2026-06-29 15:46 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/032915.shtml)
-- 2026-06-29 15:44 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/788657.shtml)
-- 2026-06-29 15:25 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/8266287791.shtml)
-- 2026-06-29 15:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/921652291.shtml)
-- 2026-06-29 15:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/8985209365.shtml)
-- 2026-06-29 15:43 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/7198446638.shtml)
+- 2026-06-29 15:30 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/9364835.shtml)
+- 2026-06-29 15:26 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/3998591641.shtml)
+- 2026-06-29 15:25 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/377846505.shtml)
+- 2026-06-29 15:36 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/74148560.shtml)
+- 2026-06-29 15:25 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/31619108.shtml)
+- 2026-06-29 15:34 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/202302494591.shtml)
+- 2026-06-29 15:52 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/58841232817.shtml)
+- 2026-06-29 15:41 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/491802606544.shtml)
+- 2026-06-29 15:41 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/18388.shtml)
+- 2026-06-29 15:30 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/02414270964.shtml)
+- 2026-06-29 15:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/96996834.shtml)
+- 2026-06-29 15:29 - [请回答王牌2019](http://www.share.minike.top/Article/details/4781889.shtml)
+- 2026-06-29 15:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/6410845.shtml)
+- 2026-06-29 15:30 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/99531351.shtml)
+- 2026-06-29 15:50 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/7037565623.shtml)

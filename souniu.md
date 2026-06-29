@@ -1,57 +1,51 @@
-# 泰国流行奶茶等日常消费“先买后付” 央行担心加剧债务问题
+# 第三届海峡两岸中华文化峰会开幕 台湾嘉宾：共同文化基础是两岸交流的特色
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-从奶茶到鸡肉饭，各种商品和服务的分期付款计划引起了泰国央行行长的关注。 行长Vitai Ratanakorn正采取措施遏制“先买后付”服务的快速增长，这类服务越来越多地允许消费者将日常消费分期付款。他担心，便捷的数字信贷会助长借贷，而该国的家庭债务水平已位居亚洲最高之列。 “有些东西根本不应该用信贷购买，无论是106泰铢（3美元）的奶茶，还是50泰铢的鸡肉饭。”Vitai在曼谷
+发布时间：2026年05月12日 13:09 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕，两岸文化领域等各界代表人士800余人出席。多位与会的两岸文艺界人士在开幕式现场表示，两岸人民血脉相连、文化相通，峰会为两岸提供了一种具体的对话和合作空间，而两岸越来越多民间的、年轻的交流交往亦不断迸发出中华文化的新火花。 记者 刘子衿 范思忆 朱贺 北京报道 责任编
 
 ## 正文
 
-从奶茶到鸡肉饭，各种商品和服务的分期付款计划引起了泰国央行行长的关注。
+发布时间：2026年05月12日 13:09 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕，两岸文化领域等各界代表人士800余人出席。
 
-行长Vitai Ratanakorn正采取措施遏制“先买后付”服务的快速增长，这类服务越来越多地允许消费者将日常消费分期付款。
+多位与会的两岸文艺界人士在开幕式现场表示，两岸人民血脉相连、文化相通，峰会为两岸提供了一种具体的对话和合作空间，而两岸越来越多民间的、年轻的交流交往亦不断迸发出中华文化的新火花。
 
-他担心，便捷的数字信贷会助长借贷，而该国的家庭债务水平已位居亚洲最高之列。
-
-“有些东西根本不应该用信贷购买，无论是106泰铢（3美元）的奶茶，还是50泰铢的鸡肉饭。
-
-”Vitai在曼谷最近的一次新闻发布会上告诉记者，“我们可能做得太过火了 —— 当人们开始为小额消费借贷时，就会养成没钱却花钱的习惯。
-
-” 泰国家庭债务相当于国内生产总值（GDP）的约87%，这个比例相对于该地区其他国家而言显高，而且异常高得偏向消费支出，而非住房，住房可以作为价值储存手段。
-
-这使得泰国民众缺乏抵御经济冲击的缓冲能力，债务也成为泰国最大的经济脆弱点之一。
-
-多年来，沉重的债务负担一直抑制着消费，阻碍着经济增长复苏。
+记者 刘子衿 范思忆 朱贺 北京报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 15:44 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:31 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 15:31 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 15:28 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 15:35 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 15:27 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 15:21 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 15:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 15:34 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 15:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 15:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 15:34 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 15:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 15:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 15:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 15:48 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 15:51 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 15:52 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 15:40 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 15:39 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 15:49 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 15:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:25 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:34 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 15:28 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/88861623489.shtml)
-- 2026-06-29 15:40 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/844968.shtml)
-- 2026-06-29 15:30 - [新一代影后杨紫](https://www.share.minike.top/Article/details/32930220869.shtml)
-- 2026-06-29 15:33 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/15134919920.shtml)
-- 2026-06-29 15:44 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/97286.shtml)
-- 2026-06-29 15:39 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/374986.shtml)
-- 2026-06-29 15:33 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/296198.shtml)
-- 2026-06-29 15:44 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/3087280527.shtml)
-- 2026-06-29 15:46 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/78698.shtml)
-- 2026-06-29 15:21 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/1108595.shtml)
-- 2026-06-29 15:19 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/30196820.shtml)
-- 2026-06-29 15:37 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/93934309610.shtml)
-- 2026-06-29 15:45 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/569286414000.shtml)
-- 2026-06-29 15:18 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/5147545171.shtml)
-- 2026-06-29 15:39 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/306680163.shtml)
+- 2026-06-29 15:51 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/84703714.shtml)
+- 2026-06-29 15:30 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/1543413.shtml)
+- 2026-06-29 15:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/04619517.shtml)
+- 2026-06-29 15:47 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/32742.shtml)
+- 2026-06-29 15:51 - [毒液2](https://www.share.minike.top/Article/details/318633313.shtml)
+- 2026-06-29 15:39 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/14784610.shtml)
+- 2026-06-29 15:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/6863196.shtml)
+- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/613761.shtml)
+- 2026-06-29 15:53 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/185304274.shtml)
+- 2026-06-29 15:34 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/34608.shtml)
+- 2026-06-29 15:49 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/454158673262.shtml)
+- 2026-06-29 15:34 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/00840.shtml)
+- 2026-06-29 15:45 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/1310210.shtml)
+- 2026-06-29 15:38 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/24207320338.shtml)
+- 2026-06-29 15:51 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/2432526157.shtml)

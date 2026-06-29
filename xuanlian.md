@@ -1,58 +1,59 @@
-# 泰国打击科技与网络犯罪 挽回损失约14亿泰铢
+# 辽宁公安2025年破获经济案2500余起 挽回企业损失超7亿元
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社曼谷6月21日电 (记者 李映民)泰国科技犯罪调查局副局长廷功·朗马21日称，6月1日至今，通过在泰国南部开展专项打击科技与网络犯罪行动，已成功为民众挽回经济损失约14亿泰铢。 泰国科技犯罪调查局当天召开新闻发布会，公布行动的阶段性成果。本次行动从6月1日开始，全面升级对各类网络犯罪的打击力度，全力瓦解跨国、跨府犯罪网络，累计突袭18处涉案据点、逮捕20名涉案嫌疑人。 本
+中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。 经济安全是国家安全的基础。赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风
 
 ## 正文
 
-中新社曼谷6月21日电 (记者 李映民)泰国科技犯罪调查局副局长廷功·朗马21日称，6月1日至今，通过在泰国南部开展专项打击科技与网络犯罪行动，已成功为民众挽回经济损失约14亿泰铢。
+中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。
 
-泰国科技犯罪调查局当天召开新闻发布会，公布行动的阶段性成果。
+辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。
 
-本次行动从6月1日开始，全面升级对各类网络犯罪的打击力度，全力瓦解跨国、跨府犯罪网络，累计突袭18处涉案据点、逮捕20名涉案嫌疑人。
+经济安全是国家安全的基础。
 
-本次行动聚焦三大高危犯罪类型：网络投资诈骗、网络赌博，以及涉黑势力的非法持枪与非法放贷。
+赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风险化解、严厉打击经济犯罪、严格规范执法行为，有力维护了辽宁省经济安全和市场秩序。
 
-专项行动期间，泰国警方成功捣毁一个大型网络股票投资诈骗团伙，累计查实117起诈骗案件，涉案金额达1.73亿泰铢，法院依法对9名核心嫌疑人签发逮捕令。
+在金融领域，辽宁公安联合金融监管、行业主管部门构建“四位一体”联动机制，发起多波次集中收网。
 
-警方还打掉3个大型跨区域网络赌博平台，抓获7名涉案人员。
+2025年以来，共破获金融“黑灰产”领域案件20余起，采取刑事强制措施142人，打掉犯罪团伙7个，成功侦办“屹腾惠民”等一批非法经营案。
 
-3个非法赌博平台覆盖足球博彩、彩票、老虎机、百家乐等全品类赌博项目，辐射泰国多府区域，3个平台年度总营业额合计突破12亿泰铢，严重扰乱网络秩序与社会经济秩序。
+同时，依托“歼击”专项行动，健全警汇战略合作机制，成功侦破系列地下钱庄案；严打假币犯罪，打掉多个制售假币犯罪团伙。
 
-针对涉黑势力的非法持枪、非法放贷等线下衍生犯罪，警方同步开展清查行动，突击检查2处涉案场所，成功抓获3名嫌疑人，现场缴获10支枪械、100发子弹，司法部门依法对非法持枪、非法放贷等违法行为立案。
+护企安商是优化法治化营商环境的关键一环。
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 15:39 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 15:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 15:46 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 15:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 15:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 15:34 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 15:37 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 15:47 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 15:33 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 15:39 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 15:41 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 15:48 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 15:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 15:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 15:28 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 15:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 15:53 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 15:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 15:43 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/808597321734.shtml)
-- 2026-06-29 15:39 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/551988296.shtml)
-- 2026-06-29 15:41 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/7997979148.shtml)
-- 2026-06-29 15:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/819838383918.shtml)
-- 2026-06-29 15:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/9023129194.shtml)
-- 2026-06-29 15:21 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/7618201.shtml)
-- 2026-06-29 15:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/35892398.shtml)
-- 2026-06-29 15:46 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/958402107318.shtml)
-- 2026-06-29 15:19 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/7201180349.shtml)
-- 2026-06-29 15:34 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/154056.shtml)
-- 2026-06-29 15:25 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/62549564672.shtml)
-- 2026-06-29 15:36 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/477831461318.shtml)
-- 2026-06-29 15:37 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/823229338634.shtml)
-- 2026-06-29 15:43 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/628822086.shtml)
-- 2026-06-29 15:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/597424.shtml)
+- 2026-06-29 15:44 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/119335884471.shtml)
+- 2026-06-29 15:27 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/962963.shtml)
+- 2026-06-29 15:49 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/76334653344.shtml)
+- 2026-06-29 15:29 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/411711510.shtml)
+- 2026-06-29 15:43 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/6115325.shtml)
+- 2026-06-29 15:37 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/4693235.shtml)
+- 2026-06-29 15:51 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/4600189.shtml)
+- 2026-06-29 15:26 - [送你一朵小红花](http://www.blog.minike.top/Article/details/9008573067.shtml)
+- 2026-06-29 15:30 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/0560008.shtml)
+- 2026-06-29 15:38 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/443811407.shtml)
+- 2026-06-29 15:41 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/632918.shtml)
+- 2026-06-29 15:38 - [一生一世](http://www.share.minike.top/Article/details/71811480561.shtml)
+- 2026-06-29 15:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/0174515092.shtml)
+- 2026-06-29 15:29 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/546571252869.shtml)
+- 2026-06-29 15:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/520611960.shtml)

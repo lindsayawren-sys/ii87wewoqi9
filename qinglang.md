@@ -1,57 +1,54 @@
-# 大涨原因找到了！股民：买券商就是买科技！
+# 收评：沪指跌0.25% 光通信、特高压概念等涨幅居前
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】大涨原因找到了！ 中国基金报记者 泰勒 大家好啊，今天市场，应该说是皆大欢喜，科技股的代表指数，科创50指数深“V”上涨，传统股的代表之一——券商股，集体暴涨！ 一起找找原因！ 6月22日，市场全天震荡走强，创业板指创历史新高。截至收盘，沪指涨1.78%，深成指涨2.13%，创业板
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月12日电，5月12日，A股指数弱势震荡，个股多数下跌，截至收盘，沪指跌0.25%，深证成指跌0.47%，创业板指涨0.15%。盘面上，光通信概念走强，通光线缆、云南锗业等涨停；特高压、智能电网概念走强，大连电瓷、汉缆股份等涨停；CPO概念活跃，可川科技等涨停；电力、半导体、证券等板块涨幅居前；猪
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：中国基金报 【导读】大涨原因找到了！
+人民财讯5月12日电，5月12日，A股指数弱势震荡，个股多数下跌，截至收盘，沪指跌0.25%，深证成指跌0.47%，创业板指涨0.15%。
 
-中国基金报记者 泰勒 大家好啊，今天市场，应该说是皆大欢喜，科技股的代表指数，科创50指数深“V”上涨，传统股的代表之一——券商股，集体暴涨！
+盘面上，光通信概念走强，通光线缆、云南锗业等涨停；特高压、智能电网概念走强，大连电瓷、汉缆股份等涨停；CPO概念活跃，可川科技等涨停；电力、半导体、证券等板块涨幅居前；猪肉概念、工业气体概念、锂矿概念、酿酒板块等跌幅居前。
 
-一起找找原因！
+全市场超4000只个股下跌，今日成交3.23万亿元。
 
-6月22日，市场全天震荡走强，创业板指创历史新高。
-
-截至收盘，沪指涨1.78%，深成指涨2.13%，创业板指涨2.52%。
-
-今日成交3.76万亿元，成交量位列A股历史第二。
-
-市场共2916只个股上涨，151只个股涨停，2468只个股下跌。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 15:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 15:18 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 15:40 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 15:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 15:29 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 15:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 15:27 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 15:40 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 15:35 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 15:22 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 15:45 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 15:43 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 15:42 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 15:42 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:50 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 15:53 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 15:34 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 15:33 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 15:40 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 15:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 15:25 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 15:39 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 15:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 15:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/181887394.shtml)
-- 2026-06-29 15:39 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/852451244.shtml)
-- 2026-06-29 15:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/771941348253.shtml)
-- 2026-06-29 15:35 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/83449106.shtml)
-- 2026-06-29 15:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/973281023.shtml)
-- 2026-06-29 15:28 - [金刚川](http://www.share.minike.top/Article/details/025924786.shtml)
-- 2026-06-29 15:43 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/2010685234.shtml)
-- 2026-06-29 15:29 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/75173846484.shtml)
-- 2026-06-29 15:40 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/70739.shtml)
-- 2026-06-29 15:33 - [斛珠夫人](https://www.blog.minike.top/Article/details/125535252569.shtml)
-- 2026-06-29 15:24 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/72707.shtml)
-- 2026-06-29 15:27 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/4938625905.shtml)
-- 2026-06-29 15:36 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/27589453627.shtml)
-- 2026-06-29 15:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/44687.shtml)
-- 2026-06-29 15:34 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/149615126553.shtml)
+- 2026-06-29 15:35 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/7994747.shtml)
+- 2026-06-29 15:32 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/74456162583.shtml)
+- 2026-06-29 15:42 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/56035.shtml)
+- 2026-06-29 15:51 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/11312562594.shtml)
+- 2026-06-29 15:38 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/341123801959.shtml)
+- 2026-06-29 15:30 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/151867028548.shtml)
+- 2026-06-29 15:37 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/60192.shtml)
+- 2026-06-29 15:26 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/0446038531.shtml)
+- 2026-06-29 15:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/4840101.shtml)
+- 2026-06-29 15:50 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/763637.shtml)
+- 2026-06-29 15:26 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/49900639.shtml)
+- 2026-06-29 15:25 - [千与千寻](http://www.share.minike.top/Article/details/6448604.shtml)
+- 2026-06-29 15:48 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/86349876.shtml)
+- 2026-06-29 15:51 - [请回答王牌2019](http://www.share.minike.top/Article/details/400547258.shtml)
+- 2026-06-29 15:40 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/08099533.shtml)

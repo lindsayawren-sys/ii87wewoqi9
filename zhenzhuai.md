@@ -1,57 +1,61 @@
-# 柳州海关2026年7月“关领导接待日”公告
+# 澳大利亚卫生官员：涉疫邮轮返澳人员将隔离至少三周
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就柳州海关2026年7月份关长接待日有关事项预告如下： 一、接待时间：2026年7月7日(星期二下午上班时间)。 二、当值关领导：柳州海关关长罗峤枫。 三、接待地点：柳州市海关路2号柳州海关一办公楼507室。四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。 据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。抵澳后，相关人员将被送往西澳大利亚
 
 ## 正文
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就柳州海关2026年7月份关长接待日有关事项预告如下： 一、接待时间：2026年7月7日(星期二下午上班时间)。
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。
 
-二、当值关领导：柳州海关关长罗峤枫。
+据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。
 
-三、接待地点：柳州市海关路2号柳州海关一办公楼507室。
+他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。
 
-四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
+抵澳后，相关人员将被送往西澳大利亚州首府珀斯附近的隔离设施。
 
-(二)来访者可通过拨打电话(0772-8855851)告知有关预约信息；也可以填写《预约表》(详见附件)发邮箱lzhg_bgs@163.com进行预约。
+巴特勒表示，目前尚无澳大利亚人出现汉坦病毒感染症状。
 
-预约截止时间：2026年7月6日上午12:00前。
+他说，汉坦病毒潜伏期可能长达42天，但传播风险通常会在前两周后下降，因此澳政府决定采取“预防性措施”。
 
-附件：柳州海关关长接待日预约表.docx 来源：南宁海关
+政府将在三周隔离期结束后，根据进一步的卫生建议决定后续安排。
+
+他还称，由于返澳人员需搭乘小型飞机进行长途飞行，旅途中存在一定传播风险。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:39 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 15:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 15:37 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 15:46 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 15:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 15:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 15:40 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 15:32 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 15:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 15:28 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 15:37 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 15:47 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 15:38 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 15:31 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 15:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 15:30 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:51 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 15:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:39 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 15:30 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 15:28 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 15:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 15:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 15:31 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/2231222.shtml)
-- 2026-06-29 15:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/6784043.shtml)
-- 2026-06-29 15:43 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/1339163453.shtml)
-- 2026-06-29 15:44 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/543255947645.shtml)
-- 2026-06-29 15:46 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/08797477862.shtml)
-- 2026-06-29 15:41 - [极限挑战第一季](https://www.share.minike.top/Article/details/4213221.shtml)
-- 2026-06-29 15:26 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/668085.shtml)
-- 2026-06-29 15:20 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/26886647218.shtml)
-- 2026-06-29 15:40 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/24346361742.shtml)
-- 2026-06-29 15:29 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/715999005250.shtml)
-- 2026-06-29 15:29 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/46817772.shtml)
-- 2026-06-29 15:21 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/087097120.shtml)
-- 2026-06-29 15:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/3140821627.shtml)
-- 2026-06-29 15:37 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/1367051374.shtml)
-- 2026-06-29 15:31 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/40735067406.shtml)
+- 2026-06-29 15:38 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/79455.shtml)
+- 2026-06-29 15:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/18750806386.shtml)
+- 2026-06-29 15:47 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/733037557.shtml)
+- 2026-06-29 15:42 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/48697720.shtml)
+- 2026-06-29 15:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/997482113934.shtml)
+- 2026-06-29 15:37 - [恋与深空 731](http://www.blog.minike.top/Article/details/053712.shtml)
+- 2026-06-29 15:25 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/95608341266.shtml)
+- 2026-06-29 15:52 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/143140.shtml)
+- 2026-06-29 15:38 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/223235.shtml)
+- 2026-06-29 15:51 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/41722663169.shtml)
+- 2026-06-29 15:26 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/07994379.shtml)
+- 2026-06-29 15:26 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/74289731232.shtml)
+- 2026-06-29 15:24 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/68331.shtml)
+- 2026-06-29 15:28 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/59122.shtml)
+- 2026-06-29 15:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/50692468.shtml)

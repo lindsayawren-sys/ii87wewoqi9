@@ -1,47 +1,59 @@
-# 探营夏季达沃斯会场：滨城静待全球宾客共话“规模化创新”
+# 阿里率先打通AI购物全链路，千问上也能“逛淘宝”了
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 21:26 来源：中国新闻网 世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将于6月23日至25日在辽宁大连举行，主会场大连国际会议中心已全面对与会嘉宾开放，静待全球宾客到访。本届论坛以 “规模化创新” 为核心议题，汇聚 90 多个国家和地区 1700 余名各界嘉宾，围绕中国经济发展路径、技术落地转化效益等核心议题，聚焦人工智能、新能源、生
+千问上也能“逛淘宝”了！ 5月11日，千问与淘宝全面打通，开启AI购物全新体验。用户打开千问App，与AI对话，即可完成淘宝上的商品挑选、对比及下单购买；打开淘宝App，点击“千问AI购物助手”，即可AI购物，并使用AI试穿、AI算优惠、AI低价帮抢等功能。 这是全球超大规模电商平台与顶级大模型应用的首次深度融合。阿里率先在行业内打通AI购物全链路，首次实现AI购物从商品推荐到
 
 ## 正文
 
-发布时间：2026年06月22日 21:26 来源：中国新闻网 世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将于6月23日至25日在辽宁大连举行，主会场大连国际会议中心已全面对与会嘉宾开放，静待全球宾客到访。
+千问上也能“逛淘宝”了！
 
-本届论坛以 “规模化创新” 为核心议题，汇聚 90 多个国家和地区 1700 余名各界嘉宾，围绕中国经济发展路径、技术落地转化效益等核心议题，聚焦人工智能、新能源、生物医药前沿领域深度研讨，向世界展现中国高质量发展实绩，传递持续扩大开放、深化国际合作的坚定立场。
+5月11日，千问与淘宝全面打通，开启AI购物全新体验。
 
-(杨毅 韩浩天 李雪飞） 责任编辑：【罗攀】
+用户打开千问App，与AI对话，即可完成淘宝上的商品挑选、对比及下单购买；打开淘宝App，点击“千问AI购物助手”，即可AI购物，并使用AI试穿、AI算优惠、AI低价帮抢等功能。
+
+这是全球超大规模电商平台与顶级大模型应用的首次深度融合。
+
+阿里率先在行业内打通AI购物全链路，首次实现AI购物从商品推荐到下单、履约、售后的全流程闭环，标志着阿里AI电商的重要一步。
+
+千问上能“逛淘宝”了：对话中完成商品挑选、对比、下单 与淘宝打通后，千问能基于淘宝40亿商品库及超20年积累的真实购物场景数据，准确理解用户聊天中的消费意图，精准推荐商品，用户跟AI说一句话，即可完成商品挑选、对比并下单购买。
+
+1.知道买什么，条件太多不好搜 过去，当用户对商品参数有多重要求时，往往需要在多个商品页面之间反复筛选、对比，才能做出购买决策。
+
+如今，用户只需讲一句话，如“买双脚感软一点的越野跑鞋，有大V底和GTX防水，颜色鲜艳，鞋带是BOA的”，千问就能快速筛选出同时满足这6个条件的商品；在用户提出的参数和实际需求不符时，如“小户型想要大匹数空调”，千问还会分析“性能过剩”，建议降低配置。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 15:37 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 15:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 15:45 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 15:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 15:44 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 15:37 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 15:19 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 15:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 15:26 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 15:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 15:28 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 15:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 15:52 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 15:41 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 15:45 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 15:45 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 15:25 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 15:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:39 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 15:28 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 15:35 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 15:38 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/590227725.shtml)
-- 2026-06-29 15:24 - [天道](https://www.share.minike.top/Article/details/13097.shtml)
-- 2026-06-29 15:21 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/11773312786.shtml)
-- 2026-06-29 15:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/83371255007.shtml)
-- 2026-06-29 15:41 - [起风了](https://www.blog.minike.top/Article/details/69742643505.shtml)
-- 2026-06-29 15:24 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/9811112621.shtml)
-- 2026-06-29 15:26 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/2142008882.shtml)
-- 2026-06-29 15:46 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/6622651.shtml)
-- 2026-06-29 15:35 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/98006803.shtml)
-- 2026-06-29 15:25 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/6779958.shtml)
-- 2026-06-29 15:46 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/999995.shtml)
-- 2026-06-29 15:41 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/25726.shtml)
-- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/11954.shtml)
-- 2026-06-29 15:47 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/564903001625.shtml)
-- 2026-06-29 15:29 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/438593.shtml)
+- 2026-06-29 15:30 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/4723606.shtml)
+- 2026-06-29 15:36 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/895521796114.shtml)
+- 2026-06-29 15:52 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/17626.shtml)
+- 2026-06-29 15:29 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/847764889.shtml)
+- 2026-06-29 15:28 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/37304.shtml)
+- 2026-06-29 15:42 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/4863381.shtml)
+- 2026-06-29 15:46 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/40653.shtml)
+- 2026-06-29 15:52 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/272882530822.shtml)
+- 2026-06-29 15:34 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/3714355.shtml)
+- 2026-06-29 15:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/44777.shtml)
+- 2026-06-29 15:29 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/421025563412.shtml)
+- 2026-06-29 15:53 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/77073.shtml)
+- 2026-06-29 15:36 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/57703326178.shtml)
+- 2026-06-29 15:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/40192.shtml)
+- 2026-06-29 15:24 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/108304077659.shtml)

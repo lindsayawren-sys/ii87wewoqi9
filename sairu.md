@@ -1,59 +1,57 @@
-# 广州法国外籍人员子女学校新校址落成典礼举行
+# 极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。 本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。 广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿
+极限运动相机制造商GoPro周一表示，公司计划评估一系列战略选择，包括出售或合并，消息一出，其股价在盘后交易中一度飙升超过 27%。 此前近一个月，该公司宣布已聘请咨询公司Oliver Wyman，为其技术在国防和航空航天市场寻求新的市场机遇。 这家总部位于加州的公司表示，自那以来，已收到了几份主动提出的战略收购要约，其董事会已授权聘请财务顾问协助进行评估。 此外，GoPro周
 
 ## 正文
 
-中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。
+极限运动相机制造商GoPro周一表示，公司计划评估一系列战略选择，包括出售或合并，消息一出，其股价在盘后交易中一度飙升超过 27%。
 
-本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。
+此前近一个月，该公司宣布已聘请咨询公司Oliver Wyman，为其技术在国防和航空航天市场寻求新的市场机遇。
 
-广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿园至法国高中毕业会考的完整连贯课程的学校。
+这家总部位于加州的公司表示，自那以来，已收到了几份主动提出的战略收购要约，其董事会已授权聘请财务顾问协助进行评估。
 
-建校近三十年来，学校持续服务华南地区法籍及其他国际家庭，并积极推动法中两国教育、文化双向交流。
+此外，GoPro周一公布的第一季度调整后亏损较去年同期扩大，总收入也出现下滑，原因是硬件、订阅和服务收入在本季度均有所下降。
 
-目前，该校汇聚了来自全球超25个国家和地区的学生，开设法、英、中三语教学课程，着力拓宽学生的国际视野，促进跨文化交流，培育面向未来的国际化人才。
+截至3月31日的第一季度，GoPro每股亏损35美分，而去年同期每股亏损12美分。
 
-全新投用的龙洞校区可容纳500名学生，配备符合国际标准的现代化教学设施。
+截至周一收盘，GoPro 的市值约为2.16亿美元。
 
-新校区将助力学校长远发展，进一步增强学校对追求多元文化、多语种教育环境的中外家庭的吸引力。
-
-(完)
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 15:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 15:19 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:38 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 15:28 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 15:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 15:29 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:36 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 15:36 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 15:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 15:25 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 15:44 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 15:38 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 15:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 15:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 15:39 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 15:39 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 15:37 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 15:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 15:38 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:36 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 15:30 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 15:30 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 15:48 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 15:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/9139058.shtml)
-- 2026-06-29 15:41 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/44890.shtml)
-- 2026-06-29 15:18 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/542710225.shtml)
-- 2026-06-29 15:19 - [急先锋](http://www.blog.kurohicncr.top/Article/details/713437.shtml)
-- 2026-06-29 15:43 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/64720.shtml)
-- 2026-06-29 15:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/25562850920.shtml)
-- 2026-06-29 15:35 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/21960.shtml)
-- 2026-06-29 15:46 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/5868117.shtml)
-- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/28871.shtml)
-- 2026-06-29 15:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/444444512.shtml)
-- 2026-06-29 15:37 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/1448327.shtml)
-- 2026-06-29 15:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/47572875.shtml)
-- 2026-06-29 15:18 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/207842.shtml)
-- 2026-06-29 15:30 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/644036.shtml)
-- 2026-06-29 15:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/860845.shtml)
+- 2026-06-29 15:38 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/23732.shtml)
+- 2026-06-29 15:24 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/13459744504.shtml)
+- 2026-06-29 15:24 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/268764.shtml)
+- 2026-06-29 15:44 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/12891.shtml)
+- 2026-06-29 15:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/9449149356.shtml)
+- 2026-06-29 15:43 - [扬名立万](https://www.share.kurohicncr.top/Article/details/114928777352.shtml)
+- 2026-06-29 15:50 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/5815428711.shtml)
+- 2026-06-29 15:48 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/268072411.shtml)
+- 2026-06-29 15:46 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/58174000132.shtml)
+- 2026-06-29 15:31 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/702020142.shtml)
+- 2026-06-29 15:44 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/7461116757.shtml)
+- 2026-06-29 15:48 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/31197855.shtml)
+- 2026-06-29 15:52 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/176643485022.shtml)
+- 2026-06-29 15:26 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/2358940.shtml)
+- 2026-06-29 15:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/660363.shtml)

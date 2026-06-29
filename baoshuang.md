@@ -1,58 +1,61 @@
-# 长江有色: 中东出货量增加及国内库存高压 23日铝价或下跌
+# 社会救助法7月起施行 将保障哪些群体？一文了解
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝收跌1.1%；市场预期中东铝出货量将进一步增加，国内铝库存高位施压，今现铝或下跌。 【铝期货市场】：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝震荡下挫，最新收盘报价3360美元/吨，收跌38美元，跌幅1.10%，成交量21795手增加11851手，持仓量613311
+社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。 新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝收跌1.1%；市场预期中东铝出货量将进一步增加，国内铝库存高位施压，今现铝或下跌。
+社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。
 
-【铝期货市场】：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝震荡下挫，最新收盘报价3360美元/吨，收跌38美元，跌幅1.10%，成交量21795手增加11851手，持仓量613311手减少2783手。
+从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。
 
-晚间沪铝高开走跌；主力月2608合约最新收盘价报24010元/吨，跌55元，跌幅0.23%。
+新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。
 
-伦敦金属交易所（LME）6月20日伦铝最新库存量报313800吨，较上个交易日下降1500吨，跌幅0.48%。
+草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗保等问题，这些诉求都在最终法律中得到回应。
 
-长江铝业网讯：6月22日现货铝价，长江现货A00铝锭价报23870元/吨，持平；广东现货A00铝锭价报23820元/吨，持平。
+全国人大常委会法工委社会法室副主任高莉娜在接受记者专访时表示，立法团队深入城乡基层，倾听低保家庭、特困老人等群体心声，吸纳各地实践经验，反复打磨条文。
 
-宏观层面，美伊首轮高层会谈取得“大量进展”——万斯证实奠定良好基础，双方建沟通机制确保商船安全、开通冲突处理渠道，伊朗获60天制裁豁免（可出口原油及石化产品获收入）→油价重挫逾3%至74.14美元/桶附近，通胀担忧进一步缓解。
+既兼顾地区差异、平衡部门衔接，更直面信息泄露、公职人员滥用职权、骗保等群众担心的痛点。
 
-美股道指+0.29%（医疗/工业），纳指-1.32%（Alphabet/Meta/微软AI支出质疑拖累）。
+这部法律来之不易，在此之前的十余年间，2014年出台的《社会救助暂行办法》是社会救助工作的主要依据，而社会救助法的落地，则标志着我国民生兜底保障迈入法治化新阶段。
 
-国内方面，1-5月全国一般公共预算收入100，465亿元（+4%），税收收入82，617亿元（+4.4%），增值税连续四月提速至+6.2%，财政收支紧平衡改善、收入质量提升。
+全国人大常委会法工委社会法室副主任 高莉娜：制定社会救助法是贯彻落实习近平总书记重要指示批示精神和党中央决策部署的必然要求，社会救助是保基本、兜底线、救急难的制度。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 15:19 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 15:41 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 15:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 15:45 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 15:35 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 15:28 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 15:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 15:31 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 15:46 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 15:26 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 15:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 15:50 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 15:48 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 15:32 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 15:53 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 15:34 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 15:49 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 15:44 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 15:40 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 15:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 15:25 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 15:35 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:34 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 15:35 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 15:49 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:37 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/02275.shtml)
-- 2026-06-29 15:30 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/0851330.shtml)
-- 2026-06-29 15:34 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/5816152.shtml)
-- 2026-06-29 15:19 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/72657.shtml)
-- 2026-06-29 15:47 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/8361483.shtml)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/480410681.shtml)
-- 2026-06-29 15:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/707696055.shtml)
-- 2026-06-29 15:25 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/595162427.shtml)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/935880.shtml)
-- 2026-06-29 15:20 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/014950.shtml)
-- 2026-06-29 15:41 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/920971299.shtml)
-- 2026-06-29 15:45 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/2907727.shtml)
-- 2026-06-29 15:46 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/22717.shtml)
-- 2026-06-29 15:36 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/53397.shtml)
-- 2026-06-29 15:22 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/458416068038.shtml)
+- 2026-06-29 15:52 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/29659359860.shtml)
+- 2026-06-29 15:53 - [请回答王牌2019](https://www.blog.minike.top/Article/details/246846499958.shtml)
+- 2026-06-29 15:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/7055601.shtml)
+- 2026-06-29 15:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/515987.shtml)
+- 2026-06-29 15:29 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/56506014416.shtml)
+- 2026-06-29 15:25 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/18866689.shtml)
+- 2026-06-29 15:48 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/73557.shtml)
+- 2026-06-29 15:40 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/23259352.shtml)
+- 2026-06-29 15:38 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/519478105176.shtml)
+- 2026-06-29 15:30 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/949209031240.shtml)
+- 2026-06-29 15:30 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/664979571.shtml)
+- 2026-06-29 15:37 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/309435992.shtml)
+- 2026-06-29 15:52 - [天道](https://www.share.kurohicncr.top/Article/details/773261474.shtml)
+- 2026-06-29 15:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/374477050.shtml)
+- 2026-06-29 15:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/5010254.shtml)

@@ -1,56 +1,60 @@
-# 4倍光通信牛股002491，控股股东拟向上海交大捐赠350万股，市值超亿元
+# 天舟十号智能“通信高速路”为太空送货保驾护航
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】通鼎互联控股股东计划向上海交大捐赠350万股股份 中国基金报记者 忆山 6月21日，通鼎互联发布公告称，公司控股股东通鼎集团计划向上海交通大学教育发展基金会无偿捐赠其所持公司350万股无限售流通股，占公司总股本的0.28%。 截至今年一季度末，通鼎集团持有通鼎互联31.51%股份，
+中新社西安5月11日电 (李一璠 张一辰)北京时间5月11日8时14分，天舟十号货运飞船在长征七号遥十一运载火箭的托举下，从中国文昌航天发射场升空，随后船箭成功分离，飞船进入预定轨道、太阳能帆板顺利展开，发射任务取得成功。据悉，航天科技集团五院西安分院(下称：西安分院)为天舟十号货运飞船研制的中继终端、天线网络以及为中继卫星系统研制的全部有效载荷，有力保障任务顺利完成。 其中，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社西安5月11日电 (李一璠 张一辰)北京时间5月11日8时14分，天舟十号货运飞船在长征七号遥十一运载火箭的托举下，从中国文昌航天发射场升空，随后船箭成功分离，飞船进入预定轨道、太阳能帆板顺利展开，发射任务取得成功。
 
-来源：中国基金报 【导读】通鼎互联控股股东计划向上海交大捐赠350万股股份 中国基金报记者 忆山 6月21日，通鼎互联发布公告称，公司控股股东通鼎集团计划向上海交通大学教育发展基金会无偿捐赠其所持公司350万股无限售流通股，占公司总股本的0.28%。
+据悉，航天科技集团五院西安分院(下称：西安分院)为天舟十号货运飞船研制的中继终端、天线网络以及为中继卫星系统研制的全部有效载荷，有力保障任务顺利完成。
 
-截至今年一季度末，通鼎集团持有通鼎互联31.51%股份，为公司的第一大股东。
+其中，天线网络是天舟十号货运飞船测控与通信分系统中连接应答机和天线的关键产品。
 
-通鼎互联表示，本次捐赠不会导致公司控股股东、实际控制人发生变化，不涉及公司控制权变 截至6月18日收盘，通鼎互联报31.58元/股，按此估算，即将捐赠的350万股股份对应市值约1.1亿元。
+虽然是飞船上的一个小型信号转发器，却承担着天舟十号货运飞船天线信号“传输枢纽”的作用。
 
-通鼎互联主要业务为光电通信业务板块和网络安全业务板块。
+当天舟十号货运飞船接收到地面的通信信号或测控指令信号时，天线网络会将其智能分类、分通道传输到应答机，反之也会将来自应答机不同通道的各类信号汇总后送往对地天线，通过天线发出后送达地面。
 
-作为光通信领域的大牛股之一，今年公司股价涨幅超4倍。
+此外，天舟十号货运飞船成功发射后，由西安分院研制的相控阵中继终端在星箭分离前便进入工作模式。
 
-业绩方面，今年一季度，通鼎互联实现营收10.64亿元，同比增长61.13%；归母净利润为5127.40万元，同比下跌61.05%。
+它可以自主捕获并跟踪中继卫星，搭建起从天舟十号货运飞船到中继卫星再到地面的“通信高速路”，让地面可以与天舟十号货运飞船实时保持测控通信链路畅通。
 
-此外，今年以来，多家上市公司控股股东相继向上海交大捐赠股份。
+据西安分院介绍，相控阵天线采用电性能扫描方式，克服了机械天线转动的薄弱环节，让扫描速度、响应速度大幅提高。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 15:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 15:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:35 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 15:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 15:38 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 15:30 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 15:21 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 15:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 15:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 15:39 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 15:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 15:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 15:52 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:46 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 15:29 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 15:47 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 15:31 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 15:48 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 15:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 15:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 15:30 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 15:35 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 15:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/779824217.shtml)
-- 2026-06-29 15:47 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/085680555.shtml)
-- 2026-06-29 15:41 - [黄金也扛不住了](http://www.share.minike.top/Article/details/02843615434.shtml)
-- 2026-06-29 15:38 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/1132310.shtml)
-- 2026-06-29 15:26 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/6258604485.shtml)
-- 2026-06-29 15:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/182175.shtml)
-- 2026-06-29 15:32 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/97558657.shtml)
-- 2026-06-29 15:29 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/039135482915.shtml)
-- 2026-06-29 15:45 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/01978384768.shtml)
-- 2026-06-29 15:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/9789566384.shtml)
-- 2026-06-29 15:32 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/861222.shtml)
-- 2026-06-29 15:27 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/620926062953.shtml)
-- 2026-06-29 15:47 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/320697601.shtml)
-- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/1860917515.shtml)
-- 2026-06-29 15:35 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/85448.shtml)
+- 2026-06-29 15:52 - [一见倾心](https://www.share.kurohicncr.top/Article/details/4150405.shtml)
+- 2026-06-29 15:34 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/071912783843.shtml)
+- 2026-06-29 15:34 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/6384258.shtml)
+- 2026-06-29 15:39 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/833156.shtml)
+- 2026-06-29 15:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/995698975722.shtml)
+- 2026-06-29 15:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/366527077.shtml)
+- 2026-06-29 15:48 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/63996.shtml)
+- 2026-06-29 15:49 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/91661400.shtml)
+- 2026-06-29 15:49 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/96781401892.shtml)
+- 2026-06-29 15:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/129257197525.shtml)
+- 2026-06-29 15:39 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/875174610.shtml)
+- 2026-06-29 15:26 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/2565772270.shtml)
+- 2026-06-29 15:38 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/549483632.shtml)
+- 2026-06-29 15:33 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/58180132.shtml)
+- 2026-06-29 15:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/12162326.shtml)

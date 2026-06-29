@@ -1,58 +1,56 @@
-# 2025年以来粤港澳禁毒执法协作缴获各类毒品9.1吨
+# 专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社广州6月22日电 (记者 方伟彬)据广东省公安厅22日消息，2025年以来，粤港澳海陆同步收网，成功侦破“集盛轮”等特大海上走私毒品过境案件8宗，缴获各类毒品9.1吨，摧毁东南亚经中国南海通往境外的走私通道。2025年以来，广东警方发起“断根”系列集群收网战役27波次，毒品犯罪案件侦破数、刑拘犯罪嫌疑人数、查处吸毒人员数等战果指标均位居中国内地第一。 据介绍，面对跨境空运
+发布时间：2026年05月12日 14:03 来源：中国新闻网 上海市日本学会会长、上海对外经贸大学日本经济研究中心主任陈子雷近日在接受中新网专访时表示，日本在军事化道路上越走越远，其变化既源于外部环境变化，也来自内部需求。 陈子雷指出，从外部来看，美日同盟正在转型，美国要求日本承担更多防卫责任。在这一背景下，日本不断调整安全政策，以配合其在同盟体系中的角色变化。从内部来看，日
 
 ## 正文
 
-中新社广州6月22日电 (记者 方伟彬)据广东省公安厅22日消息，2025年以来，粤港澳海陆同步收网，成功侦破“集盛轮”等特大海上走私毒品过境案件8宗，缴获各类毒品9.1吨，摧毁东南亚经中国南海通往境外的走私通道。
+发布时间：2026年05月12日 14:03 来源：中国新闻网 上海市日本学会会长、上海对外经贸大学日本经济研究中心主任陈子雷近日在接受中新网专访时表示，日本在军事化道路上越走越远，其变化既源于外部环境变化，也来自内部需求。
 
-2025年以来，广东警方发起“断根”系列集群收网战役27波次，毒品犯罪案件侦破数、刑拘犯罪嫌疑人数、查处吸毒人员数等战果指标均位居中国内地第一。
+陈子雷指出，从外部来看，美日同盟正在转型，美国要求日本承担更多防卫责任。
 
-据介绍，面对跨境空运毒品“隐蔽化、链条化”新特点，广东深化粤港禁毒执法协作，联合香港海关建立打击新模式。
+在这一背景下，日本不断调整安全政策，以配合其在同盟体系中的角色变化。
 
-今年4月，粤港两地同步收网，在广州及香港共抓获犯罪嫌疑人6名，缴获毒品可卡因21.3公斤，摧毁一条非洲经广州中转至香港的走私通道。
+从内部来看，日本面临国力下滑、国内民粹主义抬头以及社会矛盾加剧等问题。
 
-同月，广东公安机关在工作中发现一货轮形迹可疑，涉嫌从事走私毒品犯罪。
+极右翼势力趁此机会借尸还魂，卷土重来。
 
-广东警方联合边检、海警等部门实施拦截，抓获犯罪嫌疑人5名，缴获毒品大麻735公斤，打掉一个特大跨境贩毒团伙。
+陈子雷强调，这类举动不仅对地区安全秩序构成挑战，也在削弱各国在地区和平、合作及经济一体化进程中建立的互信基础。
 
-此外，广东警方专项攻坚打掉涉依托咪酯等新型毒品团伙674个，延伸捣毁多个省外制毒场点。
+陈子雷表示，中国始终致力于维护世界和平与发展，坚定践行多边主义，维护国际秩序；同时坚决打击“台独”分裂势力和反对外部势力干涉，并与广大爱好和平的国家一道，坚决遏止日本“新型军国主义”的妄动。
 
-广东创新国际货代行业禁毒管控机制，2025年以来主动拦截拟走私出境的管制化学品13.3吨。
+(巩微微） 责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 15:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 15:32 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 15:18 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 15:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 15:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 15:25 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 15:35 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 15:34 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 15:28 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 15:32 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 15:52 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 15:38 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 15:51 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:30 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:27 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 15:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:31 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 15:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 15:27 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/242690697.shtml)
-- 2026-06-29 15:21 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/573342.shtml)
-- 2026-06-29 15:29 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/74084940553.shtml)
-- 2026-06-29 15:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/809479.shtml)
-- 2026-06-29 15:25 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/8521983.shtml)
-- 2026-06-29 15:22 - [小娘惹](https://www.share.kurohicncr.top/Article/details/82122035.shtml)
-- 2026-06-29 15:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/397372849.shtml)
-- 2026-06-29 15:24 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/7936229487.shtml)
-- 2026-06-29 15:40 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/0197910.shtml)
-- 2026-06-29 15:32 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/771152.shtml)
-- 2026-06-29 15:45 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/49504.shtml)
-- 2026-06-29 15:31 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/4843819.shtml)
-- 2026-06-29 15:21 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/5667897024.shtml)
-- 2026-06-29 15:39 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/8392963712.shtml)
-- 2026-06-29 15:21 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/43117613465.shtml)
+- 2026-06-29 15:40 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/784628117299.shtml)
+- 2026-06-29 15:48 - [爸爸当家](https://www.blog.minike.top/Article/details/96677.shtml)
+- 2026-06-29 15:39 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/314133.shtml)
+- 2026-06-29 15:39 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/350067.shtml)
+- 2026-06-29 15:45 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/359167231450.shtml)
+- 2026-06-29 15:41 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/614439269285.shtml)
+- 2026-06-29 15:37 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/74037689.shtml)
+- 2026-06-29 15:29 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/7256244753.shtml)
+- 2026-06-29 15:31 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/19356637859.shtml)
+- 2026-06-29 15:36 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/5851151601.shtml)
+- 2026-06-29 15:39 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/30796546432.shtml)
+- 2026-06-29 15:42 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/69735.shtml)
+- 2026-06-29 15:31 - [一生一世](http://www.share.minike.top/Article/details/00804.shtml)
+- 2026-06-29 15:39 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/463211788472.shtml)
+- 2026-06-29 15:30 - [金牌调解](https://www.blog.minike.top/Article/details/675635751279.shtml)

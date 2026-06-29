@@ -1,57 +1,57 @@
-# 尚处于亏损状态，蓝箭航天能否打造中国版SpaceX？
+# 双增长！数看4月新能源汽车产业成绩单 “车轮上的中国”加速跑
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|李亦辉 编|深海 随着SpaceX（太空探索技术公司）成功上市，全球商业航天赛道热度飙升。市场追问，谁会成为中国版SpaceX？作为国内头部民营航天企业之一的蓝箭航天空间科技股份有限公司（以下简称“蓝箭航天”）获得关注。 2025年12月31日晚间，上交所官网显示
+央视网消息：记者5月11日从中国汽车工业协会获悉，4月份，我国新能源汽车产销量及出口量均实现稳定增长。 最新数据显示，4月份，新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。在出口方面，新能源汽车出口43万辆，同比增长1.1倍。不仅如此，今年1至4月份，我国新能源汽车出口138.4万辆，同比增长
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+央视网消息：记者5月11日从中国汽车工业协会获悉，4月份，我国新能源汽车产销量及出口量均实现稳定增长。
 
-来源：雷达Finance 雷达财经出品 文|李亦辉 编|深海 随着SpaceX（太空探索技术公司）成功上市，全球商业航天赛道热度飙升。
+最新数据显示，4月份，新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。
 
-市场追问，谁会成为中国版SpaceX？
+在出口方面，新能源汽车出口43万辆，同比增长1.1倍。
 
-作为国内头部民营航天企业之一的蓝箭航天空间科技股份有限公司（以下简称“蓝箭航天”）获得关注。
+不仅如此，今年1至4月份，我国新能源汽车出口138.4万辆，同比增长1.2倍。
 
-2025年12月31日晚间，上交所官网显示，蓝箭航天科创板IPO获得受理。
+中国汽车工业协会相关负责人表示，今年以来，我国经济起步有力，主要指标好于预期。
 
-据悉，蓝箭航天是一家商业航天企业，主要从事液氧甲烷发动机及运载火箭的研发、生产并提供商业航天火箭发射服务。
+中国汽车工业正在电动化、智能化、跨界融合方面加速转型。
 
-本次冲击上市，蓝箭航天拟募集资金75亿元，扣除发行费用后，将全部用于可重复使用火箭产能提升项目、可重复使用火箭技术提升项目。
-
-据悉，蓝箭航天本次公开发行股票的数量不低于4000万股，不低于发行后总股本10%，据此估算其估值或可高达750亿元。
+中国汽车工业协会副秘书长陈士华表示，中国已成为全球汽车产业的核心市场与创新策源地，加之完善的产业链体系，不仅满足了国内庞大的市场需求，对外贸易也展现出强大韧性，全年汽车出口量有望再创新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 15:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 15:31 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 15:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 15:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 15:33 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 15:18 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 15:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 15:39 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 15:29 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 15:30 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 15:35 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 15:44 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:49 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 15:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 15:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:51 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 15:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 15:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 15:25 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 15:49 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 15:28 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 15:25 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [第一炉香](https://www.share.kurohicncr.top/Article/details/683367068.shtml)
-- 2026-06-29 15:43 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/634149.shtml)
-- 2026-06-29 15:43 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/826955.shtml)
-- 2026-06-29 15:47 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/543304.shtml)
-- 2026-06-29 15:44 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/107952.shtml)
-- 2026-06-29 15:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/501389.shtml)
-- 2026-06-29 15:36 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/826625173.shtml)
-- 2026-06-29 15:42 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/062880961.shtml)
-- 2026-06-29 15:21 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/89845.shtml)
-- 2026-06-29 15:25 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/176189.shtml)
-- 2026-06-29 15:47 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/3392020.shtml)
-- 2026-06-29 15:46 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/855084856.shtml)
-- 2026-06-29 15:26 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/805750192.shtml)
-- 2026-06-29 15:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/94079.shtml)
-- 2026-06-29 15:39 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/22934730.shtml)
+- 2026-06-29 15:36 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/96156663.shtml)
+- 2026-06-29 15:32 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/0209209458.shtml)
+- 2026-06-29 15:34 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/85548.shtml)
+- 2026-06-29 15:31 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/1109030598.shtml)
+- 2026-06-29 15:29 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/5244791.shtml)
+- 2026-06-29 15:34 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/03859090.shtml)
+- 2026-06-29 15:37 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/5949169.shtml)
+- 2026-06-29 15:40 - [一见倾心](https://www.share.minike.top/Article/details/40039121.shtml)
+- 2026-06-29 15:25 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/5017142.shtml)
+- 2026-06-29 15:45 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/09295629.shtml)
+- 2026-06-29 15:29 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/604938.shtml)
+- 2026-06-29 15:50 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/36796433.shtml)
+- 2026-06-29 15:41 - [千与千寻](http://www.blog.minike.top/Article/details/57819996661.shtml)
+- 2026-06-29 15:52 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/6725989.shtml)
+- 2026-06-29 15:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/424132.shtml)

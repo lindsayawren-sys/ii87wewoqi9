@@ -1,57 +1,59 @@
-# 金融法草案首次审议，将是我国金融领域管总的基础性法律
+# 东方证券增设两融“即时平仓线”，到底是什么？有何影响？
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-2026年6月23日，据新华社消息，《中华人民共和国金融法（草案）》提请十四届全国人大常委会第二十三次会议首次审议。 消息称，金融法是我国金融领域管总的基础性、综合性、统领性法律，定位于金融法律体系中的“1”，发挥指导、统领、规范作用。银行、保险、证券等领域的法律“N”以及其他金融法律法规“X”，需与“1”确定的基本规定对标对表、立修并重，具体规范各领域的金融活动，“1+N+X
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！东方证券在两融业务中增加的“即时平仓线”引发市场关注。 近日，东方证券发布公告称：为进一步完善融资融券业务风险监控体系，切实保护投资者合法权益，本公司在融资融券业务中增加“即时平仓线”监控指标，自2026年5月18日起施行。 东方证券公告显示：“即时平仓线”是指该公司对客户信用账户风险状况进行监控的特定维持
 
 ## 正文
 
-2026年6月23日，据新华社消息，《中华人民共和国金融法（草案）》提请十四届全国人大常委会第二十三次会议首次审议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-消息称，金融法是我国金融领域管总的基础性、综合性、统领性法律，定位于金融法律体系中的“1”，发挥指导、统领、规范作用。
+东方证券在两融业务中增加的“即时平仓线”引发市场关注。
 
-银行、保险、证券等领域的法律“N”以及其他金融法律法规“X”，需与“1”确定的基本规定对标对表、立修并重，具体规范各领域的金融活动，“1+N+X”共同构建科学完备统一的金融法律体系。
+近日，东方证券发布公告称：为进一步完善融资融券业务风险监控体系，切实保护投资者合法权益，本公司在融资融券业务中增加“即时平仓线”监控指标，自2026年5月18日起施行。
 
-金融法的立法进程备受业界关注。
+东方证券公告显示：“即时平仓线”是指该公司对客户信用账户风险状况进行监控的特定维持担保比例值。
 
-此前在2026年3月6日下午，中国人民银行行长潘功胜在记者会回答记者提问时表示，下一步央行将健全金融稳定保障体系，推进金融稳定法、人民银行法等立法修法。
+融资融券业务即时平仓线参数为115%。
 
-5月，国务院办公厅印发《国务院2026年度立法工作计划》显示，今年金融法草案等将提请全国人大常委会审议。
+“本公司有权根据市场情况、自身风险管理需求、您的风险承受能力等因素，对您的即时平仓线参数进行动态调整。
 
-据新华社介绍，本次提请审议的金融法草案坚持强监管、防风险、促高质量发展的主题主线，注重统筹发展和安全，着力解决制约金融高质量发展中的法治难题。
+” 相关消息经过发酵后，不少投资者对东方证券新设的115%“即时平仓线”非常好奇。
 
-司法部等多个部门此前于3月20日公布《中华人民共和国金融法（草案）》，向社会公开征求意见。
+同时，由于“即时平仓线”的名称，有投资者以为当维持担保比例降至115%后，会马上遭到强平。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 15:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:25 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 15:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:19 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 15:21 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 15:35 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 15:28 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 15:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 15:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 15:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 15:38 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 15:46 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 15:34 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 15:50 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 15:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 15:25 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 15:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 15:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 15:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 15:43 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 15:50 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/53491019.shtml)
-- 2026-06-29 15:44 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/31060.shtml)
-- 2026-06-29 15:22 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/552781442.shtml)
-- 2026-06-29 15:39 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/42189775.shtml)
-- 2026-06-29 15:39 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/2761108522.shtml)
-- 2026-06-29 15:39 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/48175311.shtml)
-- 2026-06-29 15:27 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/27926446099.shtml)
-- 2026-06-29 15:43 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/93399109.shtml)
-- 2026-06-29 15:38 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/7697405.shtml)
-- 2026-06-29 15:21 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/3587163.shtml)
-- 2026-06-29 15:22 - [吴建豪老婆](https://www.blog.minike.top/Article/details/81727.shtml)
-- 2026-06-29 15:32 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/01516.shtml)
-- 2026-06-29 15:19 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/03279.shtml)
-- 2026-06-29 15:48 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/090235902686.shtml)
-- 2026-06-29 15:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/928859238209.shtml)
+- 2026-06-29 15:50 - [请回答王牌2019](http://www.share.minike.top/Article/details/48500815.shtml)
+- 2026-06-29 15:48 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/036277778.shtml)
+- 2026-06-29 15:53 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/051030881537.shtml)
+- 2026-06-29 15:36 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/06261.shtml)
+- 2026-06-29 15:42 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/750656457.shtml)
+- 2026-06-29 15:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/24591.shtml)
+- 2026-06-29 15:32 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/25480.shtml)
+- 2026-06-29 15:30 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/5381048227.shtml)
+- 2026-06-29 15:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/865236149649.shtml)
+- 2026-06-29 15:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/534461877657.shtml)
+- 2026-06-29 15:50 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/170803.shtml)
+- 2026-06-29 15:33 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/875528760.shtml)
+- 2026-06-29 15:33 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/7300969322.shtml)
+- 2026-06-29 15:37 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/8650886017.shtml)
+- 2026-06-29 15:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/54087658.shtml)

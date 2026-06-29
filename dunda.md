@@ -1,59 +1,56 @@
-# 多预警齐发！这些地方将有大暴雨、特大暴雨 注意防范
+# 算力网、物流网——“六张网”何以成扩大内需发力点
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 据中央气象台网站消息，今天18时，水利部、自然资源部、中央气象台多预警齐发。这些地区注意防范暴雨、强对流天气、地质灾害和山洪灾害。 暴雨黄色预警 中央气象台6月21日18时继续发布暴雨黄色预警：预计，6月21日20时至22日20时，贵州北部、重庆中部和东南部、湖南北部、湖北东部和南部、江西北部、安徽中南部、江苏中南部、浙江北部、上海以及广西北部、云南西部和东
+水网、新型电网、算力网、新一代通信网、城市地下管网、物流网—— “六张网”何以成扩大内需发力点？ 近日，中共中央政治局召开会议，明确提出“要深入挖掘内需潜力”。其中，“加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设”被摆在了突出位置。 这“六张网”，既涵盖传统基础设施升级，也包括新型基础设施建设。今年全国两会期间，国家发展改革委相关负责人曾透露，今年预
 
 ## 正文
 
-中新网6月21日电 据中央气象台网站消息，今天18时，水利部、自然资源部、中央气象台多预警齐发。
+水网、新型电网、算力网、新一代通信网、城市地下管网、物流网—— “六张网”何以成扩大内需发力点？
 
-这些地区注意防范暴雨、强对流天气、地质灾害和山洪灾害。
+近日，中共中央政治局召开会议，明确提出“要深入挖掘内需潜力”。
 
-暴雨黄色预警 中央气象台6月21日18时继续发布暴雨黄色预警：预计，6月21日20时至22日20时，贵州北部、重庆中部和东南部、湖南北部、湖北东部和南部、江西北部、安徽中南部、江苏中南部、浙江北部、上海以及广西北部、云南西部和东北部、四川东北部和东南部、陕西东南部、河北西北部、内蒙古东北部、黑龙江西部、西藏东南部、伊犁河谷东部等地有大到暴雨，其中，贵州东北部、重庆东南部、湖南北部、湖北东南部、安徽南部、江苏南部等地的部分地区有大暴雨，局地有特大暴雨(250～300毫米)。
+其中，“加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设”被摆在了突出位置。
 
-上述部分地区伴有短时强降水(最大小时降雨量40～70毫米，局地可超过90毫米)，局地有雷暴大风或冰雹等强对流天气。
+这“六张网”，既涵盖传统基础设施升级，也包括新型基础设施建设。
 
-强对流天气蓝色预警 中央气象台6月21日18时继续发布强对流天气蓝色预警：预计6月21日20时至22日20时，内蒙古中部和东南部、东北地区西南部、华北北部、江南北部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，内蒙古东南部、辽宁西南部、河北北部等地的局地最大风力可达10级以上；内蒙古东部和东南部、东北地区中北部、华北北部、江淮南部、江汉南部、江南北部、西南地区东部、华南西部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南北部、湖北东北部、安徽中部、江苏南部等地的部分地区小时雨量大于50毫米，最大可达90毫米以上。
+今年全国两会期间，国家发展改革委相关负责人曾透露，今年预估在“六张网”和重点领域建设投资超7万亿元。
 
-橙色地质灾害气象风险预警 自然资源部与中国气象局6月21日18时联合发布橙色地质灾害气象风险预警：预计，6月21日20时至22日20时，安徽西南部、江西西北部、湖北东部、湖南西北部、广西北部、重庆南部、贵州东部、云南西部、西藏东南部、新疆西北部等地部分地区发生地质灾害的气象风险较高(黄色预警)，其中，湖南西北部局地发生地质灾害的气象风险高(橙色预警)。
+“六张网”建设主要覆盖哪些方面？
 
-各级政府及有关部门按照应急预案做好地质灾害防御工作。
+将对经济发展起到哪些作用？
 
-请社会公众及时关注地质灾害气象风险预警信息，谨慎前往地质灾害预警区域。
+为何成为扩大内需的发力点？
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 15:22 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 15:25 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 15:44 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 15:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 15:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 15:33 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 15:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 15:22 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 15:23 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 15:20 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 15:36 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 15:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 15:53 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 15:51 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 15:37 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 15:48 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 15:42 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 15:32 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 15:53 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 15:47 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 15:50 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/75976695166.shtml)
-- 2026-06-29 15:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/91306.shtml)
-- 2026-06-29 15:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/46292909750.shtml)
-- 2026-06-29 15:47 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/27754090.shtml)
-- 2026-06-29 15:20 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/84321527919.shtml)
-- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/4593428599.shtml)
-- 2026-06-29 15:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/309716487.shtml)
-- 2026-06-29 15:29 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/736976174435.shtml)
-- 2026-06-29 15:35 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/823167351.shtml)
-- 2026-06-29 15:38 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/341964644.shtml)
-- 2026-06-29 15:37 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/827971.shtml)
-- 2026-06-29 15:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/106374607285.shtml)
-- 2026-06-29 15:33 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/32597225174.shtml)
-- 2026-06-29 15:36 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/89126043.shtml)
-- 2026-06-29 15:29 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/4524458577.shtml)
+- 2026-06-29 15:40 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/8725095537.shtml)
+- 2026-06-29 15:48 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/81282635017.shtml)
+- 2026-06-29 15:47 - [黄金也扛不住了](https://www.share.minike.top/Article/details/4187795.shtml)
+- 2026-06-29 15:49 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/83340685.shtml)
+- 2026-06-29 15:31 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/276865.shtml)
+- 2026-06-29 15:29 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/49507.shtml)
+- 2026-06-29 15:47 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/81062.shtml)
+- 2026-06-29 15:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/040606444.shtml)
+- 2026-06-29 15:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/470753512.shtml)
+- 2026-06-29 15:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/04439.shtml)
+- 2026-06-29 15:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/787447868299.shtml)
+- 2026-06-29 15:48 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/798044738792.shtml)
+- 2026-06-29 15:44 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/277283392.shtml)
+- 2026-06-29 15:42 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/01132.shtml)
+- 2026-06-29 15:42 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/7836578.shtml)

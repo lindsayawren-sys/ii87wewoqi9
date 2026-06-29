@@ -1,54 +1,61 @@
-# “龙舟水”来袭桂林漓江水位骤升 船舶排筏全线封航
+# 黄仁勋毕业演讲：抓住AI时代 要奔跑不要缓步
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 19:31 来源：中国新闻网 连日来，广西桂林遭遇“龙舟水”强降雨天气，辖区中小河流水位持续攀升，截至6月22日8时，漓江桂林水文站实测水位达145.66米，逼近146.0米警戒水位，截至6月22日11时，漓江船舶、排筏已经实施全线封航。 桂林海事局第一时间启动防汛应急响应，实施交通管制，全方位开展汛情防范工作，织密水上安全防护网。同时依托智慧
+英伟达创始人兼首席执行官黄仁勋昨天在匹兹堡卡内基梅隆大学告诉毕业生，对人工智能基础设施的需求正在创造“一个千载难逢的机会，可以重新工业化美国并恢复这个国家建设的能力”。 尽管许多美国大学毕业生担心人工智能可能会摧毁他们的职业梦想，但黄仁勋指出了无限的机会，因为“一个新行业正在诞生。一个科学与发现的新时代正在开始……我无法想象一个比现在更令人兴奋的时刻来开始你一生的事业。” 英伟
 
 ## 正文
 
-发布时间：2026年06月22日 19:31 来源：中国新闻网 连日来，广西桂林遭遇“龙舟水”强降雨天气，辖区中小河流水位持续攀升，截至6月22日8时，漓江桂林水文站实测水位达145.66米，逼近146.0米警戒水位，截至6月22日11时，漓江船舶、排筏已经实施全线封航。
+英伟达创始人兼首席执行官黄仁勋昨天在匹兹堡卡内基梅隆大学告诉毕业生，对人工智能基础设施的需求正在创造“一个千载难逢的机会，可以重新工业化美国并恢复这个国家建设的能力”。
 
-桂林海事局第一时间启动防汛应急响应，实施交通管制，全方位开展汛情防范工作，织密水上安全防护网。
+尽管许多美国大学毕业生担心人工智能可能会摧毁他们的职业梦想，但黄仁勋指出了无限的机会，因为“一个新行业正在诞生。
 
-同时依托智慧海事平台、CCTV视频监控及无人机空中巡查实现科技赋能，构建“电子巡查+现场巡航+岸上值守”三位一体的立体监管体系。
+一个科学与发现的新时代正在开始……我无法想象一个比现在更令人兴奋的时刻来开始你一生的事业。
 
-在应急备勤方面，海事部门在漓江干流重点水域前置巡逻艇和应急救援队伍，配齐应急装备，健全多部门联动救援机制，确保险情发生时能够快速处置、高效救援。
+” 英伟达是人工智能芯片制造商，也是世界上市值最大的公司。
 
-(黄艺坛 制作 王佳琪） 责任编辑：【罗攀】
+黄仁勋告诉5800名获得本科和研究生学位的毕业生，人工智能的建设将需要管道工、电工、铁匠以及芯片工厂、数据中心和先进制造设施的建筑工人。
+
+“没有哪一代人比你们拥有更强大的工具——或更大的机会——进入这个世界，”他说。
+
+“我们都站在同一起跑线上。
+
+这是你们帮助塑造未来的时刻。
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 15:45 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 15:26 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 15:29 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 15:23 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 15:20 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 15:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 15:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 15:41 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 15:27 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 15:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 15:24 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 15:23 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 15:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:25 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 15:43 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 15:24 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 15:33 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 15:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 15:51 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 15:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 15:37 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 15:53 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:41 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 15:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 15:26 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 15:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 15:36 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/70270851.shtml)
-- 2026-06-29 15:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/35825692.shtml)
-- 2026-06-29 15:37 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/98694723993.shtml)
-- 2026-06-29 15:41 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/016505800.shtml)
-- 2026-06-29 15:45 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/3610632878.shtml)
-- 2026-06-29 15:28 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/0798452433.shtml)
-- 2026-06-29 15:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/161017259830.shtml)
-- 2026-06-29 15:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/7993673433.shtml)
-- 2026-06-29 15:43 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/22149.shtml)
-- 2026-06-29 15:29 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/29194.shtml)
-- 2026-06-29 15:22 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/90939.shtml)
-- 2026-06-29 15:40 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/59895173.shtml)
-- 2026-06-29 15:26 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/58864987259.shtml)
-- 2026-06-29 15:24 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/06914899155.shtml)
-- 2026-06-29 15:41 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/2348163677.shtml)
+- 2026-06-29 15:52 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/468511.shtml)
+- 2026-06-29 15:46 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/06852.shtml)
+- 2026-06-29 15:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/725779.shtml)
+- 2026-06-29 15:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/15995.shtml)
+- 2026-06-29 15:51 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/9004649.shtml)
+- 2026-06-29 15:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/244099.shtml)
+- 2026-06-29 15:50 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/6298275.shtml)
+- 2026-06-29 15:41 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/75104.shtml)
+- 2026-06-29 15:53 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/92396402162.shtml)
+- 2026-06-29 15:53 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/4835176.shtml)
+- 2026-06-29 15:43 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/13555.shtml)
+- 2026-06-29 15:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/5377592022.shtml)
+- 2026-06-29 15:37 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/43941464.shtml)
+- 2026-06-29 15:27 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/8562710249.shtml)
+- 2026-06-29 15:30 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/74099964.shtml)

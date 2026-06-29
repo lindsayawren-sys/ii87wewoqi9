@@ -1,58 +1,59 @@
-# 端午节小长假皇岗、福田口岸迎送港澳旅客46万人次
+# 平潭边检站便捷通关 助力口岸经济一季度“开门红”
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。其中，经皇岗、福田口岸出入境港澳旅客46万人次。据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。 受香港、深圳、广州等地举办巡游竞渡、古礼
+中新网平潭5月12日电 (郑江洛 白志斌)“情况正常，可以开始作业。”12日，在平潭金井港区上空，无人机来回盘旋，对停泊在港口的“台北快轮”进行空中巡查。与此同时，平潭边检站民警快速核验船员信息，高效办结船舶出入境边防手续，全程不到20分钟。 据数据统计，今年第一季度，平潭受理申报进出口金额达49.5亿元，同比增长3.1%，外贸发展实现“开门红”。其中，跨境电商网购保税进口出区
 
 ## 正文
 
-中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。
+中新网平潭5月12日电 (郑江洛 白志斌)“情况正常，可以开始作业。
 
-其中，经皇岗、福田口岸出入境港澳旅客46万人次。
+”12日，在平潭金井港区上空，无人机来回盘旋，对停泊在港口的“台北快轮”进行空中巡查。
 
-据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。
+与此同时，平潭边检站民警快速核验船员信息，高效办结船舶出入境边防手续，全程不到20分钟。
 
-受香港、深圳、广州等地举办巡游竞渡、古礼仪式、文创市集、非遗展演、民俗体验、美食品鉴活动，叠加毕业出行等多重需求释放影响，连日来，大批内地居民将香港作为出境首选地，高中毕业生群体“小包团”现象较为明显。
+据数据统计，今年第一季度，平潭受理申报进出口金额达49.5亿元，同比增长3.1%，外贸发展实现“开门红”。
 
-同时，不少港澳居民返乡沐龙舟水、休闲娱乐消费、品味岭南韵味、悦享山海风情；令地处深港核心区的皇岗、福田口岸接续迎来出入境“两头忙”。
+其中，跨境电商网购保税进口出区清单达921.76万票，同比增长58.51%；进出口集装箱1.05万标箱，同比增长18.5%，口岸通关效率与贸易活力显著提升。
 
-21日适逢周日，也是端午节小长假最后一天。
+在跨境电商物流园选货区内，工作人员正根据电商订单选货、验单，包裹在传送带上快速流转；批量打包区里，装盒、封箱等动作一气呵成。
 
-皇岗边检站预测，出入境双向客流高峰将于当天18时至22时出现。
+平潭外代船务代理有限公司船代部经理阮邦川受访时说，以往，夜间、节假日货运航班通关曾是企业运营的痛点，如今平潭边检推出“7×24小时”全天候通关服务，实现货运船舶、船员“随到随检、即检即放”，提升了物流运转效率，有效降低企业运营成本。
 
-作为唯一24小时通关的皇岗口岸，在深夜和凌晨时段的出入境客流将更为集中且持续时间长。
+在通关提速、服务升级的基础上，平潭边检站以数字化改革为抓手，推动科技应用与通关服务深度融合，通过智能管控平台，前置开展船舶信息核验、船员身份核查、安全风险智能筛查，真正实现“数据多跑路、企业少跑腿”。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 15:29 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 15:39 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 15:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 15:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 15:46 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:42 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 15:24 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 15:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 15:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 15:35 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 15:40 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 15:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 15:35 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 15:53 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 15:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:24 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 15:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:40 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 15:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 15:42 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:25 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 15:43 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 15:42 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 15:31 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [灿如繁星定档](https://www.share.minike.top/Article/details/050120221165.shtml)
-- 2026-06-29 15:21 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/34918.shtml)
-- 2026-06-29 15:21 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/24066.shtml)
-- 2026-06-29 15:42 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/036512620.shtml)
-- 2026-06-29 15:32 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/64585555907.shtml)
-- 2026-06-29 15:23 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/894261.shtml)
-- 2026-06-29 15:47 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/824313333.shtml)
-- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9973527837.shtml)
-- 2026-06-29 15:30 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/628694343454.shtml)
-- 2026-06-29 15:30 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/32886731684.shtml)
-- 2026-06-29 15:21 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/73513537.shtml)
-- 2026-06-29 15:22 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/31020.shtml)
-- 2026-06-29 15:40 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/66144655869.shtml)
-- 2026-06-29 15:39 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/33549467.shtml)
-- 2026-06-29 15:23 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/70192.shtml)
+- 2026-06-29 15:31 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/0626840.shtml)
+- 2026-06-29 15:46 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/36140361.shtml)
+- 2026-06-29 15:33 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/91321815.shtml)
+- 2026-06-29 15:24 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/07791916981.shtml)
+- 2026-06-29 15:46 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/2624865.shtml)
+- 2026-06-29 15:25 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/27770.shtml)
+- 2026-06-29 15:39 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/374366421.shtml)
+- 2026-06-29 15:45 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/01904129602.shtml)
+- 2026-06-29 15:28 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/815756746509.shtml)
+- 2026-06-29 15:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/066551.shtml)
+- 2026-06-29 15:45 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/7747185.shtml)
+- 2026-06-29 15:26 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/1615966108.shtml)
+- 2026-06-29 15:41 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/71769501754.shtml)
+- 2026-06-29 15:34 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/765244.shtml)
+- 2026-06-29 15:45 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/18593295.shtml)

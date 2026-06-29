@@ -1,60 +1,60 @@
-# 晋江与敦煌双城联动 开启2026年国际文创设计大赛
+# 内塔尼亚胡接受哥伦比亚广播公司采访时表示，希望以色列逐步摆脱对美国军事援助的依赖
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。 据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆
+以色列总理本雅明・内塔尼亚胡在周日播出的采访中表示，随着以色列努力加强与海湾国家的关系，他希望在十年内让以色列不再依赖美国的军事支持。 内塔尼亚胡在美国哥电视节目中说： “我希望把美国的财政支持 —— 也就是我们军事合作中的资金部分 ——逐步削减至零。” 他透露，以色列每年获得约38 亿美元的美国军事援助。根据美以协议，2018 至 2028 年间，美国承诺向以色列提供总额38
 
 ## 正文
 
-中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。
+以色列总理本雅明・内塔尼亚胡在周日播出的采访中表示，随着以色列努力加强与海湾国家的关系，他希望在十年内让以色列不再依赖美国的军事支持。
 
-据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。
+内塔尼亚胡在美国哥电视节目中说： “我希望把美国的财政支持 —— 也就是我们军事合作中的资金部分 ——逐步削减至零。
 
-其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆丝”文化基因深度融合；产业融合特色赛道结合晋江伞具、食品两大优势产业，推动设计成果从图纸走向实物。
+” 他透露，以色列每年获得约38 亿美元的美国军事援助。
 
-大赛评审兼顾文化表达、创意巧思及商业价值与产业适配能力。
+根据美以协议，2018 至 2028 年间，美国承诺向以色列提供总额380 亿美元的军事援助。
 
-为吸引全球优秀设计师参与创作，大赛总奖金池超30万元，单项最高奖金3万元，旨在挖掘兼具文化深度与市场潜力的优质作品。
+但内塔尼亚胡称，现在 “完全正确” 的时机，来重新调整美以之间的资金关系。
 
-作品征集时间为2026年6月至9月，7月还将开展大赛配套“设计共创营”，助力深度创作。
+“我不想等到下一届美国国会，我想从现在就开始。
 
-“自2024年7月缔结友好城市以来，晋江与敦煌两地多次开展丝路文化对话、城市文脉交流，结下了深厚的合作情谊。
+” 长期以来，美国国会两党一直一致支持对以色列的军事援助。
 
-”晋江市委书记王明元指出，此次跨越山海、携手举办国际文创设计大赛，开启了两地产业协同、资源共享、双向赋能的全新阶段。
+但自 2023 年 10 月加沙战争爆发后，美国议员及民众对以色列的支持明显减弱。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 15:34 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 15:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 15:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 15:42 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 15:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 15:26 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 15:30 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 15:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 15:24 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 15:20 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 15:22 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 15:22 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 15:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 15:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 15:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:51 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 15:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 15:39 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 15:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 15:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 15:53 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 15:34 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 15:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 15:43 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/70603556.shtml)
-- 2026-06-29 15:32 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/395876020.shtml)
-- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/483354.shtml)
-- 2026-06-29 15:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/24470.shtml)
-- 2026-06-29 15:29 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/8234391575.shtml)
-- 2026-06-29 15:33 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/932257473505.shtml)
-- 2026-06-29 15:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/496345.shtml)
-- 2026-06-29 15:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/049992902987.shtml)
-- 2026-06-29 15:30 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/639188981.shtml)
-- 2026-06-29 15:44 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/9465351.shtml)
-- 2026-06-29 15:35 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/187967.shtml)
-- 2026-06-29 15:26 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/718710321148.shtml)
-- 2026-06-29 15:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/5991276240.shtml)
-- 2026-06-29 15:23 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/2825789523.shtml)
-- 2026-06-29 15:40 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/045747059.shtml)
+- 2026-06-29 15:39 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/427742.shtml)
+- 2026-06-29 15:39 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/147036.shtml)
+- 2026-06-29 15:29 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/3101002.shtml)
+- 2026-06-29 15:35 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/3459868.shtml)
+- 2026-06-29 15:28 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/614738747.shtml)
+- 2026-06-29 15:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/85666636353.shtml)
+- 2026-06-29 15:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/96454103171.shtml)
+- 2026-06-29 15:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/327489022.shtml)
+- 2026-06-29 15:36 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/529366.shtml)
+- 2026-06-29 15:40 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/6757724.shtml)
+- 2026-06-29 15:35 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/10428539614.shtml)
+- 2026-06-29 15:38 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/955334952.shtml)
+- 2026-06-29 15:29 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/23130.shtml)
+- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/7208813355.shtml)
+- 2026-06-29 15:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/98839128.shtml)

@@ -1,61 +1,57 @@
-# 海峡波澜再起，美伊谈判将受何影响？
+# 长江有色：沪锌库存累积叠加发票限制接货谨慎 11日锌价或下跌
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-新华社北京6月21日电 美国和伊朗将于21日在瑞士举行技术层面谈判，霍尔木兹海峡却在“最后一刻”再起波澜。伊朗军方20日突然宣布关闭这条此前已承诺开放的航道；美国却坚称海峡并未关闭，船舶仍在通行。 分析人士认为，霍尔木兹海峡局势生变，无疑给本就缺乏互信的美伊谈判蒙上阴影。 伊朗武装部队哈塔姆安比亚中央总部20日发表声明说，因以色列持续不断袭击黎巴嫩，伊朗已关闭霍尔木兹海峡。伊朗
+【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。 【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手
 
 ## 正文
 
-新华社北京6月21日电 美国和伊朗将于21日在瑞士举行技术层面谈判，霍尔木兹海峡却在“最后一刻”再起波澜。
+【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。
 
-伊朗军方20日突然宣布关闭这条此前已承诺开放的航道；美国却坚称海峡并未关闭，船舶仍在通行。
+【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手。
 
-分析人士认为，霍尔木兹海峡局势生变，无疑给本就缺乏互信的美伊谈判蒙上阴影。
+周五晚间沪锌低开低走，主力2606合约最新收盘价报24030元/吨，跌290元，跌幅1.19%。
 
-伊朗武装部队哈塔姆安比亚中央总部20日发表声明说，因以色列持续不断袭击黎巴嫩，伊朗已关闭霍尔木兹海峡。
+长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，尽管美国官员期待伊朗尽快回应最新提议，但波斯湾冲突再起仍令市场不安。
 
-伊朗伊斯兰革命卫队海军当天警告，所有船只不得进入或靠近霍尔木兹海峡，否则安全将受到威胁。
+焦点集中于自2月底战争爆发以来持续瘫痪的霍尔木兹海峡航运。
 
-美国方面却表示暂未观察到伊朗关闭海峡。
+伊朗批评美国违反停火协议，并计划制定海峡“法律制度”，此举被视为其核心谈判筹码。
 
-美国副总统万斯在接受媒体采访时说，目前没有看到海峡已经关闭的证据。
+分析师指出，近期船只遭扣押事件表明，尽管外交仍是基准情景，但冲突重燃风险显著。
 
-美军中央司令部也发表声明说，海峡当天“通行安全无阻”，商业船舶通行量有所增加。
+美国4月非农就业新增11.5万个，远超预期的6.2万个，3月数据亦上修至18.5万个，失业率稳定在4.3%，劳动力市场展现韧性，强化了美联储维持利率不变的预期。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 15:43 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 15:46 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 15:24 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 15:22 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 15:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 15:23 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 15:27 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 15:42 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 15:27 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 15:21 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 15:21 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 15:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 15:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 15:43 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 15:48 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 15:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 15:51 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 15:24 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 15:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:45 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 15:32 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 15:29 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/05740481.shtml)
-- 2026-06-29 15:47 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/447413.shtml)
-- 2026-06-29 15:45 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/07634316117.shtml)
-- 2026-06-29 15:47 - [把古诗里的动作换成加班](https://www.blog.kurohicncr.top/Article/details/2628654.shtml)
-- 2026-06-29 15:42 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/1808240.shtml)
-- 2026-06-29 15:39 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/3138355.shtml)
-- 2026-06-29 15:37 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/09212234539.shtml)
-- 2026-06-29 15:43 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/83193.shtml)
-- 2026-06-29 15:40 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/678363129411.shtml)
-- 2026-06-29 15:41 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/47470222130.shtml)
-- 2026-06-29 15:33 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/943295.shtml)
-- 2026-06-29 15:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/378988.shtml)
-- 2026-06-29 15:40 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/09984.shtml)
-- 2026-06-29 15:43 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/9948308.shtml)
-- 2026-06-29 15:20 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/9553138587.shtml)
+- 2026-06-29 15:52 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/76109812.shtml)
+- 2026-06-29 15:31 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/69992.shtml)
+- 2026-06-29 15:40 - [起风了](https://www.blog.kurohicncr.top/Article/details/525333150.shtml)
+- 2026-06-29 15:28 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7340403.shtml)
+- 2026-06-29 15:41 - [TFING全员黑西装](https://www.share.minike.top/Article/details/8950609317.shtml)
+- 2026-06-29 15:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/4678008304.shtml)
+- 2026-06-29 15:24 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/6453081.shtml)
+- 2026-06-29 15:45 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/56917371.shtml)
+- 2026-06-29 15:41 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/6125743045.shtml)
+- 2026-06-29 15:24 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/652643581.shtml)
+- 2026-06-29 15:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/928085.shtml)
+- 2026-06-29 15:39 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/239574984.shtml)
+- 2026-06-29 15:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/177913879.shtml)
+- 2026-06-29 15:36 - [当我回母校教书](http://www.blog.minike.top/Article/details/638130604.shtml)
+- 2026-06-29 15:31 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/4718443.shtml)

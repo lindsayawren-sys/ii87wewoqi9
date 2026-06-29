@@ -1,61 +1,56 @@
-# MLCC涨价潮调查：部分型号价格数倍跳涨，有商户捂货惜售，背后是AI需求引爆还是渠道炒作？
+# 加强政策协同配合 维护金融市场平稳运行
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。 2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格
+本报记者 欧阳剑环 彭扬 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。报告提出，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。拓展丰富中央银行宏观审慎和金融稳定功能，完善宏观审慎和金融稳定管理工具箱，维护金融市场平稳运行。 报告强调，下阶段，中国人民银行将坚持以习近平新时代中国特色社会主义
 
 ## 正文
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。
+本报记者 欧阳剑环 彭扬 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。
 
-2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。
+报告提出，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。
 
-从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格型号的MLCC，价格相比年初已经翻了三至五倍，商户直言MLCC现在“一天一个价”，甚至还有商户向记者“诉苦”称，敲定订单后，“时隔两小时去拿货却涨价五成”。
+拓展丰富中央银行宏观审慎和金融稳定功能，完善宏观审慎和金融稳定管理工具箱，维护金融市场平稳运行。
 
-“很多客户担心后面涨，都在询价‧‧‧‧‧‧（上游）有些人手上有（货），他也告诉你没有。
+报告强调，下阶段，中国人民银行将坚持以习近平新时代中国特色社会主义思想为指导，全面贯彻落实党的二十届四中全会、中央经济工作会议和全国“两会”精神，牢牢把握高质量发展首要任务，扎实推进中国式现代化，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，更好统筹国内国际两个大局，精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。
 
-”一位深圳的电容贸易商向记者描述着市场的微妙心态。
+坚定不移走中国特色金融发展之路，进一步深化金融改革和高水平对外开放，加快建设金融强国，完善中央银行制度，构建科学稳健的货币政策体系和覆盖全面的宏观审慎管理体系，畅通货币政策传导机制。
 
-在这场涨价风波中，有人看好后市，宁愿压在手里也不出货；也有从其他行业跨界而来的资金入场囤货，试图分一杯羹。
+报告提出，继续实施好适度宽松的货币政策。
 
-这场席卷市场的涨价潮，究竟是AI算力需求井喷点燃的“真火”，还是渠道炒作拱起来的“虚火”？
+增强政策前瞻性灵活性针对性，根据国内外经济金融形势和金融市场运行情况，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。
 
-记者通过走访市场、采访产业链上下游的多位人士，试图还原此轮MLCC行情背后的真相。
+灵活运用多种货币政策工具，保持流动性充裕和社会融资条件相对宽松，引导金融总量合理增长、信贷均衡投放，使社会融资规模、货币供应量增长同经济增长、价格总水平预期目标相匹配。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 15:31 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 15:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 15:33 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:47 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 15:24 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 15:41 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 15:29 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 15:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 15:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 15:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 15:26 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 15:23 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 15:27 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 15:33 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 15:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 15:26 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 15:28 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 15:51 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 15:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 15:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 15:52 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:34 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 15:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/78613599.shtml)
-- 2026-06-29 15:21 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/28060574797.shtml)
-- 2026-06-29 15:47 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/9259775045.shtml)
-- 2026-06-29 15:33 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/526571963.shtml)
-- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/125156574.shtml)
-- 2026-06-29 15:32 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/337378853.shtml)
-- 2026-06-29 15:43 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/259552489153.shtml)
-- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/094001.shtml)
-- 2026-06-29 15:25 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/449961.shtml)
-- 2026-06-29 15:30 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/8010084812.shtml)
-- 2026-06-29 15:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/00299078.shtml)
-- 2026-06-29 15:24 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/62696602.shtml)
-- 2026-06-29 15:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/030915893.shtml)
-- 2026-06-29 15:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/089839582468.shtml)
-- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/28368895769.shtml)
+- 2026-06-29 15:28 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/016027405868.shtml)
+- 2026-06-29 15:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/259294227369.shtml)
+- 2026-06-29 15:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/708616.shtml)
+- 2026-06-29 15:29 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/58654144003.shtml)
+- 2026-06-29 15:47 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/93024.shtml)
+- 2026-06-29 15:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/47902.shtml)
+- 2026-06-29 15:30 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/329196.shtml)
+- 2026-06-29 15:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/10690.shtml)
+- 2026-06-29 15:47 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/80464081139.shtml)
+- 2026-06-29 15:38 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/134039459.shtml)
+- 2026-06-29 15:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/03534.shtml)
+- 2026-06-29 15:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/38067.shtml)
+- 2026-06-29 15:30 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/51830.shtml)
+- 2026-06-29 15:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/33424961892.shtml)
+- 2026-06-29 15:46 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/5313923402.shtml)

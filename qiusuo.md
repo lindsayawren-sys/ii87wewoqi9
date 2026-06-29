@@ -1,58 +1,56 @@
-# 俄方称乌军袭击沃罗涅日州致5人死亡
+# 同心聚合力 上海统一战线赋能青年创新创业
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月22日电 俄罗斯沃罗涅日州州长亚历山大·古谢夫22日在社交媒体上发文称，乌克兰武装部队对该州发动导弹袭击，造成5人死亡、数十人受伤。俄罗斯侦查委员会对袭击事件刑事立案调查。 古谢夫同时表示，该州一家工业企业遭袭后发生火灾。目前火灾已被扑灭，清理工作仍在继续。此次袭击还造成当地10栋公寓楼和约50辆汽车受损。 俄罗斯侦查委员会发言人斯韦特兰娜·彼得连科当天通报说，
+中新网上海5月11日电 题：同心聚合力 上海统一战线赋能青年创新创业 作者范宇斌 5月10日，以“青年与城市共成长”为主题的第七届上海创新创业青年50人论坛举办。作为上海统一战线赋能青年创新创业、服务中心大局的重要平台，论坛以开放之姿汇聚全球青年才智，以务实之举涵养创新创业生态，推动青年创新活力与城市发展势能同频共振。 统战赋能聚合力 青年是创新的追梦者，更是城市发展的合伙人，
 
 ## 正文
 
-中新社莫斯科6月22日电 俄罗斯沃罗涅日州州长亚历山大·古谢夫22日在社交媒体上发文称，乌克兰武装部队对该州发动导弹袭击，造成5人死亡、数十人受伤。
+中新网上海5月11日电 题：同心聚合力 上海统一战线赋能青年创新创业 作者范宇斌 5月10日，以“青年与城市共成长”为主题的第七届上海创新创业青年50人论坛举办。
 
-俄罗斯侦查委员会对袭击事件刑事立案调查。
+作为上海统一战线赋能青年创新创业、服务中心大局的重要平台，论坛以开放之姿汇聚全球青年才智，以务实之举涵养创新创业生态，推动青年创新活力与城市发展势能同频共振。
 
-古谢夫同时表示，该州一家工业企业遭袭后发生火灾。
+统战赋能聚合力 青年是创新的追梦者，更是城市发展的合伙人，上海始终将青年创新创业摆在战略高度，推进青年发展型城市建设，把青年“需求清单”转化为精准“服务工单”，让青年心无旁骛创新、放开手脚创业。
 
-目前火灾已被扑灭，清理工作仍在继续。
+统一战线是凝聚人心、汇聚力量的重要法宝，在赋能青年创新创业中具有独特优势。
 
-此次袭击还造成当地10栋公寓楼和约50辆汽车受损。
+上海统一战线发挥凝聚人心的政治优势、人才荟萃的资源优势、联系广泛的组织优势，将服务青年创新创业作为围绕中心、服务大局的重要抓手，构建形成“1+16+N”工作合力，联动党派、高校、园区、商会及统战社团，深化政会银企、产学研用协同机制，形成助力青年创新创业的乘数效应。
 
-俄罗斯侦查委员会发言人斯韦特兰娜·彼得连科当天通报说，乌军使用导弹袭击了沃罗涅日民用及工业设施，造成平民伤亡，具体伤亡情况仍在进一步统计中。
+针对青年创业“缺资金、缺资源、缺经验”的痛点，上海统一战线做实精准服务：做强“联”字，依托海内外网络推进港澳台侨青年资源对接，创新“统战+链主+初创”机制赋能初创团队；做强“智”字，优化研修营体系，推行“导师+天使投资”模式，实现指导与投融资深度融合；做强“实”字，完善市级创新创业基地服务，配置专属服务专员与创业导师，提供一站式配套服务；做强“协”字，健全需求反馈协调机制，联动金融、产业部门拓宽投融资渠道，塑造全域良好创新创业生态。
 
-该委员会已根据涉“恐怖行为”相关条款对袭击事件刑事立案。
+青春逐梦共成长 上海创新创业青年50人论坛的七年迭代，是统一战线赋能青年创新创业的生动实践。
 
-俄罗斯国防部22日通报说，莫斯科时间7时至20时，俄防空系统在莫斯科等多个地区上空拦截并摧毁141架乌克兰无人机。
+七年来，论坛从单一活动平台升级为面向世界的创新创业会客厅和服务青年的创新创业生态圈，历经三个发展阶段持续优化升级——从第一届论坛到第三届论坛的1.0时代，从无到有搭建起跨界交流平台，从理念到实践探索出服务青年创业的有效路径，逐步成为上海青年创新创业领域的品牌活动。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 15:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 15:18 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 15:33 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 15:42 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 15:29 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 15:46 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 15:34 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 15:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 15:45 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:31 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 15:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 15:38 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 15:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:42 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 15:29 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 15:50 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 15:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 15:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/981528357.shtml)
-- 2026-06-29 15:38 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/063035543457.shtml)
-- 2026-06-29 15:45 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/24374.shtml)
-- 2026-06-29 15:19 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/421360961.shtml)
-- 2026-06-29 15:24 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/8054039825.shtml)
-- 2026-06-29 15:20 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/68908127997.shtml)
-- 2026-06-29 15:30 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/016252500213.shtml)
-- 2026-06-29 15:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/835748794344.shtml)
-- 2026-06-29 15:28 - [绘画区你赢了](https://www.share.minike.top/Article/details/011628098.shtml)
-- 2026-06-29 15:45 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/3020205993.shtml)
-- 2026-06-29 15:30 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/668330.shtml)
-- 2026-06-29 15:21 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/02947345.shtml)
-- 2026-06-29 15:26 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/528614009169.shtml)
-- 2026-06-29 15:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/254862428379.shtml)
-- 2026-06-29 15:35 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/087094439.shtml)
+- 2026-06-29 15:52 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/5834841.shtml)
+- 2026-06-29 15:38 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/6377286.shtml)
+- 2026-06-29 15:42 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/34776099547.shtml)
+- 2026-06-29 15:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/324950613324.shtml)
+- 2026-06-29 15:43 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/108635.shtml)
+- 2026-06-29 15:37 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/82980.shtml)
+- 2026-06-29 15:39 - [千与千寻](http://www.blog.minike.top/Article/details/499684931210.shtml)
+- 2026-06-29 15:50 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/17066984143.shtml)
+- 2026-06-29 15:43 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/3016109.shtml)
+- 2026-06-29 15:35 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/706052412.shtml)
+- 2026-06-29 15:35 - [T1零封KC MSI](http://www.share.minike.top/Article/details/43182547656.shtml)
+- 2026-06-29 15:32 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/3783224151.shtml)
+- 2026-06-29 15:46 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/6159016.shtml)
+- 2026-06-29 15:26 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/83756677718.shtml)
+- 2026-06-29 15:33 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/1176248609.shtml)

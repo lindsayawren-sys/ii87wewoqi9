@@ -1,55 +1,58 @@
-# 香港黄金产业集团拟配售最多2320万股 净筹约9320万港元
+# 今天，57家科创板公司股价创新高
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。配售价为每股配售股份4.08港元。假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事
+科创板研究中心数据显示，伴随指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。作者 | 黄修眉时隔6年，科创50指数刷新高点。今日（5月11日），科创50指数盘中一度达到1727.30点，突破2020年7月14日的1726.19高点，创下历史新高；最终收涨4.65%，报1716.69点。科创板研究中心数据显示，伴随科创50指数走强，科创板
 
 ## 正文
 
-香港黄金产业集团（02623）发布公告，于2026年6月18日，公司拟配售最多2320万股配售股份，相当于公司于本公告日期的现有已发行股本（不包括库存股份（如有））的约4.42%；及经配发及发行配售股份扩大后的公司已发行股本（不包括库存股份（如有））的约4.23%。
+科创板研究中心数据显示，伴随指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。
 
-配售价为每股配售股份4.08港元。
+作者 | 黄修眉时隔6年，科创50指数刷新高点。
 
-假设所有配售股份获悉数配售，配售事项的所得款项总额将约为9470万港元；及配售事项的所得款项净额估计约为9320万港元。
+今日（5月11日），科创50指数盘中一度达到1727.30点，突破2020年7月14日的1726.19高点，创下历史新高；最终收涨4.65%，报1716.69点。
 
-公司拟将配售事项的全部所得款项净额用于寻求由董事会不时评估的合适投资及╱或收购机会，例如从事贵金属采矿业务的目标公司。
+科创板研究中心数据显示，伴随科创50指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。
 
-责任编辑：卢昱君
+从上述名单来看，半导体及相关材料/设备领域企业占了绝对主力。
+
+排名前三的细分领域为半导体、通用设备、自动化设备，分别有19家、6家、4家。
+
+按今日盘后的最新总市值排名，澜起科技、盛合晶微、电科蓝天、佰维存储、源杰科技排名前五，分别为2570亿元、2366亿元、1488亿元、1368亿元、1354亿元。
+
+▌多只权重股及细分龙头股价爆发从盘面来看，半导体产业链几乎全线爆发，成为推升指数的绝对主力，多只权重股及细分龙头今日盘中或收盘股价创下历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 15:29 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 15:24 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 15:34 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 15:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 15:22 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 15:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 15:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 15:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 15:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 15:47 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:35 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:27 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 15:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 15:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 15:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 15:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 15:39 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 15:32 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 15:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 15:33 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 15:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 15:39 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 15:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 15:30 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/452254791.shtml)
-- 2026-06-29 15:32 - [斗破苍穹](http://www.blog.minike.top/Article/details/487311.shtml)
-- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/5396790.shtml)
-- 2026-06-29 15:19 - [沙丘](http://www.blog.minike.top/Article/details/601503536.shtml)
-- 2026-06-29 15:40 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/4963334.shtml)
-- 2026-06-29 15:40 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/2906759422.shtml)
-- 2026-06-29 15:31 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/3180884767.shtml)
-- 2026-06-29 15:45 - [金牌调解](https://www.share.minike.top/Article/details/276414141.shtml)
-- 2026-06-29 15:36 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/9682116.shtml)
-- 2026-06-29 15:26 - [抓特务票房破亿](https://www.share.minike.top/Article/details/253841.shtml)
-- 2026-06-29 15:41 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/3406317084.shtml)
-- 2026-06-29 15:44 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/89814956829.shtml)
-- 2026-06-29 15:40 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/972918624.shtml)
-- 2026-06-29 15:28 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/7856176.shtml)
-- 2026-06-29 15:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/78472115336.shtml)
+- 2026-06-29 15:36 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/27074.shtml)
+- 2026-06-29 15:41 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/3084506.shtml)
+- 2026-06-29 15:43 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/483365369215.shtml)
+- 2026-06-29 15:39 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/7586702092.shtml)
+- 2026-06-29 15:47 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/568039058.shtml)
+- 2026-06-29 15:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/14847961.shtml)
+- 2026-06-29 15:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/09387.shtml)
+- 2026-06-29 15:51 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/0296899.shtml)
+- 2026-06-29 15:25 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/961339390282.shtml)
+- 2026-06-29 15:27 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/60753.shtml)
+- 2026-06-29 15:45 - [沙丘](https://www.share.minike.top/Article/details/747942724.shtml)
+- 2026-06-29 15:44 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/238606.shtml)
+- 2026-06-29 15:47 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/98790371212.shtml)
+- 2026-06-29 15:44 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/67349038466.shtml)
+- 2026-06-29 15:25 - [一见倾心](https://www.blog.minike.top/Article/details/28693435.shtml)

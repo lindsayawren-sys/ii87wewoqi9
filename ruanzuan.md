@@ -1,58 +1,56 @@
-# 美伊18小时拉锯式对话结束，真正的考验刚刚开始
+# 宗馥莉被曝罢免销售负责人，直管营销
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电(魏晨曦)当地时间6月22日，斡旋方卡塔尔和巴基斯坦发布联合声明，确认在美伊谅解备忘录框架下举行的首轮高级别会谈已在瑞士比尔根山结束。 这是美伊自本月中旬达成初步协议以来，首次高级别面对面接触。围绕霍尔木兹海峡通航、黎巴嫩局势以及伊朗核问题等敏感议题，双方历经约18小时拉锯式磋商后，同意转入技术层面继续“交锋”。 从一度陷入僵局到连夜持续磋商，历经近一天一夜的
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
 ## 正文
 
-中新网6月22日电(魏晨曦)当地时间6月22日，斡旋方卡塔尔和巴基斯坦发布联合声明，确认在美伊谅解备忘录框架下举行的首轮高级别会谈已在瑞士比尔根山结束。
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
 
-这是美伊自本月中旬达成初步协议以来，首次高级别面对面接触。
+据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。
 
-围绕霍尔木兹海峡通航、黎巴嫩局势以及伊朗核问题等敏感议题，双方历经约18小时拉锯式磋商后，同意转入技术层面继续“交锋”。
+其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
 
-从一度陷入僵局到连夜持续磋商，历经近一天一夜的密集博弈后，美伊最终选择将谈判留在桌上，而非把分歧带回战场。
+宏胜饮料集团的总裁即为宗馥莉。
 
-然而，真正的考验，才刚刚开始。
+同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
-伊朗称“取得良好进展” 但不满美方强硬表态 伊朗外交部发言人巴加埃22日表示，伊朗与美国经过约18小时谈判，已就一份文件文本形成共识。
+简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
 
-相关联合声明已由卡塔尔和巴基斯坦两国作为调解方发布。
+此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
 
-巴加埃称，此轮会谈重点讨论了启动最终协议谈判所需的基础性工作，各方同意由技术小组继续就落实美伊谅解备忘录涉及的问题展开磋商。
+其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 15:35 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 15:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 15:20 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:42 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 15:22 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 15:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 15:34 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 15:20 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 15:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 15:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 15:43 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 15:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 15:46 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 15:26 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 15:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 15:46 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 15:41 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 15:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 15:50 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 15:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 15:52 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/000210003791.shtml)
-- 2026-06-29 15:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/91450796.shtml)
-- 2026-06-29 15:43 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/40728.shtml)
-- 2026-06-29 15:37 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/56150.shtml)
-- 2026-06-29 15:37 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/50287.shtml)
-- 2026-06-29 15:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/1857463.shtml)
-- 2026-06-29 15:28 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/18644267673.shtml)
-- 2026-06-29 15:25 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/3265231695.shtml)
-- 2026-06-29 15:23 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/38298426.shtml)
-- 2026-06-29 15:39 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/83002094.shtml)
-- 2026-06-29 15:44 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/4129399110.shtml)
-- 2026-06-29 15:43 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/983145616.shtml)
-- 2026-06-29 15:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/56614328.shtml)
-- 2026-06-29 15:34 - [当我回母校教书](https://www.share.minike.top/Article/details/6341271162.shtml)
-- 2026-06-29 15:39 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/80725986.shtml)
+- 2026-06-29 15:41 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/310141484.shtml)
+- 2026-06-29 15:27 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/6732217.shtml)
+- 2026-06-29 15:30 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/0377023254.shtml)
+- 2026-06-29 15:47 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/4243633863.shtml)
+- 2026-06-29 15:30 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/377872128.shtml)
+- 2026-06-29 15:29 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/100384221.shtml)
+- 2026-06-29 15:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/33441906.shtml)
+- 2026-06-29 15:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/11558539.shtml)
+- 2026-06-29 15:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/2856369662.shtml)
+- 2026-06-29 15:31 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/340376792.shtml)
+- 2026-06-29 15:30 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/45599.shtml)
+- 2026-06-29 15:31 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/76102542195.shtml)
+- 2026-06-29 15:40 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/901401929175.shtml)
+- 2026-06-29 15:45 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/922055083282.shtml)
+- 2026-06-29 15:45 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/922794740462.shtml)

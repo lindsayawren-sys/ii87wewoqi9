@@ -1,51 +1,48 @@
-# 革命圣地响起国际歌：外国军官起立合唱 歌词竟是法语原版
+# 蒙眼扎针！一起来看兵姐姐的绝活
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 15:24 来源：中国新闻网 江西瑞金，沙洲坝。90年前，中华苏维埃第一次全国代表大会在此举行，雄壮的《国际歌》曾响彻会场。90年后，一群外国军官来到这里探寻红军足迹，他们起立高唱法语版《国际歌》，用这种特殊方式致敬长征精神。(记者 王高飞 刁炜 徐峻杰 实习生 宋岩） 责任编辑：【阚枫】
+发布时间：2026年05月11日 11:33 来源：中国新闻网 在第115个国际护士节来临之际，联勤保障部队第924医院开展“全能护士争霸赛”技能比武。围绕心肺复苏、微光输液、创伤包扎等科目，全面锤炼战场救护能力，激励队员投身强军卫勤事业。(作者：司灵美 韦金秀 唐海燕 刘薇） 责任编辑：【魏聪聪】
 
 ## 正文
 
-发布时间：2026年06月22日 15:24 来源：中国新闻网 江西瑞金，沙洲坝。
+发布时间：2026年05月11日 11:33 来源：中国新闻网 在第115个国际护士节来临之际，联勤保障部队第924医院开展“全能护士争霸赛”技能比武。
 
-90年前，中华苏维埃第一次全国代表大会在此举行，雄壮的《国际歌》曾响彻会场。
+围绕心肺复苏、微光输液、创伤包扎等科目，全面锤炼战场救护能力，激励队员投身强军卫勤事业。
 
-90年后，一群外国军官来到这里探寻红军足迹，他们起立高唱法语版《国际歌》，用这种特殊方式致敬长征精神。
-
-(记者 王高飞 刁炜 徐峻杰 实习生 宋岩） 责任编辑：【阚枫】
+(作者：司灵美 韦金秀 唐海燕 刘薇） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 15:48 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 15:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 15:47 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 15:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 15:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 15:34 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 15:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 15:41 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 15:32 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 15:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:44 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 15:33 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 15:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:28 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 15:43 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 15:48 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 15:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 15:34 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:35 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 15:49 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 15:53 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 15:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 15:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 15:37 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/949016613.shtml)
-- 2026-06-29 15:33 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/98108.shtml)
-- 2026-06-29 15:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/680791907149.shtml)
-- 2026-06-29 15:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/0971590.shtml)
-- 2026-06-29 15:21 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/8308915.shtml)
-- 2026-06-29 15:35 - [逃狱兄弟](https://www.blog.minike.top/Article/details/9556834.shtml)
-- 2026-06-29 15:48 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/4153300.shtml)
-- 2026-06-29 15:40 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/83314700.shtml)
-- 2026-06-29 15:21 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/589226.shtml)
-- 2026-06-29 15:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/051074.shtml)
-- 2026-06-29 15:42 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/5066235.shtml)
-- 2026-06-29 15:34 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/05537.shtml)
-- 2026-06-29 15:42 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/506854943.shtml)
-- 2026-06-29 15:18 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/557038716.shtml)
-- 2026-06-29 15:24 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/631748.shtml)
+- 2026-06-29 15:45 - [上海一小区水池内出现一条鳄鱼](http://www.blog.kurohicncr.top/Article/details/52049565.shtml)
+- 2026-06-29 15:30 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/169008727.shtml)
+- 2026-06-29 15:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/5894559.shtml)
+- 2026-06-29 15:38 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/4006868799.shtml)
+- 2026-06-29 15:39 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5832731.shtml)
+- 2026-06-29 15:37 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/3946377.shtml)
+- 2026-06-29 15:44 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/01041.shtml)
+- 2026-06-29 15:35 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/919416.shtml)
+- 2026-06-29 15:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/723323244.shtml)
+- 2026-06-29 15:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/82902.shtml)
+- 2026-06-29 15:32 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/734336.shtml)
+- 2026-06-29 15:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/851316527.shtml)
+- 2026-06-29 15:37 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/414053.shtml)
+- 2026-06-29 15:54 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/581459.shtml)
+- 2026-06-29 15:31 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/93870929682.shtml)

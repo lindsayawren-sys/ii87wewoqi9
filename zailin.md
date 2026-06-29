@@ -1,44 +1,50 @@
-# 梅西17球创纪录 登顶世界杯历史射手榜
+# 2026年抚远口岸明水期货运首批货物出港
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-新华社美国达拉斯6月22日电 在22日进行的美加墨世界杯J组次轮阿根廷队对阵奥地利队的小组赛中，梅西打入自己在世界杯上的第17粒进球，从而超越德国名将克洛泽(16球)，创造新的个人世界杯总进球数纪录，登顶世界杯历史射手榜。
+中新网抚远5月12日电(张黎黎 宋兴鹏)近日，抚远货运口岸莽吉塔港今年首艘货船顺畅通关。搭载大米、彩涂卷等货物的“抚远海推666”船队，自中国抚远莽吉塔港驶向俄罗斯哈巴罗夫斯克港，标志着今年抚远货运口岸全面开通。 抚远莽吉塔港港口地理位置优越，顺黑龙江而下可直达黑龙江水系各港站，经俄罗斯出海后直通太平洋，辐射北美及东亚各国，形成“江连海、海通洋”的立体物流网，每年明水期5月至1
 
 ## 正文
 
-新华社美国达拉斯6月22日电 在22日进行的美加墨世界杯J组次轮阿根廷队对阵奥地利队的小组赛中，梅西打入自己在世界杯上的第17粒进球，从而超越德国名将克洛泽(16球)，创造新的个人世界杯总进球数纪录，登顶世界杯历史射手榜。
+中新网抚远5月12日电(张黎黎 宋兴鹏)近日，抚远货运口岸莽吉塔港今年首艘货船顺畅通关。
+
+搭载大米、彩涂卷等货物的“抚远海推666”船队，自中国抚远莽吉塔港驶向俄罗斯哈巴罗夫斯克港，标志着今年抚远货运口岸全面开通。
+
+抚远莽吉塔港港口地理位置优越，顺黑龙江而下可直达黑龙江水系各港站，经俄罗斯出海后直通太平洋，辐射北美及东亚各国，形成“江连海、海通洋”的立体物流网，每年明水期5月至11月通关。
+
+据悉，为全力保障口岸开关首日货运畅通有序，各联检部门主动靠前对接港口、货运企业，推行“提前申报”“船边直提”“抵港直装”等便利服务，最大限度提高通关效率，实现船舶通关“一次申报、一次查验、一次放行”，赋能口岸经贸往来与地方经济高质量发展。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 15:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 15:20 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 15:36 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 15:21 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:35 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:44 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 15:20 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 15:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 15:32 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 15:27 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 15:34 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:28 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 15:45 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 15:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 15:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:39 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 15:26 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:36 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 15:24 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 15:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/39744400592.shtml)
-- 2026-06-29 15:25 - [5万块的威力](http://www.blog.minike.top/Article/details/799872691.shtml)
-- 2026-06-29 15:29 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/5410777.shtml)
-- 2026-06-29 15:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/910423.shtml)
-- 2026-06-29 15:27 - [天道](https://www.blog.kurohicncr.top/Article/details/758931005985.shtml)
-- 2026-06-29 15:18 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/23572.shtml)
-- 2026-06-29 15:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/151674.shtml)
-- 2026-06-29 15:38 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/8205101526.shtml)
-- 2026-06-29 15:32 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/435571.shtml)
-- 2026-06-29 15:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/47666729.shtml)
-- 2026-06-29 15:43 - [爱很美味](https://www.share.kurohicncr.top/Article/details/28683761.shtml)
-- 2026-06-29 15:46 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/835666772.shtml)
-- 2026-06-29 15:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/33681.shtml)
-- 2026-06-29 15:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/7133034.shtml)
-- 2026-06-29 15:46 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/932326763117.shtml)
+- 2026-06-29 15:39 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/856851367.shtml)
+- 2026-06-29 15:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/2769206.shtml)
+- 2026-06-29 15:26 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/468471027.shtml)
+- 2026-06-29 15:28 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/44734678.shtml)
+- 2026-06-29 15:46 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/86210.shtml)
+- 2026-06-29 15:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/40858930.shtml)
+- 2026-06-29 15:35 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/8978728.shtml)
+- 2026-06-29 15:53 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/0524567665.shtml)
+- 2026-06-29 15:42 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/7182659485.shtml)
+- 2026-06-29 15:28 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/86900184.shtml)
+- 2026-06-29 15:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/30222.shtml)
+- 2026-06-29 15:34 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/794287127310.shtml)
+- 2026-06-29 15:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/8876484488.shtml)
+- 2026-06-29 15:24 - [NBA交易](https://www.blog.minike.top/Article/details/51567506.shtml)
+- 2026-06-29 15:29 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/5814133.shtml)

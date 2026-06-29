@@ -1,60 +1,56 @@
-# 中信建投期货：6月22日工业品早报
+# 西藏日喀则国际陆地港一季度进出口货运量增1.5倍
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-铜：宏观氛围偏弱，铜价调整为主 上周五晚伦铜回调至13581美金附近，CL价差约650美金/吨，溢价水平约4.8%。 宏观中性偏空。美伊和谈受阻，正式签署时间推迟，霍尔木兹海峡矛盾反复，地缘不确定性叠加9月加息预期升温，施压铜价回调至1.36万美金附近。 基本面中性。上周全球铜库存降至113万吨，其中境内铜库存减少4.8万吨至19万吨，LME铜去化约1万吨至35万吨，COMEX
+中新网拉萨5月12日电 (记者 贡桑拉姆)记者12日从拉萨海关获悉，今年一季度，西藏日喀则国际陆地港进出口货运量达355吨，同比增长1.5倍。自2024年8月首票货物通关以来，该港发展动能持续增强，正从“通道节点”向“服务平台”转型升级。 作为西藏对外开放的重要枢纽，日喀则国际陆地港构建起“一港联多岸”的开放新格局。拉萨海关推广“陆港申报、属地查验、口岸直通”模式，联动樟木、里
 
 ## 正文
 
-铜：宏观氛围偏弱，铜价调整为主 上周五晚伦铜回调至13581美金附近，CL价差约650美金/吨，溢价水平约4.8%。
+中新网拉萨5月12日电 (记者 贡桑拉姆)记者12日从拉萨海关获悉，今年一季度，西藏日喀则国际陆地港进出口货运量达355吨，同比增长1.5倍。
 
-宏观中性偏空。
+自2024年8月首票货物通关以来，该港发展动能持续增强，正从“通道节点”向“服务平台”转型升级。
 
-美伊和谈受阻，正式签署时间推迟，霍尔木兹海峡矛盾反复，地缘不确定性叠加9月加息预期升温，施压铜价回调至1.36万美金附近。
+作为西藏对外开放的重要枢纽，日喀则国际陆地港构建起“一港联多岸”的开放新格局。
 
-基本面中性。
+拉萨海关推广“陆港申报、属地查验、口岸直通”模式，联动樟木、里孜等口岸，实现“一次报关、一次查检、一箱到底”，显著提升通关效率。
 
-上周全球铜库存降至113万吨，其中境内铜库存减少4.8万吨至19万吨，LME铜去化约1万吨至35万吨，COMEX铜维持累库至约59万吨。
+同时，海关通过“关长送政策上门”“一对一关企联络”等机制，吸引青稞制品、藏毯、藏香等10家地方特色企业入驻，产业集聚效应初步显现。
 
-巴拿马环境部公布瑞士SGS审计，显示Cobre Panama铜矿合规率约88%，若复产许可落地，预计生产恢复节奏较快。
+为助力高原特色产品出口，拉萨海关主动服务企业，帮助完成知识产权海关备案、完善产品包装等。
 
-总体来看，海外地缘不确定性叠加加息担忧升温，国内经济数据维持弱复苏，叠加供应端存在边际改善预期，需求端深入淡季新增订单有限，整体来看宏观氛围偏空加之紧张的基本面趋于季节性缓和，短期铜价或面临一定调整压力。
+今年3月，日喀则市南木林县年雄农产品开发有限责任公司生产的1350千克豌豆粉条首次出口尼泊尔，实现当地特色农产品出口新突破。
 
-今日沪铜主力运行参考10.4万-10.55万元/吨。
+随着通关便利化水平提升，陆地港进出口产品结构不断优化，海外市场对绿色健康的高原农特产品需求增长。
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 15:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 15:46 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 15:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 15:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 15:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:47 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 15:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 15:24 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 15:21 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 15:34 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 15:38 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 15:45 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 15:28 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 15:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 15:27 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 15:44 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 15:30 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 15:41 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 15:39 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 15:36 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 15:39 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/45575179908.shtml)
-- 2026-06-29 15:34 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/539746.shtml)
-- 2026-06-29 15:25 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/45476.shtml)
-- 2026-06-29 15:46 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/824055.shtml)
-- 2026-06-29 15:20 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/5860011516.shtml)
-- 2026-06-29 15:24 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/6073476.shtml)
-- 2026-06-29 15:39 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/8013200.shtml)
-- 2026-06-29 15:32 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/37564.shtml)
-- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/2445999326.shtml)
-- 2026-06-29 15:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/5973103.shtml)
-- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/9231130256.shtml)
-- 2026-06-29 15:42 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/103503.shtml)
-- 2026-06-29 15:21 - [工作靠AI算不算职场作弊](http://www.blog.minike.top/Article/details/00258371.shtml)
-- 2026-06-29 15:44 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/2554760872.shtml)
-- 2026-06-29 15:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/8687456.shtml)
+- 2026-06-29 15:27 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/97372.shtml)
+- 2026-06-29 15:28 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/1198381.shtml)
+- 2026-06-29 15:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/10560523.shtml)
+- 2026-06-29 15:33 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/1114371529.shtml)
+- 2026-06-29 15:26 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5804724019.shtml)
+- 2026-06-29 15:51 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/56498.shtml)
+- 2026-06-29 15:25 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/10124.shtml)
+- 2026-06-29 15:43 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/726642760.shtml)
+- 2026-06-29 15:48 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/934554204216.shtml)
+- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/8994530234.shtml)
+- 2026-06-29 15:41 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/039293.shtml)
+- 2026-06-29 15:41 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/30352530460.shtml)
+- 2026-06-29 15:41 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/90503.shtml)
+- 2026-06-29 15:37 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/7749497388.shtml)
+- 2026-06-29 15:26 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/90650152.shtml)

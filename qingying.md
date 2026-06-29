@@ -1,58 +1,60 @@
-# 链博会上共赢的新故事持续“上新”
+# 微视频｜总书记引领美丽中国建设迈出新步伐
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-一年一度的“链博时间”再次开启，共赢的新故事持续“上新”。 今天，第四届中国国际供应链促进博览会(简称“链博会”)在北京开幕，主题为“链接世界，共创未来”，全球宾客齐聚于此，共寻发展新机。 中国贸促会会长任鸿斌在开幕式上表示，经过4年的发展和培育，链博会已经成为全球瞩目的国际经贸盛会和全球共享的国际公共产品。今年是中国“十五五”开局之年，第四届链博会围绕推动高质量发展、扩大高水
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。 习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。 坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元
 
 ## 正文
 
-一年一度的“链博时间”再次开启，共赢的新故事持续“上新”。
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。
 
-今天，第四届中国国际供应链促进博览会(简称“链博会”)在北京开幕，主题为“链接世界，共创未来”，全球宾客齐聚于此，共寻发展新机。
+党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。
 
-中国贸促会会长任鸿斌在开幕式上表示，经过4年的发展和培育，链博会已经成为全球瞩目的国际经贸盛会和全球共享的国际公共产品。
+习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。
 
-今年是中国“十五五”开局之年，第四届链博会围绕推动高质量发展、扩大高水平对外开放，更大力度推动产业链供应链国际合作，助力中外企业共享机遇、共同发展。
+坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元之美，是践行“绿水青山就是金山银山”理念的重要举措。
 
-“我们聚力链接更广阔的世界。
+生态文明建设既是发展课题，也是改革命题。
 
-”任鸿斌介绍，本届链博会国际影响力进一步扩大，共有676家企业和机构参展，涉及85个国家、地区和国际组织，境外参展商占比上升至36.5%，连同参展商带来的产业链上下游合作伙伴，实际参展商超过1200家。
+今年3月，我国颁布生态环境法典，进一步筑牢了美丽中国建设的法治基石。
 
-澳大利亚担任主宾国，法国和意大利有关大区担任外国主宾省，并专程派团来华参会、观展洽谈的境外团组超过200个。
+为全局计，为长远谋。
 
-科技创新是引领未来发展的重要引擎。
+习近平总书记心系人民福祉、瞩望民族未来，推动人与自然和谐共生的中国式现代化行稳致远。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 15:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 15:25 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 15:24 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 15:32 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 15:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 15:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 15:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 15:43 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 15:33 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 15:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 15:45 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 15:51 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 15:28 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 15:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 15:43 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 15:50 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 15:45 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 15:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 15:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 15:28 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 15:50 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 15:52 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 15:36 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 15:38 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/94453857.shtml)
-- 2026-06-29 15:27 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/199327.shtml)
-- 2026-06-29 15:32 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/883008246.shtml)
-- 2026-06-29 15:38 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/34519.shtml)
-- 2026-06-29 15:27 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/95822.shtml)
-- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/77121888083.shtml)
-- 2026-06-29 15:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/818295192.shtml)
-- 2026-06-29 15:33 - [金刚川](http://www.blog.kurohicncr.top/Article/details/31687.shtml)
-- 2026-06-29 15:38 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/43128.shtml)
-- 2026-06-29 15:30 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/370220346.shtml)
-- 2026-06-29 15:43 - [一见倾心](http://www.share.kurohicncr.top/Article/details/680267918592.shtml)
-- 2026-06-29 15:45 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/41368123.shtml)
-- 2026-06-29 15:31 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/301082602.shtml)
-- 2026-06-29 15:38 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/0074873.shtml)
-- 2026-06-29 15:34 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/0027784.shtml)
+- 2026-06-29 15:41 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/4753969638.shtml)
+- 2026-06-29 15:49 - [急先锋](http://www.share.minike.top/Article/details/8134741.shtml)
+- 2026-06-29 15:40 - [起风了](http://www.share.minike.top/Article/details/612951.shtml)
+- 2026-06-29 15:51 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/90350041.shtml)
+- 2026-06-29 15:44 - [勇敢的心第二部](https://www.share.minike.top/Article/details/426226.shtml)
+- 2026-06-29 15:37 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/3100106156.shtml)
+- 2026-06-29 15:45 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/356625536976.shtml)
+- 2026-06-29 15:44 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/9148171.shtml)
+- 2026-06-29 15:45 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/25625578706.shtml)
+- 2026-06-29 15:51 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/62226010.shtml)
+- 2026-06-29 15:28 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/6606142866.shtml)
+- 2026-06-29 15:38 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/678761.shtml)
+- 2026-06-29 15:27 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/849938.shtml)
+- 2026-06-29 15:30 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/74069035.shtml)
+- 2026-06-29 15:34 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/27364.shtml)

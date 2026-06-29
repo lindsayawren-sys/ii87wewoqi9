@@ -1,52 +1,58 @@
-# 商务部等九部门：支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策
+# “即时平仓线”，突然刷屏！发生了什么？
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。提升汽车租赁供给能力。鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，一则“东方证券的两融业务新增了一个‘即时平仓线’，目前东方证券的即时平仓线是115%，平仓线是130%，预警线150%”的消息突然刷屏。 券商中国记者了解到，这一做法在业内并不鲜见，不同的券商叫法不同，有的叫次日平仓线，有的叫紧急平仓线等，数值基本都在115%左右。 券商两融人士向券商中国记者表示，这
 
 ## 正文
 
-6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。
+近日，一则“东方证券的两融业务新增了一个‘即时平仓线’，目前东方证券的即时平仓线是115%，平仓线是130%，预警线150%”的消息突然刷屏。
 
-支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。
+券商中国记者了解到，这一做法在业内并不鲜见，不同的券商叫法不同，有的叫次日平仓线，有的叫紧急平仓线等，数值基本都在115%左右。
 
-提升汽车租赁供给能力。
+券商两融人士向券商中国记者表示，这种做法主要是为了进一步防范风险。
 
-鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网络，支持“异地还车”“以租代购”等多元化服务模式创新，以及汽车租赁保险产品创新，完善保险服务，降低消费者用车成本。
+传统的平仓线，维持担保比例高处置速度慢，在当前部分股票20%日涨跌幅的情况下，容易导致维保比例跌破100%。
 
-责任编辑：秦艺
+相较之下，即时平仓线的处置就更加高效，避免投资者损失进一步扩大。
+
+市场方面，5月12日上午，A股市场有所回调。
+
+沪深两市早间成交21704亿元。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 15:42 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 15:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 15:38 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 15:46 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 15:35 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 15:46 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 15:44 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 15:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 15:25 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 15:49 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:39 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:49 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 15:52 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 15:25 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 15:38 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 15:29 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 15:50 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 15:33 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 15:41 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/9653952857.shtml)
-- 2026-06-29 15:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/78827160.shtml)
-- 2026-06-29 15:29 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/6944428928.shtml)
-- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/675587384351.shtml)
-- 2026-06-29 15:45 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/0766511777.shtml)
-- 2026-06-29 15:21 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/66528479670.shtml)
-- 2026-06-29 15:20 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/28562507.shtml)
-- 2026-06-29 15:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/66074.shtml)
-- 2026-06-29 15:24 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/49879275850.shtml)
-- 2026-06-29 15:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/267183020031.shtml)
-- 2026-06-29 15:20 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/1031844380.shtml)
-- 2026-06-29 15:42 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/93812.shtml)
-- 2026-06-29 15:40 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/572345.shtml)
-- 2026-06-29 15:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5015871.shtml)
-- 2026-06-29 15:37 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/55350025205.shtml)
+- 2026-06-29 15:24 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/84446856205.shtml)
+- 2026-06-29 15:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/14570359.shtml)
+- 2026-06-29 15:43 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/388952572.shtml)
+- 2026-06-29 15:27 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/59061.shtml)
+- 2026-06-29 15:28 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/857829.shtml)
+- 2026-06-29 15:24 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/85030484.shtml)
+- 2026-06-29 15:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/717519.shtml)
+- 2026-06-29 15:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/80648580176.shtml)
+- 2026-06-29 15:49 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/159984.shtml)
+- 2026-06-29 15:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/31737.shtml)
+- 2026-06-29 15:32 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/9129244186.shtml)
+- 2026-06-29 15:33 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/57935705636.shtml)
+- 2026-06-29 15:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/9808132.shtml)
+- 2026-06-29 15:40 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/12380412.shtml)
+- 2026-06-29 15:25 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/2031037728.shtml)

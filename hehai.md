@@ -1,42 +1,60 @@
-# 仓储设施起大火 美国洛杉矶市进入紧急状态
+# 谷歌母公司Alphabet拟发行日元债券，为AI基建筹措资金
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 15:44 来源：央视新闻 责任编辑：【王祎】
+科技巨头Alphabet计划首次进军日本债券市场，拟面向日本合格机构投资者发行多批次日元计价票据，以进一步拓宽融资渠道，为其大规模人工智能基础设施建设提供资金支持。该公司已聘请美银证券、瑞穗证券和摩根士丹利负责此次发行，具体规模预计达数千亿日元，条款将于本月内敲定。 此次发债正值Alphabet大幅加码AI投资之际。公司已将2026年全年资本支出指引上调至1800亿至1900亿
 
 ## 正文
 
-发布时间：2026年06月21日 15:44 来源：央视新闻 责任编辑：【王祎】
+科技巨头Alphabet计划首次进军日本债券市场，拟面向日本合格机构投资者发行多批次日元计价票据，以进一步拓宽融资渠道，为其大规模人工智能基础设施建设提供资金支持。
+
+该公司已聘请美银证券、瑞穗证券和摩根士丹利负责此次发行，具体规模预计达数千亿日元，条款将于本月内敲定。
+
+此次发债正值Alphabet大幅加码AI投资之际。
+
+公司已将2026年全年资本支出指引上调至1800亿至1900亿美元，主要用于数据中心、服务器及网络设备等AI基础设施。
+
+今年第一季度，Alphabet单季资本支出已达357亿美元。
+
+密集发债旨在为庞大的资本开支提供低成本资金。
+
+就在一周前，Alphabet刚刚完成了公司史上规模最大的欧元债券发行，并首次发行加元债券，合计募资近170亿美元。
+
+此前数月，该公司还首次发行了英镑和瑞士法郎计价债券。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 15:20 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 15:47 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 15:30 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 15:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 15:38 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 15:19 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 15:46 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 15:20 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 15:30 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 15:45 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 15:40 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 15:47 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 15:33 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:35 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 15:32 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 15:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 15:46 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 15:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 15:30 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 15:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 15:38 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/8492473.shtml)
-- 2026-06-29 15:35 - [美人鱼](http://www.share.kurohicncr.top/Article/details/038619715.shtml)
-- 2026-06-29 15:47 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/27502187.shtml)
-- 2026-06-29 15:22 - [送你一朵小红花](https://www.blog.minike.top/Article/details/619864879.shtml)
-- 2026-06-29 15:28 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/56446683289.shtml)
-- 2026-06-29 15:46 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/065144.shtml)
-- 2026-06-29 15:43 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/56128.shtml)
-- 2026-06-29 15:40 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/07308956328.shtml)
-- 2026-06-29 15:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/02876440.shtml)
-- 2026-06-29 15:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/049837065.shtml)
-- 2026-06-29 15:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/788037314544.shtml)
-- 2026-06-29 15:35 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/016964420.shtml)
-- 2026-06-29 15:29 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/154126.shtml)
-- 2026-06-29 15:28 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/4935154866.shtml)
-- 2026-06-29 15:42 - [爱很美味](https://www.share.kurohicncr.top/Article/details/923598487546.shtml)
+- 2026-06-29 15:45 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/767225721.shtml)
+- 2026-06-29 15:28 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/9222947363.shtml)
+- 2026-06-29 15:26 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/09387025537.shtml)
+- 2026-06-29 15:35 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/15724032161.shtml)
+- 2026-06-29 15:31 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/29221.shtml)
+- 2026-06-29 15:49 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/95963.shtml)
+- 2026-06-29 15:44 - [NBA交易](https://www.share.kurohicncr.top/Article/details/874958104465.shtml)
+- 2026-06-29 15:42 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/491743652629.shtml)
+- 2026-06-29 15:36 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/89500232.shtml)
+- 2026-06-29 15:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/34392779.shtml)
+- 2026-06-29 15:31 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/104577049.shtml)
+- 2026-06-29 15:36 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/23819744908.shtml)
+- 2026-06-29 15:53 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/1846452.shtml)
+- 2026-06-29 15:29 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/1195124.shtml)
+- 2026-06-29 15:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/48924.shtml)

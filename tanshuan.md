@@ -1,51 +1,59 @@
-# 青藏铁路通车20年 格尔木南站中转货物突破2亿吨
+# 多个“国民品牌”在手，光明肉业遭遇十多年来首亏
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 08:32 来源：中国新闻网 近日，记者来到格尔木南站看到，货运列车在这里完成解体、编组后，满载进出西藏、新疆等地的各类物资驶向目的地。格尔木南站作为青、藏、甘、新四省区重要铁路枢纽，启用后有效分担了格尔木站的解编作业压力，进一步提升了货运组织效率和运输能力。截至目前，格尔木南站中转货物已突破2亿吨。(谢牧) 责任编辑：【陈海峰】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 拥有“上海梅林”“冠生园”“大白兔”等知名品牌的光明肉业，十余年来首次出现年报亏损。 近日，光明肉业（600073）披露控股股东减持完成公告，其控股股东上海益民食品一厂（集团）有限公司（下称“益民食品集团”）通过大宗交易方式完成近亿元减持。 根据公告，益民食品集团此前于2026年3月披露减
 
 ## 正文
 
-发布时间：2026年06月22日 08:32 来源：中国新闻网 近日，记者来到格尔木南站看到，货运列车在这里完成解体、编组后，满载进出西藏、新疆等地的各类物资驶向目的地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-格尔木南站作为青、藏、甘、新四省区重要铁路枢纽，启用后有效分担了格尔木站的解编作业压力，进一步提升了货运组织效率和运输能力。
+来源：国际金融报 拥有“上海梅林”“冠生园”“大白兔”等知名品牌的光明肉业，十余年来首次出现年报亏损。
 
-截至目前，格尔木南站中转货物已突破2亿吨。
+近日，光明肉业（600073）披露控股股东减持完成公告，其控股股东上海益民食品一厂（集团）有限公司（下称“益民食品集团”）通过大宗交易方式完成近亿元减持。
 
-(谢牧) 责任编辑：【陈海峰】
+根据公告，益民食品集团此前于2026年3月披露减持计划，拟在未来3个月内减持不超过公司总股本1.99%的股份。
+
+截至5月6日，该减持计划已全部实施完毕。
+
+控股股东通过大宗交易减持股份1866.08万股，合计“套现”金额约9890.23万元。
+
+减持完成后，益民食品集团持股数量从2.98亿股降至2.8亿股，持股比例由31.82%回落至29.83%，仍为公司控股股东，公司实际控制人未发生变化。
+
+根据公司公告，益民食品集团此次减持是出于“战略发展需要”。
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 15:43 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 15:36 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 15:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 15:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 15:35 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 15:32 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 15:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 15:45 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:39 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 15:46 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 15:31 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 15:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 15:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 15:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 15:40 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:24 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 15:43 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 15:32 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:52 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 15:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 15:40 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 15:45 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 15:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 15:29 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/983661.shtml)
-- 2026-06-29 15:22 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/557989156.shtml)
-- 2026-06-29 15:20 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/408273332.shtml)
-- 2026-06-29 15:25 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/834358762.shtml)
-- 2026-06-29 15:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/138439049.shtml)
-- 2026-06-29 15:44 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/696137211.shtml)
-- 2026-06-29 15:36 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/80019983617.shtml)
-- 2026-06-29 15:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/18816414292.shtml)
-- 2026-06-29 15:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/78160759569.shtml)
-- 2026-06-29 15:28 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/85062269.shtml)
-- 2026-06-29 15:47 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/582506807898.shtml)
-- 2026-06-29 15:39 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/037288536.shtml)
-- 2026-06-29 15:46 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/709365.shtml)
-- 2026-06-29 15:30 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/515548.shtml)
-- 2026-06-29 15:35 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/51182676617.shtml)
+- 2026-06-29 15:34 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/99539248.shtml)
+- 2026-06-29 15:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/5597001.shtml)
+- 2026-06-29 15:31 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/262466445389.shtml)
+- 2026-06-29 15:33 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/3490993061.shtml)
+- 2026-06-29 15:48 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/951441222.shtml)
+- 2026-06-29 15:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/8049047.shtml)
+- 2026-06-29 15:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/53618.shtml)
+- 2026-06-29 15:53 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/4919345003.shtml)
+- 2026-06-29 15:35 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/23492037.shtml)
+- 2026-06-29 15:50 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/63320649.shtml)
+- 2026-06-29 15:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/16731114.shtml)
+- 2026-06-29 15:47 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/942771916.shtml)
+- 2026-06-29 15:41 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/46962.shtml)
+- 2026-06-29 15:50 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/10811961452.shtml)
+- 2026-06-29 15:25 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/3752799339.shtml)

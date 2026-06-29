@@ -1,59 +1,56 @@
-# 网警依法查处编造传播涉农网络谣言案 全力护航“三夏”生产
+# 年内被罚超5000万元 农信社频现百万级“罚单”
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。 经查，网民祁某、刘某、周某、吴某、张某、侯某、
+来源：经济参考报 作者：刘大江 许张超 今年以来，农村信用社罚单量额齐增，严监管态势持续加码。同花顺iFinD数据显示，截至5月7日，年内已有54家农村信用社合计被罚5048.81万元，百万元以上大额罚单更是密集落地，“五一”假期前的最后一个工作日就有9家农村信用社被监管部门处以百万元以上罚款，大田县农信联社在节后首个工作日收到145万元罚款。 单月现16张百万级罚单 今年以来
 
 ## 正文
 
-当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。
+来源：经济参考报 作者：刘大江 许张超 今年以来，农村信用社罚单量额齐增，严监管态势持续加码。
 
-个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。
+同花顺iFinD数据显示，截至5月7日，年内已有54家农村信用社合计被罚5048.81万元，百万元以上大额罚单更是密集落地，“五一”假期前的最后一个工作日就有9家农村信用社被监管部门处以百万元以上罚款，大田县农信联社在节后首个工作日收到145万元罚款。
 
-近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。
+单月现16张百万级罚单 今年以来，农村信用社被罚金额和机构数量均显著增加。
 
-经查，网民祁某、刘某、周某、吴某、张某、侯某、刘某、王某、马某等多人发布涉安阳、商丘、周口、济源等地“毁粮卖青”“谁在麦田下投毒”“麦田流血水”等多条涉农网络谣言信息，引发大范围传播，误导公众认知，造成不良社会影响。
+iFinD数据显示，按披露日期计算，截至5月7日，年内全国已有54家农村信用社及相关责任人被监管部门开出罚单，受罚机构累计被罚没金额为5048.81万元。
 
-目前，属地公安机关已对上述人员依法作出行政处罚。
+对比去年同期，39家农村信用社合计被罚1996.77万元，今年农村信用社被罚没金额同比增长152.85%。
 
-网警提醒：网络空间不是法外之地！
+值得注意的是，农村信用社已成为银行业收到百万元以上大额罚单的“常客”。
 
-“三夏”生产关乎国家粮食安全和千家万户生计，请广大网民自觉遵守法律法规，不造谣、不信谣、不传谣。
+今年4月，全国共有249家银行及分支机构被监管部门处罚，受罚机构被罚没金额合计达到1.66亿元，百万元以上大额罚单有54张，被罚没金额合计达到1.17亿元，占总罚没金额的比重达到70.53%。
 
-公安网安部门将持续保持严打高压态势，对造谣传谣行为依法打处，全力为“三夏”生产保驾护航。
+其中，26家农村信用社合计被罚3328.64万元，16家机构领百万元以上大额罚单。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 15:35 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 15:35 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 15:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 15:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 15:19 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 15:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 15:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 15:28 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:35 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 15:38 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 15:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 15:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 15:51 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 15:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 15:27 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 15:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 15:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 15:38 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 15:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 15:26 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 15:27 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/9583779.shtml)
-- 2026-06-29 15:32 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/66323.shtml)
-- 2026-06-29 15:31 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/421214955.shtml)
-- 2026-06-29 15:42 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/22234842.shtml)
-- 2026-06-29 15:31 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/492557881.shtml)
-- 2026-06-29 15:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/462509077.shtml)
-- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/972774865980.shtml)
-- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/742098881.shtml)
-- 2026-06-29 15:23 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/9466444856.shtml)
-- 2026-06-29 15:39 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/62227778028.shtml)
-- 2026-06-29 15:35 - [绘画区你赢了](http://www.share.minike.top/Article/details/18260042863.shtml)
-- 2026-06-29 15:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/050897825479.shtml)
-- 2026-06-29 15:21 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/749000205.shtml)
-- 2026-06-29 15:46 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/427151771.shtml)
-- 2026-06-29 15:25 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/967302056047.shtml)
+- 2026-06-29 15:29 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/53532747635.shtml)
+- 2026-06-29 15:24 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/130032283.shtml)
+- 2026-06-29 15:35 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/011771707381.shtml)
+- 2026-06-29 15:36 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/467812.shtml)
+- 2026-06-29 15:28 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/077503.shtml)
+- 2026-06-29 15:29 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/9863605.shtml)
+- 2026-06-29 15:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/604604141.shtml)
+- 2026-06-29 15:52 - [这一刀 会很帅](http://www.share.minike.top/Article/details/71267.shtml)
+- 2026-06-29 15:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/94936215.shtml)
+- 2026-06-29 15:44 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/390463329.shtml)
+- 2026-06-29 15:44 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/7015817.shtml)
+- 2026-06-29 15:45 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/7824078.shtml)
+- 2026-06-29 15:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/818248321.shtml)
+- 2026-06-29 15:29 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/568113.shtml)
+- 2026-06-29 15:35 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/282818625796.shtml)

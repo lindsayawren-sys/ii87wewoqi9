@@ -1,61 +1,56 @@
-# 世界杯千场经典对决落幕，日本4:0大胜出线！11家AI预测一致，唯独百度文心预判失误
+# 中信银行员工诈骗客户数百万 保险公司被判支付“雇员忠诚险”
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月21日中午，美加墨世界杯F组第二轮迎来里程碑对决，本场是世界杯历史第1000场正赛，突尼斯迎战日本，这场较量直接决定两队小组出线前景。首轮对决中，日本2：2战平荷兰拿到1分，出线局势相对乐观；突尼斯1：5大比分不敌瑞典，赛后主教练下课，球队深陷小组垫底，本场只有取胜才有机会保留淘汰赛希望。 在联
+来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。 短短数月，14名客户受骗，金额达到393万。 其实这样的案件这些年也屡见不
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。
 
-北京时间6月21日中午，美加墨世界杯F组第二轮迎来里程碑对决，本场是世界杯历史第1000场正赛，突尼斯迎战日本，这场较量直接决定两队小组出线前景。
+” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。
 
-首轮对决中，日本2：2战平荷兰拿到1分，出线局势相对乐观；突尼斯1：5大比分不敌瑞典，赛后主教练下课，球队深陷小组垫底，本场只有取胜才有机会保留淘汰赛希望。
+短短数月，14名客户受骗，金额达到393万。
 
-在联想集团与咪咕视频联合推出的《世界杯预测人机大战》活动中，12家参赛大模型的判断整体高度趋同。
+其实这样的案件这些年也屡见不鲜了。
 
-DeepSeek、通义千问、中移九天、天禧AI、腾讯混元、Kimi、智谱、MiniMax、阶跃、讯飞星火、商汤小浣熊共计11家AI全部看好日本拿下胜利；仅百度文心做出反向预判，预测突尼斯1：0爆冷取胜。
+最终结果就是吕某泽锒铛入狱，中信银行向受害者垫付了386万余元。
 
-尽管绝大多数AI准确预判日本赢球，但所有模型给出的预测比分均和本场真实赛果存在明显偏差，没有任何一家猜对4：0的终局比分。
+但是，由于中信银行曾向保险公司投保了“雇员忠诚保证保险”，转头向保险公司申请理赔，结果被保险公司断然拒绝。
 
-全场战罢日本4：0大胜突尼斯，收获小组赛首胜，出线主动权牢牢握在手中；突尼斯两战全部落败，基本无缘后续淘汰赛阶段。
+经过几年拉锯，今年2月，甘肃省高级法院采纳检察机关抗诉意见，改判保险公司支付中信银行保险赔偿金328万余元。
 
-闪电攻势摧垮防线，日本四球零封完美收官 本场日本队一开场就掌控比赛节奏，依靠细腻传控持续撕扯突尼斯防线，进攻效率拉满。
+截至3月13日，赔偿金全部支付到位。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 15:29 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 15:40 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 15:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 15:37 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 15:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 15:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 15:40 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 15:44 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 15:37 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 15:45 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 15:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 15:18 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 15:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 15:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 15:36 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 15:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 15:29 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 15:25 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 15:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 15:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 15:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 15:53 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 15:50 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/189851.shtml)
-- 2026-06-29 15:33 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/164800632.shtml)
-- 2026-06-29 15:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6758449795.shtml)
-- 2026-06-29 15:23 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/856322.shtml)
-- 2026-06-29 15:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/08659279383.shtml)
-- 2026-06-29 15:24 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/27137101264.shtml)
-- 2026-06-29 15:36 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/3276510677.shtml)
-- 2026-06-29 15:30 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/464553.shtml)
-- 2026-06-29 15:18 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/878325.shtml)
-- 2026-06-29 15:31 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/06285.shtml)
-- 2026-06-29 15:18 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/33111220010.shtml)
-- 2026-06-29 15:27 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/893269482.shtml)
-- 2026-06-29 15:45 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/09369717936.shtml)
-- 2026-06-29 15:45 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/37231.shtml)
-- 2026-06-29 15:33 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/1500645070.shtml)
+- 2026-06-29 15:46 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/75247036.shtml)
+- 2026-06-29 15:52 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/6433862560.shtml)
+- 2026-06-29 15:27 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/185382.shtml)
+- 2026-06-29 15:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/76717008312.shtml)
+- 2026-06-29 15:36 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/765871.shtml)
+- 2026-06-29 15:33 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/8456906107.shtml)
+- 2026-06-29 15:24 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/607685881408.shtml)
+- 2026-06-29 15:25 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/266202.shtml)
+- 2026-06-29 15:46 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/699197015741.shtml)
+- 2026-06-29 15:34 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/34575399.shtml)
+- 2026-06-29 15:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/42885602.shtml)
+- 2026-06-29 15:47 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/45879150.shtml)
+- 2026-06-29 15:49 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/904319.shtml)
+- 2026-06-29 15:31 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/120886.shtml)
+- 2026-06-29 15:41 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/30483.shtml)

@@ -1,57 +1,58 @@
-# 大陆机车圈粉台湾媒体人
+# 他信出狱，女儿佩通坦拥抱迎接 泰国政坛进入“洗牌”时刻？
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社重庆6月22日电 (记者 钟旖)“很过瘾、大开眼界。”22日，在重庆高新区“慢捣公元”文创园内，台湾人民报记者刘世鑫跨上一台大排量重型机车，随着油门发动，浑厚饱满的强劲音浪随之响起。面对机车亲民的定价、过硬的性能与潮流的外观，他表示“直观感受到大陆制造业规模化、智能化带来的竞争优势”。 当天，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。近40名两岸媒体人首站参访
+中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。 7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。 数百名支持者和政治盟友，早早在监狱外等候。在他信获释时，他们高呼“我们爱他信”。他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。 7时56分左右
 
 ## 正文
 
-中新社重庆6月22日电 (记者 钟旖)“很过瘾、大开眼界。
+中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。
 
-”22日，在重庆高新区“慢捣公元”文创园内，台湾人民报记者刘世鑫跨上一台大排量重型机车，随着油门发动，浑厚饱满的强劲音浪随之响起。
+7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。
 
-面对机车亲民的定价、过硬的性能与潮流的外观，他表示“直观感受到大陆制造业规模化、智能化带来的竞争优势”。
+数百名支持者和政治盟友，早早在监狱外等候。
 
-当天，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。
+在他信获释时，他们高呼“我们爱他信”。
 
-近40名两岸媒体人首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。
+他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。
 
-此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备完备的配套体系。
+7时56分左右，他信乘车离开监狱。
 
-2025年重庆摩托车产量达785.7万辆，居大陆城市首位。
+前路等待他的，或许是一个“变数丛生”的泰国政坛。
 
-台湾被称为“机车之岛”，机车是部分民众日常出行刚需，庞大车友群体对摩托车产品拥有天然认知基础。
+两度出任总理 5月11日，泰国餐厅厨师柴德杰特意请了一天假，赶到曼谷空炳中央监狱外迎接他信。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 15:28 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 15:39 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 15:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 15:40 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 15:21 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 15:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 15:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:18 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 15:39 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 15:28 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:45 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 15:37 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 15:42 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 15:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 15:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 15:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 15:38 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:32 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 15:36 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 15:34 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 15:35 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/949982.shtml)
-- 2026-06-29 15:33 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/37554935.shtml)
-- 2026-06-29 15:47 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/851205.shtml)
-- 2026-06-29 15:24 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/34011307586.shtml)
-- 2026-06-29 15:30 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/146315946767.shtml)
-- 2026-06-29 15:32 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/871614427916.shtml)
-- 2026-06-29 15:33 - [千与千寻](https://www.blog.minike.top/Article/details/13804.shtml)
-- 2026-06-29 15:39 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/225815586.shtml)
-- 2026-06-29 15:35 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/54217338.shtml)
-- 2026-06-29 15:46 - [《贺子珍》](https://www.share.minike.top/Article/details/9534953032.shtml)
-- 2026-06-29 15:48 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/85328.shtml)
-- 2026-06-29 15:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/54761480.shtml)
-- 2026-06-29 15:44 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/429604209.shtml)
-- 2026-06-29 15:28 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/40514727.shtml)
-- 2026-06-29 15:43 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/71536941574.shtml)
+- 2026-06-29 15:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/1441969.shtml)
+- 2026-06-29 15:27 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/744317455094.shtml)
+- 2026-06-29 15:39 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/786138570.shtml)
+- 2026-06-29 15:50 - [爸爸当家](https://www.blog.minike.top/Article/details/064490781.shtml)
+- 2026-06-29 15:33 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/82603625.shtml)
+- 2026-06-29 15:34 - [流金岁月](http://www.blog.minike.top/Article/details/653847.shtml)
+- 2026-06-29 15:27 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/911337.shtml)
+- 2026-06-29 15:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/1829527.shtml)
+- 2026-06-29 15:43 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/3069625867.shtml)
+- 2026-06-29 15:24 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/9464600.shtml)
+- 2026-06-29 15:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/482001470299.shtml)
+- 2026-06-29 15:47 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/83730052.shtml)
+- 2026-06-29 15:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/43332997.shtml)
+- 2026-06-29 15:46 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/907535.shtml)
+- 2026-06-29 15:43 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/05347817123.shtml)

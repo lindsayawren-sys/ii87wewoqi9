@@ -1,56 +1,44 @@
-# 海天味业早盘涨超3% 拟最高20亿元回购公司A股股份
+# 马斯克诉OpenAI案庭审 证词揭示内部纠纷
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-海天味业（03288）早盘涨超3%，公司A股今早一度涨超7%。截至发稿，股价上涨3.02%，现报30.02港元，成交额6713.41万港元。 6月22日晚，海天味业公布，基于对行业和公司稳健经营的坚定信心，为维护全体股东的整体最佳利益，增强投资者信心，同时促进公司健康稳定长远发展，助推公司战略目标落地，公司拟以自有资金实施股份回购，用于减少注册资本、未来实施员工持股计划或者股权
+在埃隆·马斯克就OpenAI组织结构提起的诉讼中，证词揭示了内部纠纷及所谓的和解谈判；由于马斯克与特斯拉的关联以及其xAI与OpenAI的竞争关系，此案可能影响OpenAI的治理。责任编辑：张俊 SF065
 
 ## 正文
 
-海天味业（03288）早盘涨超3%，公司A股今早一度涨超7%。
+在埃隆·马斯克就OpenAI组织结构提起的诉讼中，证词揭示了内部纠纷及所谓的和解谈判；由于马斯克与特斯拉的关联以及其xAI与OpenAI的竞争关系，此案可能影响OpenAI的治理。
 
-截至发稿，股价上涨3.02%，现报30.02港元，成交额6713.41万港元。
-
-6月22日晚，海天味业公布，基于对行业和公司稳健经营的坚定信心，为维护全体股东的整体最佳利益，增强投资者信心，同时促进公司健康稳定长远发展，助推公司战略目标落地，公司拟以自有资金实施股份回购，用于减少注册资本、未来实施员工持股计划或者股权激励。
-
-公告指出，本次回购资金总额为10亿元~20亿元。
-
-本次回购的价格不超过人民币53元/股，即不高于董事会审议通过本次回购股份方案前30个交易日公司股票交易均价的150%。
-
-自股东会审议通过本次回购股份方案之日起不超过12个月。
-
-责任编辑：卢昱君
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 15:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 15:28 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 15:29 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 15:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 15:45 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 15:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 15:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 15:27 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 15:46 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 15:26 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 15:34 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 15:31 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 15:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 15:25 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 15:35 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 15:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 15:47 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 15:35 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 15:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 15:49 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/93854865055.shtml)
-- 2026-06-29 15:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/984337.shtml)
-- 2026-06-29 15:36 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/48408332.shtml)
-- 2026-06-29 15:20 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/4651970.shtml)
-- 2026-06-29 15:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/64683.shtml)
-- 2026-06-29 15:45 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/266011470.shtml)
-- 2026-06-29 15:32 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/46949.shtml)
-- 2026-06-29 15:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/89749159.shtml)
-- 2026-06-29 15:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/012902.shtml)
-- 2026-06-29 15:41 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/733880929.shtml)
-- 2026-06-29 15:32 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/26384524.shtml)
-- 2026-06-29 15:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/755815505.shtml)
-- 2026-06-29 15:36 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/203169373.shtml)
-- 2026-06-29 15:39 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/477947.shtml)
-- 2026-06-29 15:37 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/85558.shtml)
+- 2026-06-29 15:53 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/99737802.shtml)
+- 2026-06-29 15:31 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/03409603.shtml)
+- 2026-06-29 15:47 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/071980.shtml)
+- 2026-06-29 15:27 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/10916379549.shtml)
+- 2026-06-29 15:28 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/56328914.shtml)
+- 2026-06-29 15:40 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/8702740472.shtml)
+- 2026-06-29 15:33 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/3233368434.shtml)
+- 2026-06-29 15:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/0137546.shtml)
+- 2026-06-29 15:46 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/520225.shtml)
+- 2026-06-29 15:26 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/17651.shtml)
+- 2026-06-29 15:52 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/498968.shtml)
+- 2026-06-29 15:54 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/710008305.shtml)
+- 2026-06-29 15:50 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/1989151.shtml)
+- 2026-06-29 15:39 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/9909643.shtml)
+- 2026-06-29 15:30 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/075229138.shtml)

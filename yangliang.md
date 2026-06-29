@@ -1,51 +1,50 @@
-# 清华大学教授孙茂松：AI不会取代任何专业，但会引起学科结构调整
+# 韩国短暂暂停Kospi指数程序化交易 股指期货上涨5%触发sidecar机制
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 18:03 来源：中国新闻网 人工智能正以前所未有的深度改写产业规则与学科生态。对此，清华大学人工智能研究院常务副院长、计算机科学与技术系教授孙茂松认为，AI不会取代任何专业，特别是那些与现实世界紧密结合的研究方向，但会引起学科结构调整。(左登基) 责任编辑：【程春雨】
+专题：4200点关口何去何从？市场短期或现分化，基本面支撑仍强 韩国Kospi 200指数期货上涨超过5%后，韩国交易所启动了“sidecar”机制。韩国KOSPI指数的程序化买盘报价有效性将从当地时间上午9：29起暂停5分钟。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年06月22日 18:03 来源：中国新闻网 人工智能正以前所未有的深度改写产业规则与学科生态。
+专题：4200点关口何去何从？
 
-对此，清华大学人工智能研究院常务副院长、计算机科学与技术系教授孙茂松认为，AI不会取代任何专业，特别是那些与现实世界紧密结合的研究方向，但会引起学科结构调整。
+市场短期或现分化，基本面支撑仍强 韩国Kospi 200指数期货上涨超过5%后，韩国交易所启动了“sidecar”机制。
 
-(左登基) 责任编辑：【程春雨】
+韩国KOSPI指数的程序化买盘报价有效性将从当地时间上午9：29起暂停5分钟。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 15:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 15:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 15:27 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 15:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 15:27 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 15:31 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 15:42 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 15:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:38 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 15:29 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 15:31 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 15:47 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:29 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 15:45 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 15:40 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 15:28 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 15:39 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 15:31 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 15:31 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 15:31 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 15:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 15:52 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 15:47 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/869639.shtml)
-- 2026-06-29 15:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/343302302.shtml)
-- 2026-06-29 15:35 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/0856380.shtml)
-- 2026-06-29 15:22 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/613391.shtml)
-- 2026-06-29 15:31 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/0358037407.shtml)
-- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/6250392183.shtml)
-- 2026-06-29 15:27 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/627310806574.shtml)
-- 2026-06-29 15:24 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/107297917023.shtml)
-- 2026-06-29 15:32 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/440650.shtml)
-- 2026-06-29 15:23 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/179835346.shtml)
-- 2026-06-29 15:38 - [天道](https://www.blog.minike.top/Article/details/82918816.shtml)
-- 2026-06-29 15:30 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/4626998765.shtml)
-- 2026-06-29 15:38 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/87603.shtml)
-- 2026-06-29 15:43 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/204276.shtml)
-- 2026-06-29 15:37 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/00317.shtml)
+- 2026-06-29 15:44 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/88777184.shtml)
+- 2026-06-29 15:43 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/7065345356.shtml)
+- 2026-06-29 15:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/43995.shtml)
+- 2026-06-29 15:37 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/97834116999.shtml)
+- 2026-06-29 15:38 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/29386.shtml)
+- 2026-06-29 15:36 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/102192055638.shtml)
+- 2026-06-29 15:36 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/30119.shtml)
+- 2026-06-29 15:40 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/73426014.shtml)
+- 2026-06-29 15:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6924806.shtml)
+- 2026-06-29 15:38 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/002106.shtml)
+- 2026-06-29 15:41 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/0616301.shtml)
+- 2026-06-29 15:24 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/5229887.shtml)
+- 2026-06-29 15:43 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/1400456467.shtml)
+- 2026-06-29 15:37 - [新一代影后杨紫](https://www.share.minike.top/Article/details/108077.shtml)
+- 2026-06-29 15:42 - [勇敢的心第二部](http://www.share.minike.top/Article/details/7002093708.shtml)

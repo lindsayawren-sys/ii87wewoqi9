@@ -1,57 +1,56 @@
-# 002312，开盘五分钟，直线涨停！价格翻番，磷化工赛道爆发
+# 音乐人姚谦：“阅读”艺术是一件太有趣的事
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！磷化工产业链正步入景气上行周期。 6月22日，磷化工板块集体冲高，概念指数涨幅居前。川发龙蟒（002312）早盘率先涨停，早盘开盘后五分钟内，直线封死涨停。 截至收盘，包括云图控股、兴发集团、澄星股份等10只个股涨停，川金诺上涨12%，清水源（维权）上涨13.93%，川恒股份、鲁北化工上涨超8%。 产业步入
+中新网北京5月11日电 (李嘉茵)普通人应该通过什么方式理解艺术？华语知名音乐人、收藏家姚谦给出的建议是——阅读。 10日晚，姚谦在北京798Cube艺术中心亮相第十届画廊周北京先导活动。作为创泛艺术文化播客《艺犹未尽Art and Beyond》首期嘉宾，姚谦受邀与资深行业从业者及媒体人共同分享对艺术与收藏的思考与探索，以及各自难忘的“艺”犹未尽时刻。 在与现场观众互动时，姚
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月11日电 (李嘉茵)普通人应该通过什么方式理解艺术？
 
-磷化工产业链正步入景气上行周期。
+华语知名音乐人、收藏家姚谦给出的建议是——阅读。
 
-6月22日，磷化工板块集体冲高，概念指数涨幅居前。
+10日晚，姚谦在北京798Cube艺术中心亮相第十届画廊周北京先导活动。
 
-川发龙蟒（002312）早盘率先涨停，早盘开盘后五分钟内，直线封死涨停。
+作为创泛艺术文化播客《艺犹未尽Art and Beyond》首期嘉宾，姚谦受邀与资深行业从业者及媒体人共同分享对艺术与收藏的思考与探索，以及各自难忘的“艺”犹未尽时刻。
 
-截至收盘，包括云图控股、兴发集团、澄星股份等10只个股涨停，川金诺上涨12%，清水源（维权）上涨13.93%，川恒股份、鲁北化工上涨超8%。
+在与现场观众互动时，姚谦表示，阅读艺术是一件太有趣的事，就像看了一部很打动人的传记，或一本小说，或一部电影。
 
-产业步入上行周期 2026年以来，磷化工产业链正步入景气上行周期，上游原料与下游产品价格共振上行，行业热度持续攀升。
+“当你欣赏一个艺术家的作品时，再往下延伸阅读，就可以穿越时空地理各种限制，进入到另外一个人主观面对他的世界的状态。
 
-本轮行情的核心驱动力之一来自成本端，受地缘政治因素影响，国际硫磺供给大幅收缩，价格出现暴涨，6月12日一度触及1.175万元/吨的高点，年内累计涨幅一度超过210%，直接推高了湿法磷酸及下游磷肥的生产成本。
+” “阅读艺术，就像你听过的歌，看过的一部电影，跟你读过的书，一起总结成了你的生命的色彩。
 
-生意社数据显示，磷酸（湿法）价格最新达到1.13万元/吨，与2025年末的7250元/吨相比上涨超55%。
+”姚谦建议，普通人可通过阅读来理解艺术，从而进一步丰富自己的人生。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 15:44 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 15:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 15:36 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 15:28 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 15:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 15:28 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 15:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 15:30 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 15:18 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:44 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 15:52 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 15:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 15:49 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 15:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 15:46 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 15:51 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 15:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 15:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 15:34 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 15:38 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/778104993.shtml)
-- 2026-06-29 15:47 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/543918.shtml)
-- 2026-06-29 15:28 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/73174380.shtml)
-- 2026-06-29 15:19 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/264892712452.shtml)
-- 2026-06-29 15:47 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/796399221378.shtml)
-- 2026-06-29 15:19 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/3330584451.shtml)
-- 2026-06-29 15:21 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/31924.shtml)
-- 2026-06-29 15:36 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/215856787304.shtml)
-- 2026-06-29 15:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/49439.shtml)
-- 2026-06-29 15:41 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/327090.shtml)
-- 2026-06-29 15:24 - [中国战机大片上新](https://www.share.minike.top/Article/details/652129.shtml)
-- 2026-06-29 15:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/15289.shtml)
-- 2026-06-29 15:36 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/04637638.shtml)
-- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/64158.shtml)
-- 2026-06-29 15:35 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/4854499734.shtml)
+- 2026-06-29 15:42 - [小娘惹](https://www.share.kurohicncr.top/Article/details/6263287296.shtml)
+- 2026-06-29 15:36 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/980791.shtml)
+- 2026-06-29 15:38 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/889120.shtml)
+- 2026-06-29 15:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/9635068.shtml)
+- 2026-06-29 15:37 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/559562.shtml)
+- 2026-06-29 15:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/15131223621.shtml)
+- 2026-06-29 15:52 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/13601.shtml)
+- 2026-06-29 15:38 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/16767.shtml)
+- 2026-06-29 15:54 - [流金岁月](https://www.blog.minike.top/Article/details/75366.shtml)
+- 2026-06-29 15:39 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/5167322.shtml)
+- 2026-06-29 15:36 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/4379183.shtml)
+- 2026-06-29 15:28 - [急先锋](https://www.share.minike.top/Article/details/66590.shtml)
+- 2026-06-29 15:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/6885049982.shtml)
+- 2026-06-29 15:49 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/46413544073.shtml)
+- 2026-06-29 15:48 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/74820048.shtml)

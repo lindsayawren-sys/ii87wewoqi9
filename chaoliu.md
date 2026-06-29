@@ -1,53 +1,61 @@
-# 四川省交通运输厅公路管理处处长翟艺阳接受纪律审查和监察调查
+# 中国团队发现2.44亿年前海生爬行动物新化石
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网成都6月22日电 (记者 张浪)四川省甘孜州监委22日消息，四川省交通运输厅公路管理处处长翟艺阳涉嫌严重违纪违法，目前正接受四川省纪委监委驻省交通运输厅纪检监察组纪律审查，经四川省监委指定甘孜州监委管辖，甘孜州监委指定雅江县监委管辖，雅江县监委正对其进行监察调查。 资料显示：翟艺阳，男，汉族，1983年6月生，四川宜宾人，在职博士研究生学历。2008年7月参加工作，200
+发布时间：2026年05月11日 15:19 来源：中国新闻网 5月10日，中国科学院古脊椎动物与古人类研究所徐光辉研究员在北京接受中新社记者采访透露，其团队最近在贵州省盘州市约2.44亿年前的中三叠世地层中，研究发现一件海生爬行动物——圆吻盘州龙的新化石，这是全球迄今发现的第三件圆吻盘州龙标本，其骨骼基本完整且关联保存。 新标本为幼年圆吻盘州龙，体型较小，吻臀距124.6毫米
 
 ## 正文
 
-中新网成都6月22日电 (记者 张浪)四川省甘孜州监委22日消息，四川省交通运输厅公路管理处处长翟艺阳涉嫌严重违纪违法，目前正接受四川省纪委监委驻省交通运输厅纪检监察组纪律审查，经四川省监委指定甘孜州监委管辖，甘孜州监委指定雅江县监委管辖，雅江县监委正对其进行监察调查。
+发布时间：2026年05月11日 15:19 来源：中国新闻网 5月10日，中国科学院古脊椎动物与古人类研究所徐光辉研究员在北京接受中新社记者采访透露，其团队最近在贵州省盘州市约2.44亿年前的中三叠世地层中，研究发现一件海生爬行动物——圆吻盘州龙的新化石，这是全球迄今发现的第三件圆吻盘州龙标本，其骨骼基本完整且关联保存。
 
-资料显示：翟艺阳，男，汉族，1983年6月生，四川宜宾人，在职博士研究生学历。
+新标本为幼年圆吻盘州龙，体型较小，吻臀距124.6毫米。
 
-2008年7月参加工作，2004年11月加入中国共产党。
+研究团队通过对目前仅有的三件圆吻盘州龙化石标本的对比研究，既重新厘定了其在鳍龙超目中的系统发育位置，也为它们所在的贵州龙科起源于古东特提斯洋(今华南地区)的假说，提供了新的系统发育证据。
 
-2008年7月至2019年3月，先后在四川省交通厅交通勘察设计研究院、四川省交通运输厅建设管理处工作；2019年3月至2022年9月，任四川省交通运输厅公路管理处副处长；2022年9月至今，任四川省交通运输厅公路管理处处长。
+这项古生物化石发现研究重要成果论文，近日在国际学术期刊《PeerJ》发表。
 
-(完)
+论文通讯作者徐光辉指出，目前已知的贵州龙科成员包括盘州龙、贵州龙、大凹子龙和滇肿龙，全部发现于华南地区，年代限定于约2.44亿年至2.40亿年前的中三叠世。
+
+据此，研究团队支持贵州龙科起源于华南地区的假说。
+
+他们认为，考虑到贵州龙科成员体型较小、四肢相对原始，可能缺乏横跨大洋的长距离迁徙能力，该类群是在中三叠世被隔离在扬子海周围并发生快速的原地辐射演化，形成了华南地区独特的中三叠世海生爬行动物面貌。
+
+徐光辉表示，本项研究具有重要的生物地理学意义：一是厘定盘州龙头骨和整体的关键解剖特征，修正了前人研究中的偏差；二是明确盘州龙与贵州龙构成姐妹群，确定盘州龙在贵州龙科中的核心位置，将贵州龙科的已知成员增至四属；三是为贵州龙科华南地区起源说提供新的系统发育证据，增进学界对中三叠世鳍龙超目早期辐射演化的理解。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 15:45 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 15:27 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 15:26 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 15:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 15:19 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 15:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 15:21 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 15:45 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 15:32 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:21 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 15:43 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 15:21 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 15:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 15:40 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 15:34 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 15:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 15:42 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 15:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 15:35 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 15:33 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 15:35 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:30 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 15:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 15:48 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 15:39 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 15:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:28 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/760291638053.shtml)
-- 2026-06-29 15:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/941482085354.shtml)
-- 2026-06-29 15:23 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/751862242.shtml)
-- 2026-06-29 15:47 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/241841429.shtml)
-- 2026-06-29 15:18 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/6707067.shtml)
-- 2026-06-29 15:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/933593828.shtml)
-- 2026-06-29 15:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/2410407.shtml)
-- 2026-06-29 15:33 - [中国战机大片上新](http://www.blog.minike.top/Article/details/8322715.shtml)
-- 2026-06-29 15:45 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/334393.shtml)
-- 2026-06-29 15:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/52754.shtml)
-- 2026-06-29 15:24 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/528747768.shtml)
-- 2026-06-29 15:18 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/947056.shtml)
-- 2026-06-29 15:33 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/7590818360.shtml)
-- 2026-06-29 15:27 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/66792058908.shtml)
-- 2026-06-29 15:23 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/9391473.shtml)
+- 2026-06-29 15:36 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/096580.shtml)
+- 2026-06-29 15:49 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/99887626.shtml)
+- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/89981.shtml)
+- 2026-06-29 15:39 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/777507.shtml)
+- 2026-06-29 15:41 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/3311216818.shtml)
+- 2026-06-29 15:45 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/3503397624.shtml)
+- 2026-06-29 15:40 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/00544.shtml)
+- 2026-06-29 15:24 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/6811047.shtml)
+- 2026-06-29 15:39 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/13026844470.shtml)
+- 2026-06-29 15:30 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/063772.shtml)
+- 2026-06-29 15:40 - [灿如繁星定档](https://www.blog.minike.top/Article/details/72135323673.shtml)
+- 2026-06-29 15:33 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/593589177369.shtml)
+- 2026-06-29 15:46 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/905960.shtml)
+- 2026-06-29 15:30 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/195861136.shtml)
+- 2026-06-29 15:42 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/20914488562.shtml)

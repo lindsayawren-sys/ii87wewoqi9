@@ -1,61 +1,57 @@
-# 龙宇股份（603003）股民索赔案已再次开庭，并再提交立案，前期已有胜诉
+# 农文旅融合解锁新体验：田园变景区 乡土变潮流
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。2026年6月22日，部分案件也已在上海金融法院开庭审理。（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。 许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投
+原标题：农文旅融合解锁乡村游新体验 田园变景区 乡土变潮流 五一小长假的一个清晨，云南大理双廊古镇的薄雾还没散，女游客已经跟着民宿主人走进洱海畔的菜园。露水沾湿了裤脚，她亲手采摘下柠檬叶、薰衣草等香草，带回静待日出晾晒，之后用来冲泡清香的香草茶。亲手采摘、亲自体验非遗技艺、亲身参与乡村狂欢，再把田园滋味、文化记忆、自然疗愈通通装进行囊。国内的农文旅融合，正用无数个这样鲜活的瞬间
 
 ## 正文
 
-6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。
+原标题：农文旅融合解锁乡村游新体验 田园变景区 乡土变潮流 五一小长假的一个清晨，云南大理双廊古镇的薄雾还没散，女游客已经跟着民宿主人走进洱海畔的菜园。
 
-2026年6月22日，部分案件也已在上海金融法院开庭审理。
+露水沾湿了裤脚，她亲手采摘下柠檬叶、薰衣草等香草，带回静待日出晾晒，之后用来冲泡清香的香草茶。
 
-（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。
+亲手采摘、亲自体验非遗技艺、亲身参与乡村狂欢，再把田园滋味、文化记忆、自然疗愈通通装进行囊。
 
-许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投资者获得两审胜诉判决。
+国内的农文旅融合，正用无数个这样鲜活的瞬间，改写人们乡村旅行的体验。
 
-需要提示的是，目前该案还在索赔诉讼时效内，符合条件的投资者还可发起索赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+乡村游热潮涌动 从小众选择到全民奔赴2025年的乡村，已不是“偏远”“朴素”的代名词。
 
-2025年11月7日，龙宇股份公告收到证监会《行政处罚决定书》，经查明，龙宇股份违法事实如下： 一、2019年、2020年、2021年、2022年年度报告虚增营业收入、利润。
+乡村振兴战略的深耕，让土路变成了景观道，旧屋改成了特色民宿；体验式消费的浪潮，让人们不再满足于“到此一游”，更渴望在乡村找到慢下来的节奏、有温度的体验。
 
-二、未按规定披露非经营性资金占用相关关联交易事项。
+农文旅融合，正是这两股力量碰撞出的火花，让乡村旅游从“小众选择”变成“大众潮流”，从“单点火爆”变成“全域开花”。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决，在2020年4月28日到2024年4月30日之间买入龙宇股份股票，并且在2024年4月30日后卖出或继续持有股票的投资者，目前还可发起索赔。
+上海白领周五下班开车两小时，就能住进苏浙皖的田园民宿；成都家庭周末带娃，直奔周边的农耕体验园……人们不用特意搜索“哪里有乡村游”，官方数据显示，从浙江的竹林到云南的梯田，从贵州的村寨到内蒙古的沙漠，超6万个行政村都端起了“旅游碗”。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 15:24 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 15:33 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 15:38 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:37 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 15:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 15:44 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 15:31 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 15:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 15:32 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 15:39 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 15:46 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 15:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 15:29 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 15:46 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 15:44 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 15:47 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 15:28 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 15:50 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 15:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 15:26 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 15:33 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 15:26 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:52 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 15:30 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/96217.shtml)
-- 2026-06-29 15:34 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/76445.shtml)
-- 2026-06-29 15:42 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/0060322229.shtml)
-- 2026-06-29 15:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/02163.shtml)
-- 2026-06-29 15:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/62416445.shtml)
-- 2026-06-29 15:37 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/1294440985.shtml)
-- 2026-06-29 15:30 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/457170972727.shtml)
-- 2026-06-29 15:25 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/104721660209.shtml)
-- 2026-06-29 15:35 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/9294110108.shtml)
-- 2026-06-29 15:41 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/3585344.shtml)
-- 2026-06-29 15:22 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/494046250035.shtml)
-- 2026-06-29 15:18 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/24672684267.shtml)
-- 2026-06-29 15:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/8301704.shtml)
-- 2026-06-29 15:32 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/90348300.shtml)
-- 2026-06-29 15:41 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/97611.shtml)
+- 2026-06-29 15:37 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/9921060.shtml)
+- 2026-06-29 15:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/746200009339.shtml)
+- 2026-06-29 15:35 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/95811184.shtml)
+- 2026-06-29 15:31 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/84562.shtml)
+- 2026-06-29 15:43 - [女心理师](http://www.blog.kurohicncr.top/Article/details/74807.shtml)
+- 2026-06-29 15:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/518650.shtml)
+- 2026-06-29 15:37 - [光与夜之恋](https://www.share.minike.top/Article/details/065574138564.shtml)
+- 2026-06-29 15:52 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/5932676.shtml)
+- 2026-06-29 15:47 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/771408.shtml)
+- 2026-06-29 15:33 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/09073.shtml)
+- 2026-06-29 15:28 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/38913.shtml)
+- 2026-06-29 15:30 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/51852.shtml)
+- 2026-06-29 15:29 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/319008.shtml)
+- 2026-06-29 15:43 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/3190743.shtml)
+- 2026-06-29 15:35 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/507065654.shtml)

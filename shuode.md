@@ -1,59 +1,61 @@
-# 2026高考成绩今起陆续可查，多地公布志愿填报安排
+# Bitmine披露持有521万枚ETH，加密货币及现金总资产达134亿美元
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月23日电(记者 高萌)根据上海市教育考试院消息，6月23日当地考生将可查询高考成绩。据了解，天津、内蒙古、黑龙江等地2026年高考成绩预计将于6月24日左右开通查询，吉林、江苏、安徽等地查分时间预计为6月25日。另外，多地已陆续公布志愿填报工作时间和相关安排。 上海今起可查高考成绩 各地查分时间多集中在24、25日 根据上海市教育考试院消息，6月23日18:00起
+Bitmine Immersion Technologies周一宣布，截至5月10日，公司持有的加密货币、现金及相关资产总额达134亿美元，其中包括521万枚以太坊，按每枚2，366美元计算，持仓市值约130亿美元。 公告显示，Bitmine的ETH持仓占以太坊总供应量的约4.31%，使其成为全球最大的以太坊国库公司。此外，公司还持有201枚比特币，价值2亿美元的自有股及Bea
 
 ## 正文
 
-中新网北京6月23日电(记者 高萌)根据上海市教育考试院消息，6月23日当地考生将可查询高考成绩。
+Bitmine Immersion Technologies周一宣布，截至5月10日，公司持有的加密货币、现金及相关资产总额达134亿美元，其中包括521万枚以太坊，按每枚2，366美元计算，持仓市值约130亿美元。
 
-据了解，天津、内蒙古、黑龙江等地2026年高考成绩预计将于6月24日左右开通查询，吉林、江苏、安徽等地查分时间预计为6月25日。
+公告显示，Bitmine的ETH持仓占以太坊总供应量的约4.31%，使其成为全球最大的以太坊国库公司。
 
-另外，多地已陆续公布志愿填报工作时间和相关安排。
+此外，公司还持有201枚比特币，价值2亿美元的自有股及Beast Industries股份，8，800万美元Eightco Holdings股份，以及7.75亿美元现金。
 
-上海今起可查高考成绩 各地查分时间多集中在24、25日 根据上海市教育考试院消息，6月23日18:00起，上海市2026年普通高校招生全国统一考试成绩可通过“上海招考热线”网站“成绩查询”栏目、“随申办市民云”移动端等途径查询。
+Bitmine董事长、知名市场策略师Tom Lee表示，自2026年初以来，公司已累计购入逾100万枚ETH，目前已完成“5%持仓目标”的86%。
 
-考生若对本人成绩有疑问，可在6月24日9:00至16:00申请成绩复核。
+他同时宣布将放缓周度买入节奏。
 
-成绩复核科目为语文、数学、外语(6月份)。
+此前每周购入逾10万枚，将使公司在7月中旬就触及5%门槛，而目前目标调整为2026年底达成。
 
-各地预计高考查分时间多集中于6月24日、25日，具体时间如下： 6月24日：天津、内蒙古、黑龙江等； 6月25日：河北、吉林、江苏、安徽、江西、山东、湖北、湖南、广东、广西、重庆、四川、陕西、甘肃、青海等； 另外，浙江预计于6月26日左右公布高考成绩，辽宁、河南查分时间预计为6月下旬，新疆预计6月底前公布高考成绩。
+值得一提的是，Bitmine已将其中的471万枚ETH进行质押，年化质押收益约3.19亿美元。
 
-对于各省份高考成绩发布时间及官方查询渠道，请考生和家长关注相关权威发布信息。
+公司近期还推出了机构级质押平台MAVAN。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 15:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 15:45 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 15:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 15:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:47 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 15:31 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 15:37 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 15:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 15:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 15:46 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 15:18 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 15:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 15:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 15:50 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 15:47 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 15:49 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 15:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 15:29 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 15:50 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 15:41 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 15:25 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 15:25 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/349235.shtml)
-- 2026-06-29 15:30 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/4106821594.shtml)
-- 2026-06-29 15:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/816831334.shtml)
-- 2026-06-29 15:47 - [普京介绍前线战事](https://www.share.minike.top/Article/details/9312194.shtml)
-- 2026-06-29 15:42 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/7817338.shtml)
-- 2026-06-29 15:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/233972159150.shtml)
-- 2026-06-29 15:33 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/0250629.shtml)
-- 2026-06-29 15:30 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/888936535260.shtml)
-- 2026-06-29 15:26 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/97581342517.shtml)
-- 2026-06-29 15:42 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/605218089.shtml)
-- 2026-06-29 15:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/3388746.shtml)
-- 2026-06-29 15:38 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/20764.shtml)
-- 2026-06-29 15:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/3819303.shtml)
-- 2026-06-29 15:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/56523923671.shtml)
-- 2026-06-29 15:21 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/9485302672.shtml)
+- 2026-06-29 15:49 - [上班主打一个薪尽自然凉](https://www.blog.kurohicncr.top/Article/details/8488069.shtml)
+- 2026-06-29 15:40 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/09063.shtml)
+- 2026-06-29 15:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/38971819380.shtml)
+- 2026-06-29 15:39 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/4268909152.shtml)
+- 2026-06-29 15:38 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/6603722129.shtml)
+- 2026-06-29 15:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/215443712049.shtml)
+- 2026-06-29 15:46 - [逆天祖国人](http://www.share.minike.top/Article/details/85717829320.shtml)
+- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/8103945114.shtml)
+- 2026-06-29 15:50 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/773890346.shtml)
+- 2026-06-29 15:26 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/54981.shtml)
+- 2026-06-29 15:38 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/252594129.shtml)
+- 2026-06-29 15:45 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/173596.shtml)
+- 2026-06-29 15:46 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/012993.shtml)
+- 2026-06-29 15:24 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/730529185.shtml)
+- 2026-06-29 15:34 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/958261094.shtml)

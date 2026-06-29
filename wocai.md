@@ -1,56 +1,57 @@
-# 日经指数下跌0.1% 受科技股拖累 软银集团下跌5.2%
+# 历经多次升级 天舟十号“能量心脏”愈发强健
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 在近期大幅上涨以及隔夜美国科技股下跌之后，日本股市走低。科技股领跌。软银集团下跌5.2%，富士通下跌1.9%。在美国为伊朗以美元出售石油扫清障碍之后，投资者正关注原油价格和中东局势发展。日经指数下跌0.1%，报72308.89点。责任编辑：王永生
+中新社上海5月11日电 (记者 郑莹莹)天舟十号货运飞船11日搭乘长征七号运载火箭，从中国文昌航天发射场“出发”。 中国航天科技集团八院811所(简称“811所”)承担了天舟之“心”——电源分系统的研制任务。根据中国空间站不同阶段的任务需求，天舟之“心”在历次飞行中不断升级，愈发强健。 811所相关技术负责人黄峥表示，在天舟九号货运飞船的基础上，天舟十号货运飞船的电源分系统再次
 
 ## 正文
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 在近期大幅上涨以及隔夜美国科技股下跌之后，日本股市走低。
+中新社上海5月11日电 (记者 郑莹莹)天舟十号货运飞船11日搭乘长征七号运载火箭，从中国文昌航天发射场“出发”。
 
-科技股领跌。
+中国航天科技集团八院811所(简称“811所”)承担了天舟之“心”——电源分系统的研制任务。
 
-软银集团下跌5.2%，富士通下跌1.9%。
+根据中国空间站不同阶段的任务需求，天舟之“心”在历次飞行中不断升级，愈发强健。
 
-在美国为伊朗以美元出售石油扫清障碍之后，投资者正关注原油价格和中东局势发展。
+811所相关技术负责人黄峥表示，在天舟九号货运飞船的基础上，天舟十号货运飞船的电源分系统再次完成多项数字化升级。
 
-日经指数下跌0.1%，报72308.89点。
+比如研制团队对天舟十号货运飞船电源分系统测试项目中的多个参数开展了关联判读与逐帧计算，助推数据判读迈入智能阶段。
 
-责任编辑：王永生
+从天舟一号货运飞船到天舟十号货运飞船，天舟系列货运飞船的电源分系统升级之路脉络分明。
+
+2017年的天舟一号货运飞船将低轨高压大容量锂电池首次应用在载人航天领域，标志着中国空间电源正式迈入“锂电时代”。
+
+2022年，天舟五号货运飞船电源分系统首次建立发射场“成功数据包络线”，让货运飞船在发射场的相关数据判定有标准可依。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 15:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 15:41 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 15:29 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 15:34 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:28 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 15:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 15:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 15:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 15:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 15:45 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 15:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 15:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 15:31 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 15:33 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 15:31 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 15:52 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 15:44 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 15:50 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 15:25 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 15:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/853450823.shtml)
-- 2026-06-29 15:45 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/69567441992.shtml)
-- 2026-06-29 15:47 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/974143179590.shtml)
-- 2026-06-29 15:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/21014.shtml)
-- 2026-06-29 15:40 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/19984.shtml)
-- 2026-06-29 15:33 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/555085.shtml)
-- 2026-06-29 15:29 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/4932644.shtml)
-- 2026-06-29 15:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/00802.shtml)
-- 2026-06-29 15:18 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/8815017801.shtml)
-- 2026-06-29 15:26 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/59099.shtml)
-- 2026-06-29 15:30 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/39465236.shtml)
-- 2026-06-29 15:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/00583.shtml)
-- 2026-06-29 15:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/64465.shtml)
-- 2026-06-29 15:25 - [极限挑战第一季](https://www.blog.minike.top/Article/details/392301.shtml)
-- 2026-06-29 15:45 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/546267161.shtml)
+- 2026-06-29 15:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/3911641292.shtml)
+- 2026-06-29 15:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/5369176.shtml)
+- 2026-06-29 15:26 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/268330.shtml)
+- 2026-06-29 15:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/20754813.shtml)
+- 2026-06-29 15:29 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/45215324948.shtml)
+- 2026-06-29 15:44 - [女心理师](http://www.share.kurohicncr.top/Article/details/612814.shtml)
+- 2026-06-29 15:37 - [明星大侦探第一季](http://www.share.minike.top/Article/details/782085986849.shtml)
+- 2026-06-29 15:35 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/391703722.shtml)
+- 2026-06-29 15:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/4386148.shtml)
+- 2026-06-29 15:46 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/263004734.shtml)
+- 2026-06-29 15:45 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/763041.shtml)
+- 2026-06-29 15:49 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/09397254577.shtml)
+- 2026-06-29 15:50 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/397300798.shtml)
+- 2026-06-29 15:52 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/74446367.shtml)
+- 2026-06-29 15:38 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/368961.shtml)

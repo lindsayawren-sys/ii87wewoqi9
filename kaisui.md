@@ -1,49 +1,56 @@
-# 朱勇刚任华为旗下花瓣支付董事长
+# 浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-6月23日金融一线消息，天眼查平台显示，近日，花瓣支付（深圳）有限公司发生工商变更，郑丽英卸任董事长，由朱勇刚接任，同时多位主要人员发生变更。该公司成立于2013年6月，注册资本2亿人民币，经营范围含电子支付、支付结算和清算系统的技术开发与技术咨询服务，互联网支付、移动电话支付、数字电视支付业务等，由华为技术有限公司全资持股。 责任编辑：曹睿潼
+中新网台州5月12日电(周健 许子懿 章鸣宇)5月11日晚，浙江台州黄岩原创大型话剧《问瓷》献演国家大剧院，标志着黄岩在地文化精品创作正式跻身国家级展示平台。剧目以独特戏剧视角活化沙埠青瓷历史文化底蕴，全方位展现黄岩深耕宋韵文脉、塑造特色文化IP、讲好本土文化故事的扎实成果。 一部陶瓷史，半部在浙江。 沙埠青瓷窑址作为全国重点文物保护单位，是黄岩历史的核心标识之一，也是浙江乃至
 
 ## 正文
 
-6月23日金融一线消息，天眼查平台显示，近日，花瓣支付（深圳）有限公司发生工商变更，郑丽英卸任董事长，由朱勇刚接任，同时多位主要人员发生变更。
+中新网台州5月12日电(周健 许子懿 章鸣宇)5月11日晚，浙江台州黄岩原创大型话剧《问瓷》献演国家大剧院，标志着黄岩在地文化精品创作正式跻身国家级展示平台。
 
-该公司成立于2013年6月，注册资本2亿人民币，经营范围含电子支付、支付结算和清算系统的技术开发与技术咨询服务，互联网支付、移动电话支付、数字电视支付业务等，由华为技术有限公司全资持股。
+剧目以独特戏剧视角活化沙埠青瓷历史文化底蕴，全方位展现黄岩深耕宋韵文脉、塑造特色文化IP、讲好本土文化故事的扎实成果。
 
-责任编辑：曹睿潼
+一部陶瓷史，半部在浙江。
+
+沙埠青瓷窑址作为全国重点文物保护单位，是黄岩历史的核心标识之一，也是浙江乃至中国陶瓷文化谱系的重要组成，其考古实证改写了“台州无瓷”历史定论，补齐了越窑向龙泉窑演进的历史空白，完善了江南青瓷发展的完整脉络。
+
+以话剧形式讲述沙埠青瓷故事，是黄岩让本土文化资源由馆藏陈列走向艺术舞台的创新探索。
+
+话剧取材沙埠民间传说“九龙透天”，采用古今双线叙事架构，串联起古代匠人坚守制瓷初心与当代考古学者深耕文脉溯源的动人故事。
+
+通过时空交织对话，实现匠人初心和文化坚守的同频共振，构建起跨越千年的文脉精神纽带。
+
+剧目创作坚持守正创新，从舞美造型、宋韵审美到舞台编排深度考究，融合戏剧与舞蹈多元艺术表达，将沙埠青瓷含蓄雅致的东方美学进行现代化艺术演绎。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:38 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 15:30 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 15:47 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 15:20 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 15:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:42 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:42 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 15:18 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 15:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 15:45 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 15:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 15:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 15:26 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 15:28 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 15:37 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 15:45 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 15:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:38 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 15:29 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 15:36 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 15:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 15:53 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/57650726076.shtml)
-- 2026-06-29 15:21 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/31716503882.shtml)
-- 2026-06-29 15:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/18043.shtml)
-- 2026-06-29 15:20 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/0897656.shtml)
-- 2026-06-29 15:27 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/6090702.shtml)
-- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/0857171.shtml)
-- 2026-06-29 15:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/06920387.shtml)
-- 2026-06-29 15:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/99852.shtml)
-- 2026-06-29 15:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/7694510.shtml)
-- 2026-06-29 15:38 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/242900156.shtml)
-- 2026-06-29 15:32 - [扬名立万](http://www.share.minike.top/Article/details/754822.shtml)
-- 2026-06-29 15:44 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/493057917041.shtml)
-- 2026-06-29 15:44 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/3813359.shtml)
-- 2026-06-29 15:21 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/850307033.shtml)
-- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/22388675116.shtml)
+- 2026-06-29 15:26 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/949051451591.shtml)
+- 2026-06-29 15:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/7271507.shtml)
+- 2026-06-29 15:27 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/927089913526.shtml)
+- 2026-06-29 15:29 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/41914.shtml)
+- 2026-06-29 15:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/14193759520.shtml)
+- 2026-06-29 15:44 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/197818.shtml)
+- 2026-06-29 15:24 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/7752877431.shtml)
+- 2026-06-29 15:48 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/505289271536.shtml)
+- 2026-06-29 15:45 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/787501.shtml)
+- 2026-06-29 15:45 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/384347633.shtml)
+- 2026-06-29 15:40 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/42317460.shtml)
+- 2026-06-29 15:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/120025333.shtml)
+- 2026-06-29 15:52 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/9359356.shtml)
+- 2026-06-29 15:24 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/479750319872.shtml)
+- 2026-06-29 15:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/4406577780.shtml)

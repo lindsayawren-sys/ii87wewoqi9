@@ -1,59 +1,56 @@
-# 刘强东：新一轮人工智能技术变革，各国基本站在同一起跑线上
+# 粤东城际铁路浮洋站站房主体结构封顶
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 京东集团创始人、董事局主席刘强东表示，新一轮人工智能技术变革，让全球各国基本站在同一起跑线上。与以往工业革命、信息化革命不同，本轮AI技术革新重塑原有发展格局，为各国带来全新的发展机会。但当前AI产业发展门槛极高，全球头部企业
+中新网潮州5月12日电 (记者 蔡敏婕)随着最后一车混凝土浇筑完成，粤东城际铁路8标首座车站(浮洋站)站房主体结构12日封顶，为后续二次结构施工、机电安装施工和装饰装修打下基础。 粤东城际铁路是粤东地区“一环一射线”城际铁路网的重要组成部分，线路贯通汕头站、潮汕站等核心交通枢纽，深度覆盖汕潮揭中心城区。项目建成后，将实现粤东地区与粤港澳大湾区、厦漳泉、赣南、闽西等区域主要城市的
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+中新网潮州5月12日电 (记者 蔡敏婕)随着最后一车混凝土浇筑完成，粤东城际铁路8标首座车站(浮洋站)站房主体结构12日封顶，为后续二次结构施工、机电安装施工和装饰装修打下基础。
 
-京东集团创始人、董事局主席刘强东表示，新一轮人工智能技术变革，让全球各国基本站在同一起跑线上。
+粤东城际铁路是粤东地区“一环一射线”城际铁路网的重要组成部分，线路贯通汕头站、潮汕站等核心交通枢纽，深度覆盖汕潮揭中心城区。
 
-与以往工业革命、信息化革命不同，本轮AI技术革新重塑原有发展格局，为各国带来全新的发展机会。
+项目建成后，将实现粤东地区与粤港澳大湾区、厦漳泉、赣南、闽西等区域主要城市的便捷联通，助力粤东与大湾区高水平联动发展，对构建汕潮揭“30分钟通勤圈”、推动粤东地区高质量发展具有重要战略意义。
 
-但当前AI产业发展门槛极高，全球头部企业在技术研发、算力建设、生态布局等方面的投入均以百亿美元起步，属于资金、算力、基础设施高度密集的行业，这对亚太多数发展中经济体而言，是不小的发展压力。
+粤东城际铁路浮洋站位于潮州市潮安区浮洋镇中心位置，由广东省铁投集团投资、中铁南方牵头施工管理、中铁一局承建，全长114.8米，车站为地下1层，地上3层框架混凝土结构，设计混凝土1555方，本次封顶浇筑混凝土248立方米。
 
-他认为，亚太多数发展中国家受资金、电力基建、算力体系等条件限制，很难对标欧美企业开展大规模底层算力研发和前沿技术攻关，在硬核AI技术竞争中存在短板。
+施工浇筑开始前，项目部明确了工序责任、节点要求与作业流程，并对混凝土生产、运输、浇筑全流程进行全程跟踪管控。
 
-但从人类技术发展历史来看，每一次技术革命都会催生大量新产业、新服务、新需求和新产品，新技术迭代必然伴随全新的结构性发展机遇。
+据项目负责人介绍，项目在施工过程中克服了集中居民区拆迁、三电迁改、改路改渠、交通疏解等困难，紧紧围绕安全、质量、工期等目标，将对周边居民的日常生活、出行影响降到最低，同时优化施工方案，合理调配各类资源，严格落实各项管理要求，推进现场施工作业，确保了站房主体结构按期顺利封顶。
 
-随着人工智能、无人车、无人机、智能机器人等技术加速落地商用，刘强东指出，各类自动化智能设备无法实现百分之百零故障，极端天气、机械故障、系统异常等突发情况时有发生，需要人工及时介入干预、应急处置和安全管控。
-
-他判断，未来各国在相关领域立法过程中，都会重点关注智能设备的安全风险，大概率会明确配置配套管控人员，为无人设备、智能装备运行提供安全兜底保障。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 15:46 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 15:40 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 15:30 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 15:41 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 15:41 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 15:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 15:23 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 15:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 15:46 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 15:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 15:37 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 15:31 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 15:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 15:53 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 15:29 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 15:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 15:37 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 15:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 15:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 15:50 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 15:40 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 15:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 15:30 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/6430025919.shtml)
-- 2026-06-29 15:25 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/0152949.shtml)
-- 2026-06-29 15:22 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/1660438.shtml)
-- 2026-06-29 15:39 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/0815170126.shtml)
-- 2026-06-29 15:28 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/128718.shtml)
-- 2026-06-29 15:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/97431.shtml)
-- 2026-06-29 15:19 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/92117072066.shtml)
-- 2026-06-29 15:27 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/98530935117.shtml)
-- 2026-06-29 15:18 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/693391.shtml)
-- 2026-06-29 15:44 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/799728538.shtml)
-- 2026-06-29 15:45 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/7678664359.shtml)
-- 2026-06-29 15:42 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/8154063560.shtml)
-- 2026-06-29 15:47 - [毒液2](http://www.share.kurohicncr.top/Article/details/095243315243.shtml)
-- 2026-06-29 15:45 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/1486271.shtml)
-- 2026-06-29 15:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/83353501250.shtml)
+- 2026-06-29 15:51 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/960119001.shtml)
+- 2026-06-29 15:29 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/30280646.shtml)
+- 2026-06-29 15:38 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/283571462676.shtml)
+- 2026-06-29 15:33 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/1379298.shtml)
+- 2026-06-29 15:46 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/905513.shtml)
+- 2026-06-29 15:52 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/9824129.shtml)
+- 2026-06-29 15:51 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/53423.shtml)
+- 2026-06-29 15:29 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/5674033.shtml)
+- 2026-06-29 15:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/152085.shtml)
+- 2026-06-29 15:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/25679470.shtml)
+- 2026-06-29 15:53 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/261565.shtml)
+- 2026-06-29 15:45 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/919127938.shtml)
+- 2026-06-29 15:45 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/8272534246.shtml)
+- 2026-06-29 15:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/734196.shtml)
+- 2026-06-29 15:51 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/1137506965.shtml)

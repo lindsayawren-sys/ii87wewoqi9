@@ -1,60 +1,57 @@
-# 奋进“十五五” 保险让前行更有底气！中国保险行业协会联合新浪财经发起“7.8全国保险公众宣传日”活动专栏
+# 卡塔尔能源、道达尔能源与康菲石油联手开发叙利亚海上区块
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 2026年是“十五五”开局之年，第14个“7.8全国保险公众宣传日”如约而至。保险业坚持以习近平新时代中国特色社会主义思想为指导，坚决贯彻党的二十大和二十届历次全会以及中央金融工作会议、中央经济工作会议精神，全面落实《国务院关于加强监管防范风险推动保险业高质量发展的若干意见》部署，坚守金融工作的政治性、人民
+卡塔尔能源公司已与道达尔能源、康菲石油及叙利亚石油公司签署了一份谅解备忘录，将在叙利亚开展海上油气勘探合作。 卡塔尔能源周二表示，该协议涵盖了对叙利亚海上3号区块潜力进行技术评估的工作，并为进一步的技术和商业讨论建立了框架。 3号区块位于叙利亚拉塔基亚市附近的地中海东部黎凡特盆地，水深从100米到1700米不等。 该备忘录在多哈的卡塔尔能源总部签署，参与公司及叙利亚国家石油公司
 
 ## 正文
 
-专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 2026年是“十五五”开局之年，第14个“7.8全国保险公众宣传日”如约而至。
+卡塔尔能源公司已与道达尔能源、康菲石油及叙利亚石油公司签署了一份谅解备忘录，将在叙利亚开展海上油气勘探合作。
 
-保险业坚持以习近平新时代中国特色社会主义思想为指导，坚决贯彻党的二十大和二十届历次全会以及中央金融工作会议、中央经济工作会议精神，全面落实《国务院关于加强监管防范风险推动保险业高质量发展的若干意见》部署，坚守金融工作的政治性、人民性，积极培育中国特色保险文化，塑造可信赖、能托付、有温度的保险业良好形象。
+卡塔尔能源周二表示，该协议涵盖了对叙利亚海上3号区块潜力进行技术评估的工作，并为进一步的技术和商业讨论建立了框架。
 
-2026年“7.8全国保险公众宣传日”年度主题为：奋进“十五五” 保险让前行更有底气。
+3号区块位于叙利亚拉塔基亚市附近的地中海东部黎凡特盆地，水深从100米到1700米不等。
 
-中国保险行业协会联合新浪财经发起2026年“7.8 全国保险公众宣传日”活动专栏。
+该备忘录在多哈的卡塔尔能源总部签署，参与公司及叙利亚国家石油公司的高管出席了签字仪式。
 
-聚焦风险减量、科技保险、养老保险、农业保险、保险服务新市民需求等重点领域，开展形式多样的保险文化宣传主题活动。
+卡塔尔能源表示：“该协议体现了卡塔尔能源持续的国际增长战略，以及其在地区和全球范围内探索上游油气业务发展机会的努力。
 
-（一）聚焦风险减量、抗灾救援开展宣传。
+” 卡塔尔能源事务国务大臣、卡塔尔能源总裁兼首席执行官萨阿德·谢里达·阿尔卡比表示：“我们很高兴与叙利亚石油公司合作，探索能够支持阿拉伯叙利亚共和国人民增长与繁荣的潜在机会。
 
-集中宣传保险业融入国家防灾减灾救灾体系，切实发挥灾前预备、灾中救援、灾后赔付重建等整体功能，服务社会治理体系的举措及成效。
+我们期待与我们的国际合作伙伴道达尔能源和康菲石油以及其他相关利益方密切合作，共同评估这一机会。
 
-（二）聚焦科技保险开展宣传。
+”责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 15:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 15:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:18 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 15:35 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 15:42 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 15:26 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 15:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 15:39 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 15:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 15:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 15:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 15:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 15:39 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 15:52 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 15:49 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 15:31 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 15:44 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 15:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 15:48 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 15:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 15:51 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 15:53 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/67946.shtml)
-- 2026-06-29 15:31 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/65521084.shtml)
-- 2026-06-29 15:41 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/1091885405.shtml)
-- 2026-06-29 15:38 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/815754.shtml)
-- 2026-06-29 15:38 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/8898749.shtml)
-- 2026-06-29 15:36 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/29924255741.shtml)
-- 2026-06-29 15:26 - [恋与深空 731](https://www.share.minike.top/Article/details/10187307.shtml)
-- 2026-06-29 15:23 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/1610217.shtml)
-- 2026-06-29 15:31 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/5934839480.shtml)
-- 2026-06-29 15:45 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/8024947454.shtml)
-- 2026-06-29 15:24 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/9911988927.shtml)
-- 2026-06-29 15:23 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/7806737059.shtml)
-- 2026-06-29 15:45 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/043358927.shtml)
-- 2026-06-29 15:37 - [T1 KC](http://www.share.minike.top/Article/details/74216547.shtml)
-- 2026-06-29 15:24 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/60778255183.shtml)
+- 2026-06-29 15:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/658433.shtml)
+- 2026-06-29 15:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/39883365758.shtml)
+- 2026-06-29 15:28 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/5351960631.shtml)
+- 2026-06-29 15:27 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/980037.shtml)
+- 2026-06-29 15:44 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/3198465.shtml)
+- 2026-06-29 15:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/56675760877.shtml)
+- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/940505173.shtml)
+- 2026-06-29 15:53 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/83551943.shtml)
+- 2026-06-29 15:33 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/111478250.shtml)
+- 2026-06-29 15:50 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/6393640095.shtml)
+- 2026-06-29 15:39 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/6953097672.shtml)
+- 2026-06-29 15:30 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/27531783.shtml)
+- 2026-06-29 15:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/9485378904.shtml)
+- 2026-06-29 15:51 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/452817496586.shtml)
+- 2026-06-29 15:51 - [速度与激情9](http://www.share.minike.top/Article/details/863224239249.shtml)

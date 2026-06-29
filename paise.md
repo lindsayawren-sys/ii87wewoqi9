@@ -1,61 +1,58 @@
-# 援疆教练李海霞：带阿勒泰孩子“滑”向更大赛场
+# 2026年1—4月海南省财政收支情况
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网阿勒泰6月21日电 题：援疆教练李海霞：带阿勒泰孩子“滑”向更大赛场 中新网记者 曹子云 6月入夏，傍晚，在阿勒泰雪都体育公园蓝色的轮滑场上，几个穿着训练服、脚踩轮滑鞋的新疆娃穿梭嬉戏，偶尔脱口一句地道的东北话：“你干哈呢？” “开始训练！”一身红衣的教练李海霞一招呼，孩子们马上集合到她身边。“内侧手扶地”“支撑腿坚持住”……她用东北话发出的指令，回响在训练场，充满感染力
+2026年1—4月全省财政收支情况 1—4月，全省地方一般公共预算收入367.4亿元，增长2.3%。分结构看，税收收入300.7亿元，增长6.6%；非税收入66.7亿元，下降13.3%。 分级次看，省本级收入89.3亿元，增长4.8%；市县级收入278.1亿元，增长1.5%。 1—4月，全省地方一般公共预算支出799.5亿元，增长2.5%。分级次看，省本级支出247亿元，增长0
 
 ## 正文
 
-中新网阿勒泰6月21日电 题：援疆教练李海霞：带阿勒泰孩子“滑”向更大赛场 中新网记者 曹子云 6月入夏，傍晚，在阿勒泰雪都体育公园蓝色的轮滑场上，几个穿着训练服、脚踩轮滑鞋的新疆娃穿梭嬉戏，偶尔脱口一句地道的东北话：“你干哈呢？
+2026年1—4月全省财政收支情况 1—4月，全省地方一般公共预算收入367.4亿元，增长2.3%。
 
-” “开始训练！
+分结构看，税收收入300.7亿元，增长6.6%；非税收入66.7亿元，下降13.3%。
 
-”一身红衣的教练李海霞一招呼，孩子们马上集合到她身边。
+分级次看，省本级收入89.3亿元，增长4.8%；市县级收入278.1亿元，增长1.5%。
 
-“内侧手扶地”“支撑腿坚持住”……她用东北话发出的指令，回响在训练场，充满感染力的口音也引来孩子们模仿。
+1—4月，全省地方一般公共预算支出799.5亿元，增长2.5%。
 
-李海霞是黑龙江省援疆速滑教练，在这里执教已有3年。
+分级次看，省本级支出247亿元，增长0.4%；市县级支出552.5亿元，增长3.5%。
 
-她刚来时，阿勒泰还没有系统化的青少年速滑训练。
+1—4月，全省地方政府性基金预算收入63亿元，下降14.6%。
 
-为了让训练规范科学，李海霞带着队伍，将轮滑、速度滑冰、短道速滑训练“三合一”，夏季在体育公园练轮滑，冬季在室外练速滑，授课全程免费。
-
-训练场上，李教练严字当头，看到错误发力和不到位的动作都会当场纠正。
+全省地方政府性基金预算支出303.6亿元，下降18.9%。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 15:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 15:41 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 15:46 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:23 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 15:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 15:44 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 15:24 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 15:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 15:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 15:47 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 15:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 15:26 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 15:47 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 15:45 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 15:46 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 15:24 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 15:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 15:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:46 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 15:32 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 15:35 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 15:24 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 15:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 15:51 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:40 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/09255430.shtml)
-- 2026-06-29 15:26 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/36729.shtml)
-- 2026-06-29 15:25 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/792032.shtml)
-- 2026-06-29 15:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/6555289685.shtml)
-- 2026-06-29 15:36 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/438744150.shtml)
-- 2026-06-29 15:35 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/184197.shtml)
-- 2026-06-29 15:28 - [行程万里不忘初心](http://www.share.minike.top/Article/details/870107464274.shtml)
-- 2026-06-29 15:32 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/8701565.shtml)
-- 2026-06-29 15:19 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/9137943.shtml)
-- 2026-06-29 15:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/393549.shtml)
-- 2026-06-29 15:30 - [媒体：网络测评不能只剩“生意”](http://www.share.minike.top/Article/details/5182880.shtml)
-- 2026-06-29 15:30 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/8996654627.shtml)
-- 2026-06-29 15:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/7794646630.shtml)
-- 2026-06-29 15:37 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/90558327782.shtml)
-- 2026-06-29 15:23 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/97125.shtml)
+- 2026-06-29 15:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/180852845901.shtml)
+- 2026-06-29 15:48 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/71250.shtml)
+- 2026-06-29 15:24 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/93255012.shtml)
+- 2026-06-29 15:24 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/60803529715.shtml)
+- 2026-06-29 15:33 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/717334.shtml)
+- 2026-06-29 15:44 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/284778467497.shtml)
+- 2026-06-29 15:41 - [当我回母校教书](https://www.share.minike.top/Article/details/175339064859.shtml)
+- 2026-06-29 15:38 - [天道](http://www.blog.kurohicncr.top/Article/details/127215.shtml)
+- 2026-06-29 15:35 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/441926794401.shtml)
+- 2026-06-29 15:25 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/882248017.shtml)
+- 2026-06-29 15:47 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/35523089969.shtml)
+- 2026-06-29 15:40 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/033960.shtml)
+- 2026-06-29 15:53 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/7579000934.shtml)
+- 2026-06-29 15:31 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/15847536254.shtml)
+- 2026-06-29 15:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/1324261726.shtml)

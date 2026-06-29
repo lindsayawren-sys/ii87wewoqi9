@@ -1,58 +1,56 @@
-# 英伟达：将为机器人和物理AI提供安全系统
+# 京沪高铁部分动车组列车公布票价上浮20%
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-英伟达正在将其用于自动驾驶汽车的安全系统扩展至机器人和物理AI领域。 这家芯片制造商周一发布了Halos for Robotics，旨在随着自主机器人规模的扩大而提高安全性。该系统允许公司依赖一个连接了AI计算、系统软件、传感器数据、安全应用和检查的标准化、统一的安全系统。 英伟达机器人和边缘AI副总裁迪普·塔拉表示：“物理AI正在改变工厂、仓库和物流业务的运作方式，机器人团队
+中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。 公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。 公告指出，公司将持续提升客运服务品质。此次票价优化调整对公司业绩的影响具
 
 ## 正文
 
-英伟达正在将其用于自动驾驶汽车的安全系统扩展至机器人和物理AI领域。
+中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。
 
-这家芯片制造商周一发布了Halos for Robotics，旨在随着自主机器人规模的扩大而提高安全性。
+公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。
 
-该系统允许公司依赖一个连接了AI计算、系统软件、传感器数据、安全应用和检查的标准化、统一的安全系统。
+公告指出，公司将持续提升客运服务品质。
 
-英伟达机器人和边缘AI副总裁迪普·塔拉表示：“物理AI正在改变工厂、仓库和物流业务的运作方式，机器人团队需要一个统一的安全架构，以便将自主系统扩展到这些环境中。
+此次票价优化调整对公司业绩的影响具有一定的不确定性，公司董事会提醒广大投资者谨慎决策，注意投资风险。
 
-” 英伟达表示，人形机器人和物理AI公司Agility是第一家使用Halos for Robotics系统的公司。
+京沪高铁连接京津冀和长三角两大经济区，区域经济增长快，人口密度大，城市化程度高，具有良好的客流基础。
 
-Agility将把该系统用于其人形机器人，这些机器人为亚马逊、GXO、舍弗勒（Schaeffler）和丰田汽车加拿大制造公司等客户在工厂、仓库和物流业务中提供服务。
+作为“中国高铁第一股”，京沪高铁已于2020年1月16日在A股上市。
 
-英伟达表示，用于其IGX平台的Halos Core已面向注册开发者提供抢先体验版，支持Linux以及Linux加QNX OS for Safety 8.0的配置。
+据京沪高铁财报显示，2026年一季度实现营收105.59亿元(人民币，下同)，同比增长3.29%；实现归母净利润31.43亿元，同比增长6.03%。
 
-该公司表示，开源的Nvidia Halos Outside-In Safety Blueprint现已在GitHub上提供抢先体验版。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 15:29 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 15:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:30 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 15:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 15:23 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 15:30 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 15:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:29 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 15:37 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 15:26 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 15:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:48 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 15:49 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 15:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 15:25 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:26 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 15:52 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 15:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 15:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [T1零封KC MSI](https://www.share.minike.top/Article/details/15163.shtml)
-- 2026-06-29 15:33 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/80931101.shtml)
-- 2026-06-29 15:37 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/312002422.shtml)
-- 2026-06-29 15:18 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/63201.shtml)
-- 2026-06-29 15:32 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/823528975170.shtml)
-- 2026-06-29 15:42 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/0822667.shtml)
-- 2026-06-29 15:29 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/44514.shtml)
-- 2026-06-29 15:40 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/21893253700.shtml)
-- 2026-06-29 15:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/6668574418.shtml)
-- 2026-06-29 15:47 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/72840.shtml)
-- 2026-06-29 15:21 - [上班主打一个薪尽自然凉](https://www.blog.kurohicncr.top/Article/details/8666236840.shtml)
-- 2026-06-29 15:29 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/722768995.shtml)
-- 2026-06-29 15:42 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/396075863.shtml)
-- 2026-06-29 15:27 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6392317.shtml)
-- 2026-06-29 15:22 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/661851.shtml)
+- 2026-06-29 15:47 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/769288088738.shtml)
+- 2026-06-29 15:47 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/35340148361.shtml)
+- 2026-06-29 15:45 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/32287485.shtml)
+- 2026-06-29 15:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8312325620.shtml)
+- 2026-06-29 15:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/4816471556.shtml)
+- 2026-06-29 15:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/3951262.shtml)
+- 2026-06-29 15:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/62799.shtml)
+- 2026-06-29 15:35 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/408845.shtml)
+- 2026-06-29 15:34 - [当我回母校教书](http://www.share.minike.top/Article/details/86795757.shtml)
+- 2026-06-29 15:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/091462448940.shtml)
+- 2026-06-29 15:31 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/221454364962.shtml)
+- 2026-06-29 15:26 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/114725469766.shtml)
+- 2026-06-29 15:50 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/90968709.shtml)
+- 2026-06-29 15:49 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/48840.shtml)
+- 2026-06-29 15:50 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/3805158.shtml)

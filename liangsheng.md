@@ -1,58 +1,60 @@
-# 英国脱欧公投10年后，英欧关系何去何从？
+# 赖亚文当选新一届中国排球协会主席
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-“脱欧悔意”折射心态变化，“重返欧盟”讨论持续升温 英国脱欧公投10年后，英欧关系何去何从？(深度观察) 2016年6月23日，英国就“是否脱离欧盟”举行全民公投，次日公投结果出炉，“脱欧派”以51.9%对48.1%的微弱优势胜出，英国政府决定脱离欧盟。在脱欧公投10年后的今天，英国社会围绕脱欧得失的讨论持续升温。从街头抗议到政党论战，从民调数据到政策辩论，一场围绕“重返欧盟”
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。 会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。 赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会
 
 ## 正文
 
-“脱欧悔意”折射心态变化，“重返欧盟”讨论持续升温 英国脱欧公投10年后，英欧关系何去何从？
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。
 
-(深度观察) 2016年6月23日，英国就“是否脱离欧盟”举行全民公投，次日公投结果出炉，“脱欧派”以51.9%对48.1%的微弱优势胜出，英国政府决定脱离欧盟。
+会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。
 
-在脱欧公投10年后的今天，英国社会围绕脱欧得失的讨论持续升温。
+赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会下一步工作进行了展望。
 
-从街头抗议到政党论战，从民调数据到政策辩论，一场围绕“重返欧盟”的大讨论甚是热闹，英欧关系再次站在新的十字路口。
+公开资料显示，赖亚文出生于1970年，是中国女排的功勋球员和教练员。
 
-民意反转——脱欧反思渐成主流话语 10年间，英国民众对脱欧的态度发生显著变化，指代“脱欧悔意”的新词“Bregret”近年来在英国舆论场广泛传播，成为折射社会心态变化的标志性词语。
+运动员时期，她曾担任中国女排队长，1996年帮助中国女排拿到亚特兰大奥运会银牌。
 
-今年5月，由“英国欧洲运动联盟”发起的“重返欧盟”请愿在英国议会请愿网站签名突破10万，依照议事规则触发议会专项辩论。
+退役后，赖亚文从1999年开始转型为中国女排助理教练，经历胡进、陈忠和、蔡斌、俞觉敏、郎平等主教练，协助中国女排夺得2003年、2015年两届世界杯冠军以及2004年、2016年两届奥运会冠军。
 
-多家民调机构数据显示，民众对脱欧的态度已较10年前出现反转。
+2017年，赖亚文被任命为国家体育总局排球运动管理中心副主任，2023年出任国家体育总局排球运动管理中心主任。
 
-英国民调机构YouGov今年6月发布的调查显示，55%的受访民众支持重新申请加入欧盟，35%的受访民众持反对态度；超过两成当年投票支持脱欧的选民认为当年的选择存在失误。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 15:25 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 15:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 15:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 15:43 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 15:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 15:44 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 15:38 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 15:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:31 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 15:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 15:40 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 15:28 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 15:50 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 15:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 15:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 15:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 15:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 15:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 15:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 15:47 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 15:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 15:43 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 15:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 15:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/5933013794.shtml)
-- 2026-06-29 15:25 - [一见倾心](http://www.blog.minike.top/Article/details/951137.shtml)
-- 2026-06-29 15:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/5166836452.shtml)
-- 2026-06-29 15:29 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/2560044121.shtml)
-- 2026-06-29 15:43 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/5008549.shtml)
-- 2026-06-29 15:36 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/74240802804.shtml)
-- 2026-06-29 15:41 - [中国战机大片上新](https://www.blog.minike.top/Article/details/297529400336.shtml)
-- 2026-06-29 15:43 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/77392274301.shtml)
-- 2026-06-29 15:20 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/726707749.shtml)
-- 2026-06-29 15:42 - [一生一世](http://www.blog.minike.top/Article/details/429956393.shtml)
-- 2026-06-29 15:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/0506513203.shtml)
-- 2026-06-29 15:37 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/81889.shtml)
-- 2026-06-29 15:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/888269086.shtml)
-- 2026-06-29 15:44 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/052238934917.shtml)
-- 2026-06-29 15:36 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/550425308425.shtml)
+- 2026-06-29 15:42 - [扬名立万](https://www.share.kurohicncr.top/Article/details/8690483.shtml)
+- 2026-06-29 15:34 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/56555619.shtml)
+- 2026-06-29 15:24 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/64690851.shtml)
+- 2026-06-29 15:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/030657105460.shtml)
+- 2026-06-29 15:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/563776.shtml)
+- 2026-06-29 15:51 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/924497464.shtml)
+- 2026-06-29 15:36 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/340812671.shtml)
+- 2026-06-29 15:54 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/662199466.shtml)
+- 2026-06-29 15:44 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/43763266.shtml)
+- 2026-06-29 15:44 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/177619.shtml)
+- 2026-06-29 15:33 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/758581202.shtml)
+- 2026-06-29 15:37 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/22657.shtml)
+- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7896496.shtml)
+- 2026-06-29 15:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/27179791368.shtml)
+- 2026-06-29 15:40 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/848887842.shtml)

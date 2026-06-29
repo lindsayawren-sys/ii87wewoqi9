@@ -1,58 +1,49 @@
-# 新增AI、机器人等专业 多所高校扩招重点方向来了
+# 龙湖集团前4个月累计实现总合同销售金额103.5亿元
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-原标题：视频丨新增AI、机器人等专业 多所高校扩招重点方向来了 “十五五”时期，“双一流”高校本科将扩招10万人以上。今年，众多优质本科高校都宣布扩大招生规模。很多考生和家长关心：都有哪些高校参与扩招？将扩充多大规模？重点投向哪些领域？ 有哪些高校参与扩招？将扩充多大规模？ 今年，“双一流”高校中，东南大学扩招人数将达600人，西安电子科技大学将扩招400人，西安交通大学比去年
+龙湖集团（00960）发布公告，截至2026年4月30日止4个月，集团累计实现总合同销售金额人民币103.5亿元，合同销售面积115.3万平方米，4月单月实现合同销售金额人民币28.9亿元，合同销售面积31.1万平方米；4月单月实现归属公司股东权益的合同销售金额人民币19.3亿元，归属公司股东权益的合同销售面积22.3万平方米。 截至2026年4月30日止4个月，集团实现运营及
 
 ## 正文
 
-原标题：视频丨新增AI、机器人等专业 多所高校扩招重点方向来了 “十五五”时期，“双一流”高校本科将扩招10万人以上。
+龙湖集团（00960）发布公告，截至2026年4月30日止4个月，集团累计实现总合同销售金额人民币103.5亿元，合同销售面积115.3万平方米，4月单月实现合同销售金额人民币28.9亿元，合同销售面积31.1万平方米；4月单月实现归属公司股东权益的合同销售金额人民币19.3亿元，归属公司股东权益的合同销售面积22.3万平方米。
 
-今年，众多优质本科高校都宣布扩大招生规模。
+截至2026年4月30日止4个月，集团实现运营及服务业务收入约人民币88.5亿元（含税金额约人民币94.4亿元）；其中，运营收入约人民币48.0亿元（含税金额约人民币 51.4亿元），服务收入约人民币40.5亿元（含税金额约人民币43.0亿元）。
 
-很多考生和家长关心：都有哪些高校参与扩招？
-
-将扩充多大规模？
-
-重点投向哪些领域？
-
-有哪些高校参与扩招？
-
-将扩充多大规模？
-
-今年，“双一流”高校中，东南大学扩招人数将达600人，西安电子科技大学将扩招400人，西安交通大学比去年增加360人；复旦大学、南京大学、兰州大学将各扩招300人；北京邮电大学2026年本科招生规模增量为180人；华南理工大学全国招生总规模比2025年增加150人；同济大学、南开大学、山东大学、中央财经大学、中国矿业大学(北京)等高校，2026年均新增100个招生名额。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 15:41 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 15:40 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 15:22 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 15:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 15:24 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 15:21 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 15:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 15:43 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 15:39 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 15:46 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 15:29 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 15:43 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 15:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 15:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 15:29 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 15:54 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 15:24 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 15:40 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 15:45 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 15:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 15:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 15:35 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/625259960320.shtml)
-- 2026-06-29 15:41 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/17279559.shtml)
-- 2026-06-29 15:24 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/157145798.shtml)
-- 2026-06-29 15:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/758202955566.shtml)
-- 2026-06-29 15:18 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/84005.shtml)
-- 2026-06-29 15:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/3420286.shtml)
-- 2026-06-29 15:23 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/887970437546.shtml)
-- 2026-06-29 15:47 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/381341.shtml)
-- 2026-06-29 15:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/89920188004.shtml)
-- 2026-06-29 15:31 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/3015058495.shtml)
-- 2026-06-29 15:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/67199678.shtml)
-- 2026-06-29 15:18 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/0325666.shtml)
-- 2026-06-29 15:18 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/648165696.shtml)
-- 2026-06-29 15:18 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/967637651.shtml)
-- 2026-06-29 15:30 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/3197469.shtml)
+- 2026-06-29 15:28 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/419853244168.shtml)
+- 2026-06-29 15:24 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/291681853615.shtml)
+- 2026-06-29 15:28 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/89816.shtml)
+- 2026-06-29 15:52 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/569371085.shtml)
+- 2026-06-29 15:38 - [青春环游记第三季](http://www.share.minike.top/Article/details/477019031.shtml)
+- 2026-06-29 15:32 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/2158182026.shtml)
+- 2026-06-29 15:52 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/11594783928.shtml)
+- 2026-06-29 15:49 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/00206220275.shtml)
+- 2026-06-29 15:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/1605934.shtml)
+- 2026-06-29 15:34 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/92266.shtml)
+- 2026-06-29 15:42 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/0524769250.shtml)
+- 2026-06-29 15:28 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/81854.shtml)
+- 2026-06-29 15:28 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/84878659.shtml)
+- 2026-06-29 15:50 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/39203467.shtml)
+- 2026-06-29 15:45 - [普京介绍前线战事](http://www.share.minike.top/Article/details/54165.shtml)

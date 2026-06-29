@@ -1,56 +1,56 @@
-# 李强会见几内亚总理乌里·巴
+# 一键连接或成一键失守 国安机关揭露蓝牙设备背后的窃密陷阱
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。 李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。当前，在习近平主席同敦布
+在科技飞速发展的当下，无线耳机、智能手表、无线键盘等蓝牙设备凭借“一键连接”带来的便捷优势，已广泛应用于日常工作和生活。然而，这些提升效率的“神器”，可能潜藏安全风险。不法分子可能利用蓝牙技术漏洞，非法获取个人信息甚至实施窃密行为，威胁公民隐私与国家秘密安全。主动连接变被动失守 蓝牙连接的“配对提示”背后，信号广播、协议认证等环节若存在漏洞，就有可能被别有用心之人进行针对性攻击
 
 ## 正文
 
-中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。
+在科技飞速发展的当下，无线耳机、智能手表、无线键盘等蓝牙设备凭借“一键连接”带来的便捷优势，已广泛应用于日常工作和生活。
 
-李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。
+然而，这些提升效率的“神器”，可能潜藏安全风险。
 
-过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。
+不法分子可能利用蓝牙技术漏洞，非法获取个人信息甚至实施窃密行为，威胁公民隐私与国家秘密安全。
 
-当前，在习近平主席同敦布亚总统的战略引领下，中几关系持续深化发展。
+主动连接变被动失守 蓝牙连接的“配对提示”背后，信号广播、协议认证等环节若存在漏洞，就有可能被别有用心之人进行针对性攻击，远程窃听通话内容、获取设备定位、掌握个人信息，造成数据信息泄露。
 
-今年两国迎来建立全面战略合作伙伴关系10周年，中方愿同几方以此为契机，进一步弘扬传统友谊，在涉及彼此核心利益问题上坚定相互支持，推动各领域合作走深走实，更好惠及两国人民。
+——静默监听。
 
-李强指出，中方愿同几方加强中国“十五五”规划和几内亚“西芒杜2040”战略规划对接，用好用足中方零关税、非洲农产品输华“绿色通道”升级等政策便利，提升贸易、农业、矿业等合作水平，确保西芒杜等重点项目稳定运营，发掘金融、产业园区、电力等领域合作潜力，实现更高水平的互利共赢。
+部分设备存在未修复的固件漏洞，攻击者能针对性对其实施静默强制配对，并在数秒内实现近距离接管音频播放、利用麦克风进行环境窃听等行为。
 
-希望几方为中国企业赴几投资提供稳定政策保障和良好营商环境。
+——数据窃取。
 
-双方还要深入落实中非合作论坛北京峰会“十大伙伴行动”，加强教育、减贫、医疗、人力资源开发等方面交流合作，提升民众对两国友好合作的获得感。
+部分智能设备使用直接工作配对模式，不认证指令来源。
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 15:30 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 15:33 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 15:29 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 15:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 15:38 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 15:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 15:41 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 15:46 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 15:42 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:32 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 15:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 15:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 15:39 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 15:24 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 15:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 15:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 15:30 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 15:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/57991208855.shtml)
-- 2026-06-29 15:25 - [爱很美味](https://www.blog.minike.top/Article/details/1678991957.shtml)
-- 2026-06-29 15:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/61263982.shtml)
-- 2026-06-29 15:36 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/43597.shtml)
-- 2026-06-29 15:32 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/7139721522.shtml)
-- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/7327159.shtml)
-- 2026-06-29 15:25 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/738019.shtml)
-- 2026-06-29 15:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/05385973342.shtml)
-- 2026-06-29 15:33 - [沙丘](https://www.blog.minike.top/Article/details/925785.shtml)
-- 2026-06-29 15:40 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/943799944.shtml)
-- 2026-06-29 15:21 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/0939937.shtml)
-- 2026-06-29 15:40 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/4805824.shtml)
-- 2026-06-29 15:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/68914.shtml)
-- 2026-06-29 15:34 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/6908837.shtml)
-- 2026-06-29 15:22 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/840211986135.shtml)
+- 2026-06-29 15:44 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/318696406.shtml)
+- 2026-06-29 15:32 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/388211982203.shtml)
+- 2026-06-29 15:41 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/615681676.shtml)
+- 2026-06-29 15:29 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/24914.shtml)
+- 2026-06-29 15:45 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/04248918.shtml)
+- 2026-06-29 15:24 - [绘画区你赢了](https://www.blog.minike.top/Article/details/60371.shtml)
+- 2026-06-29 15:27 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/19199.shtml)
+- 2026-06-29 15:48 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/92424057286.shtml)
+- 2026-06-29 15:50 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/07808710.shtml)
+- 2026-06-29 15:40 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/709167.shtml)
+- 2026-06-29 15:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/20864.shtml)
+- 2026-06-29 15:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/262502638.shtml)
+- 2026-06-29 15:40 - [啊啊啊](http://www.share.minike.top/Article/details/0228879.shtml)
+- 2026-06-29 15:42 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/405016620.shtml)
+- 2026-06-29 15:38 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/67570601928.shtml)

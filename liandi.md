@@ -1,57 +1,59 @@
-# 端午假期北京市属公园接待游客超122万人次
+# 畜牧养殖板块集体大涨，华宝基金农牧渔ETF（159275）上探1.47%！估值低位反转将至？
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月21日电 (记者 徐婧)北京市公园管理中心21日发布的数据显示，端午假期三天(6月19日至21日)，北京市属公园共接待游客122.78万人次，游客量排名前三位的是天坛公园、颐和园、北海公园。 节日期间，各公园以安全有序的游园保障、丰富的文化体验与特色夏季景观，让市民游客在山水园林间观美景、赏民俗、品文化。北海公园《印·静心》晚间沉浸式文化活动今年在灯光氛围、演艺节
+农牧渔板块今日（5月11日）震荡上行，全市场首只农牧渔ETF（159275）低开后震荡拉升，盘中场内价格最高涨1.47%，截至发稿，涨1.05%。 成份股方面，畜牧养殖板块大面积飙涨。截至发稿，天邦食品涨停，神农集团大涨超4%，农发种业、正邦科技、巨星农牧等亦涨幅居前。 天风证券指出，行业深度亏损、过冬压力突出，供给过剩下产能去化及加速逻辑持续兑现，反内卷使出栏弹性系统性收窄，
 
 ## 正文
 
-中新网北京6月21日电 (记者 徐婧)北京市公园管理中心21日发布的数据显示，端午假期三天(6月19日至21日)，北京市属公园共接待游客122.78万人次，游客量排名前三位的是天坛公园、颐和园、北海公园。
+农牧渔板块今日（5月11日）震荡上行，全市场首只农牧渔ETF（159275）低开后震荡拉升，盘中场内价格最高涨1.47%，截至发稿，涨1.05%。
 
-节日期间，各公园以安全有序的游园保障、丰富的文化体验与特色夏季景观，让市民游客在山水园林间观美景、赏民俗、品文化。
+成份股方面，畜牧养殖板块大面积飙涨。
 
-北海公园《印·静心》晚间沉浸式文化活动今年在灯光氛围、演艺节目上全面升级，实现游园赏景与观演品艺深度融合；中国园林博物馆“花神映夏”活动持续升温，游客寻访“花神”、完成趣味任务，沉浸式体悟仲夏园林的造园意趣与诗意美学。
+截至发稿，天邦食品涨停，神农集团大涨超4%，农发种业、正邦科技、巨星农牧等亦涨幅居前。
 
-路县故城遗址公园推出观展、游园、购物等多重夏日特色体验，为游客打造汉风纳凉休闲空间。
+天风证券指出，行业深度亏损、过冬压力突出，供给过剩下产能去化及加速逻辑持续兑现，反内卷使出栏弹性系统性收窄，建议关注资金充足、经营稳定、成本优秀的高质量“好”公司。
 
-博物馆内“珠耀南北——京穗两地汉代珠饰展”持续展出，以玉石、琉璃、玛瑙等汉代珠饰文物梳理南北汉代商贸与审美脉络，搭配线下科普教育活动，让游客近距离品读千年汉代工艺之美。
+从估值方面来看，当前农牧渔板块估值水平仍处相对低位，当前或为板块较好配置时机。
 
-该园南园良工巧匠景点处跳泉在周末及节假日面向游客开放，灵动水景趣味十足。
+数据显示，截至上个交易日（5月8日）收盘，全市场首只农牧渔ETF（159275）标的指数中证全指农牧渔指数市净率为2.48倍，位于近5年来23.23%分位点的低位，中长期配置性价比凸显。
 
-北园复原的汉代水车常态运转，流水带动木轮缓缓转动，复刻汉代先民水利生活图景，成为夏日热门打卡点位。
+展望后市，国金证券指出，短期来看，生猪价格仍有下降空间，近期行业产能在政策调控和供给压力下已经有所减少，同时行业价格已经跌破完全成本线，预计整体亏损下行业产能去化，目前板块景气度底部企稳。
 
-此外，“路城纪”茶肆同步上新多款夏日奶昔。
+中长期来看，生猪养殖行业依旧有较为优秀的中枢利润，且非洲猪瘟之后行业的快速扩张中，仍有大量企业是低质量扩充产能，行业成本方差依旧巨大，头部企业有充足的超额利润释放，建议优选低成本的优质企业。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 15:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 15:26 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 15:22 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 15:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 15:38 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 15:28 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 15:23 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 15:27 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 15:37 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 15:24 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 15:30 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 15:25 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 15:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 15:24 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 15:28 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 15:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 15:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 15:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 15:37 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:28 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 15:32 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 15:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/7901902.shtml)
-- 2026-06-29 15:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/989904065861.shtml)
-- 2026-06-29 15:20 - [恋与深空失控领地](http://www.share.minike.top/Article/details/310088145.shtml)
-- 2026-06-29 15:24 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/505363.shtml)
-- 2026-06-29 15:45 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/5387866921.shtml)
-- 2026-06-29 15:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/866206383040.shtml)
-- 2026-06-29 15:45 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/9539051090.shtml)
-- 2026-06-29 15:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/969336574491.shtml)
-- 2026-06-29 15:40 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/26452686.shtml)
-- 2026-06-29 15:47 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/496193488.shtml)
-- 2026-06-29 15:19 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/178324111300.shtml)
-- 2026-06-29 15:40 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/407434942453.shtml)
-- 2026-06-29 15:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/50410303.shtml)
-- 2026-06-29 15:46 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/9271327.shtml)
-- 2026-06-29 15:35 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/38346.shtml)
+- 2026-06-29 15:47 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/3841863408.shtml)
+- 2026-06-29 15:48 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/7045048014.shtml)
+- 2026-06-29 15:31 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/3309163311.shtml)
+- 2026-06-29 15:26 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/335021006580.shtml)
+- 2026-06-29 15:44 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/9875429955.shtml)
+- 2026-06-29 15:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/115190286107.shtml)
+- 2026-06-29 15:31 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/944290134.shtml)
+- 2026-06-29 15:28 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/21818924.shtml)
+- 2026-06-29 15:41 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/39562186012.shtml)
+- 2026-06-29 15:50 - [把古诗里的动作换成加班](https://www.blog.kurohicncr.top/Article/details/310860734911.shtml)
+- 2026-06-29 15:46 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/847803390.shtml)
+- 2026-06-29 15:50 - [逆天祖国人](https://www.share.minike.top/Article/details/54426513.shtml)
+- 2026-06-29 15:34 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/34075.shtml)
+- 2026-06-29 15:38 - [啊啊啊](http://www.blog.minike.top/Article/details/479112143261.shtml)
+- 2026-06-29 15:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/438178.shtml)

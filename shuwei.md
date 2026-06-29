@@ -1,58 +1,60 @@
-# 黄金越来越“不听话”：不是规律失效，是世界变了
+# 云冈石窟8个晚期洞窟临时封闭 开展数字化采集
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！ 同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。 例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。 传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。 问题或许不在黄金
+中新社山西大同5月11日电 (记者 胡健)11日，世界文化遗产云冈石窟第38至45窟实施临时封闭，开展数字化采集工作，旨在通过高精度数据记录，为石窟保护、研究与展示提供科学支撑。 第38至45窟位于云冈石窟群西部，开凿于北魏迁都洛阳之后(公元494年—525年)，属云冈晚期洞窟。这一时期大窟减少，中小型窟龛密布崖壁，造像风格一改早中期的雄浑华丽，呈现出“秀骨清像”的俊逸风貌：佛
 
 ## 正文
 
-来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！
+中新社山西大同5月11日电 (记者 胡健)11日，世界文化遗产云冈石窟第38至45窟实施临时封闭，开展数字化采集工作，旨在通过高精度数据记录，为石窟保护、研究与展示提供科学支撑。
 
-同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。
+第38至45窟位于云冈石窟群西部，开凿于北魏迁都洛阳之后(公元494年—525年)，属云冈晚期洞窟。
 
-例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。
+这一时期大窟减少，中小型窟龛密布崖壁，造像风格一改早中期的雄浑华丽，呈现出“秀骨清像”的俊逸风貌：佛像面容清瘦、颈细肩削，褒衣博带；飞天身姿灵动，供养人已是汉族装束。
 
-传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。
+晚期雕刻融汇禅观思想，形象繁缛而富有意蕴，是云冈石窟不可或缺的重要组成部分。
 
-问题或许不在黄金 “乱世黄金”并非空话。
+其中，第38窟为方形平棊窟，是晚期洞窟的典型代表；第39窟内矗立一座五层中心塔柱，为仿中国传统木结构阁楼，斗拱、瓦垅俱全，被公认为研究北魏木构佛塔样式的重要实物；第40窟虽经后期加固，仍保留晚期窟形与三龛布局。
 
-回顾历史上几次军事冲突，这条规律曾多次得到印证。
+云冈石窟位于山西大同，开凿于北魏时期，是中国规模最大的古代石窟群之一。
 
-根据国海证券研报，在第四次中东战争、第二次石油危机、2003年伊拉克战争等时期，黄金价格在3个月和一年内均大幅上涨。
+石窟依山开凿，现存主要洞窟45个，大小造像5万余尊，融合中西艺术风格，被誉为“公元5世纪中国石刻艺术之冠”。
 
-但也有例外。
+2001年，云冈石窟被联合国教科文组织列入《世界遗产名录》。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 15:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 15:29 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:45 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 15:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 15:22 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 15:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 15:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 15:46 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 15:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 15:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 15:24 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 15:29 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 15:38 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 15:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 15:35 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 15:47 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 15:31 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 15:47 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 15:45 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 15:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 15:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 15:34 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 15:37 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/57031108887.shtml)
-- 2026-06-29 15:46 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/528009.shtml)
-- 2026-06-29 15:21 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/29682031.shtml)
-- 2026-06-29 15:33 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/26565.shtml)
-- 2026-06-29 15:35 - [东方风云榜](https://www.share.minike.top/Article/details/38468612.shtml)
-- 2026-06-29 15:19 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/2764461818.shtml)
-- 2026-06-29 15:39 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/35372535746.shtml)
-- 2026-06-29 15:28 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/7188810.shtml)
-- 2026-06-29 15:28 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/13102094.shtml)
-- 2026-06-29 15:41 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/4265714071.shtml)
-- 2026-06-29 15:42 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/8500938.shtml)
-- 2026-06-29 15:24 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/33636700.shtml)
-- 2026-06-29 15:24 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/391108263.shtml)
-- 2026-06-29 15:30 - [毒液2](http://www.share.kurohicncr.top/Article/details/407594054307.shtml)
-- 2026-06-29 15:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/42365046.shtml)
+- 2026-06-29 15:48 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/8893848.shtml)
+- 2026-06-29 15:35 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/243910.shtml)
+- 2026-06-29 15:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/4997479145.shtml)
+- 2026-06-29 15:52 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/112425.shtml)
+- 2026-06-29 15:51 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/167110.shtml)
+- 2026-06-29 15:43 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/31324.shtml)
+- 2026-06-29 15:28 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/70451333993.shtml)
+- 2026-06-29 15:26 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/883532.shtml)
+- 2026-06-29 15:52 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/98298738.shtml)
+- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/049701084353.shtml)
+- 2026-06-29 15:28 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/609425152109.shtml)
+- 2026-06-29 15:37 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/92432.shtml)
+- 2026-06-29 15:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/16372292952.shtml)
+- 2026-06-29 15:53 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/98149.shtml)
+- 2026-06-29 15:44 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/414952767941.shtml)

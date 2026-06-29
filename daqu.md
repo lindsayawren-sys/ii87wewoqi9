@@ -1,59 +1,52 @@
-# 四度上榜！徽商期货再获中期协党建与文化建设优秀案例
+# 原芜湖职业技术学院党委书记汪斌严重违纪违法被开除党籍
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-四度上榜！徽商期货再获中期协党建与文化建设优秀案例 近日，中国期货业协会2026年度党建与文化建设优秀案例评选结果正式揭晓。徽商期货申报的《“徽韵”织就文化锦，“五要”领航期货路——徽商期货以特色文化赋能金融高质量发展实践》成功入选优秀案例榜单。至此，公司自2022年起已四次斩获该项殊荣，充分彰显公司党建工作与企业文化建设成果获得行业高度认可。 文化软实力是企业穿越行业周期、破
+中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。 经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁
 
 ## 正文
 
-四度上榜！
+中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。
 
-徽商期货再获中期协党建与文化建设优秀案例 近日，中国期货业协会2026年度党建与文化建设优秀案例评选结果正式揭晓。
+经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁底线失守，利用职权为亲属在业务承揽方面谋取利益，违规拥有非上市公司股份，违规挂证取酬；利用职务便利为他人在项目审批、融资贷款等方面谋利，并非法收受巨额财物。
 
-徽商期货申报的《“徽韵”织就文化锦，“五要”领航期货路——徽商期货以特色文化赋能金融高质量发展实践》成功入选优秀案例榜单。
+汪斌严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-至此，公司自2022年起已四次斩获该项殊荣，充分彰显公司党建工作与企业文化建设成果获得行业高度认可。
-
-文化软实力是企业穿越行业周期、破解发展难题、实现行稳致远的重要保障。
-
-作为安徽省重点期货经营机构，徽商期货深耕行业三十载，打造“党建定向、制度筑基、实践赋能、品牌铸韵”文化发展体系，构建“金融文化+徽商文化+廉洁文化”三位一体培育模式。
-
-对内，依托特色文化激活人才内生动力，持续完善人才培育机制，依靠专业人才破解各类发展难题；对外，以文化赋能主业提质升级，坚守金融服务本源，凭借优质品牌口碑赢得超30万客户信赖。
-
-目前，企业文化已全面融入合规风控、产业服务、人才培育、乡村振兴等各项工作，实现对内凝心聚力、对外赋能发展的双向价值。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予汪斌开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 15:40 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 15:26 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 15:44 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 15:42 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 15:35 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 15:31 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 15:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 15:32 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 15:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 15:28 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 15:22 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 15:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 15:44 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 15:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:37 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 15:42 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 15:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:50 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 15:31 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 15:50 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 15:51 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 15:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 15:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 15:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/40718502.shtml)
-- 2026-06-29 15:26 - [金牌调解](https://www.share.minike.top/Article/details/03304.shtml)
-- 2026-06-29 15:20 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/4927859.shtml)
-- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/71901.shtml)
-- 2026-06-29 15:23 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/29541864728.shtml)
-- 2026-06-29 15:40 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/280244305734.shtml)
-- 2026-06-29 15:32 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/07671528792.shtml)
-- 2026-06-29 15:26 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/6817693.shtml)
-- 2026-06-29 15:20 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/10003879576.shtml)
-- 2026-06-29 15:28 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/033382.shtml)
-- 2026-06-29 15:30 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/5540985326.shtml)
-- 2026-06-29 15:43 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/67408867.shtml)
-- 2026-06-29 15:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/275057751517.shtml)
-- 2026-06-29 15:47 - [起风了](http://www.share.minike.top/Article/details/12410030435.shtml)
-- 2026-06-29 15:23 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/17654192220.shtml)
+- 2026-06-29 15:46 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/085240565.shtml)
+- 2026-06-29 15:46 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/107667.shtml)
+- 2026-06-29 15:40 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/065717166.shtml)
+- 2026-06-29 15:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/86286888.shtml)
+- 2026-06-29 15:52 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/280953.shtml)
+- 2026-06-29 15:50 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/66315.shtml)
+- 2026-06-29 15:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/289179.shtml)
+- 2026-06-29 15:36 - [佛得角到底在哪个“角”](http://www.share.kurohicncr.top/Article/details/97620928.shtml)
+- 2026-06-29 15:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/62240.shtml)
+- 2026-06-29 15:41 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/428034.shtml)
+- 2026-06-29 15:39 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/891330503.shtml)
+- 2026-06-29 15:53 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/6603473522.shtml)
+- 2026-06-29 15:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/755064.shtml)
+- 2026-06-29 15:26 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/440054275.shtml)
+- 2026-06-29 15:38 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/054295005.shtml)

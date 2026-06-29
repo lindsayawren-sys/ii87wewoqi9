@@ -1,56 +1,56 @@
-# 滨北线大桥汛期出险 百余名铁路人奋战9小时抢通
+# 中船防务午后涨逾5% 机构指周期景气上行船厂盈利能力改善
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月22日电 题：滨北线大桥汛期出险 百余名铁路人奋战9小时抢通 作者 康健 “雨停了，我们要重点对路基边坡溜坍、桥涵水位上升、侧沟排水不畅进行检查，大雨过后最容易出状况。”20日5时许，周传鹏紧了紧雨衣，回头对搭档牛力说。此时，两人已在滨北单线的防洪重点区段连续巡守了许久。雨后泥泞，周传鹏走在前面，视线细细地扫过路基边坡，两人深一脚浅一脚地向198公里65米大桥走
+中船防务（00317）盘中涨超6%，截至发稿，股价上涨4.93%，现报16.38港元，成交额6774.94万港元。 5月9日，工信部发布的数据显示，2026年一季度，中国造船完工量、新接订单量、手持订单量三大核心指标全球领先，造船效率、全产业链能力、绿色转型均取得显著成效。截至3月底，中国造船手持订单量达32230万载重吨，同比增长43.6%，占全球市场份额高达69.8%。目前
 
 ## 正文
 
-中新网哈尔滨6月22日电 题：滨北线大桥汛期出险 百余名铁路人奋战9小时抢通 作者 康健 “雨停了，我们要重点对路基边坡溜坍、桥涵水位上升、侧沟排水不畅进行检查，大雨过后最容易出状况。
+中船防务（00317）盘中涨超6%，截至发稿，股价上涨4.93%，现报16.38港元，成交额6774.94万港元。
 
-”20日5时许，周传鹏紧了紧雨衣，回头对搭档牛力说。
+5月9日，工信部发布的数据显示，2026年一季度，中国造船完工量、新接订单量、手持订单量三大核心指标全球领先，造船效率、全产业链能力、绿色转型均取得显著成效。
 
-此时，两人已在滨北单线的防洪重点区段连续巡守了许久。
+截至3月底，中国造船手持订单量达32230万载重吨，同比增长43.6%，占全球市场份额高达69.8%。
 
-雨后泥泞，周传鹏走在前面，视线细细地扫过路基边坡，两人深一脚浅一脚地向198公里65米大桥走去。
+目前，部分大型船厂的生产订单已排期至三年以后。
 
-滨北线是黑龙江省北部交通枢纽通道，承担边境客流、北大荒粮食外运核心任务。
+值得注意的是，中船防务一季度归母净利润同比增长115%。
 
-这座桥位于黑龙江绥棱县冯友屯旁，是中国铁路哈尔滨局集团有限公司绥化工务段巡守任务中最关键的点位之一，进入汛期水位一涨，桥台基础经受的考验就来了，巡守的频次也随之加密。
+业绩显著增长主要系主建船型建造周期进一步压降，产品毛利同比增加；联营企业经营业绩显著提升，公司确认投资收益同比大幅增加。
 
-今年54岁的周传鹏是绥化工务段绥棱线路车间的一名线路工，已经在这里工作了整整30年，这座桥的每一寸钢轨、每一块石砟他都烂熟于心。
+浙商证券指出，周期景气上行，多船型下单需求上行，船厂盈利能力改善。
 
-大桥全长126米，检查时，两人要逐墩查看、逐段排查，从桥面到桥下、从护锥到路基，一处都不放过。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 15:38 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:28 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 15:39 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 15:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 15:46 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 15:47 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:40 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 15:42 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 15:20 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 15:43 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 15:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:36 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:33 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 15:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 15:49 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 15:27 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:36 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 15:32 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/386836273609.shtml)
-- 2026-06-29 15:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/863940.shtml)
-- 2026-06-29 15:41 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/60945293.shtml)
-- 2026-06-29 15:21 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/0978979216.shtml)
-- 2026-06-29 15:25 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/7055567.shtml)
-- 2026-06-29 15:44 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/42466034.shtml)
-- 2026-06-29 15:24 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/358479400.shtml)
-- 2026-06-29 15:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6188104429.shtml)
-- 2026-06-29 15:44 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/96477949.shtml)
-- 2026-06-29 15:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/69258.shtml)
-- 2026-06-29 15:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/33340.shtml)
-- 2026-06-29 15:30 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/9353182810.shtml)
-- 2026-06-29 15:36 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/194785.shtml)
-- 2026-06-29 15:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/572648391.shtml)
-- 2026-06-29 15:21 - [沙丘](http://www.share.minike.top/Article/details/11064.shtml)
+- 2026-06-29 15:37 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/49882.shtml)
+- 2026-06-29 15:41 - [扫黑风暴](http://www.blog.minike.top/Article/details/6756949505.shtml)
+- 2026-06-29 15:27 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/2161214894.shtml)
+- 2026-06-29 15:30 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/89040.shtml)
+- 2026-06-29 15:35 - [一生一世](https://www.blog.kurohicncr.top/Article/details/48375405.shtml)
+- 2026-06-29 15:39 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/940987761723.shtml)
+- 2026-06-29 15:32 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/01109600.shtml)
+- 2026-06-29 15:40 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/56893315.shtml)
+- 2026-06-29 15:28 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/6788586749.shtml)
+- 2026-06-29 15:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/220153197443.shtml)
+- 2026-06-29 15:27 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/90203.shtml)
+- 2026-06-29 15:30 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/198995665.shtml)
+- 2026-06-29 15:33 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/0123053108.shtml)
+- 2026-06-29 15:40 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/45798719.shtml)
+- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/009390.shtml)

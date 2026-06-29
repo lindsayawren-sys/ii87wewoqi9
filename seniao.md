@@ -1,58 +1,58 @@
-# 端午假期海南离岛免税购物金额同比增长8.6%
+# 主播说联播丨目光聚焦赛场，掌声送给拼搏！
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-中新网海口6月22日电 (张潆予 李怡彤)海口海关22日统计显示，2026年端午假期(6月19日-21日)，海南离岛免税购物金额、人数、购物件数分别为2.02亿元、3.47万人次、15.9万件，比2025年端午假期(5月31日—6月2日)同期分别增长8.6%、11.2%、1.9%。 假期期间，在海口国际免税城内，“端午”主题装饰随处可见，吸引不少旅客驻足拍照、选购。从美妆护肤、
+近日，苏翊鸣、王心迪等7名运动员被授予中国青年五四奖章；宁忠岩等5名运动员被授予全国五一劳动奖章。 近日，共青团中央、全国青联作出决定，授予苏翊鸣、王心迪等7名青年运动员中国青年五四奖章。 在第25届冬奥会和第14届冬残奥会赛场上，他们奋勇争先，助力我国取得境外参加冬奥会历史最好成绩，苏翊鸣赛后那句“想让国歌在全世界面前奏响”，至今振奋人心。 同样值得点赞的，还有宁忠岩等5名被
 
 ## 正文
 
-中新网海口6月22日电 (张潆予 李怡彤)海口海关22日统计显示，2026年端午假期(6月19日-21日)，海南离岛免税购物金额、人数、购物件数分别为2.02亿元、3.47万人次、15.9万件，比2025年端午假期(5月31日—6月2日)同期分别增长8.6%、11.2%、1.9%。
+近日，苏翊鸣、王心迪等7名运动员被授予中国青年五四奖章；宁忠岩等5名运动员被授予全国五一劳动奖章。
 
-假期期间，在海口国际免税城内，“端午”主题装饰随处可见，吸引不少旅客驻足拍照、选购。
+近日，共青团中央、全国青联作出决定，授予苏翊鸣、王心迪等7名青年运动员中国青年五四奖章。
 
-从美妆护肤、数码产品到时尚服饰、酒水食品，顾客选购、试妆、结算井然有序。
+在第25届冬奥会和第14届冬残奥会赛场上，他们奋勇争先，助力我国取得境外参加冬奥会历史最好成绩，苏翊鸣赛后那句“想让国歌在全世界面前奏响”，至今振奋人心。
 
-来自湖南的旅客陈先生说，他趁着端午假期来海南度假，免税购物是必备行程，选择多、价格好，还能即购即提，非常方便。
+同样值得点赞的，还有宁忠岩等5名被授予全国五一劳动奖章的运动员。
 
-海关称，端午假期家庭式、亲友结伴出行的顾客成为购物主力，高端护肤品、智能数码产品等品类备受青睐。
+宁忠岩在速度滑冰男子1500米项目中夺金，不仅打破奥运纪录，更终结了欧美选手对该项目长达百年的垄断。
 
-三亚凤凰机场免税店内，高端护肤、智能数码、精品箱包等品牌专柜前客流涌动，试香、试戴、打包、支付全流程高效有序。
+他说过，“半山腰总是最挤的，你得去山顶看看。
 
-“为迎接假期客流高峰，我们推出了满减消费券、满额礼赠等购物促销活动，加快美妆、精品等热销商品补仓，并增派人手保障，确保每位顾客都能享受到快捷、贴心的服务。
+”这种不断超越自我、突破极限的奋斗精神，令人动容。
 
-”三亚机场免税店销售负责人介绍。
+正是这份“想让国歌奏响”的志气与“想去山顶看看”的魄力，才让拼搏更具沉甸甸的分量。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 15:18 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 15:21 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 15:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:35 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 15:35 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 15:33 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 15:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 15:27 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 15:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 15:27 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 15:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 15:48 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 15:49 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 15:33 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 15:45 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:46 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 15:41 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 15:38 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 15:44 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 15:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 15:42 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:33 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/16278.shtml)
-- 2026-06-29 15:45 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/229755316.shtml)
-- 2026-06-29 15:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/76302864.shtml)
-- 2026-06-29 15:44 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/62699.shtml)
-- 2026-06-29 15:31 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/7815822.shtml)
-- 2026-06-29 15:38 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/86896816.shtml)
-- 2026-06-29 15:32 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/230748.shtml)
-- 2026-06-29 15:22 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/670446.shtml)
-- 2026-06-29 15:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/91964.shtml)
-- 2026-06-29 15:27 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/206976.shtml)
-- 2026-06-29 15:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/58827.shtml)
-- 2026-06-29 15:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/283991317.shtml)
-- 2026-06-29 15:35 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/542892224.shtml)
-- 2026-06-29 15:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/63460589958.shtml)
-- 2026-06-29 15:21 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/080804054560.shtml)
+- 2026-06-29 15:42 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/455286309.shtml)
+- 2026-06-29 15:25 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/2174701852.shtml)
+- 2026-06-29 15:47 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/8089479.shtml)
+- 2026-06-29 15:37 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/31585094.shtml)
+- 2026-06-29 15:30 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/528005.shtml)
+- 2026-06-29 15:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/58028132820.shtml)
+- 2026-06-29 15:32 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/3877803528.shtml)
+- 2026-06-29 15:38 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/662409.shtml)
+- 2026-06-29 15:26 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/7500021.shtml)
+- 2026-06-29 15:32 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/479510.shtml)
+- 2026-06-29 15:41 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/369034156.shtml)
+- 2026-06-29 15:39 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/371522.shtml)
+- 2026-06-29 15:28 - [欧盟为什么越来越倾向贸易保护](https://www.share.kurohicncr.top/Article/details/49581.shtml)
+- 2026-06-29 15:26 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/017774054726.shtml)
+- 2026-06-29 15:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/76954479.shtml)

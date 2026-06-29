@@ -1,57 +1,55 @@
-# 高盛：电动汽车加速普及恐导致2027年底石油需求下降
+# 汉莎航空斥资近4亿美元收购意大利ITA航空多数股权
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-高盛表示，在霍尔木兹海峡局势导致石油供应受冲击后，电动汽车普及速度加快，这可能导致到2027年底全球石油需求减少多达32万桶/日。 该行在一份报告中称，上月全球电动汽车销量渗透率上升3.4个百分点，达到26.1%，为历史第二高水平。 高盛预计，在其“暂时加速”情境下，到2027年12月全球石油需求将减少约13万桶/日，该情境假设各地区电动汽车渗透率将维持在2026年5月的水平不
+德国汉莎航空宣布，将斥资近 4 亿美元收购意大利 ITA 航空多数股权，进一步把这家原意大利航空（Alitalia）整合纳入自身运营体系。 2023 年意大利政府推动航空公司私有化之际，汉莎航空与意大利经济财政部达成协议，已持有 ITA 航空 41% 股份，同时获得后续增持股权的选择权。 汉莎航空表示，将于下月行使该项选择权，以3.25 亿欧元（约 3.83 亿美元） 再收购
 
 ## 正文
 
-高盛表示，在霍尔木兹海峡局势导致石油供应受冲击后，电动汽车普及速度加快，这可能导致到2027年底全球石油需求减少多达32万桶/日。
+德国汉莎航空宣布，将斥资近 4 亿美元收购意大利 ITA 航空多数股权，进一步把这家原意大利航空（Alitalia）整合纳入自身运营体系。
 
-该行在一份报告中称，上月全球电动汽车销量渗透率上升3.4个百分点，达到26.1%，为历史第二高水平。
+2023 年意大利政府推动航空公司私有化之际，汉莎航空与意大利经济财政部达成协议，已持有 ITA 航空 41% 股份，同时获得后续增持股权的选择权。
 
-高盛预计，在其“暂时加速”情境下，到2027年12月全球石油需求将减少约13万桶/日，该情境假设各地区电动汽车渗透率将维持在2026年5月的水平不变。
+汉莎航空表示，将于下月行使该项选择权，以3.25 亿欧元（约 3.83 亿美元） 再收购 49% 股权，持股比例将升至90%，实现绝对控股。
 
-在“持续加速”情境下，若假设各地区电动汽车渗透率按2026年2月至5月的趋势线性增长，同期需求损失可能达到约32万桶/日。
+汉莎航空称，本次交易需获得欧盟及美国司法部监管审批，预计于 2027 年第一季度正式完成交割。
 
-高盛在报告中写道：“尤其值得注意的是，在印度、越南等亚洲国家，两轮和三轮电动车占电动车总销量的大部分，其替代的燃油量可达乘用电动车替代量的三分之一至二分之一。
-
-” 该行表示，全球15大电动汽车市场中有12个市场的渗透率呈上升趋势。
-
-责任编辑：李桐
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 15:29 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 15:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 15:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 15:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 15:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 15:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 15:24 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 15:22 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 15:34 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 15:24 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 15:37 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:22 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 15:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 15:33 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 15:39 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 15:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 15:48 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 15:29 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 15:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 15:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 15:40 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 15:48 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 15:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 15:48 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 15:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/085652.shtml)
-- 2026-06-29 15:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/449533110.shtml)
-- 2026-06-29 15:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/1869080.shtml)
-- 2026-06-29 15:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/17447.shtml)
-- 2026-06-29 15:30 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/279136830.shtml)
-- 2026-06-29 15:47 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/27553248941.shtml)
-- 2026-06-29 15:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/87491481.shtml)
-- 2026-06-29 15:18 - [急先锋](https://www.share.kurohicncr.top/Article/details/7048017045.shtml)
-- 2026-06-29 15:37 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/388457826.shtml)
-- 2026-06-29 15:33 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/009323430.shtml)
-- 2026-06-29 15:30 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/61610471342.shtml)
-- 2026-06-29 15:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/22251409666.shtml)
-- 2026-06-29 15:25 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/9961054397.shtml)
-- 2026-06-29 15:40 - [爸爸当家](https://www.share.minike.top/Article/details/354306551.shtml)
-- 2026-06-29 15:36 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/615198470.shtml)
+- 2026-06-29 15:29 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/949236893356.shtml)
+- 2026-06-29 15:51 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/51274.shtml)
+- 2026-06-29 15:43 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/488375.shtml)
+- 2026-06-29 15:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/04151962619.shtml)
+- 2026-06-29 15:25 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/4128547.shtml)
+- 2026-06-29 15:34 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/67976.shtml)
+- 2026-06-29 15:38 - [吴建豪老婆](https://www.share.minike.top/Article/details/65725.shtml)
+- 2026-06-29 15:48 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/281840048.shtml)
+- 2026-06-29 15:33 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/51937760.shtml)
+- 2026-06-29 15:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/6433041675.shtml)
+- 2026-06-29 15:26 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/9943540.shtml)
+- 2026-06-29 15:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/437477.shtml)
+- 2026-06-29 15:25 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/36999.shtml)
+- 2026-06-29 15:46 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/947720.shtml)
+- 2026-06-29 15:35 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/815887987.shtml)

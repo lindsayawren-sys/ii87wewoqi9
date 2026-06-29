@@ -1,56 +1,60 @@
-# 热门大牛股圣泉集团，跌停
+# 德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-6月23日开盘，圣泉集团股价快速下探，截至发稿，圣泉集团报66.17元/股，跌幅为10.00%。开年至今，圣泉集团累计涨幅已超过130%。作为国内合成树脂龙头，圣泉集团近期多次涨停触发异动，后向市场回应了与热门概念的关系。6月10日，圣泉集团披露股票交易异常波动公告提示，近期市场有媒体报道，受中东冲突及霍尔木兹海峡航运受阻影响，沙特朱拜勒工业区内PPE生产企业已停工，进而推高P
+针对大众汽车可能向中国汽车制造商开放欧洲闲置工厂一事，德国金属工业工会（IG Metall）发言人11日表示，工会对此持审慎开放态度，认为在保障特定前提下可对相关合作案进行严密评估。 该发言人强调，工会并不完全排斥此类设想，但相关合作必须作为大众汽车独立工业战略的补充，绝不能替代大众既定的投资计划与车辆研发项目。 当前，德国工业界正面临需求疲软与高昂运营成本的双重压力。为有效削
 
 ## 正文
 
-6月23日开盘，圣泉集团股价快速下探，截至发稿，圣泉集团报66.17元/股，跌幅为10.00%。
+针对大众汽车可能向中国汽车制造商开放欧洲闲置工厂一事，德国金属工业工会（IG Metall）发言人11日表示，工会对此持审慎开放态度，认为在保障特定前提下可对相关合作案进行严密评估。
 
-开年至今，圣泉集团累计涨幅已超过130%。
+该发言人强调，工会并不完全排斥此类设想，但相关合作必须作为大众汽车独立工业战略的补充，绝不能替代大众既定的投资计划与车辆研发项目。
 
-作为国内合成树脂龙头，圣泉集团近期多次涨停触发异动，后向市场回应了与热门概念的关系。
+当前，德国工业界正面临需求疲软与高昂运营成本的双重压力。
 
-6月10日，圣泉集团披露股票交易异常波动公告提示，近期市场有媒体报道，受中东冲突及霍尔木兹海峡航运受阻影响，沙特朱拜勒工业区内PPE生产企业已停工，进而推高PCB及配套树脂价格。
+为有效削减开支并避免关闭低产能工厂，大众汽车集团首席执行官奥博穆（Oliver Blume）正积极评估各项对策，与中国车企建立合作关系已成为关键备选方案之一。
 
-报道中提及的产品为高分子量聚苯醚（PPE），属于工程塑料类别，公司相关产品与媒体报道中提及的PPE在产品体系、技术路线和应用市场上差异显著，无直接业务关联。
+与此同时，比亚迪、吉利等中国汽车制造商正稳步推进欧洲市场布局。
 
-公开资料显示，圣泉集团生产的相关产品为电子级PPO树脂，聚焦低介电、低损耗、高速信号传输等特性，主要应用于覆铜板（CCL）领域。
+在此背景下，德国地方政府官员亦对中德汽车产业的潜在合作释放积极信号。
 
-圣泉集团还称，经过自查，目前经营情况正常，内外部经营环境未发生重大变化。
+萨克森州经济部长迪尔克·潘特（Dirk Panter）当日指出，大众汽车位于德国东部的茨维考（Zwickau）工厂有望成为对华合作的候选对象。
 
-此外，6月9日，圣泉集团就在投资者互动平台上公开回复投资者，沙特朱拜勒工业区量产的高分子量聚苯醚（PPE）与公司电子级PPO树脂分属不同产品体系，技术路线及终端市场差异显著，没有业务关联关系。
+潘特强调，面对行业变革，应当顺应时代发展，将中国视为“茨维考的机遇”；与其在竞争中被动流失产业价值，不如主动引入合作，以进一步巩固萨克森州的工业技术专长并保障本土生产能力。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 15:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 15:19 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 15:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 15:40 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 15:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 15:48 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 15:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 15:33 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 15:45 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 15:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 15:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 15:30 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 15:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 15:43 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 15:41 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 15:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 15:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:40 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 15:35 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 15:40 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 15:38 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:28 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/706624072.shtml)
-- 2026-06-29 15:32 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/5797049.shtml)
-- 2026-06-29 15:29 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/56466599668.shtml)
-- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/95690.shtml)
-- 2026-06-29 15:45 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/8781647.shtml)
-- 2026-06-29 15:23 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/360722.shtml)
-- 2026-06-29 15:32 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/327991.shtml)
-- 2026-06-29 15:36 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/56003946645.shtml)
-- 2026-06-29 15:38 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/135967443695.shtml)
-- 2026-06-29 15:34 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/91250993461.shtml)
-- 2026-06-29 15:21 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/036827406931.shtml)
-- 2026-06-29 15:28 - [青春环游记第三季](https://www.blog.minike.top/Article/details/416976718526.shtml)
-- 2026-06-29 15:27 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/7181421230.shtml)
-- 2026-06-29 15:19 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/148740.shtml)
-- 2026-06-29 15:21 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/38847959.shtml)
+- 2026-06-29 15:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/9604310877.shtml)
+- 2026-06-29 15:27 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/995969445515.shtml)
+- 2026-06-29 15:32 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/605855239.shtml)
+- 2026-06-29 15:24 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/094838.shtml)
+- 2026-06-29 15:29 - [流金岁月](https://www.share.minike.top/Article/details/226082105.shtml)
+- 2026-06-29 15:24 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/328707.shtml)
+- 2026-06-29 15:26 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/213946593473.shtml)
+- 2026-06-29 15:26 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/508519338714.shtml)
+- 2026-06-29 15:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2795753335.shtml)
+- 2026-06-29 15:50 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/057645963334.shtml)
+- 2026-06-29 15:40 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/486152.shtml)
+- 2026-06-29 15:29 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/23831.shtml)
+- 2026-06-29 15:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/13514683069.shtml)
+- 2026-06-29 15:48 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/5530870932.shtml)
+- 2026-06-29 15:46 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/602943763.shtml)

@@ -1,50 +1,44 @@
-# 亮晴控股：预期股份将于6月30日起开始于主板买卖
+# 白宫记者协会晚宴枪击案嫌疑人不认罪
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-亮晴控股（03774）发布公告，董事会欣然宣布联交所已于2026年6月22日授出转板上市的原则批准。 于本公告日期，除下列预期于2026年6月30日（即股份开始于主板买卖当日）达成的先决条件外，有关转板上市的所有适用先决条件就公司及股份而言已获达成： （1）基于公司于有关期间的成交量加权平均市值（定义见主板上市规则第9B章）约为30.544亿港元，超过主板上市规则第8.09（2
+发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-亮晴控股（03774）发布公告，董事会欣然宣布联交所已于2026年6月22日授出转板上市的原则批准。
-
-于本公告日期，除下列预期于2026年6月30日（即股份开始于主板买卖当日）达成的先决条件外，有关转板上市的所有适用先决条件就公司及股份而言已获达成： （1）基于公司于有关期间的成交量加权平均市值（定义见主板上市规则第9B章）约为30.544亿港元，超过主板上市规则第8.09（2）条规定的5亿港元，公司预期可达到主板上市规则第9B.03（2）条规定的公司成交量加权平均市值；及 （2）基于有关期间内有所有交易日的不少于50%日数，公司股份的每日成交额至少为5万港元，公司预期可达到主板上市规则第9B.03（5）条所规定的股份每日成交额。
-
-股份于GEM（GEM股份代号：8603）买卖的最后一日将为2026年6月29日。
-
-预期股份将于2026年6月30日上午九时正起开始于主板（主板股份代号：3774）买卖。
-
-责任编辑：卢昱君
+发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 15:19 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 15:28 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 15:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 15:33 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 15:45 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 15:25 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 15:25 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 15:42 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 15:22 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 15:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 15:44 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 15:35 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 15:40 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 15:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 15:35 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 15:29 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 15:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 15:32 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 15:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/5183149.shtml)
-- 2026-06-29 15:24 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/540749629032.shtml)
-- 2026-06-29 15:27 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/550194898.shtml)
-- 2026-06-29 15:45 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/5369147722.shtml)
-- 2026-06-29 15:36 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/9210267820.shtml)
-- 2026-06-29 15:41 - [流金岁月](http://www.share.minike.top/Article/details/2301549.shtml)
-- 2026-06-29 15:47 - [逃狱兄弟](http://www.blog.minike.top/Article/details/2369970476.shtml)
-- 2026-06-29 15:32 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/013355.shtml)
-- 2026-06-29 15:22 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/78476459.shtml)
-- 2026-06-29 15:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/69923208.shtml)
-- 2026-06-29 15:22 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/92365680.shtml)
-- 2026-06-29 15:47 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/201468.shtml)
-- 2026-06-29 15:35 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/7618983908.shtml)
-- 2026-06-29 15:35 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/652252.shtml)
-- 2026-06-29 15:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0272734.shtml)
+- 2026-06-29 15:51 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/96890.shtml)
+- 2026-06-29 15:50 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/790793990.shtml)
+- 2026-06-29 15:41 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/26979.shtml)
+- 2026-06-29 15:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/69006184.shtml)
+- 2026-06-29 15:25 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/56956886.shtml)
+- 2026-06-29 15:42 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/405163.shtml)
+- 2026-06-29 15:51 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/238889.shtml)
+- 2026-06-29 15:41 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/14307600.shtml)
+- 2026-06-29 15:44 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/90500623840.shtml)
+- 2026-06-29 15:32 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/58543642531.shtml)
+- 2026-06-29 15:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/2234651.shtml)
+- 2026-06-29 15:34 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/011369994094.shtml)
+- 2026-06-29 15:50 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/713516913153.shtml)
+- 2026-06-29 15:42 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/0603007.shtml)
+- 2026-06-29 15:26 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/03907805859.shtml)

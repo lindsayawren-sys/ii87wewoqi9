@@ -1,60 +1,57 @@
-# 韩国股市收盘暴跌近10%，科技股遭遇大规模抛售
+# 用心守护人民健康——白衣天使的故事
 
-> 更新时间：2026-06-29 15:48:02 UTC+8
+> 更新时间：2026-06-29 15:54:02 UTC+8
 
 ## 摘要
 
-韩国股市周二暴跌近10%，受隔夜美国科技股下跌影响，外国投资者获利回吐，抛售主要半导体股票和其他权重股。韩元兑美元汇率走弱。 韩国综合股价指数（KOSPI）暴跌910.71点，跌幅达9.99%，收于8203.84点。该指数盘中一度触及9175.45点的高位。 韩国交易所（KRX）在当地时间下午2点33分左右启动熔断机制，此前韩国综合股价指数（KOSPI）较前一交易日收盘价暴跌超
+用心守护人民健康(国际护士节特别策划) ——白衣天使的故事 5月12日是国际护士节，今年我国护士节的主题是“发展壮大护士队伍，用心守护人民健康”。 护理工作是卫生健康事业的重要组成部分。截至2025年底，全国注册护士总量达606.2万。接诊分诊、紧急抢救、基础护理……从晨光熹微到夜深人静，白衣天使们忙碌在各自的岗位上，用专业与担当救护生命，用爱心与耐心抚慰伤痛。——编 者 北京
 
 ## 正文
 
-韩国股市周二暴跌近10%，受隔夜美国科技股下跌影响，外国投资者获利回吐，抛售主要半导体股票和其他权重股。
+用心守护人民健康(国际护士节特别策划) ——白衣天使的故事 5月12日是国际护士节，今年我国护士节的主题是“发展壮大护士队伍，用心守护人民健康”。
 
-韩元兑美元汇率走弱。
+护理工作是卫生健康事业的重要组成部分。
 
-韩国综合股价指数（KOSPI）暴跌910.71点，跌幅达9.99%，收于8203.84点。
+截至2025年底，全国注册护士总量达606.2万。
 
-该指数盘中一度触及9175.45点的高位。
+接诊分诊、紧急抢救、基础护理……从晨光熹微到夜深人静，白衣天使们忙碌在各自的岗位上，用专业与担当救护生命，用爱心与耐心抚慰伤痛。
 
-韩国交易所（KRX）在当地时间下午2点33分左右启动熔断机制，此前韩国综合股价指数（KOSPI）较前一交易日收盘价暴跌超过8%。
+——编 者 北京大学人民医院血液科总护士长胡伟 临床科研并重 用心守护患者 本报记者 施 芳 穿上分身隔离服、换拖鞋、戴帽子、洗手……早晨7点多，北京大学人民医院血液科总护士长胡伟进入医院住院部血液科9C病区。
 
-这是韩国交易所今年第四次、也是有记录以来第十次暂停所有股票交易20分钟。
+胡伟今年51岁，自1993年进入北京大学人民医院血液科，已从事护理工作33年。
 
-美国副总统万斯昨夜表示，与伊朗达成最终协议的谈判已奠定了“非常好的基础”，调解人也报告称谈判取得进展。
+从“当好一名护士”到“带好一支护理团队”，她目前承担9个病区、354张床位、368名护士的临床护理管理工作。
 
-尽管外交方面有所进展，但美国股市收盘涨跌互现，科技股为主的纳斯达克综合指数下跌1.3%，原因是市场对大型科技公司的担忧再度升温，SpaceX股价暴跌逾16%。
+上午8点，白班和夜班护士开始交接班。
 
 ## 相关推荐
 
-- 2026-06-29 15:42 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 15:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 15:29 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 15:24 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 15:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 15:40 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 15:26 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 15:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 15:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 15:23 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 15:45 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 15:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 15:25 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 15:46 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 15:51 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 15:47 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 15:35 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 15:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 15:31 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 15:45 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 15:27 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 15:41 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 15:26 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:27 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/424540.shtml)
-- 2026-06-29 15:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/635753425193.shtml)
-- 2026-06-29 15:39 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/67454452.shtml)
-- 2026-06-29 15:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/18801994.shtml)
-- 2026-06-29 15:28 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/72747288.shtml)
-- 2026-06-29 15:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/789852946.shtml)
-- 2026-06-29 15:33 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/752841847777.shtml)
-- 2026-06-29 15:22 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/5662592.shtml)
-- 2026-06-29 15:23 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/47338314.shtml)
-- 2026-06-29 15:23 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8503144.shtml)
-- 2026-06-29 15:37 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/6641312322.shtml)
-- 2026-06-29 15:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/171629.shtml)
-- 2026-06-29 15:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/6310056682.shtml)
-- 2026-06-29 15:30 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/9336912.shtml)
-- 2026-06-29 15:40 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/597367600210.shtml)
+- 2026-06-29 15:49 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/866890.shtml)
+- 2026-06-29 15:50 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/11578533690.shtml)
+- 2026-06-29 15:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/8303502.shtml)
+- 2026-06-29 15:34 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/21555.shtml)
+- 2026-06-29 15:36 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/717939.shtml)
+- 2026-06-29 15:36 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/8014436.shtml)
+- 2026-06-29 15:52 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/806451950712.shtml)
+- 2026-06-29 15:42 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/1466568964.shtml)
+- 2026-06-29 15:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/929875348.shtml)
+- 2026-06-29 15:38 - [恋与深空失控领地](https://www.share.minike.top/Article/details/600646096.shtml)
+- 2026-06-29 15:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/93415148.shtml)
+- 2026-06-29 15:33 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/303952288224.shtml)
+- 2026-06-29 15:47 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/1131040.shtml)
+- 2026-06-29 15:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/3220962119.shtml)
+- 2026-06-29 15:24 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/335431.shtml)
