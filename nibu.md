@@ -1,46 +1,61 @@
-# 五矿发展：一季度归母净利润1699.93万元，同比下降74.67%
+# 中外媒体向浙江提问 三组关系揭示创新“密码”
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
+中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。 问答之间，三组关系揭示浙江的创新“密码”。 长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。2025年，浙江全省GDP同比增长5.5%、高于全
 
 ## 正文
 
-五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
+中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。
+
+问答之间，三组关系揭示浙江的创新“密码”。
+
+长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。
+
+2025年，浙江全省GDP同比增长5.5%、高于全国平均增速，高新技术产业增加值同比增长7.9%。
+
+结合产学研协同创新的经验，何中伟在见面会上介绍，浙江已构建“企业出题、政府助题、平台答题、车间验题、市场评价”的协同攻关机制。
+
+此外，该省计划强化企业创新主体地位，引导企业主动参与前沿技术研发，培育企业内生创新动能，“到2030年力争规上工业企业的研发机构设置率达65%以上。
+
+” 在科创长期投入方面，浙江有何举措？
+
+面对中新社提问，浙江省科学技术厅厅长佟桂莉介绍，2025年，浙江全省科技创新投入达7232亿元(人民币，下同)。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 13:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 13:49 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 13:39 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 13:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 13:59 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 13:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 13:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 13:39 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 14:04 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 14:05 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 13:52 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:48 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 13:50 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 13:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 14:11 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 14:03 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:51 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 14:02 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 14:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 14:03 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 13:51 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 14:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 14:09 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 13:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 13:53 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 14:06 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:45 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/25724.shtml)
-- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/46596.shtml)
-- 2026-06-29 14:00 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/57703.shtml)
-- 2026-06-29 13:43 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/2523801.shtml)
-- 2026-06-29 13:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/3982380802.shtml)
-- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/8126207.shtml)
-- 2026-06-29 14:01 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/3017191191.shtml)
-- 2026-06-29 14:04 - [千与千寻](http://www.share.minike.top/Article/details/505235826.shtml)
-- 2026-06-29 13:43 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/238001250699.shtml)
-- 2026-06-29 14:00 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/12479177.shtml)
-- 2026-06-29 13:36 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/4841062.shtml)
-- 2026-06-29 13:52 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/4454352649.shtml)
-- 2026-06-29 13:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/74997615.shtml)
-- 2026-06-29 13:53 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/48602633.shtml)
-- 2026-06-29 13:55 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/8282886762.shtml)
+- 2026-06-29 13:45 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/801054082283.shtml)
+- 2026-06-29 13:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/6113079.shtml)
+- 2026-06-29 13:47 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/9321247235.shtml)
+- 2026-06-29 13:43 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/76668.shtml)
+- 2026-06-29 13:57 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/504322302.shtml)
+- 2026-06-29 13:58 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/93188274342.shtml)
+- 2026-06-29 14:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/725424147233.shtml)
+- 2026-06-29 13:53 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/604308737.shtml)
+- 2026-06-29 14:06 - [伊朗球员致歉](https://www.share.kurohicncr.top/Article/details/09981895212.shtml)
+- 2026-06-29 13:56 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/1681725925.shtml)
+- 2026-06-29 13:46 - [A股限售股解禁一览](https://www.blog.minike.top/Article/details/826946.shtml)
+- 2026-06-29 13:56 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/01997499.shtml)
+- 2026-06-29 13:59 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/09252654.shtml)
+- 2026-06-29 14:09 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/0643052210.shtml)
+- 2026-06-29 13:53 - [天道](http://www.blog.minike.top/Article/details/963306094561.shtml)

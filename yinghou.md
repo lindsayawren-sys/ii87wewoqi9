@@ -1,56 +1,61 @@
-# 杭州地铁15号线华家池站施工过程中致楼房开裂渗漏 无人员伤亡
+# 零售一季度表现“意外强劲”，退税潮退去后真正考验将至
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月29日上午，杭州市地铁集团有限责任公司发布情况通报：4月28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。当晚21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。事发后，杭州市委市政府成立现场指挥部，组织应急、建设、公安、消防等部门和属地政府迅速开展工作，第一时间转移人员，调集专业力量进行基坑堵漏，开展地表
+核心要点 零售行业在波动中平稳度过一季度，但退税规模高于往年、“先买后付” 支付升温，成为支撑消费、掩盖内需疲弱的关键因素。 华尔街聚焦二季度，这一阶段将更清晰地反映消费真实韧性，以及高油价与持续通胀对经济、对本已紧张的家庭预算的冲击程度。 BTIG 零售分析师、董事总经理詹宁・斯蒂克特表示：“四五月过后，退税效应基本消退，这两个月市场波动加剧。诸多因素共同作用，让消费韧性超预
 
 ## 正文
 
-4月29日上午，杭州市地铁集团有限责任公司发布情况通报：4月28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。
+核心要点 零售行业在波动中平稳度过一季度，但退税规模高于往年、“先买后付” 支付升温，成为支撑消费、掩盖内需疲弱的关键因素。
 
-当晚21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。
+华尔街聚焦二季度，这一阶段将更清晰地反映消费真实韧性，以及高油价与持续通胀对经济、对本已紧张的家庭预算的冲击程度。
 
-事发后，杭州市委市政府成立现场指挥部，组织应急、建设、公安、消防等部门和属地政府迅速开展工作，第一时间转移人员，调集专业力量进行基坑堵漏，开展地表沉降、周边房屋变形和振动等监测。
+BTIG 零售分析师、董事总经理詹宁・斯蒂克特表示：“四五月过后，退税效应基本消退，这两个月市场波动加剧。
 
-目前，未有人员伤亡，所涉人员均已转移至安全区域并安置。
+诸多因素共同作用，让消费韧性超预期延续。
 
-该事件具体原因正在调查中。
+” “退税红利退去后，消费基本面的疲软或将显现…… 目前消费尚未全面走弱，因此市场普遍关注二季度数据，以判断消费真实健康度。
 
-为确保安全，目前涉事施工标段所有开挖作业全部停工。
+” 2—5 月（多数零售商财年一季度），家庭支出担忧再起。
 
-下一步，杭州市地铁集团有限责任公司集团将不间断对基坑墙体、土体沉降、管线安全、周边房屋开展监测，并会同属地政府全力做好群众服务及保障工作。
+特朗普政府在中东发起新冲突，油价飙升、消费信心骤降，美国经济健康度再受质疑。
 
-(总台记者 于晨)
+但过去几周零售商发布一季度财报，多数头部企业销售额、利润双增，业绩指引保持稳定，未见明显裂痕。
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:51 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 13:52 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:57 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 13:48 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 14:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 13:42 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 13:37 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 14:04 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 13:57 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 13:45 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 14:10 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 14:03 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 13:49 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 13:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 14:00 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 14:03 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 14:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 13:54 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 13:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 13:59 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 14:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 13:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:42 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 14:02 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/005989857388.shtml)
-- 2026-06-29 13:50 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/240761.shtml)
-- 2026-06-29 14:01 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/84772.shtml)
-- 2026-06-29 13:59 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/920403141653.shtml)
-- 2026-06-29 13:40 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/186937029671.shtml)
-- 2026-06-29 13:59 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/9534186.shtml)
-- 2026-06-29 13:44 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/686726915.shtml)
-- 2026-06-29 14:05 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/826912338.shtml)
-- 2026-06-29 13:37 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/829404.shtml)
-- 2026-06-29 13:57 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/54229289466.shtml)
-- 2026-06-29 13:54 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/722736029.shtml)
-- 2026-06-29 14:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/076408148.shtml)
-- 2026-06-29 13:47 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/95016835102.shtml)
-- 2026-06-29 13:59 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/76909.shtml)
-- 2026-06-29 13:55 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/19768684645.shtml)
+- 2026-06-29 14:08 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/21276.shtml)
+- 2026-06-29 13:57 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/59891615746.shtml)
+- 2026-06-29 13:48 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/31968210757.shtml)
+- 2026-06-29 13:53 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/23146564830.shtml)
+- 2026-06-29 13:42 - [绘画区你赢了](https://www.share.minike.top/Article/details/53314.shtml)
+- 2026-06-29 13:50 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/64558688.shtml)
+- 2026-06-29 13:52 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/628713930604.shtml)
+- 2026-06-29 14:01 - [光与夜之恋](http://www.blog.minike.top/Article/details/5832653571.shtml)
+- 2026-06-29 14:06 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/829857570623.shtml)
+- 2026-06-29 14:00 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/162942248.shtml)
+- 2026-06-29 13:50 - [请回答王牌2019](https://www.share.minike.top/Article/details/705589013.shtml)
+- 2026-06-29 13:59 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/7674796452.shtml)
+- 2026-06-29 14:08 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/7765583.shtml)
+- 2026-06-29 14:10 - [小娘惹](https://www.blog.minike.top/Article/details/5674355858.shtml)
+- 2026-06-29 14:10 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/629766538707.shtml)

@@ -1,58 +1,60 @@
-# 华泰期货：豆一支撑稳固，花生供需博弈
+# YY Group投资英伟达Blackwell架构基础设施 加速垂直劳动力AI战略
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 白旭宇 大豆观点 市场分析 期货方面，昨日收盘豆一2607合约4897.00元/吨，较前日变化+5.00元/吨，幅度+0.10%。现货方面，食用豆现货基差A07-57，较前日变化-5，幅度32.14%。 市场资讯汇总：东北大豆现货行情整体平稳，下游终端采购冷清，贸易商出货意向普遍偏强。黑龙江哈尔滨市场国标一等蛋白39%蛋白中粒塔粮装车报价2.42元/斤；
+YY Group Holding周二宣布，已战略性投资部署搭载英伟达GeForce RTX 5090 GPU的高性能本地计算基础设施，该GPU基于英伟达Blackwell架构。这套专用计算设施将用于公司内部开发、微调和加速部署其专有的垂直行业劳动力AI模型。 YY Group首席执行官Mike Fu表示：“真正的劳动力AI需要的不仅仅是通用的自动化包装API，而是基于高保真运营
 
 ## 正文
 
-来源：华泰期货 作者： 白旭宇 大豆观点 市场分析 期货方面，昨日收盘豆一2607合约4897.00元/吨，较前日变化+5.00元/吨，幅度+0.10%。
+YY Group Holding周二宣布，已战略性投资部署搭载英伟达GeForce RTX 5090 GPU的高性能本地计算基础设施，该GPU基于英伟达Blackwell架构。
 
-现货方面，食用豆现货基差A07-57，较前日变化-5，幅度32.14%。
+这套专用计算设施将用于公司内部开发、微调和加速部署其专有的垂直行业劳动力AI模型。
 
-市场资讯汇总：东北大豆现货行情整体平稳，下游终端采购冷清，贸易商出货意向普遍偏强。
+YY Group首席执行官Mike Fu表示：“真正的劳动力AI需要的不仅仅是通用的自动化包装API，而是基于高保真运营数据训练并由专用硬件支持的垂直领域模型。
 
-黑龙江哈尔滨市场国标一等蛋白39%蛋白中粒塔粮装车报价2.42元/斤；黑龙江双鸭山宝清市场国标一等蛋白39%蛋白中粒塔粮装车报价2.40元/斤；黑龙江佳木斯富锦市场国标一等蛋白39%蛋白中粒塔粮装车报价2.40元/斤；黑龙江齐齐哈尔讷河市场国标一等蛋白41%蛋白中粒塔粮装车报价2.45元/斤；黑龙江黑河嫩江市场国标一等蛋白41%蛋白中粒塔粮装车报价2.45元/斤；黑龙江绥化海伦市场国标一等蛋白41%蛋白中粒塔粮装车报价2.46元/斤。
+通过将英伟达专用的Tensor Core计算能力直接引入内部开发流程，我们的工程团队获得了本地微调和测试企业级AI所需的处理速度。
 
-昨日豆一期货盘面价格震荡运行。
+利用英伟达CUDA生态系统，我们正在加速构建更智能、可扩展且更具成本效益的全球劳动力管理生态系统。
 
-当前东北核心产区大豆现货货源多集中在贸易商环节，市场交割出货意愿浓厚，下游终端刚需采购及消耗节奏偏弱。
+” 本次投资的三大技术方向明确：一是利用NVIDIA CUDA平台，通过QLoRA等先进优化技术在7B至140亿参数的开源权重模型上进行本地化大语言模型定制，捕捉不同地区的劳动力差异；二是借助NVIDIA TensorRT加速候选人匹配与重排序，为企业客户提供超低延迟、上下文感知的候选人短名单；三是采用vLLM等开源推理引擎与NVIDIA硬件加速紧密集成，部署高吞吐量的内部API端点，无缝整合至YYGH现有产品套件。
 
-盘面豆一A2607主力合约围绕4900元/吨震荡偏强，基差持续维持高位区间。
+YY Group总部位于新加坡，旗下YY Circle平台业务覆盖亚洲及全球12个国家和地区。
 
-短期国产大豆整体行情偏强运行，价格易涨难跌，核心支撑来自新作种植面积缩减预期、种植成本上行、贸易商挺价惜售、国储收购托底以及食品企业原料库存偏低等因素。
+公司正从劳动力解决方案提供商转型为全球酒店及服务业AI原生基础设施平台。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 13:41 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:02 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 14:04 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 13:55 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 14:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 13:46 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 13:55 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 13:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 13:50 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 13:42 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 13:49 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 14:07 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 13:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:43 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 14:09 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 13:50 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 13:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 14:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 14:02 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:48 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 13:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 14:00 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/69682.shtml)
-- 2026-06-29 13:48 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/34250222821.shtml)
-- 2026-06-29 13:44 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/77661378974.shtml)
-- 2026-06-29 13:53 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/976450.shtml)
-- 2026-06-29 13:44 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/795447.shtml)
-- 2026-06-29 13:38 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/3232869.shtml)
-- 2026-06-29 13:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/86158604097.shtml)
-- 2026-06-29 13:46 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/88002663.shtml)
-- 2026-06-29 13:46 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/95667840.shtml)
-- 2026-06-29 13:38 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1703967462.shtml)
-- 2026-06-29 13:37 - [恋与深空需直面玩家6大疑问](https://www.blog.minike.top/Article/details/76588387.shtml)
-- 2026-06-29 13:38 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/858864.shtml)
-- 2026-06-29 13:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/655569.shtml)
-- 2026-06-29 13:46 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/25898867342.shtml)
-- 2026-06-29 13:50 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/186030.shtml)
+- 2026-06-29 14:09 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/01154446746.shtml)
+- 2026-06-29 13:56 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/5005756552.shtml)
+- 2026-06-29 14:06 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/6624404.shtml)
+- 2026-06-29 13:49 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/7892554866.shtml)
+- 2026-06-29 13:42 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/78458104.shtml)
+- 2026-06-29 14:02 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/525628428782.shtml)
+- 2026-06-29 14:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/399297.shtml)
+- 2026-06-29 14:10 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/74600777801.shtml)
+- 2026-06-29 13:59 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/33436666027.shtml)
+- 2026-06-29 13:58 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/58330928.shtml)
+- 2026-06-29 13:58 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/8479694.shtml)
+- 2026-06-29 14:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/61221532.shtml)
+- 2026-06-29 13:56 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/341470529843.shtml)
+- 2026-06-29 13:47 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/613375.shtml)
+- 2026-06-29 13:51 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1446322.shtml)

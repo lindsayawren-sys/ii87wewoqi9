@@ -1,58 +1,56 @@
-# 中坚科技、百傲化学遭证监会立案 投资者或可索赔
+# 酒价内参6月3日价格发布：洋河梦之蓝M6+上涨4元
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。 中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月3日整体明显回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日大幅上涨25元，创下近5天以来最高。市场在前期探底后震荡回升，终端交投情绪有所回暖，今日除普五八代微跌外其余十大品种均上涨或平盘。 今日白酒市场11大单
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月3日整体明显回升。
 
-两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日大幅上涨25元，创下近5天以来最高。
 
-中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局下发的《关于对浙江中坚科技股份有限公司及相关人员采取出具警示函措施的决定》【2026】111 号，浙江证监局在对浙江中坚科技股份有限公司现场检查中发现公司 2025 年度存在相关合作备忘录签署事项信息披露不准确、互动易答复不完整的情况。
+市场在前期探底后震荡回升，终端交投情绪有所回暖，今日除普五八代微跌外其余十大品种均上涨或平盘。
 
-（中坚科技维权入口） 在公告遭证监会立案的同时，百傲化学还发布了《关于前期会计差错更正及追溯调整的公告》，公告显示：经公司全面自查，公司控股子公司苏州芯慧联半导体科技有限公司因对收入确认相关会计判断及核算细节不够严谨，根据《公开发行证券的公司信息披露编报规则第 19 号——财务信息的更正及相关披露》以及《企业会计准则第 28 号——会计政策、会计估计变更和差错更正》等相关法律法规、规范性文件的规定，公司对 2024 年度涉及 4，093.60 万元营业收入会计差错事项进行更正。
+今日白酒市场11大单品八涨一跌两平，赢家占据绝对优势。
 
-江苏振泽律师事务所合伙人张云律师表示，中坚科技、百傲化学遭证监会立案，投资者或可索赔。
+上涨方面，青花汾20、国窖1573、洋河梦之蓝M6+及水晶剑南春均上涨4元/瓶，其中青花汾20终结此前7日的连续下探走势，但仍囿于月内低位；国窖1573重返890元上方；水晶剑南春涨幅平月内最高纪录，价格亦追平月内最高纪录。
 
-暂定：于2026年4月27日之前买入中坚科技、百傲化学，且在2026年4月28日之后卖出或持有中坚科技、百傲化学的亏损投资者符合索赔条件。
+精品茅台与古井贡古20各上涨3元/瓶；飞天茅台与习酒君品各上涨2元/瓶。
 
-（百傲化学维权入口） （本文由江苏振泽律师事务所合伙人张云律师供稿，不代表新浪财经的观点。
+下跌方面，五粮液普五八代微跌1元/瓶，继续在月内低位徘徊。
 
-张云律师，江苏振泽律师事务所合伙人，法学硕士，对证券金融类法律有着深入研究，从事证券诉讼多年，积累大量为投资者胜诉获赔案例）（张云律师专栏）责任编辑：韦子蓉
+五粮液1618与青花郎的价格环比保持不变，前者近一个月走势颇为平稳，而后者仍深陷月内次低位。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 13:40 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 13:36 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 14:04 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 13:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 14:01 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 13:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 13:50 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 13:36 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 13:48 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 13:58 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 13:58 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 13:49 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 13:54 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 13:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 13:50 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 13:43 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 13:49 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 13:51 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 13:59 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/409086.shtml)
-- 2026-06-29 14:00 - [强⁶](https://www.share.kurohicncr.top/Article/details/028330.shtml)
-- 2026-06-29 13:36 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/676145601.shtml)
-- 2026-06-29 13:45 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/84376516.shtml)
-- 2026-06-29 13:46 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/4172856.shtml)
-- 2026-06-29 14:00 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/940523564954.shtml)
-- 2026-06-29 13:44 - [光与夜之恋](https://www.blog.minike.top/Article/details/043568.shtml)
-- 2026-06-29 13:43 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/7374780.shtml)
-- 2026-06-29 14:00 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.minike.top/Article/details/871013436.shtml)
-- 2026-06-29 13:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/13329885534.shtml)
-- 2026-06-29 13:55 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/49847089187.shtml)
-- 2026-06-29 13:48 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/990945.shtml)
-- 2026-06-29 13:54 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/0398533.shtml)
-- 2026-06-29 13:55 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/993094383074.shtml)
-- 2026-06-29 13:51 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/3298115283.shtml)
+- 2026-06-29 14:09 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/6423333.shtml)
+- 2026-06-29 14:02 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/937629587.shtml)
+- 2026-06-29 13:52 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/463460166.shtml)
+- 2026-06-29 13:44 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/537518355646.shtml)
+- 2026-06-29 13:46 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/52798271050.shtml)
+- 2026-06-29 13:56 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/85150.shtml)
+- 2026-06-29 13:44 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/815633.shtml)
+- 2026-06-29 14:11 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/29270.shtml)
+- 2026-06-29 14:08 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/22216633.shtml)
+- 2026-06-29 13:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/2157792776.shtml)
+- 2026-06-29 13:57 - [海清白玉兰奖运](https://www.share.kurohicncr.top/Article/details/259937844620.shtml)
+- 2026-06-29 13:52 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/63095.shtml)
+- 2026-06-29 14:10 - [105年初心滚烫](http://www.blog.minike.top/Article/details/6541758379.shtml)
+- 2026-06-29 14:07 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/30144.shtml)
+- 2026-06-29 13:44 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/240421.shtml)

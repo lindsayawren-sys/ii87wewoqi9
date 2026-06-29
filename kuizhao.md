@@ -1,56 +1,44 @@
-# 财务造假“零容忍”！四家公司同日领罚
+# 山西侯马：精准施策克难题 夏粮迎来丰收季
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-近日，ST达华（维权）、山东章鼓（ST章鼓（维权））、嘉澳环保（ST嘉澳（维权））、海泰发展（ST海泰（维权）） 这四家上市公司齐齐收到了证监会下发的《行政处罚决定书》。 上海沪紫律师事务所刘鹏律师表示投资者要获得索赔，需同时满足以下条件：一是在上市公司实施了虚假陈述行为后购买股票；二是一直持有股票到上市公司虚假陈述行为被公开揭露或者自行更正后。（刘鹏律师专栏） 达华智能：巨额
+发布时间：2026年06月03日 08:56 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-近日，ST达华（维权）、山东章鼓（ST章鼓（维权））、嘉澳环保（ST嘉澳（维权））、海泰发展（ST海泰（维权）） 这四家上市公司齐齐收到了证监会下发的《行政处罚决定书》。
-
-上海沪紫律师事务所刘鹏律师表示投资者要获得索赔，需同时满足以下条件：一是在上市公司实施了虚假陈述行为后购买股票；二是一直持有股票到上市公司虚假陈述行为被公开揭露或者自行更正后。
-
-（刘鹏律师专栏） 达华智能：巨额罚单敲响警钟 作为此次被罚金额最高的公司，ST达华的违规情节最为复杂且恶劣。
-
-公司在2023年年报中，通过提前确认子公司处置收益、在建工程核算错误等手段，累计虚增利润高达8576.22万元，占当期披露利润总额的24.32%。
-
-此外公司隐瞒了一份金额高达7.95亿元的设备买卖合同，这份对经营有重大影响的合同在2021年至2023年的年报中均未出现。
-
-基于该违规事实，符合于2021年12月2日-2024年12月31日（含当日）期间买入，并在2025年1月1日之后卖出或仍持有而亏损的即可报名索赔。
-
-（达华智能维权入口） 山东章鼓：罕见的“反向造假” 在多数企业为了保壳或融资而拼命“虚增利润”的背景下，山东章鼓却虚减利润。
-
-据监管查明，公司在2024年为了某种特定目的，在未真实发生接受维修、技术服务等业务的情况下，确认了846.27万元的销售费用和管理费用。
+发布时间：2026年06月03日 08:56 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 13:38 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 13:54 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 13:36 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 14:00 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 13:53 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 13:48 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 13:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 13:42 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 13:42 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 13:58 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 13:53 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 14:03 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 14:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 14:08 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 14:05 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 13:46 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 13:52 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 13:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 13:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 14:02 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/808742778359.shtml)
-- 2026-06-29 13:37 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/9355336.shtml)
-- 2026-06-29 13:37 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/767026.shtml)
-- 2026-06-29 13:43 - [美人鱼](https://www.share.kurohicncr.top/Article/details/7829471.shtml)
-- 2026-06-29 13:46 - [送你一朵小红花](https://www.blog.minike.top/Article/details/60818632641.shtml)
-- 2026-06-29 13:55 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/495912259.shtml)
-- 2026-06-29 14:03 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/1968670183.shtml)
-- 2026-06-29 13:37 - [急先锋](http://www.share.minike.top/Article/details/064344.shtml)
-- 2026-06-29 13:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/7682010.shtml)
-- 2026-06-29 14:00 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/541247318421.shtml)
-- 2026-06-29 14:00 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/706032.shtml)
-- 2026-06-29 13:42 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/3893770821.shtml)
-- 2026-06-29 13:45 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/01298937404.shtml)
-- 2026-06-29 14:01 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/5661671002.shtml)
-- 2026-06-29 13:39 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/678326585557.shtml)
+- 2026-06-29 13:52 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/2974636.shtml)
+- 2026-06-29 13:48 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/9805419.shtml)
+- 2026-06-29 13:47 - [《贺子珍》](https://www.share.minike.top/Article/details/34043.shtml)
+- 2026-06-29 14:07 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.minike.top/Article/details/29404072802.shtml)
+- 2026-06-29 14:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/468372658.shtml)
+- 2026-06-29 13:51 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/1822394.shtml)
+- 2026-06-29 13:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/185855.shtml)
+- 2026-06-29 14:06 - [时光音乐会](https://www.share.minike.top/Article/details/79059128949.shtml)
+- 2026-06-29 13:45 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/07618.shtml)
+- 2026-06-29 13:53 - [四川宜宾地震](https://www.blog.minike.top/Article/details/53300805.shtml)
+- 2026-06-29 13:58 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/73369758.shtml)
+- 2026-06-29 14:05 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/49880.shtml)
+- 2026-06-29 13:43 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/6387583.shtml)
+- 2026-06-29 13:51 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/965583963.shtml)
+- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/703602841445.shtml)

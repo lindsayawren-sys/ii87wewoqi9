@@ -1,46 +1,48 @@
-# 农达案在美国最高法院审理
+# 铜业股早盘集体走高 江西铜业股份及中国有色矿业均涨超3%
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-美国最高法院就联邦法律是否优先于各州就Roundup草甘膦提起的“未发出警告”诉讼听取了辩论，这对面临数千起索赔的拜耳来说是一个关键案件。责任编辑：张俊 SF065
+铜业股早盘集体走高，截至发稿，江西铜业股份（00358）上涨3.35%，报35.78港元；中国有色矿业（01258）上涨3.35%，报14.83港元；五矿资源（01208）上涨2.41%，报9.34港元。责任编辑：卢昱君
 
 ## 正文
 
-美国最高法院就联邦法律是否优先于各州就Roundup草甘膦提起的“未发出警告”诉讼听取了辩论，这对面临数千起索赔的拜耳来说是一个关键案件。
+铜业股早盘集体走高，截至发稿，江西铜业股份（00358）上涨3.35%，报35.78港元；中国有色矿业（01258）上涨3.35%，报14.83港元；五矿资源（01208）上涨2.41%，报9.34港元。
 
-责任编辑：张俊 SF065
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 13:50 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 13:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 13:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 13:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 13:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 13:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 13:40 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 13:59 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 13:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 13:58 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 14:00 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 13:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 13:43 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:47 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 13:54 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 14:05 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 14:12 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:53 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 14:07 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 14:07 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 14:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 14:00 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/027081536.shtml)
-- 2026-06-29 13:38 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/17970750393.shtml)
-- 2026-06-29 13:48 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/5602995013.shtml)
-- 2026-06-29 14:00 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/252034347075.shtml)
-- 2026-06-29 14:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/41331910.shtml)
-- 2026-06-29 14:05 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/21116593.shtml)
-- 2026-06-29 13:36 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/86047526.shtml)
-- 2026-06-29 13:56 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/268102535.shtml)
-- 2026-06-29 13:54 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/76318297964.shtml)
-- 2026-06-29 13:42 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/8429331.shtml)
-- 2026-06-29 13:55 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/79901708.shtml)
-- 2026-06-29 13:50 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/725747669.shtml)
-- 2026-06-29 13:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7819768082.shtml)
-- 2026-06-29 14:05 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/98929067558.shtml)
-- 2026-06-29 13:56 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/52893420903.shtml)
+- 2026-06-29 14:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/9118161.shtml)
+- 2026-06-29 14:00 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/118595516940.shtml)
+- 2026-06-29 13:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/5562867.shtml)
+- 2026-06-29 13:53 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/09459395614.shtml)
+- 2026-06-29 13:51 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/72536266984.shtml)
+- 2026-06-29 14:09 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/09417.shtml)
+- 2026-06-29 14:08 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/119600.shtml)
+- 2026-06-29 13:50 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/2760501.shtml)
+- 2026-06-29 14:11 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7468893.shtml)
+- 2026-06-29 13:47 - [A股](https://www.share.minike.top/Article/details/8931557507.shtml)
+- 2026-06-29 14:05 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/0171931.shtml)
+- 2026-06-29 13:43 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/3728977.shtml)
+- 2026-06-29 14:11 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/12608.shtml)
+- 2026-06-29 14:09 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/899168917.shtml)
+- 2026-06-29 13:59 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/69093337376.shtml)

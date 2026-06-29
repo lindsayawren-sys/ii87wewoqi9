@@ -1,58 +1,60 @@
-# 人民银行上海总部联合上海市委统战部、市工商联举办金融支持民营企业高质量发展暨“政会银企”机制推进会
+# “超级充电宝”上新 广西首座抽水蓄能电站上水库大坝全面封顶
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-来源：中国人民银行上海总部 4月27日，人民银行上海总部联合上海市委统战部、市工商联举办2026年金融支持民营企业高质量发展暨“政会银企”机制推进会，持续深化“上海金融支持民营经济高质量发展服务月”活动，进一步推动“政会银企”工作机制提质见效。市委常委、统战部部长陈通出席会议并讲话，市政协副主席、市工商联主席寿子琪主持会议，人民银行上海总部主任兼上海市分行行长金鹏辉出席会议。上
+中新网北京6月2日电 (张素 江伟 朱时禹)记者从水电八局获悉，6月1日，由其承建的广西首座抽水蓄能电站——南宁抽水蓄能电站上水库大坝V期填筑完成，实现全面封顶。 抽水蓄能，指的是电力富余时，用电能将水从下水库抽至上水库，将电能转化为水的势能“储存”起来；在电力紧张时，再放水发电，将势能重新转化为电能，反哺电网。 南宁抽水蓄能电站位于广西南宁武鸣区太平镇，巧妙利用群山间400米
 
 ## 正文
 
-来源：中国人民银行上海总部 4月27日，人民银行上海总部联合上海市委统战部、市工商联举办2026年金融支持民营企业高质量发展暨“政会银企”机制推进会，持续深化“上海金融支持民营经济高质量发展服务月”活动，进一步推动“政会银企”工作机制提质见效。
+中新网北京6月2日电 (张素 江伟 朱时禹)记者从水电八局获悉，6月1日，由其承建的广西首座抽水蓄能电站——南宁抽水蓄能电站上水库大坝V期填筑完成，实现全面封顶。
 
-市委常委、统战部部长陈通出席会议并讲话，市政协副主席、市工商联主席寿子琪主持会议，人民银行上海总部主任兼上海市分行行长金鹏辉出席会议。
+抽水蓄能，指的是电力富余时，用电能将水从下水库抽至上水库，将电能转化为水的势能“储存”起来；在电力紧张时，再放水发电，将势能重新转化为电能，反哺电网。
 
-上海市有关部门负责同志、上海金融监管局和上海证监局负责同志，各区工商联负责同志，基层商会协会负责人，相关金融机构及企业代表参会。
+南宁抽水蓄能电站位于广西南宁武鸣区太平镇，巧妙利用群山间400米的自然落差，建设上、下水库及山体内的地下厂房等系统工程。
 
-人民银行上海总部代表九部门正式发布《2026上海金融助力民营经济高质量发展工作指引》，以14条务实举措推动金融机构积极运用科技创新和技术改造再贷款新增额度，强化央行低成本资金与财政贴息在提振消费、扩大民间投资等领域的协同，充分发挥债券风险分担工具对民营企业发债的支持作用，引导私募基金加大对科技型民营企业的投资布局，进一步提升汇率避险产品便利度，着力优化民营企业融资环境。
+在用电低谷时，它吸纳风电、光伏等富余电力，将水从下水库抽至上水库储存；在用电高峰时，上水库放水发电，每小时可转化为120万千瓦时清洁电能，满足20万户居民一日用电需求，被誉为广西电网的“超级充电宝”。
 
-会议宣布民营经济金融服务实体阵地正式启动，首批18个服务站落地本市重点产业园区及金融机构，为民营企业打造“触手可及”的精准金融服务网络。
+南宁抽水蓄能电站也是“十四五”期间华南地区首个核准的抽水蓄能项目，总投资约80亿元人民币，共安装4台单机容量30万千瓦的机组。
 
-在沪金融监管部门、农业银行上海市分行、中国人寿上海市分公司、虹口区工商联、奉贤区工商联和民营企业代表就做好民营企业金融服务进行交流。
+上水库主坝为混凝土面板堆石坝，最大坝高92.5米，坝顶长499.5米，填筑总量585.61万立方米。
 
-市财政局和市经济信息中心围绕中小微企业贴息、民间投资专项担保计划、“随申融”应用等中小微企业一揽子融资信用服务作政策宣讲。
+据知，项目团队开展“优化土石方调配快速筑坝关键技术研究”课题，提出“分区开挖、分期填筑”的总体方案。
 
-下一步，人民银行上海总部将按照此次会议精神，进一步发挥民营企业再贷款、科技创新和技术改造再贷款等结构性货币政策工具的引导撬动作用，加强财政金融协同，持续提升“政会银企”工作能级，共同推动上海民营经济高质量发展。
+通过抢抓外部协调与内部精心组织，创下单月填筑67.2万立方米的高强度纪录；同时创新采用“大流量抽水+小流量稳压”的蓄水方式，在保障大坝安全稳定的前提下大幅提高了蓄水速度。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 14:02 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 13:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 13:51 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 13:47 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 13:55 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 13:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 13:58 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 13:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:02 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 13:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:41 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 13:42 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 14:04 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 14:09 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 13:45 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 13:42 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 13:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 13:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 14:11 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 14:07 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:55 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 14:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 14:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 14:06 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 13:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/915299002001.shtml)
-- 2026-06-29 13:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/998242168689.shtml)
-- 2026-06-29 14:03 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/67017419.shtml)
-- 2026-06-29 13:46 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/32778226.shtml)
-- 2026-06-29 13:43 - [强⁶](https://www.blog.kurohicncr.top/Article/details/19715553.shtml)
-- 2026-06-29 13:41 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/14588368.shtml)
-- 2026-06-29 13:56 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/8143477.shtml)
-- 2026-06-29 13:55 - [爱很美味](http://www.share.minike.top/Article/details/8968824.shtml)
-- 2026-06-29 13:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/67595836401.shtml)
-- 2026-06-29 13:37 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/85952203510.shtml)
-- 2026-06-29 13:43 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/442563576.shtml)
-- 2026-06-29 13:45 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/136865323.shtml)
-- 2026-06-29 14:02 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/3257076281.shtml)
-- 2026-06-29 13:50 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/6663305023.shtml)
-- 2026-06-29 13:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/3729810.shtml)
+- 2026-06-29 13:45 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/492660254379.shtml)
+- 2026-06-29 13:46 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/734257.shtml)
+- 2026-06-29 14:03 - [AG 钟意](https://www.share.minike.top/Article/details/535828.shtml)
+- 2026-06-29 13:59 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.kurohicncr.top/Article/details/7981571.shtml)
+- 2026-06-29 14:08 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/891383801.shtml)
+- 2026-06-29 13:46 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/37409481761.shtml)
+- 2026-06-29 13:48 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/35747789.shtml)
+- 2026-06-29 13:44 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/6483996.shtml)
+- 2026-06-29 14:01 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/613089.shtml)
+- 2026-06-29 13:53 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/7534777.shtml)
+- 2026-06-29 14:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/08948344.shtml)
+- 2026-06-29 13:57 - [爸爸当家](http://www.share.minike.top/Article/details/125932976.shtml)
+- 2026-06-29 14:09 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/6008032435.shtml)
+- 2026-06-29 14:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/3500353583.shtml)
+- 2026-06-29 14:08 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/126825232178.shtml)

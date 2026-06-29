@@ -1,59 +1,59 @@
-# 探访重庆罗斯福图书馆旧址 五大历史文献典藏体系述说文脉赓续
+# 河南立法保护豫剧 开展数字化保护
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 20:38 来源：中国新闻网 4月28日，记者探访位于重庆市渝中区的罗斯福图书馆旧址。经修缮与功能升级，罗斯福图书馆旧址将于5月1日起试运营开放。 此次焕新开放，罗斯福图书馆旧址还将推出展览：《见证友谊 赓续文脉——罗斯福图书馆旧址史实陈列展(1945-1949)》，通过珍贵文献、历史照片、实物展品与场景复原相结合等方式，让公众在观展中铭记岁月
+中新网郑州6月2日电 (记者 韩章云)“三百多年历史的豫剧，首次获得立法保护。”中国戏剧家协会副主席李树建2日接受记者采访时表示，刚刚公布的《河南省豫剧保护传承发展条例》(以下简称《条例》)，有利于豫剧持续创新发展。 被西方观众赞为“东方咏叹调”的豫剧，是中国第一大地方戏剧种。河南是豫剧艺术的“娘家”，常香玉等一大批豫剧名家饮誉海内外。 是次公布的《条例》共七章四十一条，包含保
 
 ## 正文
 
-发布时间：2026年04月28日 20:38 来源：中国新闻网 4月28日，记者探访位于重庆市渝中区的罗斯福图书馆旧址。
+中新网郑州6月2日电 (记者 韩章云)“三百多年历史的豫剧，首次获得立法保护。
 
-经修缮与功能升级，罗斯福图书馆旧址将于5月1日起试运营开放。
+”中国戏剧家协会副主席李树建2日接受记者采访时表示，刚刚公布的《河南省豫剧保护传承发展条例》(以下简称《条例》)，有利于豫剧持续创新发展。
 
-此次焕新开放，罗斯福图书馆旧址还将推出展览：《见证友谊 赓续文脉——罗斯福图书馆旧址史实陈列展(1945-1949)》，通过珍贵文献、历史照片、实物展品与场景复原相结合等方式，让公众在观展中铭记岁月、传承文脉。
+被西方观众赞为“东方咏叹调”的豫剧，是中国第一大地方戏剧种。
 
-重庆图书馆研究馆员唐伯友介绍，此次展览中的“典藏荟萃 缥缃成帙”是最有特色的部分。
+河南是豫剧艺术的“娘家”，常香玉等一大批豫剧名家饮誉海内外。
 
-它展现了罗斯福图书馆通过系统采编、海外征集、接受捐赠、馆际交换等多种渠道，精心构建以西文版罗斯福文献、两次世界大战文献、国际关系文献和中国人民抗日战争文献，以及联合国文献为核心的历史文献典藏体系，以促进两次世界大战研究，推动世界和平建设。
+是次公布的《条例》共七章四十一条，包含保护传承、人才培养、创新发展等内容，旨在保护传承发展豫剧，弘扬中华优秀传统文化。
 
-罗斯福图书馆旧址始建于1938年，建筑面积约2500平方米。
+在创新发展方面，《条例》提出，一方面推动豫剧与科技应用深度融合，开展豫剧数字化保护；一方面鼓励豫剧表演团体加强与互联网平台合作，运用人工智能等新技术手段，建设在线剧院、数字剧场，制作适合网络观演的豫剧剧目、动漫、影视剧和短视频等优秀作品，培育发展网络演播新业态。
 
-罗斯福图书馆是重庆图书馆的前身之一，也是中国历史上唯一以外国元首名字命名的图书馆。
+“近些年我们一直探索在网上找观众，曾经一场网络直播吸引150余万人在线观看。
 
-该馆始建之初，便被指定为联合国文献托存馆。
+”李树建介绍，譬如直播、短视频能吸引年轻人对豫剧的关注，“豫剧＋脱口秀”等跨界合作、沉浸式演绎，是更贴合年轻观众喜好的表演形式，“现在我们的线下剧场演出，年轻观众占比接近30%”。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 13:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:59 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 13:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 13:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 13:40 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 13:52 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 13:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 13:48 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 13:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 13:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 13:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 14:00 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 14:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 14:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 14:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 14:03 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 13:43 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 14:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 13:46 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:03 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:59 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:03 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 14:01 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:01 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/06712005941.shtml)
-- 2026-06-29 13:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/12583.shtml)
-- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/4941232.shtml)
-- 2026-06-29 13:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/62758603751.shtml)
-- 2026-06-29 13:53 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/35545.shtml)
-- 2026-06-29 13:38 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/315275176.shtml)
-- 2026-06-29 14:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/6528574291.shtml)
-- 2026-06-29 13:52 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/455311185125.shtml)
-- 2026-06-29 13:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/472789.shtml)
-- 2026-06-29 13:53 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/65559.shtml)
-- 2026-06-29 14:03 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/9761508838.shtml)
-- 2026-06-29 14:02 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/54923443184.shtml)
-- 2026-06-29 13:54 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/3316117800.shtml)
-- 2026-06-29 13:59 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/95487640.shtml)
-- 2026-06-29 13:39 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/7401015.shtml)
+- 2026-06-29 13:50 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/908914314239.shtml)
+- 2026-06-29 14:05 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/2991440489.shtml)
+- 2026-06-29 14:03 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/6519670843.shtml)
+- 2026-06-29 14:01 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/07955.shtml)
+- 2026-06-29 14:08 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/3203135.shtml)
+- 2026-06-29 13:47 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/42019133.shtml)
+- 2026-06-29 13:51 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/3628455180.shtml)
+- 2026-06-29 13:54 - [斗破苍穹](https://www.blog.minike.top/Article/details/71852211722.shtml)
+- 2026-06-29 14:06 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/92769.shtml)
+- 2026-06-29 13:57 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/645918.shtml)
+- 2026-06-29 13:51 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/76391193513.shtml)
+- 2026-06-29 13:51 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/89614924.shtml)
+- 2026-06-29 13:42 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/266874663658.shtml)
+- 2026-06-29 14:09 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/84186338951.shtml)
+- 2026-06-29 13:44 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/4622301.shtml)

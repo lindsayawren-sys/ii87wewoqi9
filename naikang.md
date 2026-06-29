@@ -1,53 +1,43 @@
-# 中金公司牵头保荐曦智科技完成港股上市
+# 四川省住房和城乡建设厅党组成员、副厅长程刚被查
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表
+中新网6月2日电 据四川省纪委监委消息：四川省住房和城乡建设厅党组成员、副厅长程刚涉嫌严重违纪违法，主动投案，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。
-
-本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。
-
-中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。
-
-作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表，协助曦智科技解决项目执行中的技术要点，确保各关键节点精准落地，为项目的顺利完成夯实基础。
-
-在市场推介及发行阶段，中金公司凭借对全球光电混合算力及AI基础设施行业的洞察，协助曦智科技挖掘独特的投资价值，面向全球顶级投资机构进行高质量推介，协助引入绝大部分基石投资者，并在启动发行后进一步转化更多顶级投资人的订单需求，助力实现理想定价。
+中新网6月2日电 据四川省纪委监委消息：四川省住房和城乡建设厅党组成员、副厅长程刚涉嫌严重违纪违法，主动投案，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:45 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 13:50 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 13:49 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 13:53 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 14:00 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 14:00 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 13:38 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 13:46 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 13:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 13:43 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 13:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 14:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 13:47 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 13:57 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:50 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 13:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 13:42 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 13:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 13:48 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/955686.shtml)
-- 2026-06-29 13:49 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/70202719.shtml)
-- 2026-06-29 13:49 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/196194.shtml)
-- 2026-06-29 13:54 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/795979483077.shtml)
-- 2026-06-29 13:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/064579688.shtml)
-- 2026-06-29 14:05 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/61879.shtml)
-- 2026-06-29 13:51 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/995702.shtml)
-- 2026-06-29 14:01 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/561888019.shtml)
-- 2026-06-29 13:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/455991.shtml)
-- 2026-06-29 13:40 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/42897218730.shtml)
-- 2026-06-29 13:47 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/8197321756.shtml)
-- 2026-06-29 13:48 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/4418366.shtml)
-- 2026-06-29 13:54 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/05818.shtml)
-- 2026-06-29 13:39 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/06743083.shtml)
-- 2026-06-29 13:56 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/297172260587.shtml)
+- 2026-06-29 14:06 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/282994281669.shtml)
+- 2026-06-29 13:52 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/09599761.shtml)
+- 2026-06-29 13:43 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/572432.shtml)
+- 2026-06-29 13:55 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/34911056.shtml)
+- 2026-06-29 13:47 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/380134319.shtml)
+- 2026-06-29 13:49 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/63415752160.shtml)
+- 2026-06-29 14:03 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/69417938.shtml)
+- 2026-06-29 14:07 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/58854149.shtml)
+- 2026-06-29 14:07 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.kurohicncr.top/Article/details/817827668910.shtml)
+- 2026-06-29 14:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/95083310.shtml)
+- 2026-06-29 13:50 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/806016856.shtml)
+- 2026-06-29 14:05 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/51901958.shtml)
+- 2026-06-29 13:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/18085039780.shtml)
+- 2026-06-29 13:50 - [周生如故](https://www.blog.minike.top/Article/details/5514123378.shtml)
+- 2026-06-29 14:01 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/420838009696.shtml)

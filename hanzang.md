@@ -1,47 +1,58 @@
-# 尼山“破次元”互动：国际博主与AI机器人丝滑共舞
+# 申万宏源：2026年面向专业投资者公开发发行公司债券(第一期)品种一票面利率为1.64%
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中国日报网曲阜4月29日电 近日，多位国际博主与文旅达人造访曲阜尼山圣境，活动中他们与智能机器人展开一场极具反差感的“人机斗舞”。现场，国际博主与机器人配合默契，舞步丝滑，现代科技感与传统文化氛围完美融合。
+申万宏源（06806）发布公告，申万宏源集团股份有限公司（以下简称“发行人”）面向专业投资者公开发行面值总额不超过人民币102亿元公司债券于2024年9月5日经中国证券监督管理委员会注册（证监许可\[2024\]1245号）。 申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（以下简称“本期债券”）发行规模为不超过人民币38亿元（含38亿元）。本期债券分为
 
 ## 正文
 
-中国日报网曲阜4月29日电 近日，多位国际博主与文旅达人造访曲阜尼山圣境，活动中他们与智能机器人展开一场极具反差感的“人机斗舞”。
+申万宏源（06806）发布公告，申万宏源集团股份有限公司（以下简称“发行人”）面向专业投资者公开发行面值总额不超过人民币102亿元公司债券于2024年9月5日经中国证券监督管理委员会注册（证监许可\[2024\]1245号）。
 
-现场，国际博主与机器人配合默契，舞步丝滑，现代科技感与传统文化氛围完美融合。
+申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（以下简称“本期债券”）发行规模为不超过人民币38亿元（含38亿元）。
+
+本期债券分为两个品种，品种一为3年期，品种二为5年期。
+
+本期债券设品种间回拨选择权，回拨比例不受限制，发行人和簿记管理人将根据本期债券发行申购情况，在总发行规模内，由发行人和簿记管理人协商一致，决定是否行使品种间回拨选择权，即减少其中一个品种的发行规模，同时对另一品种的发行规模增加相同金额，单一品种最大拨出规模不超过其最大可发行规模的100%。
+
+本期债券各品种总计发行规模不超过38亿元（含38亿元）。
+
+2026年6月2日，发行人和主承销商在网下向专业机构投资者进行了票面利率询价，品种一利率询价区间为1.30%-2.30%，品种二利率询价区间为1.40%-2.40%。
+
+根据网下向专业机构投资者询价结果，最终确定品种一票面利率为1.64%，品种二票面利率为1.79%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 13:39 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 13:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:04 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 13:56 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 13:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 13:46 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 13:51 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:04 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 14:02 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 13:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 13:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 13:54 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 13:45 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 14:01 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 14:04 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 13:55 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 13:55 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 13:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 14:02 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 13:47 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 13:50 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 13:48 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 13:58 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 13:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/34754181.shtml)
-- 2026-06-29 13:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/488754.shtml)
-- 2026-06-29 13:58 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/91217993.shtml)
-- 2026-06-29 13:55 - [天道](http://www.blog.kurohicncr.top/Article/details/58043059.shtml)
-- 2026-06-29 13:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/85776.shtml)
-- 2026-06-29 13:59 - [行程万里不忘初心](https://www.share.minike.top/Article/details/283937303646.shtml)
-- 2026-06-29 13:49 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/692783538566.shtml)
-- 2026-06-29 13:41 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/4164436.shtml)
-- 2026-06-29 13:54 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/95921.shtml)
-- 2026-06-29 13:38 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/023432.shtml)
-- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/229251855.shtml)
-- 2026-06-29 13:37 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/597036.shtml)
-- 2026-06-29 13:41 - [双高胎](http://www.share.minike.top/Article/details/333591117703.shtml)
-- 2026-06-29 14:05 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/3446217208.shtml)
-- 2026-06-29 13:48 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/344226025.shtml)
+- 2026-06-29 13:50 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/3383343169.shtml)
+- 2026-06-29 14:05 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/4961051.shtml)
+- 2026-06-29 13:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/72847777407.shtml)
+- 2026-06-29 14:03 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/359536.shtml)
+- 2026-06-29 13:54 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/892948.shtml)
+- 2026-06-29 13:56 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/500565.shtml)
+- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/26906126.shtml)
+- 2026-06-29 14:04 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/831658.shtml)
+- 2026-06-29 13:48 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/6567981.shtml)
+- 2026-06-29 14:00 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/9824509.shtml)
+- 2026-06-29 13:45 - [医药股集体爆发](http://www.share.minike.top/Article/details/7343587.shtml)
+- 2026-06-29 13:49 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/76014756.shtml)
+- 2026-06-29 13:56 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/68874028.shtml)
+- 2026-06-29 14:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/988072.shtml)
+- 2026-06-29 14:01 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/129581378769.shtml)

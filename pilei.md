@@ -1,59 +1,55 @@
-# 曦智科技今起登陆港交所，开盘大涨407%
+# 伊朗官媒称伊斯兰革命卫队打击美国多个目标 报复美军袭击格什姆岛
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月28日上午消息，曦智科技-P今日在香港交易所主板挂牌上市，成为全球AI硅光芯片第一股。上市首日，曦智科技开盘价为880港元，较183.2港元发行价大幅上涨。盘中，公司股价一度涨超930港元，较发行价上涨超407%。 公开信息显示，曦智科技成立于2017年，由麻省理工学院物理学博士沈亦晨创立，是全球光电混合算力领域的技术及商业化先行者。当前，全球人工智能产业对算力
+伊朗伊斯兰共和国广播电视台（IRIB）援引伊斯兰革命卫队的一份声明报道称，伊斯兰革命卫队打击了美国第五舰队总部和中东地区某国的一个美国空军基地。报道称，这是对美军袭击格什姆岛南部一座伊朗伊斯兰革命卫队通信塔的回应。 报道称，伊斯兰革命卫队还将一艘名为Panaya的船只作为打击目标，以回应美军在霍尔木兹海峡附近袭击一艘伊朗油轮。伊斯兰革命卫队的声明称：“破坏霍尔木兹海峡安全，将让
 
 ## 正文
 
-新浪科技讯 4月28日上午消息，曦智科技-P今日在香港交易所主板挂牌上市，成为全球AI硅光芯片第一股。
+伊朗伊斯兰共和国广播电视台（IRIB）援引伊斯兰革命卫队的一份声明报道称，伊斯兰革命卫队打击了美国第五舰队总部和中东地区某国的一个美国空军基地。
 
-上市首日，曦智科技开盘价为880港元，较183.2港元发行价大幅上涨。
+报道称，这是对美军袭击格什姆岛南部一座伊朗伊斯兰革命卫队通信塔的回应。
 
-盘中，公司股价一度涨超930港元，较发行价上涨超407%。
+报道称，伊斯兰革命卫队还将一艘名为Panaya的船只作为打击目标，以回应美军在霍尔木兹海峡附近袭击一艘伊朗油轮。
 
-公开信息显示，曦智科技成立于2017年，由麻省理工学院物理学博士沈亦晨创立，是全球光电混合算力领域的技术及商业化先行者。
+伊斯兰革命卫队的声明称：“破坏霍尔木兹海峡安全，将让美军付出沉重代价”。
 
-当前，全球人工智能产业对算力的需求呈指数级增长，与此同时，传统数据中心在带宽、功耗与延迟方面都面临瓶颈，算力供给与市场需求间的缺口持续拉大。
-
-在此背景下，光电混合算力通过引入光学能力进行数据处理与传输，被视为算力基础设施演进的重要技术方向之一。
-
-据弗若斯特沙利文数据，曦智科技凭借光互连与光计算两大产品线，已成为全球首家实现光电混合算力大规模部署的公司。
-
-2025年，在中国独立Scale-up光互连解决方案市场中，曦智科技按收入计算排名第一，市场份额约为88.3%，为多个千卡级GPU集群提供支持。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 13:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 13:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 14:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 13:36 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 13:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 13:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 13:53 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 13:57 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 13:53 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 14:02 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 13:50 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 13:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 13:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:09 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 14:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 14:02 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 13:57 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 14:08 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 14:11 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 13:52 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 13:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 13:44 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 13:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/2724396617.shtml)
-- 2026-06-29 13:59 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/265870.shtml)
-- 2026-06-29 13:58 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/030265372192.shtml)
-- 2026-06-29 13:48 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/91511233172.shtml)
-- 2026-06-29 13:59 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/16194.shtml)
-- 2026-06-29 13:47 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/718737797.shtml)
-- 2026-06-29 14:05 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/744462.shtml)
-- 2026-06-29 13:39 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/5914428172.shtml)
-- 2026-06-29 13:50 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/8418607.shtml)
-- 2026-06-29 13:46 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/9271677.shtml)
-- 2026-06-29 13:48 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/08317513479.shtml)
-- 2026-06-29 14:00 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/947376.shtml)
-- 2026-06-29 13:55 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/25265.shtml)
-- 2026-06-29 13:43 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/182358240887.shtml)
-- 2026-06-29 13:41 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/51811.shtml)
+- 2026-06-29 14:07 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/96948.shtml)
+- 2026-06-29 13:45 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/298542699596.shtml)
+- 2026-06-29 13:42 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/713754578708.shtml)
+- 2026-06-29 13:54 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/30294180.shtml)
+- 2026-06-29 14:02 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/852735983.shtml)
+- 2026-06-29 13:51 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/81948.shtml)
+- 2026-06-29 13:50 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/54114.shtml)
+- 2026-06-29 14:01 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/91011559.shtml)
+- 2026-06-29 13:42 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/43379787.shtml)
+- 2026-06-29 14:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/3711130070.shtml)
+- 2026-06-29 13:52 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/0569385556.shtml)
+- 2026-06-29 14:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/422005195971.shtml)
+- 2026-06-29 13:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/44165962.shtml)
+- 2026-06-29 14:01 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/36715973.shtml)
+- 2026-06-29 13:45 - [双高胎](https://www.blog.kurohicncr.top/Article/details/8924590302.shtml)

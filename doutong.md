@@ -1,58 +1,59 @@
-# 破解货运减排瓶颈 报告建议进一步推进电动重卡规模化应用
+# 腾讯大涨逾10%，创逾5年来最大单日涨幅，将推出“右滑”AI助手
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 (记者 阮煜琳)由亚洲清洁空气中心和清华大学环境学院研究团队共同编写的研究报告《绿卡先锋场景：电动重卡在钢铁行业的应用进展研究》认为，钢铁行业已成为电动重卡推广应用的先锋场景。未来需进一步强化商业模式创新与产业链协同探索，促进降本增效，推进电动重卡规模化应用。数据显示，以货车为载体的公路货运承担着全国72%的货运量与30%的货物周转量，是中国货运体系的主
+6月2日消息，腾讯控股大涨逾10%，创自2021年1月25日以来最大单日涨幅。 消息面上，据报道，腾讯正在加速研发微信内嵌AI智能体，目前项目已进入原型测试阶段。这款AI助手将以右滑入口的形式深度融入微信界面，有望彻底重塑用户的日常使用体验，推动微信从社交工具向“超级智能助手”进化。 该智能体的核心竞争力在于其与微信小程序生态的深度捆绑。用户只需在主界面右滑即可调出对话窗口，通
 
 ## 正文
 
-中新网北京4月29日电 (记者 阮煜琳)由亚洲清洁空气中心和清华大学环境学院研究团队共同编写的研究报告《绿卡先锋场景：电动重卡在钢铁行业的应用进展研究》认为，钢铁行业已成为电动重卡推广应用的先锋场景。
+6月2日消息，腾讯控股大涨逾10%，创自2021年1月25日以来最大单日涨幅。
 
-未来需进一步强化商业模式创新与产业链协同探索，促进降本增效，推进电动重卡规模化应用。
+消息面上，据报道，腾讯正在加速研发微信内嵌AI智能体，目前项目已进入原型测试阶段。
 
-数据显示，以货车为载体的公路货运承担着全国72%的货运量与30%的货物周转量，是中国货运体系的主力。
+这款AI助手将以右滑入口的形式深度融入微信界面，有望彻底重塑用户的日常使用体验，推动微信从社交工具向“超级智能助手”进化。
 
-在道路运输总排放中，重卡虽仅占车辆保有量的3%，却贡献了40%以上的二氧化碳排放，75%的氮氧化物(NOx)排放以及50%的颗粒物排放，已成为货运行业推进减污降碳协同治理、实现绿色增长的关键抓手。
+该智能体的核心竞争力在于其与微信小程序生态的深度捆绑。
 
-在此背景下，加快推进重卡电动化，是破解货运减排瓶颈、促进行业绿色升级的关键路径之一。
+用户只需在主界面右滑即可调出对话窗口，通过输入自然语言指令，智能体便能自动调用海量小程序来完成复杂任务。
 
-清华大学环境学院副教授张少君代表研究团队介绍了报告的主要发现。
+例如，用户可以要求按口味和预算推荐咖啡馆，并由AI直接完成下单，全程无需手动跳转操作，实现了从“人找服务”到“服务找人”的转变。
 
-他表示，钢铁行业已成为电动重卡推广应用的先锋场景，显著成效背后，主要源于政策引导、技术适配和经济可行性三方面的共同作用，这也为电动重卡跨行业扩容提供了有效经验。
+在推广节奏上，腾讯计划最快于本月启动合规审批流程。
 
-在三者同向发力、互为支撑之下——技术端保障运营稳定性、政策端明确长期信号、市场端形成自我强化循环，未来才能构建电动重卡规模化应用的完整体系，实现从单点突破到系统变革的跨越，也即从“示范应用”迈向“主流选择”，最终实现电动重卡在更广范围、更深层次、更高效率场景中的推广应用。
+审批通过后，将先进行小范围灰度测试，随后根据运行情况逐步全量推广。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 13:42 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 13:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 13:55 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:04 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 13:45 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 14:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 13:42 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 13:47 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 14:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 13:58 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 13:38 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 13:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 14:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 14:05 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 14:10 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:10 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 14:02 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 14:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 14:10 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 14:04 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 13:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 13:52 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 14:04 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/5748814757.shtml)
-- 2026-06-29 13:46 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/15210580.shtml)
-- 2026-06-29 13:48 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/11870.shtml)
-- 2026-06-29 13:47 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/333516648.shtml)
-- 2026-06-29 13:53 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/710356677.shtml)
-- 2026-06-29 13:44 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/0393330797.shtml)
-- 2026-06-29 13:51 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/897929447104.shtml)
-- 2026-06-29 13:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/5472019.shtml)
-- 2026-06-29 13:50 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/756965264679.shtml)
-- 2026-06-29 13:44 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/639837.shtml)
-- 2026-06-29 13:36 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/423693.shtml)
-- 2026-06-29 13:52 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/11652941465.shtml)
-- 2026-06-29 13:52 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/091616.shtml)
-- 2026-06-29 13:48 - [双高胎](https://www.share.minike.top/Article/details/71630322745.shtml)
-- 2026-06-29 14:01 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/59034054.shtml)
+- 2026-06-29 13:44 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/876893.shtml)
+- 2026-06-29 13:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/324677192.shtml)
+- 2026-06-29 13:54 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/22495.shtml)
+- 2026-06-29 14:04 - [强⁶](https://www.blog.kurohicncr.top/Article/details/054307.shtml)
+- 2026-06-29 14:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/02366.shtml)
+- 2026-06-29 14:01 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/331763741359.shtml)
+- 2026-06-29 13:44 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/15094762.shtml)
+- 2026-06-29 13:48 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/868423530896.shtml)
+- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/0087777662.shtml)
+- 2026-06-29 14:11 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/51148.shtml)
+- 2026-06-29 14:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/8872579558.shtml)
+- 2026-06-29 14:08 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/254193042.shtml)
+- 2026-06-29 14:00 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/905183.shtml)
+- 2026-06-29 13:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/959157.shtml)
+- 2026-06-29 13:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/53606255.shtml)

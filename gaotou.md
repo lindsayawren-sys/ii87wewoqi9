@@ -1,57 +1,59 @@
-# 广西“十五五”工业蓝图：打造1个万亿产业、2个五千亿产业
+# 日菲炒作“划界谈判”，只会求锤得锤
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。 袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西
+6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查，剑指日菲的非法勾连行径。中方明确表示，这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。这释放出清晰信号：日菲在所谓划界谈判问题上的非法勾连每进一步，中方的反制措施就必将加码一分。国际海洋划界的基本前提，是两国海岸相邻或相向，双方存在直接的海域重叠主张，这
 
 ## 正文
 
-中新网南宁4月29日电(张广权)广西壮族自治区工业和信息化厅党组书记、厅长袁煌28日在南宁表示，“十五五”期间，广西将集中优势资源打造制造业十大现代化支柱产业，力争到“十五五”末，打造1个万亿元产业、2个五千亿元产业、3个四千亿元产业、4个超千亿元产业。
+6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查，剑指日菲的非法勾连行径。
 
-广西壮族自治区人民政府新闻办公室当天在南宁召开新闻发布会。
+中方明确表示，这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。
 
-袁煌在发布会上介绍，“十四五”期间，广西已打下坚实的产业根基，广西规上工业企业总量突破1万家，规上工业增加值年均增长7%，工业对经济增长的贡献率超过三分之一。
+这释放出清晰信号：日菲在所谓划界谈判问题上的非法勾连每进一步，中方的反制措施就必将加码一分。
 
-进入“十五五”，广西将打破传统产业、新兴产业和未来产业的界限，集中优势资源打造有色金属及关键金属材料等制造业十大现代化支柱产业。
+国际海洋划界的基本前提，是两国海岸相邻或相向，双方存在直接的海域重叠主张，这是全球通行的一个基本常识。
 
-袁煌称，发展制造业十大现代化支柱产业，广西具备多重优势。
+但日本与菲律宾根本不接壤，也不存在任何“重叠”部分——两国之间横亘着台湾岛及其东侧海域。
 
-资源禀赋方面，稀土、锑、铟、镓等9种有色金属矿产保有量居中国前五，甘蔗、水果、木材产量稳居中国第一，水资源、生态资源、海洋能源、清洁能源等潜力巨大。
+中国台湾岛南端距离巴坦群岛仅约80至140公里，东侧和东北侧距离日本八重山群岛约70至120公里，这意味着日菲间不存在可以抛开中国的海洋权益重叠区。
 
-产业基础方面，已有十大支柱产业，其中有色金属产业年产值突破4600亿元，钢铁、食品加工产业突破3000亿元，其他支柱产业均跨过千亿门槛。
+这两个国家“隔着中国”去谈所谓“划界”可以说是史上鲜有的奇葩之举。
 
-政策优势方面，国家给予了广西西部陆海新通道、自贸试验区、沿边临港产业园区、面向东盟的金融开放门户等20多个重大支持政策。
+试问，如果中国“隔着日本”去跟韩国谈日本海洋划界，或者隔着菲律宾去跟马来西亚谈菲律宾周边海域划界，东京和马尼拉会接受吗？
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:50 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 14:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 13:49 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 13:42 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 13:41 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 14:03 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 13:54 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 14:04 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 13:41 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 14:02 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 13:54 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 14:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 14:10 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 14:11 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 13:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 13:54 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 13:53 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 13:50 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 13:45 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:44 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 14:06 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:57 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [爱情有烟火你是知道我爱看什么的](https://www.blog.minike.top/Article/details/705932833213.shtml)
-- 2026-06-29 13:59 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/7906425.shtml)
-- 2026-06-29 14:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/765307896.shtml)
-- 2026-06-29 13:47 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/6125266.shtml)
-- 2026-06-29 13:52 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/962805369.shtml)
-- 2026-06-29 13:48 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/57830386118.shtml)
-- 2026-06-29 13:51 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/953027.shtml)
-- 2026-06-29 13:47 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/78051.shtml)
-- 2026-06-29 13:40 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/04419.shtml)
-- 2026-06-29 14:03 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/67117.shtml)
-- 2026-06-29 13:55 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/5874555.shtml)
-- 2026-06-29 13:51 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/2322469299.shtml)
-- 2026-06-29 13:48 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/928797.shtml)
-- 2026-06-29 13:39 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/344048.shtml)
-- 2026-06-29 13:39 - [天道](http://www.blog.kurohicncr.top/Article/details/992977824.shtml)
+- 2026-06-29 14:09 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/8977417501.shtml)
+- 2026-06-29 13:53 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/451237826.shtml)
+- 2026-06-29 14:00 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/1275401.shtml)
+- 2026-06-29 14:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/27053131770.shtml)
+- 2026-06-29 13:56 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/535871.shtml)
+- 2026-06-29 14:04 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/48887522201.shtml)
+- 2026-06-29 14:07 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/44210130.shtml)
+- 2026-06-29 14:01 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/715856553.shtml)
+- 2026-06-29 13:42 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/19655.shtml)
+- 2026-06-29 13:49 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/747733984650.shtml)
+- 2026-06-29 13:49 - [薛之谦演唱会](https://www.share.minike.top/Article/details/875106401.shtml)
+- 2026-06-29 13:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/172481.shtml)
+- 2026-06-29 13:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/761798108802.shtml)
+- 2026-06-29 13:59 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/9893320.shtml)
+- 2026-06-29 13:47 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/248802583.shtml)

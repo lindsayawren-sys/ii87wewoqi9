@@ -1,51 +1,60 @@
-# 科笛-B获FIDELITY CHINA SPECIAL SITUATIONS PLC增持3.06万股
+# “十五五”吉林考古转向：从发现历史到解读历史
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。责任编辑：卢昱君
+中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文物局局长宋薇2日在吉林省政府新闻办举行的新闻发布会上介绍，“十五五”时期，该省将开启从“发现历史”走向“解读历史”、从“学术象牙塔”走向“公众视野”的考古新征程；紧扣“边疆考古”与“吉林特色”，用考古的方式解码吉林大地的万年文脉。 吉林省有种类丰富的文化遗存，是东北亚历史发展的珍贵实物见证。前不久，吉林东部长白山旧石器时代遗
 
 ## 正文
 
-香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。
+中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文物局局长宋薇2日在吉林省政府新闻办举行的新闻发布会上介绍，“十五五”时期，该省将开启从“发现历史”走向“解读历史”、从“学术象牙塔”走向“公众视野”的考古新征程；紧扣“边疆考古”与“吉林特色”，用考古的方式解码吉林大地的万年文脉。
 
-增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。
+吉林省有种类丰富的文化遗存，是东北亚历史发展的珍贵实物见证。
 
-责任编辑：卢昱君
+前不久，吉林东部长白山旧石器时代遗址群成功获评2025年度全国十大考古新发现。
+
+“我们不会停步。
+
+”宋薇表示，未来五年，将对长白山脉及周边区域进行地毯式“扫描”，不仅要摸清古人类在东北亚的迁徙路线，更要通过多学科融合，重建古环境与年代框架。
+
+“十五五”期间，吉林省将重启帽儿山墓地考古工作，进一步夯实夫余文化的研究基础。
+
+“我们将重点锁定霸王朝山城遗址、龙岗遗址群。
+
+就像是在拼一幅千年的拼图：霸王朝的发掘将揭示高句丽早期山城的防御体系与生活面貌，龙岗遗址群的发掘将为高句丽文化起源及形成模式提供学术支撑。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 13:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 14:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 13:46 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 13:39 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 13:59 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 13:46 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 13:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 13:47 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 13:38 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 13:58 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 13:52 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 14:00 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 13:55 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 13:48 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 14:02 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 13:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 13:53 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 14:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 14:05 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 13:53 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 14:00 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 13:43 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 13:43 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 13:45 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 14:11 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 14:02 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 13:56 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:50 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/113581720.shtml)
-- 2026-06-29 13:51 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/670107418115.shtml)
-- 2026-06-29 13:49 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/769880497.shtml)
-- 2026-06-29 13:47 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/47616083.shtml)
-- 2026-06-29 14:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/16273.shtml)
-- 2026-06-29 13:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/75934888.shtml)
-- 2026-06-29 13:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/238025524.shtml)
-- 2026-06-29 13:54 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/61670744.shtml)
-- 2026-06-29 13:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/8182893493.shtml)
-- 2026-06-29 14:05 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/25185789.shtml)
-- 2026-06-29 13:56 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/636285524945.shtml)
-- 2026-06-29 13:39 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/7341555121.shtml)
-- 2026-06-29 13:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/8677591185.shtml)
-- 2026-06-29 14:03 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/25077497387.shtml)
-- 2026-06-29 14:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/08626.shtml)
+- 2026-06-29 13:58 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/46140.shtml)
+- 2026-06-29 13:50 - [A股限售股解禁一览](https://www.share.minike.top/Article/details/6602841401.shtml)
+- 2026-06-29 13:44 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/585525069117.shtml)
+- 2026-06-29 13:43 - [王佳佳江疏影13年前后同框对比](http://www.blog.kurohicncr.top/Article/details/159309100.shtml)
+- 2026-06-29 13:49 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/4026357.shtml)
+- 2026-06-29 14:07 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/370425010367.shtml)
+- 2026-06-29 13:45 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/88406519.shtml)
+- 2026-06-29 13:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/85336.shtml)
+- 2026-06-29 14:07 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.kurohicncr.top/Article/details/72374943.shtml)
+- 2026-06-29 14:10 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/9603220049.shtml)
+- 2026-06-29 14:05 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/27045674.shtml)
+- 2026-06-29 14:07 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/43536719256.shtml)
+- 2026-06-29 13:48 - [急先锋](https://www.share.minike.top/Article/details/610824860025.shtml)
+- 2026-06-29 13:58 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/941498.shtml)
+- 2026-06-29 13:43 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/652046818.shtml)

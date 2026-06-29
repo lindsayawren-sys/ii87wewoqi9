@@ -1,57 +1,61 @@
-# （乡村行·看振兴）江苏邗江利民村春日文旅体验行：探田园、品乡味、享农事
+# 摩托罗拉斥资15亿美元收购 D-Fend，布局反制黑飞无人机业务
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网扬州4月28日电 (徐珊珊 汤维悦)春风拂碧水，原乡拾趣忙。4月28日，以“春遇北湖·原乡拾趣”为主题的江苏扬州市邗江利民村春日文旅体验行在方巷镇利民村北湖原乡精彩上演。本次活动依托北湖湿地生态禀赋，深度融合林下经济、特色种养、红色文化与农耕文脉，通过实景探访、农事体验、美食品鉴等形式，全方位呈现“特色农业+休闲度假”协同发展的乡村振兴新图景。探田园：从千亩林海到科技大棚
+随着全球各国政府及关键设施运营方加紧应对日益严峻的黑飞无人机威胁，摩托罗拉解决方案宣布，将以 15 亿美元收购以色列初创企业 D-Fend Solutions。 近期，美伊冲突期间美国数据中心等重要基础设施遭无人机袭扰、欧洲多地机场因无人机被迫停运等事件频发，市场愈发需要可拦截无人机、同时不会干扰通信或造成次生破坏的安防系统。 美国去年正式出台《安全空域法案》，允许持证的州及地
 
 ## 正文
 
-中新网扬州4月28日电 (徐珊珊 汤维悦)春风拂碧水，原乡拾趣忙。
+随着全球各国政府及关键设施运营方加紧应对日益严峻的黑飞无人机威胁，摩托罗拉解决方案宣布，将以 15 亿美元收购以色列初创企业 D-Fend Solutions。
 
-4月28日，以“春遇北湖·原乡拾趣”为主题的江苏扬州市邗江利民村春日文旅体验行在方巷镇利民村北湖原乡精彩上演。
+近期，美伊冲突期间美国数据中心等重要基础设施遭无人机袭扰、欧洲多地机场因无人机被迫停运等事件频发，市场愈发需要可拦截无人机、同时不会干扰通信或造成次生破坏的安防系统。
 
-本次活动依托北湖湿地生态禀赋，深度融合林下经济、特色种养、红色文化与农耕文脉，通过实景探访、农事体验、美食品鉴等形式，全方位呈现“特色农业+休闲度假”协同发展的乡村振兴新图景。
+美国去年正式出台《安全空域法案》，允许持证的州及地方警方对违规无人机实施远程接管并引导其安全降落，这也为 D-Fend 这类无人机管控技术开辟了全新市场。
 
-探田园：从千亩林海到科技大棚，研学点位串珠成链 当日，嘉宾与游客穿行于利民村农文旅示范区。
+D-Fend 成立于 2016 年，为非上市公司。
 
-在“昆林之声”研学项目点，千亩苗木资源令人驻足——全村林木覆盖面积达1000亩，每年为村民带来约50万元土地租金及近百万元种植养护收益。
+其核心技术依靠无线电波在飞行途中接管违规无人机，而非传统的信号干扰或直接击落方式。
 
-随后，大家走进3000平方米的科技大棚，这里原为赤松茸种植基地，现已成功培育水果萝卜、玉秀黄瓜、羽衣甘蓝等高附加值果蔬，配套的“种地吧，少年”研学项目让青少年沉浸式体验完整农耕流程。
+该公司主打产品 EnforceAir 已部署至包括北约成员国在内的 30 多个国家，用于军事区域、机场及各类关键基础设施的防护，美国国土安全部、国防部、司法部也均在使用其技术。
 
-在800平方米的农技馆内，鞋坊、油坊、豆腐坊、酒坊等传统手工作坊重现乡土记忆，研学教室与直播空间相得益彰。
+摩托罗拉解决方案董事长兼首席执行官格雷格・布朗在周一的声明中表示：“黑飞无人机让空域风险变得难以预判，仅靠探测预警已远远不够。
 
-品乡味：老鹅苑里寻发源，生态园中拾野趣 在特色种养板块，扬州市首个赤松茸规模化种植基地引人关注——该基地历经三年技术打磨，2024年种植20亩，年销售额50万元，为村集体增收10万元。
+” 去年摩托罗拉曾耗资 44 亿美元收购无人机安全通信与网络服务商西尔弗斯公司，本次收购进一步补齐业务版图，让公司同时具备无人机技术与反无人机技术两大能力。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:59 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 13:51 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 13:47 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 13:52 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 14:02 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 14:04 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 13:38 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 13:56 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 13:51 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 13:58 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 13:47 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 13:51 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 13:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 13:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 13:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 13:42 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 13:59 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 14:07 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 13:54 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 14:03 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:10 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 13:53 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 14:09 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 13:59 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/660643382370.shtml)
-- 2026-06-29 13:54 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/69151882.shtml)
-- 2026-06-29 13:47 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/1665366.shtml)
-- 2026-06-29 13:39 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/986324311002.shtml)
-- 2026-06-29 13:52 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/728608899812.shtml)
-- 2026-06-29 13:46 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/6161645456.shtml)
-- 2026-06-29 13:50 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/4950249.shtml)
-- 2026-06-29 13:46 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/062433.shtml)
-- 2026-06-29 13:41 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/14457426062.shtml)
-- 2026-06-29 13:40 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/035272726046.shtml)
-- 2026-06-29 13:42 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/907147137982.shtml)
-- 2026-06-29 13:48 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/7221367676.shtml)
-- 2026-06-29 13:42 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/718636864.shtml)
-- 2026-06-29 13:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/889445.shtml)
-- 2026-06-29 13:54 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/985680856.shtml)
+- 2026-06-29 14:02 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/3757478.shtml)
+- 2026-06-29 13:51 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/166715.shtml)
+- 2026-06-29 14:10 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/0964571.shtml)
+- 2026-06-29 13:50 - [速度与激情9](https://www.blog.minike.top/Article/details/310174933.shtml)
+- 2026-06-29 14:02 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/1738078523.shtml)
+- 2026-06-29 13:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.kurohicncr.top/Article/details/32696924.shtml)
+- 2026-06-29 13:52 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/539485.shtml)
+- 2026-06-29 14:03 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/72050.shtml)
+- 2026-06-29 14:04 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/27901.shtml)
+- 2026-06-29 14:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/852219474.shtml)
+- 2026-06-29 14:07 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/41227620.shtml)
+- 2026-06-29 14:10 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/642877.shtml)
+- 2026-06-29 14:11 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/59927681125.shtml)
+- 2026-06-29 13:47 - [速度与激情9](http://www.share.minike.top/Article/details/415080.shtml)
+- 2026-06-29 14:01 - [NBA交易](http://www.share.minike.top/Article/details/776839272387.shtml)

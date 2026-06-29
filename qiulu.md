@@ -1,60 +1,61 @@
-# Biomm披露股东变更：Trustee持股清零
+# 东北华北强对流频发 南方迎新一轮降雨
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-巴西生物技术公司Biomm周二向市场披露，受Cartago基金的清算影响，该基金管理人Trustee已不再持有公司任何股份，直接持股与间接持股均已归零。 根据Biomm发布的公告，Trustee通知公司Cartago基金已将其此前持有的约3540万股普通股全部售出。这批股份此前占Biomm总股本的25.86%，是公司的重要股东之一。 此次股份变动的背景是Cartago基金进入清
+中新网6月2日电 据中央气象台网站消息，昨日，贵州南部、广西北部、广东中部等地部分地区出现大到暴雨，贵州黔西南、广西河池和柳州、广东肇庆等局地大暴雨，上述地区最大小时降雨量40～86毫米；内蒙古东部、黑龙江南部、吉林中部等地部分地区出现8～10级雷暴大风。另外，河北、内蒙古、河南、云南、广西、广东、海南及新疆等地部分地区出现35℃以上高温天气。 预计未来三天，东北地区、华北、黄
 
 ## 正文
 
-巴西生物技术公司Biomm周二向市场披露，受Cartago基金的清算影响，该基金管理人Trustee已不再持有公司任何股份，直接持股与间接持股均已归零。
+中新网6月2日电 据中央气象台网站消息，昨日，贵州南部、广西北部、广东中部等地部分地区出现大到暴雨，贵州黔西南、广西河池和柳州、广东肇庆等局地大暴雨，上述地区最大小时降雨量40～86毫米；内蒙古东部、黑龙江南部、吉林中部等地部分地区出现8～10级雷暴大风。
 
-根据Biomm发布的公告，Trustee通知公司Cartago基金已将其此前持有的约3540万股普通股全部售出。
+另外，河北、内蒙古、河南、云南、广西、广东、海南及新疆等地部分地区出现35℃以上高温天气。
 
-这批股份此前占Biomm总股本的25.86%，是公司的重要股东之一。
+预计未来三天，东北地区、华北、黄淮等地部分地区有小到中雨或雷阵雨，黑龙江、吉林、辽宁等地部分地区有大到暴雨，局地伴有雷暴大风或冰雹等强对流天气。
 
-此次股份变动的背景是Cartago基金进入清算程序。
+从今天夜间开始，南方地区将有一次较大范围降水过程，西南地区、江南、华南西部等地先后将出现中到大雨，局地暴雨或大暴雨，并伴有雷暴大风等强对流天气。
 
-由于该基金的唯一持有人为巴西银行，随着基金清算完成，这些股份已转移至巴西银行名下。
+中央气象台今晨继续发布强对流天气蓝色预警：预计今天白天至夜间，华北北部、东北地区东部和南部、西南地区北部和东部等地部分地区将有8级以上雷暴大风或冰雹天气，其中，辽宁西部、河北北部、北京北部等地的部分地区将有10级以上雷暴大风；预计，强对流的主要影响时段为今天下午至夜间。
 
-巴西银行表示，目前不排除未来出售这些股份的可能性。
+预计未来24小时，黑龙江中部、江南北部和西部、西南地区东南部、广西西北部等地部分地区有中到大雨，其中，湖南西部、重庆东南部、贵州东北部和西南部、广西西北部等地部分地区有暴雨或大暴雨(100～180毫米)。
 
-受此消息影响，Biomm股价在圣保罗证券交易所盘中上涨1.77%至7.48雷亚尔。
+华北北部、东北地区东部和南部、西南地区东部、江南中部和西部、华南北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南西北部、贵州东北部、广西西部、广东北部等地的部分地区小时雨量大于50毫米。
 
-Biomm是一家专注于胰岛素研发与生产的生物制药公司，其技术平台具备生产降钙素、干扰素及生长激素等多种治疗性蛋白质的能力。
+中央气象台今晨继续发布台风蓝色预警。
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 14:05 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:44 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 13:37 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 14:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 13:58 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:01 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 13:38 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 14:05 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 13:51 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 13:47 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 14:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 13:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 13:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 13:50 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 13:54 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 13:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 13:53 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 13:57 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 13:55 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 13:46 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:44 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 13:50 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 13:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:04 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 13:50 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/881240068096.shtml)
-- 2026-06-29 13:45 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/094627.shtml)
-- 2026-06-29 14:04 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/30111114.shtml)
-- 2026-06-29 13:46 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/80395.shtml)
-- 2026-06-29 13:55 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/23289.shtml)
-- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/2753004171.shtml)
-- 2026-06-29 13:46 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/962812118328.shtml)
-- 2026-06-29 13:46 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/890653.shtml)
-- 2026-06-29 13:36 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/92525197242.shtml)
-- 2026-06-29 13:46 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/239169711.shtml)
-- 2026-06-29 13:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/79395.shtml)
-- 2026-06-29 13:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/413420159712.shtml)
-- 2026-06-29 13:38 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/518098474.shtml)
-- 2026-06-29 13:53 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/449409.shtml)
-- 2026-06-29 13:54 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/779238567514.shtml)
+- 2026-06-29 13:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/423433393029.shtml)
+- 2026-06-29 13:49 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/93678.shtml)
+- 2026-06-29 13:50 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/90131791639.shtml)
+- 2026-06-29 13:51 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/558243345.shtml)
+- 2026-06-29 14:04 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/901463944.shtml)
+- 2026-06-29 13:59 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/71888055.shtml)
+- 2026-06-29 13:57 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/192362993.shtml)
+- 2026-06-29 14:02 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/10534039.shtml)
+- 2026-06-29 13:46 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/48809374275.shtml)
+- 2026-06-29 14:06 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/995567613462.shtml)
+- 2026-06-29 14:01 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/674983209138.shtml)
+- 2026-06-29 13:50 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/099929.shtml)
+- 2026-06-29 14:06 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/03157255279.shtml)
+- 2026-06-29 13:58 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/490530340067.shtml)
+- 2026-06-29 14:06 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/06026422161.shtml)

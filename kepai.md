@@ -1,55 +1,59 @@
-# 受贿数额特别巨大，彭晓春被提起公诉
+# 捷蓝航空：全球各航线需求全线走强
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-广西壮族自治区政协原党组成员、副主席彭晓春涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对彭晓春作出逮捕决定，并指定由广东省佛山市人民检察院审查起诉。近日，广东省佛山市人民检察院已向佛山市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人彭晓春享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。检察机关起诉指控：被告人
+此前该公司第二季度可用座位英里数增速预期区间为 1.5%–4.5%，目前已收窄至 2%–4%。 内容速览 捷蓝航空表示出行需求旺盛，将第二季度每可用座位英里收入增速上调至 9%–12%。 捷蓝航空（股价上涨 1.67%）称，公司所有地区航线客流需求均表现强劲，短途出行需求尤为火热，同时原精神航空停航后腾出的航线，客流也大幅增长。 公司将第二季度可用座位英里数增速指引，从此前的
 
 ## 正文
 
-广西壮族自治区政协原党组成员、副主席彭晓春涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
+此前该公司第二季度可用座位英里数增速预期区间为 1.5%–4.5%，目前已收窄至 2%–4%。
 
-最高人民检察院依法以涉嫌受贿罪对彭晓春作出逮捕决定，并指定由广东省佛山市人民检察院审查起诉。
+内容速览 捷蓝航空表示出行需求旺盛，将第二季度每可用座位英里收入增速上调至 9%–12%。
 
-近日，广东省佛山市人民检察院已向佛山市中级人民法院提起公诉。
+捷蓝航空（股价上涨 1.67%）称，公司所有地区航线客流需求均表现强劲，短途出行需求尤为火热，同时原精神航空停航后腾出的航线，客流也大幅增长。
 
-检察机关在审查起诉阶段，依法告知了被告人彭晓春享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+公司将第二季度可用座位英里数增速指引，从此前的 1.5%–4.5% 收窄至2%–4%。
 
-检察机关起诉指控：被告人彭晓春利用担任广西壮族自治区柳州市委副书记、柳东新区党工委书记，广西壮族自治区党委副秘书长、办公厅主任、政策研究室主任，贺州市委书记，百色市委书记，广西壮族自治区政协副主席等职务上的便利，为有关单位和个人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
+每可用座位英里收入增速预期，由 7%–11% 上调至9%–12%。
 
-编辑|钉钉责任编辑：石秀珍 SF183
+当前预估燃油成本为每加仑 4.26 美元至 4.36 美元，高于此前 4.13 美元至 4.28 美元的预期。
+
+捷蓝航空预计，本季度至少可转嫁 40% 的燃油涨价成本。
+
+捷蓝航空表示：“第二季度出行需求持续旺盛，走势与今年年初保持一致。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 13:55 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 14:00 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 13:36 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 14:02 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 13:37 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 13:50 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 13:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 14:03 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 13:46 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 13:49 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 13:44 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 13:47 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 13:47 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 13:44 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 13:50 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 14:04 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 13:42 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 13:59 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:45 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 14:01 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 13:47 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 13:50 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 13:53 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 14:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/102706286411.shtml)
-- 2026-06-29 13:41 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.minike.top/Article/details/35506.shtml)
-- 2026-06-29 13:39 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/03258800.shtml)
-- 2026-06-29 13:53 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/207395.shtml)
-- 2026-06-29 14:02 - [我们注定是一撮县城葱姜蒜](http://www.blog.minike.top/Article/details/78960740166.shtml)
-- 2026-06-29 13:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/46860588336.shtml)
-- 2026-06-29 13:51 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/609535.shtml)
-- 2026-06-29 13:40 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/490755869.shtml)
-- 2026-06-29 14:01 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/9472913968.shtml)
-- 2026-06-29 13:39 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/20609649.shtml)
-- 2026-06-29 13:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/01147.shtml)
-- 2026-06-29 13:43 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/060538707626.shtml)
-- 2026-06-29 13:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/81553234035.shtml)
-- 2026-06-29 13:52 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/9123355.shtml)
-- 2026-06-29 13:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/92651678.shtml)
+- 2026-06-29 14:00 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/8231936.shtml)
+- 2026-06-29 13:52 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/208738653920.shtml)
+- 2026-06-29 13:52 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/545375.shtml)
+- 2026-06-29 13:45 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/439654.shtml)
+- 2026-06-29 13:44 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/542704720967.shtml)
+- 2026-06-29 13:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/774845.shtml)
+- 2026-06-29 13:45 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/792798597840.shtml)
+- 2026-06-29 13:54 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/01924467.shtml)
+- 2026-06-29 13:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/1673243683.shtml)
+- 2026-06-29 14:05 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/839371263.shtml)
+- 2026-06-29 14:06 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/198367.shtml)
+- 2026-06-29 13:54 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/681222.shtml)
+- 2026-06-29 13:57 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/247292300.shtml)
+- 2026-06-29 14:06 - [天道](https://www.share.kurohicncr.top/Article/details/65810.shtml)
+- 2026-06-29 13:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/0842530.shtml)

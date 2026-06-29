@@ -1,54 +1,53 @@
-# 央行：一季度末个人住房贷款余额36.72万亿元 同比下降3.1%
+# 青岛银行：股东海尔产业发展拟减持不超1.84%股份
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，中国人民银行统计，2026年一季度末，金融机构人民币各项贷款余额280.51万亿元，同比增长5.7%，一季度人民币贷款增加8.6万亿元。2026年一季度末，人民币房地产贷款余额51.7万亿元，同比下降3.4%，一季度减少2767亿元。2026年一季度末，房地产开发贷款余额13.17万亿元，同比下降5.1%，一季度减少161亿元。个人住房贷款余额36.72
+6月2日金融一线消息，青岛银行发布持股5%以上股东减持股份预披露公告，持股9.15%的股东青岛海尔产业发展有限公司计划以大宗交易方式减持公司股份。本次减持计划期间为2026年6月26日至9月25日，拟减持数量107，094，500股，占公司总股本的1.84%，减持原因为优化资产结构、聚焦主业发展。 公告显示，海尔产业发展本次股份来源为协议转让取得，其严格遵守此前相关承诺，本次减
 
 ## 正文
 
-4月29日金融一线消息，中国人民银行统计，2026年一季度末，金融机构人民币各项贷款余额280.51万亿元，同比增长5.7%，一季度人民币贷款增加8.6万亿元。
+6月2日金融一线消息，青岛银行发布持股5%以上股东减持股份预披露公告，持股9.15%的股东青岛海尔产业发展有限公司计划以大宗交易方式减持公司股份。
 
-2026年一季度末，人民币房地产贷款余额51.7万亿元，同比下降3.4%，一季度减少2767亿元。
+本次减持计划期间为2026年6月26日至9月25日，拟减持数量107，094，500股，占公司总股本的1.84%，减持原因为优化资产结构、聚焦主业发展。
 
-2026年一季度末，房地产开发贷款余额13.17万亿元，同比下降5.1%，一季度减少161亿元。
-
-个人住房贷款余额36.72万亿元，同比下降3.1%，一季度减少2911亿元。
+公告显示，海尔产业发展本次股份来源为协议转让取得，其严格遵守此前相关承诺，本次减持未违反承诺规定，本次减持不会导致青岛银行控制权发生变更，减持计划存在实施时间、数量及价格的不确定性。
 
 责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 13:42 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 13:46 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 13:57 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 13:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 13:36 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 14:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:58 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 13:45 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 13:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 14:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 13:42 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 13:56 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 13:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 14:05 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 13:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 14:08 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:46 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 13:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 13:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 13:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 13:59 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 13:55 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 14:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 14:00 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:45 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/18128658.shtml)
-- 2026-06-29 14:03 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/20285602275.shtml)
-- 2026-06-29 13:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/68548553505.shtml)
-- 2026-06-29 13:55 - [医药股集体爆发](http://www.share.minike.top/Article/details/66237030.shtml)
-- 2026-06-29 14:00 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/61873.shtml)
-- 2026-06-29 13:38 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/36178.shtml)
-- 2026-06-29 13:42 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/27261.shtml)
-- 2026-06-29 13:40 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/03347854160.shtml)
-- 2026-06-29 13:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/3537866395.shtml)
-- 2026-06-29 13:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/1385508.shtml)
-- 2026-06-29 13:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/40047836.shtml)
-- 2026-06-29 13:38 - [啊啊啊](http://www.blog.minike.top/Article/details/73665985.shtml)
-- 2026-06-29 14:00 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/8865038164.shtml)
-- 2026-06-29 13:37 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/23512.shtml)
-- 2026-06-29 13:50 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/478974.shtml)
+- 2026-06-29 13:53 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/54249.shtml)
+- 2026-06-29 14:11 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/49185.shtml)
+- 2026-06-29 13:55 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/429194237.shtml)
+- 2026-06-29 14:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/5330456.shtml)
+- 2026-06-29 14:05 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/06656.shtml)
+- 2026-06-29 14:02 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/97589735.shtml)
+- 2026-06-29 13:59 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/00612431.shtml)
+- 2026-06-29 13:44 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/4953771.shtml)
+- 2026-06-29 13:48 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/1205793361.shtml)
+- 2026-06-29 13:51 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/285140988133.shtml)
+- 2026-06-29 14:04 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/05984013536.shtml)
+- 2026-06-29 14:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/560514642982.shtml)
+- 2026-06-29 13:50 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/23751725.shtml)
+- 2026-06-29 13:57 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/958074391.shtml)
+- 2026-06-29 13:54 - [A股](https://www.share.minike.top/Article/details/45695995.shtml)

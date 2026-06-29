@@ -1,58 +1,59 @@
-# 瑞安航空CEO：若航空燃油价格居高不下，欧洲多家航空公司或将倒闭
+# 养猪龙头牧原股份换帅！“90后”高管高曈、创始人之子秦牧原拟进入董事会
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-廉价航空瑞安航空首席执行官警告称，倘若今夏航空燃油价格持续高位运行，欧洲各大航空公司将面临倒闭风险。 首席执行官迈克尔・奥莱利于周四接受美国消费者新闻与商业频道采访时表示，瑞安航空已锁定80% 燃油对冲，自身经营不受冲击；但他预判，若燃油价格无法回落，其他航司将出现实质性倒闭。 自 2 月 28 日中东战事爆发、关键航道霍尔木兹海峡遭封锁以来，航空燃油价格大幅飙升。 奥莱利在奥
+记者|胥帅 编辑|董兴生 6月1日，养猪龙头牧原股份（SZ002714，股价37.82元，市值2183亿元）发布重磅人事变动公告。创始人秦英林辞去董事长、总裁等职务，转任终身荣誉董事长兼牧原养猪研究院院长；公司老将、1998年加入牧原并长期担任董事的曹治年接任董事长。 同时，1994年出生的高曈获任总裁及财务负责人，并拟与秦英林之子秦牧原一同进入董事会。履新首日，高曈便代表牧原
 
 ## 正文
 
-廉价航空瑞安航空首席执行官警告称，倘若今夏航空燃油价格持续高位运行，欧洲各大航空公司将面临倒闭风险。
+记者|胥帅 编辑|董兴生 6月1日，养猪龙头牧原股份（SZ002714，股价37.82元，市值2183亿元）发布重磅人事变动公告。
 
-首席执行官迈克尔・奥莱利于周四接受美国消费者新闻与商业频道采访时表示，瑞安航空已锁定80% 燃油对冲，自身经营不受冲击；但他预判，若燃油价格无法回落，其他航司将出现实质性倒闭。
+创始人秦英林辞去董事长、总裁等职务，转任终身荣誉董事长兼牧原养猪研究院院长；公司老将、1998年加入牧原并长期担任董事的曹治年接任董事长。
 
-自 2 月 28 日中东战事爆发、关键航道霍尔木兹海峡遭封锁以来，航空燃油价格大幅飙升。
+同时，1994年出生的高曈获任总裁及财务负责人，并拟与秦英林之子秦牧原一同进入董事会。
 
-奥莱利在奥斯陆举行的挪威银行投资管理会议上向主持人本・布洛斯透露：“3 月以来油价暴涨。
+履新首日，高曈便代表牧原股份与阿里云签署战略合作协议，双方将共建生猪养殖大模型，推动人工智能与传统养猪业融合。
 
-3 月时，A1 航空燃油价格约每桶 80 美元，如今已飙升至 150 美元。
+公告显示，秦英林辞去公司董事、董事长、战略委员会及可持续发展委员会委员、总裁职务。
 
-” 他指出：“如果今夏高价油价长期持续，欧洲一众航空竞争对手将陷入严重财务危机。
+根据公司董事会审议结果，拟聘任秦英林为终身荣誉董事长，并担任牧原养猪研究院院长。
 
-” 奥莱利补充道：“倒闭潮或将出现。
+秦英林后续将持续深耕生猪养殖行业技术创新，推动技术突破，支持公司长远高质量发展，为行业发展贡献力量。
 
-若 7、8、9 月油价维持每桶 150 美元，欧洲航司将批量破产；从中期来看，这反而会利好瑞安航空。
+同时，选举曹治年为公司新任董事长。
 
 ## 相关推荐
 
-- 2026-06-29 14:03 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 13:55 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 13:37 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 14:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 13:42 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 13:58 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 13:40 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 13:56 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:42 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 13:51 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 13:50 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 13:46 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 13:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 13:48 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 13:54 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:05 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 14:09 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:44 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 14:02 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 14:00 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 13:56 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 13:47 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 13:49 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 13:59 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/45591737.shtml)
-- 2026-06-29 14:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/538784.shtml)
-- 2026-06-29 13:57 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/7003332.shtml)
-- 2026-06-29 13:39 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/62304.shtml)
-- 2026-06-29 13:38 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/68762231616.shtml)
-- 2026-06-29 13:46 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/054001360090.shtml)
-- 2026-06-29 13:36 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/114265.shtml)
-- 2026-06-29 14:04 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/369399217464.shtml)
-- 2026-06-29 13:41 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/882517200878.shtml)
-- 2026-06-29 14:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/7768414507.shtml)
-- 2026-06-29 13:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/8076335.shtml)
-- 2026-06-29 13:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/29900775585.shtml)
-- 2026-06-29 14:05 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/01160484.shtml)
-- 2026-06-29 13:41 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/1141372571.shtml)
-- 2026-06-29 13:42 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/31041193.shtml)
+- 2026-06-29 13:50 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/150631689.shtml)
+- 2026-06-29 13:58 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/9075694502.shtml)
+- 2026-06-29 13:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/200228574.shtml)
+- 2026-06-29 14:02 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/995115253244.shtml)
+- 2026-06-29 14:00 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/691288.shtml)
+- 2026-06-29 13:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/42936413130.shtml)
+- 2026-06-29 13:43 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/222586044.shtml)
+- 2026-06-29 13:53 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/938112170.shtml)
+- 2026-06-29 14:08 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/77282270.shtml)
+- 2026-06-29 13:57 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/970628999406.shtml)
+- 2026-06-29 13:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/436323848.shtml)
+- 2026-06-29 13:45 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/974572706792.shtml)
+- 2026-06-29 13:53 - [请回答王牌2019](http://www.share.minike.top/Article/details/90215517076.shtml)
+- 2026-06-29 14:04 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/7805874.shtml)
+- 2026-06-29 13:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/9865672.shtml)

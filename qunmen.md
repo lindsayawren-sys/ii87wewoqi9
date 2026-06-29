@@ -1,56 +1,58 @@
-# 三亚亚沙会：中国选手赵一程打破男子速度攀岩世界纪录
+# 资金布局券商板块 富国中证全指证券公司ETF发起式联接基金正在发行中
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。 本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。 预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。小将赵一程在第一轮便
+近期，随着A股市场交易维持活跃，证券板块正悄然吸引投资者布局。Wind数据显示，5月申万证券II指数（801193）获融资净买入7.99亿元，终结了此前连续三个月融资净流出的态势，印证了杠杆资金对相关行业投资机会的关注。正在发行的富国中证全指证券公司ETF发起式联接基金（A类027508/C类027509），通过将基金资产主要投向证券ETF富国（515850），力争实现对中证全
 
 ## 正文
 
-中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。
+近期，随着A股市场交易维持活跃，证券板块正悄然吸引投资者布局。
 
-在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。
+Wind数据显示，5月申万证券II指数（801193）获融资净买入7.99亿元，终结了此前连续三个月融资净流出的态势，印证了杠杆资金对相关行业投资机会的关注。
 
-本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。
+正在发行的富国中证全指证券公司ETF发起式联接基金（A类027508/C类027509），通过将基金资产主要投向证券ETF富国（515850），力争实现对中证全指证券公司指数（399975.SZ，下称“证券公司指数”）的紧密跟踪，助力投资者一键捕捉优质上市券商的投资机遇。
 
-中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。
+据悉，证券公司指数是一只纯粹的券商行业指数，目前其所囊括的49只成分股均为上市证券公司，不包含银行、保险等其他金融子行业，因而能够较强地代表券商板块的整体运行态势。
 
-预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。
+从市值分布来看，Wind数据显示，截至2026年6月1日，该指数成分股中共有11只“千亿级巨头”，权重合计超过60%，包括中信证券、东方财富、国泰海通、中信建投等头部券商；同时，33只成分股的总市值低于500亿元，权重占约32%，这使得证券公司指数既具备龙头券商的规模优势，也保留了中小券商的成长弹性。
 
-小将赵一程在第一轮便以4秒73秒的成绩追平了印度尼西亚选手拉哈贾蒂·努尔萨姆萨保持的亚洲纪录。
+从历史表现来看，券商板块素有“牛市旗手”之称，在市场上行周期中弹性显著。
 
-第二轮比赛，赵一程以4秒58的成绩创造该项目世界纪录，顺利晋级。
+Wind数据显示，在2014年、2019年和2024年的三轮上涨行情中，证券公司指数的各年度涨幅分别达154.03%、44.50%和27.26%，相较于同期沪深300指数分别涨51.66%、36.07%和14.68%，斩获了较显著的超额收益。
 
-原纪录是由美国选手沃森在2025年攀岩世界杯巴厘岛站中创造的4秒64。
+站在基本面和估值的角度来展望证券公司指数的投资价值，则呈现出“盈利向上、估值向下”的特征。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 13:51 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 13:37 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 13:55 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 13:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 13:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 13:45 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 13:47 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 14:03 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 13:44 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 14:07 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 13:53 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 13:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 13:51 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:58 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 13:54 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 14:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 13:53 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 14:06 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 14:01 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 13:43 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [斗破苍穹](http://www.share.minike.top/Article/details/8599867.shtml)
-- 2026-06-29 13:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/47939.shtml)
-- 2026-06-29 13:36 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/069964.shtml)
-- 2026-06-29 13:40 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/4129389303.shtml)
-- 2026-06-29 13:39 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/33004774.shtml)
-- 2026-06-29 14:00 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/945587668.shtml)
-- 2026-06-29 13:56 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/356723.shtml)
-- 2026-06-29 13:45 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/61380.shtml)
-- 2026-06-29 14:05 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/54961869889.shtml)
-- 2026-06-29 13:36 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/33322.shtml)
-- 2026-06-29 13:45 - [强⁶](http://www.blog.minike.top/Article/details/222535448.shtml)
-- 2026-06-29 13:57 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/64500.shtml)
-- 2026-06-29 14:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/730408905759.shtml)
-- 2026-06-29 13:51 - [天道](https://www.blog.minike.top/Article/details/668642377299.shtml)
-- 2026-06-29 14:00 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/53503264744.shtml)
+- 2026-06-29 13:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/9904137.shtml)
+- 2026-06-29 13:58 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/42929636.shtml)
+- 2026-06-29 13:43 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/71211897814.shtml)
+- 2026-06-29 14:08 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/469036577.shtml)
+- 2026-06-29 14:00 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/4517199.shtml)
+- 2026-06-29 14:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/502013823.shtml)
+- 2026-06-29 13:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/89737841.shtml)
+- 2026-06-29 14:07 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/0537253.shtml)
+- 2026-06-29 13:54 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/44417.shtml)
+- 2026-06-29 14:06 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/65868724129.shtml)
+- 2026-06-29 13:43 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/6733006274.shtml)
+- 2026-06-29 13:55 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/624862395412.shtml)
+- 2026-06-29 13:43 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/5851177783.shtml)
+- 2026-06-29 13:47 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/4633296232.shtml)
+- 2026-06-29 13:51 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/6750669.shtml)

@@ -1,61 +1,56 @@
-# 从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变
+# 特朗普家族的初创企业计划向军方部署人形机器人
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网西宁4月28日电 题：从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变 中新网记者 孙睿 海拔4000多米的青海省海西蒙古族藏族自治州(简称“海西州”)天峻县，曾草场退化、黄沙裸露，一片片黑土滩像伤疤般刻在高原上。如今，牧草连片、溪流清澈，曾经寸草难生的荒滩重披绿装。 天峻县位于青海湖源头、祁连山南麓，草原面积超3800万亩，是青藏高原重要生态屏障。受高寒气候、鼠害侵
+核心要点 当下硅谷企业扎堆研发可叠衣服、调制咖啡的家用人形机器人，而有一家初创企业为这项技术找到了截然不同的落地方向：投入战事与高危作业领域。 这家总部位于旧金山、与特朗普家族深度绑定的机器人企业名为未来基石工业（Foundation Future Industries），研发军民两用自主人形机器人，产品既可用于重工生产，也能适配各类军用任务。 这类机器人酷似科幻电影《终结者》
 
 ## 正文
 
-中新网西宁4月28日电 题：从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变 中新网记者 孙睿 海拔4000多米的青海省海西蒙古族藏族自治州(简称“海西州”)天峻县，曾草场退化、黄沙裸露，一片片黑土滩像伤疤般刻在高原上。
+核心要点 当下硅谷企业扎堆研发可叠衣服、调制咖啡的家用人形机器人，而有一家初创企业为这项技术找到了截然不同的落地方向：投入战事与高危作业领域。
 
-如今，牧草连片、溪流清澈，曾经寸草难生的荒滩重披绿装。
+这家总部位于旧金山、与特朗普家族深度绑定的机器人企业名为未来基石工业（Foundation Future Industries），研发军民两用自主人形机器人，产品既可用于重工生产，也能适配各类军用任务。
 
-天峻县位于青海湖源头、祁连山南麓，草原面积超3800万亩，是青藏高原重要生态屏障。
+这类机器人酷似科幻电影《终结者》中的装备，如今正从设想走向现实，初代机型已奔赴乌克兰，在乌俄冲突环境中开展实战测试。
 
-受高寒气候、鼠害侵扰、超载放牧影响，全县重度退化黑土滩(坡)面积达206.8万亩，草场沙化、水源涵养能力下降，牧民生产生活受到严重影响。
+公司首席执行官桑凯特・帕塔克在接受 CNBC 采访时表示，企业创立初衷是让人形机器人攻克人类面临的硬核难题，而非从事家务与服务工作。
 
-2019年以来，天峻县累计治理黑土滩(坡)面积13.5万亩，覆盖当地7个乡镇，采取补播改良、围栏封育、鼠害防控、植被恢复等综合措施，让退化草场逐步复绿。
+“我确信相关技术已经成熟，能够接替高危工种；从机器人全品类落地场景来看，替代高危岗位是社会效益最高的应用方向。
 
-为巩固治理成效，当地官方严格落实三年禁牧、草畜平衡制度，推行网格化监管。
+” 尽管入局人形机器人赛道的企业日趋饱和，但这家公司明确主打军工用途，走出差异化路线。
 
-全县选聘290名生态管护员常态化巡护，人均年增收2.4万元，牧民从生态受益者变为生态守护者。
+企业目标宏大：今年实现数千台机器人量产，未来 18 个月内正式配合美军开展前线实地测试。
 
-天峻县木里镇复绿区生态管护员久买每天骑着马在自己负责的区域巡查，“草地不断恢复，我平常巡护的时候也能看到很多野生动物，比如野驴、野牛、野鸭等等。
+企业与华盛顿方面合作不断加深，也成为人工智能、机器人技术重塑现代战争、成为各国国家安全重点布局领域的又一例证。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 13:54 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 13:40 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 13:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 13:55 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 13:48 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 13:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 13:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 13:55 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 13:59 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 13:38 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 13:44 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:01 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 13:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 13:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 13:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 13:43 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 14:11 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 13:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 14:07 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 13:42 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 13:47 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 14:09 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [天道](https://www.blog.minike.top/Article/details/65717.shtml)
-- 2026-06-29 14:02 - [美人鱼](https://www.blog.minike.top/Article/details/542070.shtml)
-- 2026-06-29 13:52 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/3526561.shtml)
-- 2026-06-29 13:40 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/4482127.shtml)
-- 2026-06-29 13:47 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/040228096540.shtml)
-- 2026-06-29 14:02 - [金刚川](https://www.blog.kurohicncr.top/Article/details/46564.shtml)
-- 2026-06-29 14:00 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/1482114.shtml)
-- 2026-06-29 14:02 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/42206412.shtml)
-- 2026-06-29 13:42 - [一生一世](https://www.share.minike.top/Article/details/48875198448.shtml)
-- 2026-06-29 13:40 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/907630439.shtml)
-- 2026-06-29 13:58 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/86654377483.shtml)
-- 2026-06-29 13:58 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/19936304.shtml)
-- 2026-06-29 13:48 - [美人鱼](http://www.share.minike.top/Article/details/7231025848.shtml)
-- 2026-06-29 13:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/95321.shtml)
-- 2026-06-29 13:36 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/75523612.shtml)
+- 2026-06-29 13:52 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/285647.shtml)
+- 2026-06-29 14:05 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/8341705.shtml)
+- 2026-06-29 13:44 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/299107068.shtml)
+- 2026-06-29 14:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/4982091.shtml)
+- 2026-06-29 13:59 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/053170.shtml)
+- 2026-06-29 14:07 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/35235751724.shtml)
+- 2026-06-29 14:09 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/40710690.shtml)
+- 2026-06-29 14:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/045301451726.shtml)
+- 2026-06-29 13:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/881047333.shtml)
+- 2026-06-29 13:43 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/533638544.shtml)
+- 2026-06-29 14:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/059067417.shtml)
+- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/06356097.shtml)
+- 2026-06-29 13:56 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/844816.shtml)
+- 2026-06-29 13:49 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/728596266355.shtml)
+- 2026-06-29 13:53 - [毒液2](http://www.share.minike.top/Article/details/557485377.shtml)

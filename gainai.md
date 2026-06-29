@@ -1,58 +1,58 @@
-# 长江有色：28日氧化铝期价跌0.45% 实际交投趋于清淡
+# 第二届世界古典学大会将在希腊举办
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-长江有色网4月28日讯，今日氧化铝所有合约震荡走弱，主力月2609合约低开低走，重心再次跌回2850附近；截止当日15：00收盘，氧化铝主力月2609合约报2875元，跌13元，跌幅0.45%；加权合约累计成交479364手，比前一交易日减少473150手，跌幅49.67%；持仓量470276手减少9544手，跌幅1.99%。 今日国内氧化铝现货价格部分地区上涨；据长江有色网c
+中新社北京6月1日电 (记者 韩禹)记者6月1日从中国社会科学院在北京举行的第二届世界古典学大会媒体吹风会上获悉，第二届世界古典学大会将于6月9日至10日在希腊雅典举办。 中国社科院国际合作局副局长岳云霞介绍，大会以“古今对话：古典智慧的现代启示”为主题，将广泛邀请中外古典学研究专业学者以及文明、文化、考古等领域专家学者与会，围绕古典文明相关议题深入对话，为世界古典文明研究者交
 
 ## 正文
 
-长江有色网4月28日讯，今日氧化铝所有合约震荡走弱，主力月2609合约低开低走，重心再次跌回2850附近；截止当日15：00收盘，氧化铝主力月2609合约报2875元，跌13元，跌幅0.45%；加权合约累计成交479364手，比前一交易日减少473150手，跌幅49.67%；持仓量470276手减少9544手，跌幅1.99%。
+中新社北京6月1日电 (记者 韩禹)记者6月1日从中国社会科学院在北京举行的第二届世界古典学大会媒体吹风会上获悉，第二届世界古典学大会将于6月9日至10日在希腊雅典举办。
 
-今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，4月28日氧化铝华南地区每吨报2670-2720元之间，与前一交易日报价持平；华东地区氧化铝每吨报2670-2710元之间，与前一交易日报价涨10元；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2985-3025元之间，与前一交易日报价涨120元。
+中国社科院国际合作局副局长岳云霞介绍，大会以“古今对话：古典智慧的现代启示”为主题，将广泛邀请中外古典学研究专业学者以及文明、文化、考古等领域专家学者与会，围绕古典文明相关议题深入对话，为世界古典文明研究者交流思想、凝聚共识提供重要平台。
 
-今日上期所氧化铝期货主力2605合约震荡下跌，日间交易收跌0.45%，国内氧化铝现货价格部分上调； 宏观层面，美伊地缘僵局及美联储主席鲍威尔任期临近尾声，市场聚焦本周FOMC会议对利率及美元走势的指引，宏观不确定性压制市场情绪。
+中国社科院外国文学研究所古典学研究室主任、第二届世界古典学大会学术顾问贺方婴表示，本次大会是中国古典学家首次在“西方文明祖庭”雅典的集体亮相，具有世界文明史上的里程碑意义。
 
-国内股指全线下挫，期货市场整体承压，有色金属普遍走弱，氧化铝亦受牵连。
+据介绍，本届大会由中国社会科学院、中国教育部、中国文化和旅游部、希腊文化部、希腊雅典科学院共同主办。
 
-基本面看，供应过剩格局未变。
+除开幕式及全体会议、闭幕式外，大会还将围绕“德性与教化：古典教育的现代阐释”“友爱与共同体：古今之变中的伦理共同体”“和平与秩序：全球变局的文明方案”“技术与文明：数智时代的人文精神”等议题举行四场平行分论坛。
 
-几内亚雨季或影响后期铝土矿发运，原料成本存在上行预期，广西部分产能因故障短暂减产，对现货供应构成扰动。
+大会期间将发布“以古典智慧照亮人类前行之路”的共同倡议、“中国古典文明研究院全球学者驻研访学计划”等成果；举行以“让古典走进现代——世界古典文明成果展”为主题的配套展览，展示中外古典学典籍、研究文献，中华传统医学典籍，科技考古与文化遗产保护重大成果等；组织中医药文化动态展示和体验活动，通过多维度、沉浸式的展陈方式，促进跨学科对话与文明互鉴。
 
-然而，IAI数据显示3月全球及中国氧化铝产量环比显著回升，叠加国内新投产能持续释放，整体供应仍处高位。
+会后，将组织与会嘉宾赴中国与希腊首个联合考古项目安杰洛卡斯特洛考古遗址参访。
 
-需求方面，下游电解铝运行产能虽有增加，对氧化铝消费形成一定支撑，但难以扭转供应过剩局面。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 13:59 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 13:46 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 13:55 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 13:49 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 13:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 13:48 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 13:48 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 13:40 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 13:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 13:36 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 13:53 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 13:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 13:53 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 14:03 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 13:58 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 14:10 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 14:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 13:45 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 13:49 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 14:07 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 13:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/4185911.shtml)
-- 2026-06-29 13:57 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/032686205872.shtml)
-- 2026-06-29 13:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/96693024.shtml)
-- 2026-06-29 13:37 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/35307895.shtml)
-- 2026-06-29 14:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/94862090254.shtml)
-- 2026-06-29 14:00 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/5173785966.shtml)
-- 2026-06-29 14:01 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/425995.shtml)
-- 2026-06-29 14:05 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/742624673551.shtml)
-- 2026-06-29 13:51 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/889641379.shtml)
-- 2026-06-29 13:50 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/46158242987.shtml)
-- 2026-06-29 13:56 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/99326813801.shtml)
-- 2026-06-29 14:01 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/5970772.shtml)
-- 2026-06-29 14:05 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/156195.shtml)
-- 2026-06-29 13:55 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/2624430.shtml)
-- 2026-06-29 14:00 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/2921666.shtml)
+- 2026-06-29 13:49 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/3320999337.shtml)
+- 2026-06-29 13:47 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/207153383798.shtml)
+- 2026-06-29 13:54 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/79416.shtml)
+- 2026-06-29 14:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/96057.shtml)
+- 2026-06-29 14:06 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/06155.shtml)
+- 2026-06-29 14:03 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/54974.shtml)
+- 2026-06-29 13:50 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/7349384.shtml)
+- 2026-06-29 13:48 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/63736435818.shtml)
+- 2026-06-29 13:44 - [美人鱼](https://www.share.minike.top/Article/details/97853.shtml)
+- 2026-06-29 13:44 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/151638.shtml)
+- 2026-06-29 14:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/180847.shtml)
+- 2026-06-29 14:04 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/31084626292.shtml)
+- 2026-06-29 14:08 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/53593.shtml)
+- 2026-06-29 13:43 - [A股限售股解禁一览](https://www.share.kurohicncr.top/Article/details/5868100.shtml)
+- 2026-06-29 14:02 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/3500871012.shtml)

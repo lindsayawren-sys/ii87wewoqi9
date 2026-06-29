@@ -1,61 +1,61 @@
-# “十四五”期间中国新发现大中型油气田225处
+# 独家丨美团领投 A 轮， Mindverse 总融资 5000 万美元，打造持续学习的 Agent 模型
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (陶思阅)中国自然资源部地质勘查管理司司长熊自力29日在北京表示，新一轮找矿突破战略行动取得重大进展，“十四五”期间，新发现战略性矿产大中型矿产地(油气田)398处，其中大中型油气田225处，油气新增探明地质储量保持高位增长。熊自力介绍，截至“十四五”末，中国稀土、钨、锡、钼、锑、镓、锗、铟、萤石、石墨等14种矿产储量居世界第一位。中国矿产品生产与冶炼加
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：极客公园）构建持续学习的 Agent 模型。作者｜徐珊编辑｜郑玄Mindverse 完成由美团领投的 A 轮融资，元禾璞华、韶音、变量资本和老股东追加跟投，历史股东包括蚂蚁、源一、红杉中国、真格、高榕等一线基金，融资额近 5000 万美元，高鹄资本担任独家财务顾问。一个会持续学习的先进 Agent模
 
 ## 正文
 
-中新社北京4月29日电 (陶思阅)中国自然资源部地质勘查管理司司长熊自力29日在北京表示，新一轮找矿突破战略行动取得重大进展，“十四五”期间，新发现战略性矿产大中型矿产地(油气田)398处，其中大中型油气田225处，油气新增探明地质储量保持高位增长。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-熊自力介绍，截至“十四五”末，中国稀土、钨、锡、钼、锑、镓、锗、铟、萤石、石墨等14种矿产储量居世界第一位。
+（来源：极客公园）构建持续学习的 Agent 模型。
 
-中国矿产品生产与冶炼加工规模稳居全球首位。
+作者｜徐珊编辑｜郑玄Mindverse 完成由美团领投的 A 轮融资，元禾璞华、韶音、变量资本和老股东追加跟投，历史股东包括蚂蚁、源一、红杉中国、真格、高榕等一线基金，融资额近 5000 万美元，高鹄资本担任独家财务顾问。
 
-2025年，中国煤炭、钒、钛、锌、稀土、钨、锡、钼、锑、镓、铟、金、碲等17种矿产产量居世界第一。
+一个会持续学习的先进 Agent模型，到底该怎么构建？
 
-在冶炼加工方面，锰冶炼产品占全球99%，稀土冶炼产品占94%，铝占60%，钢铁占53%，铜占47%。
+在大模型智能上限一路被推高时，「持续学习」的最佳答案还是没有出现。
 
-此外，在新一轮找矿突破战略行动中，中国的科技创新能力和装备现代化水平实现跃升，助力在高水平生态环境保护中更高质量地推进找矿工作。
+「真正的 Agent 能力并非来自精巧的提示词拼凑，而是源自后训练。
 
-例如，针对深层煤层气资源，构建了深部储层精准预测、高效压裂与排采技术体系，使深层煤层气成为天然气领域的新增长极。
+」Mindverse (心洲科技) 是少数把赌注押在模型「内部」的一家创企，它在通用大模型的基础上，用强化学习让它从复杂、多步骤的真实任务中学会如何把事做成，让模型从「知道很多」变为「能办好事」。
 
-中国自主设计建造的首艘大洋钻探船“梦想”号正式入列，首口超万米深钻塔科1井成功完钻。
+而实现持续进化的关键在于 LoRA 技术，它就像给一个强大的共享大脑挂上无数轻量的「技能包」，每个技能包只占极小参数，却能独立更新、彼此隔离，让模型以极低成本不断积累属于特定用户或场景的记忆与能力，而不是每次从头重训。
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 14:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:54 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 14:05 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 14:01 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 13:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 13:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 13:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 13:59 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 13:44 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 13:57 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 13:57 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 13:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 13:43 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 13:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 14:08 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 14:10 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:07 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:07 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 13:56 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 13:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 14:06 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 13:49 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 13:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 14:00 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 13:58 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 13:45 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/997316.shtml)
-- 2026-06-29 13:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/55939271749.shtml)
-- 2026-06-29 13:43 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/6892968154.shtml)
-- 2026-06-29 13:50 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/525014151.shtml)
-- 2026-06-29 14:05 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/8428388981.shtml)
-- 2026-06-29 13:51 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/44971.shtml)
-- 2026-06-29 13:37 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.minike.top/Article/details/3996850.shtml)
-- 2026-06-29 13:41 - [第一炉香](http://www.share.kurohicncr.top/Article/details/0186536687.shtml)
-- 2026-06-29 14:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/7113810.shtml)
-- 2026-06-29 13:59 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/2518342859.shtml)
-- 2026-06-29 14:03 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/24699.shtml)
-- 2026-06-29 13:51 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/99034.shtml)
-- 2026-06-29 14:02 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/62904687.shtml)
-- 2026-06-29 13:45 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/84143111.shtml)
-- 2026-06-29 13:38 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/74870.shtml)
+- 2026-06-29 13:56 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3976075.shtml)
+- 2026-06-29 13:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/2381345756.shtml)
+- 2026-06-29 13:49 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/2497359989.shtml)
+- 2026-06-29 14:08 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/34035.shtml)
+- 2026-06-29 13:59 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/3252455348.shtml)
+- 2026-06-29 13:42 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/36897.shtml)
+- 2026-06-29 14:05 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/2612180881.shtml)
+- 2026-06-29 14:05 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/098062.shtml)
+- 2026-06-29 13:53 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/15047952.shtml)
+- 2026-06-29 14:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/174230013.shtml)
+- 2026-06-29 13:54 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/7618497107.shtml)
+- 2026-06-29 13:48 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/0723514978.shtml)
+- 2026-06-29 14:06 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/9564158.shtml)
+- 2026-06-29 13:50 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/211993925069.shtml)
+- 2026-06-29 14:00 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/254646643.shtml)

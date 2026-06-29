@@ -1,44 +1,46 @@
-# 联合国：霍尔木兹海峡相关船舶通行量下降95.3%
+# 长征十二号乙遥一运载火箭发射成功
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-当地时间4月28日，联合国秘书长发言人迪雅里克在例行记者会上表示，根据联合国贸易和发展会议(UNCTAD)新推出的在线追踪看板，自2月28日以来，与霍尔木兹海峡相关的船舶通行量下降了95.3%，与此同时，全球大宗食品价格上涨了6%，欧洲原油价格上涨了53%。(央视记者 曹健)
+北京时间2026年6月1日16时40分，长征十二号乙遥一运载火箭在东风商业航天创新试验区发射升空，将搭载的千帆极轨08组卫星顺利送入预定轨道，飞行试验任务取得圆满成功。 此次任务是长征十二号乙运载火箭的首次飞行，长征系列运载火箭的第647次飞行。 (央视新闻客户端 总台央视记者 杨弘杨 郝明鑫)
 
 ## 正文
 
-当地时间4月28日，联合国秘书长发言人迪雅里克在例行记者会上表示，根据联合国贸易和发展会议(UNCTAD)新推出的在线追踪看板，自2月28日以来，与霍尔木兹海峡相关的船舶通行量下降了95.3%，与此同时，全球大宗食品价格上涨了6%，欧洲原油价格上涨了53%。
+北京时间2026年6月1日16时40分，长征十二号乙遥一运载火箭在东风商业航天创新试验区发射升空，将搭载的千帆极轨08组卫星顺利送入预定轨道，飞行试验任务取得圆满成功。
 
-(央视记者 曹健)
+此次任务是长征十二号乙运载火箭的首次飞行，长征系列运载火箭的第647次飞行。
+
+(央视新闻客户端 总台央视记者 杨弘杨 郝明鑫)
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 13:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:37 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 13:37 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 13:57 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 13:52 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 14:02 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 14:02 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 13:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 14:00 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 13:57 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 14:00 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 14:10 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 14:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 13:50 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 13:52 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 13:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 13:54 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:01 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 13:44 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/53371581534.shtml)
-- 2026-06-29 14:01 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/01511.shtml)
-- 2026-06-29 14:02 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/33351363190.shtml)
-- 2026-06-29 13:48 - [当我回母校教书](https://www.share.minike.top/Article/details/863938858299.shtml)
-- 2026-06-29 13:49 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/81270.shtml)
-- 2026-06-29 14:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/236465484.shtml)
-- 2026-06-29 13:54 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/70972.shtml)
-- 2026-06-29 14:00 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/078741635000.shtml)
-- 2026-06-29 13:36 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/34461491.shtml)
-- 2026-06-29 13:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/6132770649.shtml)
-- 2026-06-29 14:02 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/22782171740.shtml)
-- 2026-06-29 13:48 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/993506626.shtml)
-- 2026-06-29 13:59 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/083333134324.shtml)
-- 2026-06-29 13:51 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/6884408079.shtml)
-- 2026-06-29 13:46 - [强⁶](https://www.share.minike.top/Article/details/265397641.shtml)
+- 2026-06-29 14:07 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/408635.shtml)
+- 2026-06-29 13:53 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/58222.shtml)
+- 2026-06-29 14:07 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/741506683364.shtml)
+- 2026-06-29 13:57 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/16730475790.shtml)
+- 2026-06-29 13:57 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/155061472220.shtml)
+- 2026-06-29 13:44 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/3101273742.shtml)
+- 2026-06-29 13:47 - [起风了](https://www.blog.kurohicncr.top/Article/details/6870931677.shtml)
+- 2026-06-29 14:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/8812207.shtml)
+- 2026-06-29 14:02 - [NBA交易](http://www.blog.minike.top/Article/details/458057.shtml)
+- 2026-06-29 13:43 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.minike.top/Article/details/129887119780.shtml)
+- 2026-06-29 14:06 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/7741623.shtml)
+- 2026-06-29 13:55 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/0368479574.shtml)
+- 2026-06-29 13:47 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.kurohicncr.top/Article/details/070433354.shtml)
+- 2026-06-29 14:08 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/131260565.shtml)
+- 2026-06-29 14:06 - [第一炉香](http://www.share.minike.top/Article/details/609498.shtml)

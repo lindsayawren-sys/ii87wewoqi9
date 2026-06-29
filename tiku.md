@@ -1,48 +1,51 @@
-# 外国同行盛赞中国新能源汽车：树立行业标杆，期待并肩前行
+# 泽连斯基的幕僚长：乌克兰已准备好接受与俄罗斯维持前线现状
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 17:04 来源：中国新闻网 2026北京车展上，中国新能源汽车吸引着外国汽车从业者的目光。有外国从业者向中新网表示，中国新能源汽车为全球树立了业界标杆，期待与中国行业伙伴并肩前行。(记者 吴家驹 张尼) 责任编辑：【程春雨】
+乌克兰准备接受与俄罗斯维持前线现状，乌克兰总统泽连斯基的幕僚长Kyrylo Budanov在基辅表示。 他称，乌克兰不会把顿巴斯让给俄罗斯，由美国斡旋的乌克兰与俄罗斯和平谈判只是暂停，而不是陷入停滞。 Budanov预计特朗普的特使将访问乌克兰，但未提供具体时间。责任编辑：李桐
 
 ## 正文
 
-发布时间：2026年04月29日 17:04 来源：中国新闻网 2026北京车展上，中国新能源汽车吸引着外国汽车从业者的目光。
+乌克兰准备接受与俄罗斯维持前线现状，乌克兰总统泽连斯基的幕僚长Kyrylo Budanov在基辅表示。
 
-有外国从业者向中新网表示，中国新能源汽车为全球树立了业界标杆，期待与中国行业伙伴并肩前行。
+他称，乌克兰不会把顿巴斯让给俄罗斯，由美国斡旋的乌克兰与俄罗斯和平谈判只是暂停，而不是陷入停滞。
 
-(记者 吴家驹 张尼) 责任编辑：【程春雨】
+Budanov预计特朗普的特使将访问乌克兰，但未提供具体时间。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 13:36 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 14:03 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 13:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 13:53 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:45 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 13:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 13:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 14:04 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 13:50 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 13:52 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 13:51 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 14:02 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 13:54 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 13:45 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:47 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 13:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 13:48 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:45 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 13:57 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/397935.shtml)
-- 2026-06-29 13:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/844795395172.shtml)
-- 2026-06-29 14:02 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/446262.shtml)
-- 2026-06-29 13:45 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/9346683904.shtml)
-- 2026-06-29 13:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/24439.shtml)
-- 2026-06-29 13:50 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/9864822598.shtml)
-- 2026-06-29 13:40 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/65046.shtml)
-- 2026-06-29 13:45 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/69846.shtml)
-- 2026-06-29 14:01 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/3232786697.shtml)
-- 2026-06-29 13:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/049965689.shtml)
-- 2026-06-29 13:44 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/3409045.shtml)
-- 2026-06-29 13:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/79840.shtml)
-- 2026-06-29 14:02 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/326647823702.shtml)
-- 2026-06-29 13:51 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/164018894129.shtml)
-- 2026-06-29 13:44 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/342161068.shtml)
+- 2026-06-29 13:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/7521977.shtml)
+- 2026-06-29 13:56 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/530166.shtml)
+- 2026-06-29 13:49 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/081850.shtml)
+- 2026-06-29 13:54 - [金刚川](https://www.blog.minike.top/Article/details/35967749.shtml)
+- 2026-06-29 13:53 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/39315.shtml)
+- 2026-06-29 13:59 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/88790895936.shtml)
+- 2026-06-29 13:51 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/67411958.shtml)
+- 2026-06-29 13:46 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/3059584771.shtml)
+- 2026-06-29 13:44 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/381045594434.shtml)
+- 2026-06-29 13:51 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/91463.shtml)
+- 2026-06-29 13:55 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/027018471.shtml)
+- 2026-06-29 13:53 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/8477981.shtml)
+- 2026-06-29 14:11 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/543498.shtml)
+- 2026-06-29 14:04 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/219151836.shtml)
+- 2026-06-29 13:56 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/3377778861.shtml)

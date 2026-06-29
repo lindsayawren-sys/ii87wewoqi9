@@ -1,61 +1,56 @@
-# 韩国预计5月份石脑油供应量将达到伊朗冲突前水平的90%
+# 苏丹两地遭无人机袭击致67人死亡
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。 据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。 同期，韩国石化工业公司的开工率也从62%提高到72%。 石脑油是一种重要的工业原料，广泛应用于石化
+中新社北京6月1日电 喀土穆消息：当地时间5月31日，苏丹民间机构“紧急律师倡议”披露，近期发生在北科尔多凡州、西科尔多凡州的两起无人机袭击事件，造成大量人员死亡。 综合阿拉伯新闻网、《苏丹论坛报》等媒体报道，5月29日，北科尔多凡州一村庄遭到无人机袭击，造成57人死亡。据消息人士披露，此次袭击系苏丹快速支援部队所为。 5月30日，一架军用无人机袭击了苏丹西科尔多凡州阿布扎巴德
 
 ## 正文
 
-韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。
+中新社北京6月1日电 喀土穆消息：当地时间5月31日，苏丹民间机构“紧急律师倡议”披露，近期发生在北科尔多凡州、西科尔多凡州的两起无人机袭击事件，造成大量人员死亡。
 
-据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。
+综合阿拉伯新闻网、《苏丹论坛报》等媒体报道，5月29日，北科尔多凡州一村庄遭到无人机袭击，造成57人死亡。
 
-同期，韩国石化工业公司的开工率也从62%提高到72%。
+据消息人士披露，此次袭击系苏丹快速支援部队所为。
 
-石脑油是一种重要的工业原料，广泛应用于石化及其他多个行业。
+5月30日，一架军用无人机袭击了苏丹西科尔多凡州阿布扎巴德-富拉公路上的两辆民用车辆，造成包括8名儿童在内的10人死亡，多人受伤，部分伤者伤势严重。
 
-下个月石脑油的稳定供应，正值政府努力确保替代供应并帮助降低国内企业进口该原料的成本之际。
+“紧急律师倡议”并未指明此次袭击的责任方，但表示袭击“发生在没有军事行动的平民区”，并补充说，这反映出“暴力活动已蔓延至流离失所者居住区”。
 
-韩国已从包括阿曼和沙特在内的四个中东国家确保在今年年底前获得210万吨石脑油。
+截至目前，尚未有任何组织宣称对上述两起袭击事件负责。
 
-这一数量相当于去年需求量约一个月的供应量。
+苏丹主要反对党之一的乌玛党将第二起袭击事件归咎于苏丹军方。
 
-关于政府的原油互换机制，韩国产业通商资源部表示，主要炼油厂已申请本月和下月总额约3100万桶的互换协议。
+该党表示，在人口稠密地区和道路上反复使用无人机袭击平民，严重违反了国际人道主义法，是对人类生命的漠视。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 14:05 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 13:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 14:00 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 14:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 13:46 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 13:50 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 13:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 13:57 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 14:01 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 13:37 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 13:57 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 13:59 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 13:42 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 13:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 14:06 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 13:47 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 13:52 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 13:44 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 14:06 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 13:54 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 13:49 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 13:43 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/361479.shtml)
-- 2026-06-29 13:57 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/645189611.shtml)
-- 2026-06-29 14:03 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/598256328.shtml)
-- 2026-06-29 13:49 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/069482642630.shtml)
-- 2026-06-29 13:47 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/84482543526.shtml)
-- 2026-06-29 13:58 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/533156039322.shtml)
-- 2026-06-29 13:52 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/088423.shtml)
-- 2026-06-29 14:02 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/0144942433.shtml)
-- 2026-06-29 13:55 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/666366732162.shtml)
-- 2026-06-29 13:49 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/420603748.shtml)
-- 2026-06-29 13:44 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/4383931.shtml)
-- 2026-06-29 13:51 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/750673584.shtml)
-- 2026-06-29 13:45 - [恋与深空失控领地](http://www.share.minike.top/Article/details/50988.shtml)
-- 2026-06-29 13:53 - [这位天才台湾人第一次来大陆，开智了](https://www.share.minike.top/Article/details/2162409.shtml)
-- 2026-06-29 13:40 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/88528.shtml)
+- 2026-06-29 14:06 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/7648811.shtml)
+- 2026-06-29 14:04 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5603331800.shtml)
+- 2026-06-29 13:54 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/08893235592.shtml)
+- 2026-06-29 14:06 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/59001.shtml)
+- 2026-06-29 13:44 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/45848021865.shtml)
+- 2026-06-29 13:50 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/298967232.shtml)
+- 2026-06-29 14:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/3289980109.shtml)
+- 2026-06-29 14:07 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/383090451076.shtml)
+- 2026-06-29 14:11 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/66949102225.shtml)
+- 2026-06-29 13:46 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/37410899.shtml)
+- 2026-06-29 14:04 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/2496649.shtml)
+- 2026-06-29 13:50 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/948452666318.shtml)
+- 2026-06-29 13:50 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/662015.shtml)
+- 2026-06-29 13:43 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/690145924518.shtml)
+- 2026-06-29 14:10 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/73790.shtml)

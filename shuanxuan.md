@@ -1,61 +1,58 @@
-# RYOEX:贵金属承压静待转强
+# 财经早报：美军称袭击一艘伊朗相关油轮，宇树科技回应联手英伟达 丨2026年6月3日
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月28日，近期贵金属市场整体承压，黄金在每盎司4717美元附近窄幅震荡，白银回落至75.60美元，铂金维持在2020美元附近，以图表技术为导向的短线交易者选择在周初集中减仓，为本周密集央行决议做好仓位准备。RYOEX表示，本轮调整更多属于技术性再平衡而非基本面逆转，日本央行、美联储、英国央行、加拿大央行与欧洲央行的集中决议将在本周陆续落地，政策声明基调将在很大程度上决定贵金属
+【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 美军称袭击一艘伊朗相关油轮 使其失去航行能力 当地时间6月2日，美国中央司令部表示，美军在阿拉伯湾对一艘驶向伊朗港口的油轮采取行动，并使其失去航行能力。 美国中央司令部称，悬挂博茨瓦纳国旗的油轮“Lexie”号当时正驶向伊朗哈尔克岛。美方表示，该船在24小时内多次无视美军警告和指令，未遵守相关封锁措施。随后，
 
 ## 正文
 
-4月28日，近期贵金属市场整体承压，黄金在每盎司4717美元附近窄幅震荡，白银回落至75.60美元，铂金维持在2020美元附近，以图表技术为导向的短线交易者选择在周初集中减仓，为本周密集央行决议做好仓位准备。
+【重磅】全球迎来“芯片牛”！
 
-RYOEX表示，本轮调整更多属于技术性再平衡而非基本面逆转，日本央行、美联储、英国央行、加拿大央行与欧洲央行的集中决议将在本周陆续落地，政策声明基调将在很大程度上决定贵金属能否在当前区间企稳，或进入更深层次的修正。
+别再错过，立即开户跟进>> 【头条要闻】 美军称袭击一艘伊朗相关油轮 使其失去航行能力 当地时间6月2日，美国中央司令部表示，美军在阿拉伯湾对一艘驶向伊朗港口的油轮采取行动，并使其失去航行能力。
 
-在各贵金属品种的相对表现中，白银的跌幅相对突出。
+美国中央司令部称，悬挂博茨瓦纳国旗的油轮“Lexie”号当时正驶向伊朗哈尔克岛。
 
-RYOEX认为，白银盘中跌约0.80美元至75.60美元，跌幅超过黄金，折射出白银兼具避险属性与工业需求属性的双重敏感性——后者在能源成本推升需求萎缩的担忧下有所走弱。
+美方表示，该船在24小时内多次无视美军警告和指令，未遵守相关封锁措施。
 
-铂金表现相对抗跌，维持在2020美元附近，受主产区供应受限提供支撑；钯金则跌势较为明显，回落至1487美元附近，持续受到汽车行业需求结构变化的压制。
+随后，一架美军飞机向该船机舱发射一枚“地狱火”导弹，导致油轮失去动力，无法继续前往伊朗。
 
-从黄金的技术图形来看，宏观多头格局在短期压力中依然保持完整。
+鲁比奥：以色列拟控加沙七成区域 不符美方立场 美国国务卿鲁比奥2日表示，以色列总理内塔尼亚胡提出以军要控制加沙地带70%区域的计划与美方立场不符。
 
-金价自4800美元以上高位的回落节奏平稳，4700美元区间已成为市场普遍关注的近期支撑位。
+鲁比奥当天下午在美国国会众议院拨款委员会举行的听证会上接受议员质询时说，内塔尼亚胡这一计划并非美国总统特朗普关于结束加沙冲突的“20点计划”组成部分。
 
-美元指数同步走弱为贵金属提供了一定缓冲，进一步印证了当前调整属于持仓结构优化而非趋势逆转。
+按照“20点计划”，以色列不需要那样做。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:44 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 13:46 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 13:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:56 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 14:02 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 13:39 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 13:45 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 13:55 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 13:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 13:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 13:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 13:57 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 13:49 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 13:42 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 14:10 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 14:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 13:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 13:42 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 13:56 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:58 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 14:08 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 13:58 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 13:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 13:59 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/2147987681.shtml)
-- 2026-06-29 13:45 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/8411044.shtml)
-- 2026-06-29 13:36 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/5674830266.shtml)
-- 2026-06-29 14:04 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/678672.shtml)
-- 2026-06-29 13:41 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/342204963.shtml)
-- 2026-06-29 14:03 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/91721942772.shtml)
-- 2026-06-29 13:54 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/97784866.shtml)
-- 2026-06-29 13:39 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0823738.shtml)
-- 2026-06-29 14:03 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/7104252.shtml)
-- 2026-06-29 14:04 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/908580022.shtml)
-- 2026-06-29 13:43 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/676411879.shtml)
-- 2026-06-29 13:51 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/92055031889.shtml)
-- 2026-06-29 13:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/635467431.shtml)
-- 2026-06-29 13:54 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/703210.shtml)
-- 2026-06-29 13:51 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/889383.shtml)
+- 2026-06-29 13:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/49761.shtml)
+- 2026-06-29 13:45 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/4698178.shtml)
+- 2026-06-29 13:56 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/59743157327.shtml)
+- 2026-06-29 13:47 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/3625408.shtml)
+- 2026-06-29 13:59 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/18062.shtml)
+- 2026-06-29 13:48 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/0303208015.shtml)
+- 2026-06-29 13:59 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/8972230193.shtml)
+- 2026-06-29 13:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/31055035193.shtml)
+- 2026-06-29 13:49 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/90833762622.shtml)
+- 2026-06-29 14:04 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/4593333.shtml)
+- 2026-06-29 14:02 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/69218.shtml)
+- 2026-06-29 14:05 - [毒液2](http://www.blog.minike.top/Article/details/822166.shtml)
+- 2026-06-29 14:07 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/86570494.shtml)
+- 2026-06-29 13:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/537251.shtml)
+- 2026-06-29 14:08 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/62760284420.shtml)

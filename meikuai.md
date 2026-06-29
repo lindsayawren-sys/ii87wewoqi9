@@ -1,57 +1,60 @@
-# 上海致公党闵行区委赴毕节开展定点帮扶活动
+# 人人租IPO遭遇证监会六连问：股权操作被质疑 多次违规被点名
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-沪黔同心育桃李 教育帮扶促振兴——致公党闵行区委赴毕节开展定点帮扶活动 为了更好地助力乡村振兴与教育帮扶战略部署，贯彻落实统一战线“地域+领域”组团式帮扶毕节方案，积极开展社会服务工作，4月22日至25日，致公党闵行区委赴贵州省毕节市七星关区，开展以教育扶贫为核心、多领域协同助力的定点帮扶活动。致公党上海市委会副主委张文明，闵行区政协副主席、致公党闵行区委主委何曙光，致公党中央
+来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。 2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。 具体来看： 其中前三项问询指向人人租的股权和资本运作问题。 首先是‌股权合
 
 ## 正文
 
-沪黔同心育桃李 教育帮扶促振兴——致公党闵行区委赴毕节开展定点帮扶活动 为了更好地助力乡村振兴与教育帮扶战略部署，贯彻落实统一战线“地域+领域”组团式帮扶毕节方案，积极开展社会服务工作，4月22日至25日，致公党闵行区委赴贵州省毕节市七星关区，开展以教育扶贫为核心、多领域协同助力的定点帮扶活动。
+来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。
 
-致公党上海市委会副主委张文明，闵行区政协副主席、致公党闵行区委主委何曙光，致公党中央组织部二级调研员、七星关区委常委、副区长(挂职)杨华，致公党毕节市工委专职副主委孙潋及七星关区相关人员出席相关活动。
+2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。
 
-教育是阻断贫困代际传递的根本之策。
+具体来看： 其中前三项问询指向人人租的股权和资本运作问题。
 
-本次帮扶聚焦教育扶智、精准助学、长效赋能，把优质教育资源送到基层一线。
+首先是‌股权合规性‌：需说明历次增资/股权转让定价依据、实缴出资情况、是否存在抽逃出资或瑕疵，并出具合法合规结论；其次是‌新增股东合理性‌：近12个月新增股东入股价格差异原因及是否存在利益输送；第三是‌股权激励合规‌：股权激励计划实施是否合法合规、有无利益输送。
 
-23日，致公党闵行区委一行先后调研上海师范大学附属七星关区致公实验学校、柏杨林街道中心校，详细了解办学条件、师资建设与学生发展情况。
+从公司实际资本操作来看，2025年5月人人租完成D轮融资，大华银行旗下ACIF V和ACIF （US） V合计出资约1.08亿元，仅认购研趣信息19.73万元注册资本。
 
-在座谈会上，致公闵行区委“致公圆梦”基金正式成立并授牌，致公党闵行区委捐赠科普实验仪器一台价值1万元，以长效帮扶机制为山区学子保驾护航，用实际行动夯实教育根基、点亮求学梦想，彰显教育扶贫的温度与力度。
+折算下来，外部投资者以每1元注册资本约547元的超高溢价入股，估值溢价水平远超行业常规逻辑。
 
-张文明指出，要坚持以教育扶贫助力乡村振兴，把沪黔协作落到实处、落到细处。
+与之形成鲜明对比的是，2026年1月公司完成无募资股本扩容，通过股份溢价资本化方式，将注册资本从238万元大幅增至1500万元，本次增资仅为内部股本结构调整，未引入任何外部新资金。
 
-要持续深化校校合作、教研联动，不断完善帮扶机制，拓宽帮扶渠道，真正让优质教育惠及更多孩子，以教育振兴助推乡村全面振兴，以实际行动彰显民主党派的责任与担当。
+证监会要求解释D轮融资定价的合理性，显然是在质疑激进的溢价背后，是否存在未披露的抽屉协议或利益输送安排？
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:43 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 13:40 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 14:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 13:49 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 13:38 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 13:39 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 13:44 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 13:46 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 14:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 13:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 14:00 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 13:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 13:45 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 14:00 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 13:45 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 13:58 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 14:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:49 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 13:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:11 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 13:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:51 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/151625.shtml)
-- 2026-06-29 13:51 - [请回答王牌2019](https://www.share.minike.top/Article/details/645328637.shtml)
-- 2026-06-29 13:59 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/314022541540.shtml)
-- 2026-06-29 14:00 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/1572285.shtml)
-- 2026-06-29 14:06 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/4292400332.shtml)
-- 2026-06-29 13:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/79695310.shtml)
-- 2026-06-29 13:52 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/571264079.shtml)
-- 2026-06-29 14:04 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/37241858.shtml)
-- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/90554584.shtml)
-- 2026-06-29 13:52 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/67381.shtml)
-- 2026-06-29 13:54 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/14189.shtml)
-- 2026-06-29 13:41 - [逃狱兄弟](https://www.blog.minike.top/Article/details/81127.shtml)
-- 2026-06-29 14:03 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/39421.shtml)
-- 2026-06-29 13:56 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/424325.shtml)
-- 2026-06-29 13:39 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/543985.shtml)
+- 2026-06-29 13:53 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/38044203.shtml)
+- 2026-06-29 14:06 - [斛珠夫人](http://www.share.minike.top/Article/details/0716969060.shtml)
+- 2026-06-29 13:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/52468595.shtml)
+- 2026-06-29 13:49 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/019399900.shtml)
+- 2026-06-29 13:47 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/6199026649.shtml)
+- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/6529813.shtml)
+- 2026-06-29 14:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/89122983.shtml)
+- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/46398170.shtml)
+- 2026-06-29 13:52 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/42446256.shtml)
+- 2026-06-29 13:45 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/634723324.shtml)
+- 2026-06-29 13:46 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/283587.shtml)
+- 2026-06-29 13:58 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/21938.shtml)
+- 2026-06-29 13:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/6159029.shtml)
+- 2026-06-29 13:53 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/736173.shtml)
+- 2026-06-29 14:04 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/988513.shtml)

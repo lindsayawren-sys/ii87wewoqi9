@@ -1,56 +1,61 @@
-# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
+# 我国牵头制定的安全协议测试国际标准发布
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
+记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智
 
 ## 正文
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
+记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。
 
-马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
+该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。
 
-目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
+射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智能交互的关键基础。
 
-自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
+这些技术广泛应用于智能制造、智慧物流、医疗健康、电子支付等重要领域。
 
-” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
+随着物联网规模化普及，设备身份伪造、数据窃听、信息篡改等安全风险显著增多。
 
-“我们绝不希望迎来《终结者》式的悲剧结局。
+该标准聚焦安全协议一致性与符合性测试，统一了测试方法、技术要求与判定依据，可精准核验物联网产品安全防护性能，有效规范全球行业测试评估秩序。
 
-” 马斯克说道。
+该标准的发布补齐了全球物联网密码测试的标准短板，有效破解测试标准不一、合规无序等突出问题。
 
-OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
+同时彰显了我国密码安全领域的技术实力与国际引领优势，提升了我国在全球数字安全治理领域的标准话语权，为守护数字经济安全发展、赋能网络强国建设提供了国际标准支撑。
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 13:37 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 13:39 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 13:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 14:01 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 14:00 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 14:05 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 14:01 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 13:39 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 14:09 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 14:10 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 13:55 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 14:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 14:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 13:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 13:48 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 13:57 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 13:45 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 13:50 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 13:58 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 14:09 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 13:50 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 14:11 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:47 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [一见倾心](http://www.share.minike.top/Article/details/4376629.shtml)
-- 2026-06-29 13:46 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/309547.shtml)
-- 2026-06-29 13:49 - [速度与激情9](https://www.blog.minike.top/Article/details/2089540.shtml)
-- 2026-06-29 13:49 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/92930.shtml)
-- 2026-06-29 13:59 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/385600948104.shtml)
-- 2026-06-29 14:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/8341002.shtml)
-- 2026-06-29 14:05 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/48017942.shtml)
-- 2026-06-29 14:00 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/526647.shtml)
-- 2026-06-29 14:02 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/555607084844.shtml)
-- 2026-06-29 13:59 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/549296196.shtml)
-- 2026-06-29 13:47 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/53583801.shtml)
-- 2026-06-29 13:47 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/31473969.shtml)
-- 2026-06-29 13:50 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/304587.shtml)
-- 2026-06-29 13:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/446203.shtml)
-- 2026-06-29 13:41 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/842308003283.shtml)
+- 2026-06-29 13:53 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/3045932056.shtml)
+- 2026-06-29 13:54 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/556517.shtml)
+- 2026-06-29 13:57 - [金牌调解](http://www.share.minike.top/Article/details/8122921691.shtml)
+- 2026-06-29 14:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/18907.shtml)
+- 2026-06-29 13:51 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/84072467.shtml)
+- 2026-06-29 14:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/4957924.shtml)
+- 2026-06-29 14:07 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/26009784.shtml)
+- 2026-06-29 14:09 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/78989.shtml)
+- 2026-06-29 13:58 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/134755.shtml)
+- 2026-06-29 14:02 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8778524176.shtml)
+- 2026-06-29 13:42 - [扬名立万](http://www.blog.minike.top/Article/details/6673209378.shtml)
+- 2026-06-29 13:46 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/52677.shtml)
+- 2026-06-29 13:45 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/21640.shtml)
+- 2026-06-29 14:03 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/52811.shtml)
+- 2026-06-29 13:44 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/1417211344.shtml)

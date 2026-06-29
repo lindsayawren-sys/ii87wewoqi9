@@ -1,58 +1,61 @@
-# 中国太保一季度净利润达百亿，寿险分红险占比约九成
+# 跨文化对话“有滋有味” 美国青少年寻味海南
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 冯丽君 4月28日晚间，中国太保（601601.SH，02601.HK，CPIC.LSE）披露2026年一季报。4月29日上午，中国太保举行一季度业绩说明会。 2026年一季度，中国太保实现保险服务收入702.34亿元，同比增长1%。集团实现净利润100.41亿元，同比增长4.3%；营运利润105.23亿元，同比增长3.6%。 具体来看，寿险方面，2026年一
+中新网海口6月2日电 题：跨文化对话“有滋有味” 美国青少年寻味海南 中新网记者 张茜翼 炸酥肉、花生米、酸菜、牛肉丝依次码在米粉上，一勺卤汁均匀淋下……10岁的美国学生乃科伊(Coy)拿起筷子尝了一口，转头对身旁的海南男孩董欣咧嘴一笑：“好吃！” 这一幕，发生于2日在海南师范大学举行的“海南自贸港中美基础教育对话会暨中美青少年人文交流营”上。当日，来自美国犹他州的约30名师生
 
 ## 正文
 
-界面新闻记者 | 冯丽君 4月28日晚间，中国太保（601601.SH，02601.HK，CPIC.LSE）披露2026年一季报。
+中新网海口6月2日电 题：跨文化对话“有滋有味” 美国青少年寻味海南 中新网记者 张茜翼 炸酥肉、花生米、酸菜、牛肉丝依次码在米粉上，一勺卤汁均匀淋下……10岁的美国学生乃科伊(Coy)拿起筷子尝了一口，转头对身旁的海南男孩董欣咧嘴一笑：“好吃！
 
-4月29日上午，中国太保举行一季度业绩说明会。
+” 这一幕，发生于2日在海南师范大学举行的“海南自贸港中美基础教育对话会暨中美青少年人文交流营”上。
 
-2026年一季度，中国太保实现保险服务收入702.34亿元，同比增长1%。
+当日，来自美国犹他州的约30名师生及家长走进海口，展开一场跨文化对话。
 
-集团实现净利润100.41亿元，同比增长4.3%；营运利润105.23亿元，同比增长3.6%。
+指尖上的默契 交流从味蕾开始。
 
-具体来看，寿险方面，2026年一季度，太保寿险实现规模保费1，162.77亿元，其中新保期缴规模保费189.29亿元，同比增长41.4%；新业务价值63.72亿元，同比增长9.6%；保险服务收入215.71亿元，同比增长2.6%。
+活动现场，操作台变身为“美食工坊”。
 
-“截至一季度，寿险公司的分红险占比在90%左右，无论是个人业务渠道还是银保业务渠道，占比都较高。
+从海南粉到清补凉，每一道小吃背后都藏着海岛的生活智慧。
 
-”太保寿险相关高管在业绩说明会上表示，未来将从调整产品形态、缴费结构、保障期限、产品功能四个层面提升价值率。
+绿豆、红豆、西米、西瓜、芋圆分盛碗中，中美青少年自由搭配，调制属于自己的“海南味道”。
 
-渠道方面，一季度，太保寿险代理人渠道规模保费同比增长3.2%，新保业务同比增长34.5%，其中期缴同比增长43%。
+更具挑战性的是鸡屎藤粿——一种用草本植物汁液与糯米粉揉制而成的海南乡土小食。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 14:05 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 14:02 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 13:54 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 14:05 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 13:43 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 13:56 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 13:38 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 13:48 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 13:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 13:47 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 14:07 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 13:56 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 13:52 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:56 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 14:00 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 13:46 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 14:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 13:55 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 13:53 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 13:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:58 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 13:58 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 13:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 13:59 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 14:09 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/12026.shtml)
-- 2026-06-29 13:50 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/270605338.shtml)
-- 2026-06-29 13:36 - [一生一世](https://www.share.minike.top/Article/details/9530219598.shtml)
-- 2026-06-29 14:01 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/4810537.shtml)
-- 2026-06-29 13:57 - [急先锋](http://www.share.minike.top/Article/details/02057903485.shtml)
-- 2026-06-29 13:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/86867.shtml)
-- 2026-06-29 13:56 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/356427.shtml)
-- 2026-06-29 13:55 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/55108012.shtml)
-- 2026-06-29 14:01 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/6098903.shtml)
-- 2026-06-29 13:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/634902536887.shtml)
-- 2026-06-29 14:05 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/37489.shtml)
-- 2026-06-29 13:40 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/4563497.shtml)
-- 2026-06-29 13:57 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/7401893058.shtml)
-- 2026-06-29 13:41 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/883945026.shtml)
-- 2026-06-29 13:58 - [请回答王牌2019](https://www.blog.minike.top/Article/details/36976121598.shtml)
+- 2026-06-29 14:03 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/69396623.shtml)
+- 2026-06-29 13:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/4017206.shtml)
+- 2026-06-29 13:50 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/002963476070.shtml)
+- 2026-06-29 13:57 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/43402546.shtml)
+- 2026-06-29 13:51 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/4779264860.shtml)
+- 2026-06-29 14:11 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/1484282481.shtml)
+- 2026-06-29 13:48 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/455452336.shtml)
+- 2026-06-29 13:43 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/03854.shtml)
+- 2026-06-29 13:49 - [流金岁月](http://www.blog.minike.top/Article/details/6742692.shtml)
+- 2026-06-29 14:04 - [王楚钦周启豪爆分](http://www.share.kurohicncr.top/Article/details/91742085029.shtml)
+- 2026-06-29 13:43 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/5576118825.shtml)
+- 2026-06-29 13:57 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/51726925401.shtml)
+- 2026-06-29 14:11 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/723617820440.shtml)
+- 2026-06-29 13:58 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/7733581438.shtml)
+- 2026-06-29 13:43 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/966128679715.shtml)

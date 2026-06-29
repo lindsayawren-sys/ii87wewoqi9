@@ -1,58 +1,58 @@
-# 劳埃德银行利润大增33% 高利率提振营收
+# 第四届天津国际航运产业博览会开幕 聚焦AI赋能港航
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-英国劳埃德银行集团第一季度税前利润增长三分之一，至20亿英镑，受利率走高提振，这家英国最大高街银行营收增加。 截至3月的三个月内，该行实现收入48亿英镑，高于去年同期的44亿英镑，符合分析师预期。 劳埃德银行拥有2800万客户，被视为英国经济的风向标，该行重申了全年盈利指引。 但受美国能源冲击及以色列与伊朗冲突影响，该行将英国经济增长预期从1.2%下调至0.5%，并警告称这将给
+中新网天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会6月2日在国家会展中心(天津)开幕，主题为“航通天下 运行未来——AI引领港航发展新机遇”，吸引800余位海内外嘉宾参会。 开幕式上，中国交通运输部副部长李兴湖、中国航海学会理事长严新平、全球海事论坛首席执行官约翰娜·克里斯滕森等致辞。中国工程院外籍院士卡洛斯·格德斯·苏亚雷斯、劳氏信息咨询首席执行官瓦卡斯·萨马
 
 ## 正文
 
-英国劳埃德银行集团第一季度税前利润增长三分之一，至20亿英镑，受利率走高提振，这家英国最大高街银行营收增加。
+中新网天津6月2日电 (记者 周亚强)第四届天津国际航运产业博览会6月2日在国家会展中心(天津)开幕，主题为“航通天下 运行未来——AI引领港航发展新机遇”，吸引800余位海内外嘉宾参会。
 
-截至3月的三个月内，该行实现收入48亿英镑，高于去年同期的44亿英镑，符合分析师预期。
+开幕式上，中国交通运输部副部长李兴湖、中国航海学会理事长严新平、全球海事论坛首席执行官约翰娜·克里斯滕森等致辞。
 
-劳埃德银行拥有2800万客户，被视为英国经济的风向标，该行重申了全年盈利指引。
+中国工程院外籍院士卡洛斯·格德斯·苏亚雷斯、劳氏信息咨询首席执行官瓦卡斯·萨马德、招商局集团副总经理冯波鸣、国际货运代理协会联合会主席沈健利、天津港(集团)有限公司董事长褚斌等发表主旨演讲，内容涉及智能船舶演进、数据驱动向智能决策升级、AI赋能港航、货运代理行业数字化转型及智慧港口建设等。
 
-但受美国能源冲击及以色列与伊朗冲突影响，该行将英国经济增长预期从1.2%下调至0.5%，并警告称这将给全球及英国经济带来滞胀后果。
+两大行业报告于当日发布。
 
-该行同时预计失业率将上升，通胀压力重新显现将导致英国央行降息步伐放缓。
+交通运输部规划研究院发布的《2025年度中国港口经济发展报告》，首次展现涵盖海港、河港城市的“中国港口经济发展全景图”；新华社中国经济信息社发布的《航运行业人工智能应用报告》，则对全球航运AI应用实践与发展趋势进行了系统梳理。
 
-此外，冲突冲击需求，房地产市场可能降温。
+一批重点项目在开幕式上签约，涵盖大型船舶绿色智能化改造、高端能源装备升级等领域，参与方包括国家能源投资集团、华油惠博普科技股份有限公司、上海乐舱能源科技有限公司等。
 
-该行首席财务官表示：“明确地说，当前并非衰退环境。
+本届博览会增设“AI引领·港航协同发展新生态”圆桌对话，与会专家围绕港航AI应用、区域航运协同、智慧港口建设、产业链升级等议题展开研讨。
 
-这只是受中东冲突影响，增长预期较年初有所放缓。
+据悉，本届博览会将持续至6月5日。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 13:46 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 14:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 13:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 13:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 14:04 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 13:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 13:53 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 13:45 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 13:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 13:58 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 13:51 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 13:45 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:52 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:53 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 14:04 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 14:06 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 13:54 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 14:07 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 13:53 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 13:50 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/42059618925.shtml)
-- 2026-06-29 13:37 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/699775298040.shtml)
-- 2026-06-29 13:55 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/01576973.shtml)
-- 2026-06-29 13:42 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/8622015517.shtml)
-- 2026-06-29 13:58 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/0582541752.shtml)
-- 2026-06-29 13:36 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/162153871.shtml)
-- 2026-06-29 13:57 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/874381.shtml)
-- 2026-06-29 13:42 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/704980345.shtml)
-- 2026-06-29 13:59 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/217357612.shtml)
-- 2026-06-29 14:01 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/28386384.shtml)
-- 2026-06-29 14:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/3354517499.shtml)
-- 2026-06-29 14:02 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/964695936.shtml)
-- 2026-06-29 14:01 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/37701546107.shtml)
-- 2026-06-29 13:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/70980563.shtml)
-- 2026-06-29 13:42 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/594211855.shtml)
+- 2026-06-29 13:51 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/039237158242.shtml)
+- 2026-06-29 13:59 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/27665624135.shtml)
+- 2026-06-29 13:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/0701951444.shtml)
+- 2026-06-29 14:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/410302921.shtml)
+- 2026-06-29 14:07 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/533754300.shtml)
+- 2026-06-29 13:44 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/7878717.shtml)
+- 2026-06-29 14:03 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/5985600367.shtml)
+- 2026-06-29 13:49 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/08516025218.shtml)
+- 2026-06-29 14:04 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/77587390.shtml)
+- 2026-06-29 13:59 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/8865932548.shtml)
+- 2026-06-29 14:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/26326.shtml)
+- 2026-06-29 14:01 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/076565080874.shtml)
+- 2026-06-29 14:02 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/41937260426.shtml)
+- 2026-06-29 13:44 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/536529594510.shtml)
+- 2026-06-29 13:54 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/2817193.shtml)

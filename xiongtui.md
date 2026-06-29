@@ -1,53 +1,59 @@
-# “五一”假期中国口岸日均出入境人员预计将达225万人次
+# 中东危机蔓延，为何日本餐桌上的香蕉告急？
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新社北京4月28日电 (记者 郭超凯)记者28日从中国国家移民管理局获悉，据预测，“五一”假期全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最高通关量将突破240万人次。 大型国际机场口岸出入境客流增长明显，上海浦东、广州白云、北京首都、成都天府、深圳宝安等口岸预计日均出入境人员分别为10.2万、5.5万、4.9万、2万、2万人次；毗邻港澳陆路口岸旅客
+澎湃新闻记者 王晶晶 中东冲突下的石油供应危机，正将香蕉赶出日本餐桌。 据新加坡《联合早报》6月2日报道，日本面临近50年来最严重的香蕉供应短缺，民众担心未来恐怕有钱也未必买得到香蕉。报道称，日本进口香蕉时通常仍处于青绿色状态，之后须利用乙烯气体催熟后才能上市销售。 香蕉是日本消费量最高的水果。负责处理日本约三成进口香蕉的果品企业Farmind坦言，其乙烯库存正逐渐减少，目前正
 
 ## 正文
 
-中新社北京4月28日电 (记者 郭超凯)记者28日从中国国家移民管理局获悉，据预测，“五一”假期全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最高通关量将突破240万人次。
+澎湃新闻记者 王晶晶 中东冲突下的石油供应危机，正将香蕉赶出日本餐桌。
 
-大型国际机场口岸出入境客流增长明显，上海浦东、广州白云、北京首都、成都天府、深圳宝安等口岸预计日均出入境人员分别为10.2万、5.5万、4.9万、2万、2万人次；毗邻港澳陆路口岸旅客流量将持续高位运行，其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸预计日均出入境人员将分别达到23万、21万、18万、12万、10万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到39.6万、12.9万、12.1万、11.6万人次。
+据新加坡《联合早报》6月2日报道，日本面临近50年来最严重的香蕉供应短缺，民众担心未来恐怕有钱也未必买得到香蕉。
 
-日前，国家移民管理局就做好“五一”假期口岸边防检查工作作出专门部署，要求全国边检机关加强出入境流量和口岸运行情况监测、及时发布本口岸出入境客流情况，为广大民众出行提供参考；加强勤务组织，开足查验通道，确保中国公民出入境通关排队不超过30分钟；密切与口岸联检单位和相关部门协作配合，稳妥做好高峰期客流疏导和交通配套综合保障，共同确保口岸通关安全高效顺畅。
+报道称，日本进口香蕉时通常仍处于青绿色状态，之后须利用乙烯气体催熟后才能上市销售。
 
-(完)
+香蕉是日本消费量最高的水果。
+
+负责处理日本约三成进口香蕉的果品企业Farmind坦言，其乙烯库存正逐渐减少，目前正积极寻求新的国内及海外供应来源。
+
+部分相关成本已上涨近10倍，并警告：“如果这种情况持续下去，香蕉可能会从日本人的餐桌上消失。
+
+”这场香蕉危机的根源，在于日本对中东能源的高度依赖。
+
+据日本共同社数据，日本约80%的石脑油供应依赖中东地区。
 
 ## 相关推荐
 
-- 2026-06-29 13:36 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 13:50 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 13:59 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 13:45 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 14:04 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 13:37 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 13:45 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 13:41 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 13:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 13:46 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 13:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:01 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 13:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 14:04 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 13:37 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 14:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 13:59 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 13:58 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 14:06 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 14:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 13:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 13:52 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 13:58 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 13:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 14:08 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 13:59 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/182261749041.shtml)
-- 2026-06-29 13:37 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/66129332165.shtml)
-- 2026-06-29 14:01 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/815512657.shtml)
-- 2026-06-29 13:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/812464348.shtml)
-- 2026-06-29 13:39 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/987236916.shtml)
-- 2026-06-29 13:36 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/2231533595.shtml)
-- 2026-06-29 13:43 - [千与千寻](https://www.share.minike.top/Article/details/730003072985.shtml)
-- 2026-06-29 13:52 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/357360.shtml)
-- 2026-06-29 13:41 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/1140128.shtml)
-- 2026-06-29 13:46 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/7480910394.shtml)
-- 2026-06-29 14:03 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/32516317118.shtml)
-- 2026-06-29 13:38 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/3199899.shtml)
-- 2026-06-29 13:46 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/180242040.shtml)
-- 2026-06-29 13:51 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/124764813.shtml)
-- 2026-06-29 14:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/94584757395.shtml)
+- 2026-06-29 14:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/613409767200.shtml)
+- 2026-06-29 13:54 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/8359196.shtml)
+- 2026-06-29 13:49 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/78286797909.shtml)
+- 2026-06-29 14:02 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/4697411.shtml)
+- 2026-06-29 14:07 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/36785.shtml)
+- 2026-06-29 13:47 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/3681920422.shtml)
+- 2026-06-29 13:59 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/8320742.shtml)
+- 2026-06-29 14:02 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/5049465895.shtml)
+- 2026-06-29 13:43 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/6201376.shtml)
+- 2026-06-29 13:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/5017582.shtml)
+- 2026-06-29 13:58 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/591603999909.shtml)
+- 2026-06-29 13:53 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/96153.shtml)
+- 2026-06-29 13:57 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/81437114455.shtml)
+- 2026-06-29 13:57 - [第一炉香](https://www.share.minike.top/Article/details/154691.shtml)
+- 2026-06-29 13:59 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/386401272.shtml)

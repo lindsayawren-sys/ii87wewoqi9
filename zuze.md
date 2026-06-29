@@ -1,57 +1,61 @@
-# 成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改
+# 贾跃亭、乐视控股，被恢复执行26亿元
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。接到投诉后，成都
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据天眼查信息，近日，乐视控股（北京）有限公司（下称乐视控股）、贾跃亭新增一则恢复执行信息，执行标的26.1亿余元，执行法院为北京市第三中级人民法院。 目前，乐视控股共有3条被执行人信息，涉及金额超过27亿元。还有5条失信被执行人信息，涉及金额约1.54亿元。历史失信被执行人信息47条，涉及金额超93亿元。此
 
 ## 正文
 
-中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。
+据天眼查信息，近日，乐视控股（北京）有限公司（下称乐视控股）、贾跃亭新增一则恢复执行信息，执行标的26.1亿余元，执行法院为北京市第三中级人民法院。
 
-接到投诉后，成都市市场监管局迅速统筹部署，组织相关区(市)县市场监管局开展专项调查处理工作。
+目前，乐视控股共有3条被执行人信息，涉及金额超过27亿元。
 
-根据《中华人民共和国食品安全法》《四川省食品安全条例》相关规定，从事食品生产、食品销售、餐饮服务，应当依法取得许可或者备案。
+还有5条失信被执行人信息，涉及金额约1.54亿元。
 
-其中，对未按规定备案的商家，责令限期改正；对未取得食品经营许可的初次违法行为，若符合市场监管总局《市场监管行政违法行为首违不罚清单(一)》相关条件，可依法不予处罚。
+历史失信被执行人信息47条，涉及金额超93亿元。
 
-目前，成都市市场监管局已责成各区(市)县市场监管局，在全市范围内开展棋牌室、茶楼专项排查工作。
+此外，公司还存有538条股权冻结信息和278条限制消费令。
 
-经查，部分茶楼确实存在未取得食品经营许可或未按规定备案从事食品经营的行为。
+天眼查显示，乐视控股成立于2011年9月，法定代表人为吴孟，注册资本10亿元人民币。
 
-针对此类商家，市场监管部门已依法责令其整改，并逐一指导其补办食品经营许可证或按规定完成备案。
+股东贾跃亭持股92.07%，汇鑫资产管理（天津）合伙企业（有限合伙）和晨曦资产管理（天津）合伙企业（有限合伙）均持股3.2143%，贾跃芳持股1.5%。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 14:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 13:49 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:50 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 13:54 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 14:04 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 13:57 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 13:50 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 14:01 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:43 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 13:58 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 14:07 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 13:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 14:03 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 13:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 13:54 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 13:50 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 14:11 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 13:44 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 13:56 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 13:48 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 14:01 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 13:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 13:53 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 13:46 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/026198865.shtml)
-- 2026-06-29 13:59 - [强⁶](http://www.blog.kurohicncr.top/Article/details/151432005.shtml)
-- 2026-06-29 13:37 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/9829607.shtml)
-- 2026-06-29 13:48 - [流金岁月](http://www.blog.minike.top/Article/details/5147681332.shtml)
-- 2026-06-29 13:43 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/66503762202.shtml)
-- 2026-06-29 14:03 - [一见倾心](https://www.blog.minike.top/Article/details/628566.shtml)
-- 2026-06-29 13:38 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/38631001014.shtml)
-- 2026-06-29 13:40 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/159254053.shtml)
-- 2026-06-29 13:46 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/17765990991.shtml)
-- 2026-06-29 13:42 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/59308480.shtml)
-- 2026-06-29 13:47 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/63982146.shtml)
-- 2026-06-29 13:55 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/84562.shtml)
-- 2026-06-29 14:05 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/037637139902.shtml)
-- 2026-06-29 13:48 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/979694716.shtml)
-- 2026-06-29 13:43 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/04503.shtml)
+- 2026-06-29 14:09 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/6410216882.shtml)
+- 2026-06-29 14:04 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/85857.shtml)
+- 2026-06-29 13:49 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/114783771643.shtml)
+- 2026-06-29 13:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/569538.shtml)
+- 2026-06-29 13:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/17937006528.shtml)
+- 2026-06-29 14:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/530700124201.shtml)
+- 2026-06-29 14:04 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/2234696.shtml)
+- 2026-06-29 14:10 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/9692166593.shtml)
+- 2026-06-29 13:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/88755.shtml)
+- 2026-06-29 14:02 - [王楚钦3比0周启豪](https://www.share.minike.top/Article/details/664121950778.shtml)
+- 2026-06-29 14:00 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.kurohicncr.top/Article/details/14302132.shtml)
+- 2026-06-29 14:04 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/70502761.shtml)
+- 2026-06-29 13:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/37421480962.shtml)
+- 2026-06-29 13:59 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/148958131.shtml)
+- 2026-06-29 14:00 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/72857751335.shtml)

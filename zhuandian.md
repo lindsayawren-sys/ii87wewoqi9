@@ -1,58 +1,61 @@
-# “五一”假期中国跨区域人员流动量将创历史同期新高
+# 年内股价翻约12倍！ “大模型股王”拟回A冲刺科创板
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新社北京4月28日电 (记者 刘文文)中国交通运输部运输服务司副司长高博28日在北京表示，“五一”假期，全社会跨区域人员流动量将创历史同期新高。 高博在当日交通运输部举行的4月份例行新闻发布会上介绍，“五一”假期期间，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。假期期间全国交通运输运行将呈现几个特点。 一方面，单日人流、客流、车流将创历史同
+本报记者 梁傲男 6月1日晚间，北京智谱华章科技股份有限公司（简称“智谱”）在港交所公告称，于2026年6月1日举行的董事会会议上，公司建议向相关监管机构申请配发及发行A股，并向上海证券交易所申请该等A股在科创板上市及准予交易。 公告显示，公司建议A股发行数量占建议A股发行完成后公司总股本的2%至8%之间（不含因超额配股权获行使而将予发行的任何A股），即不少于909.88万股且
 
 ## 正文
 
-中新社北京4月28日电 (记者 刘文文)中国交通运输部运输服务司副司长高博28日在北京表示，“五一”假期，全社会跨区域人员流动量将创历史同期新高。
+本报记者 梁傲男 6月1日晚间，北京智谱华章科技股份有限公司（简称“智谱”）在港交所公告称，于2026年6月1日举行的董事会会议上，公司建议向相关监管机构申请配发及发行A股，并向上海证券交易所申请该等A股在科创板上市及准予交易。
 
-高博在当日交通运输部举行的4月份例行新闻发布会上介绍，“五一”假期期间，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。
+公告显示，公司建议A股发行数量占建议A股发行完成后公司总股本的2%至8%之间（不含因超额配股权获行使而将予发行的任何A股），即不少于909.88万股且不多于3876.9万股新A股。
 
-假期期间全国交通运输运行将呈现几个特点。
+董事会会议亦已通过其他有关建议A股发行的附加决议案，并将于年度股东会上提请股东批准。
 
-一方面，单日人流、客流、车流将创历史同期新高。
+根据公告，此次A股募资净额预计不超过150亿元，其中120亿元用于“人工智能通用基座大模型”项目，20亿元用于“大模型MaaS一站式服务平台”，10亿元用于补充流动资金。
 
-他称，预计假日首日，也就是5月1日，全社会跨区域人员流动量将达3.44亿人次，同比增长3.3%；全国高速公路车流量将达到7000万辆次，同比增长3.5%。
+对于A股上市的原因，智谱在公告中提到，一是为了持续投资研发工作。
 
-另一方面，假期公路出行占主导，预计假日期间公路人员流动量占比约为91.6%，全国高速公路车流量日均约6400万辆次。
+A股发行将为公司提供额外资金，并使公司能够进一步推进其大语言模型产品及服务的研发及商业化。
 
-高博还指出，新能源车自驾出行越来越多，预计假日期间全国高速公路日均新能源车约1540万辆次，占比24%，同比增长33%。
+尤其是，A股发行所得款项净额预计用于名为“人工智能通用基座大模型”及“大模型MaaS一站式服务平台”两个项目，两者均旨在推动模型能力实现代际跃升，并促进AI技术在实体经济中的大规模落地应用。
 
-此外，铁路、民航保持高位运行，预计假日客流分别达1.07亿人次、1175万人次，公路中长距离出行需求将集中释放。
+二是提升在AI领域的影响力及话语权。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 13:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 13:38 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 13:56 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 13:55 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 14:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 13:54 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 13:45 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 13:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 13:43 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 14:00 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 13:43 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 14:01 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 14:10 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 14:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 14:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 14:03 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 13:42 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 14:07 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 14:08 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 14:08 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 13:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:55 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 14:02 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/7059871.shtml)
-- 2026-06-29 13:56 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/276553497.shtml)
-- 2026-06-29 13:48 - [女心理师](http://www.share.kurohicncr.top/Article/details/20695769.shtml)
-- 2026-06-29 13:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/350602689980.shtml)
-- 2026-06-29 14:03 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/3988253190.shtml)
-- 2026-06-29 13:40 - [斗破苍穹](https://www.share.minike.top/Article/details/0355384470.shtml)
-- 2026-06-29 13:43 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/1219255.shtml)
-- 2026-06-29 13:54 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/134206331.shtml)
-- 2026-06-29 13:49 - [我和我的家乡](https://www.blog.minike.top/Article/details/566853.shtml)
-- 2026-06-29 13:59 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/6403135.shtml)
-- 2026-06-29 14:05 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/0313000729.shtml)
-- 2026-06-29 13:47 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/208779642167.shtml)
-- 2026-06-29 13:45 - [一生一世](http://www.share.kurohicncr.top/Article/details/38650698.shtml)
-- 2026-06-29 13:38 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/4360355.shtml)
-- 2026-06-29 13:43 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/599115.shtml)
+- 2026-06-29 13:57 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/7026797188.shtml)
+- 2026-06-29 14:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/12217689.shtml)
+- 2026-06-29 13:58 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/52800460.shtml)
+- 2026-06-29 14:04 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/16739991.shtml)
+- 2026-06-29 13:43 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/24725.shtml)
+- 2026-06-29 13:58 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/36004.shtml)
+- 2026-06-29 13:45 - [毒液2](https://www.share.kurohicncr.top/Article/details/33319.shtml)
+- 2026-06-29 13:53 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/042958580976.shtml)
+- 2026-06-29 13:52 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/580049773805.shtml)
+- 2026-06-29 14:00 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/7174373893.shtml)
+- 2026-06-29 13:50 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/490641.shtml)
+- 2026-06-29 13:58 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/43548047531.shtml)
+- 2026-06-29 13:55 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/564622.shtml)
+- 2026-06-29 13:43 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/631864.shtml)
+- 2026-06-29 13:51 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/78068.shtml)

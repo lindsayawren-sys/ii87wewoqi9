@@ -1,55 +1,61 @@
-# 从退役复出到两度奥运夺冠 徐诗晓称人生“躺平”不可取
+# 给孩子戴OK镜，必须要知道这些事
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 21:12 来源：中国新闻网 4月28日，皮划艇奥运冠军徐诗晓在江西南昌参加2026数字经济知识产权保护与发展交流会期间接受记者采访，聚焦当下热议的“躺平”话题，结合自身运动生涯感悟分享看法。 徐诗晓表示，当遭遇瓶颈与挫折时，出现情绪低谷、进行短暂休整实属正常，但一味选择“躺平”并不可取，逃避问题只会让困境反复出现。 徐诗晓曾经过退役后又选择复
+近年来，一种被称作OK镜的角膜塑形镜 成为越来越多家长为孩子选择的 近视防控手段之一 OK镜是否真的能够防控近视？ 什么样的孩子适合配戴？ 配镜之后又有哪些注意事项？ 超全指南来了 首都医科大学附属北京同仁医院医学视光中心主任医师、博士生导师宋红欣提醒，长时间配戴OK镜之后，眼睛会慢慢适应OK镜存在的状态，角膜的感觉会有轻微下降，如果配戴不合适，时间长了就会造成角膜的损伤，所以
 
 ## 正文
 
-发布时间：2026年04月28日 21:12 来源：中国新闻网 4月28日，皮划艇奥运冠军徐诗晓在江西南昌参加2026数字经济知识产权保护与发展交流会期间接受记者采访，聚焦当下热议的“躺平”话题，结合自身运动生涯感悟分享看法。
+近年来，一种被称作OK镜的角膜塑形镜 成为越来越多家长为孩子选择的 近视防控手段之一 OK镜是否真的能够防控近视？
 
-徐诗晓表示，当遭遇瓶颈与挫折时，出现情绪低谷、进行短暂休整实属正常，但一味选择“躺平”并不可取，逃避问题只会让困境反复出现。
+什么样的孩子适合配戴？
 
-徐诗晓曾经过退役后又选择复出，并两度夺得奥运冠军。
+配镜之后又有哪些注意事项？
 
-深耕竞技赛场多年，她坦言职业生涯历经无数难关，正是一次次直面挑战、主动突破，才得以不断成长进步。
+超全指南来了 首都医科大学附属北京同仁医院医学视光中心主任医师、博士生导师宋红欣提醒，长时间配戴OK镜之后，眼睛会慢慢适应OK镜存在的状态，角膜的感觉会有轻微下降，如果配戴不合适，时间长了就会造成角膜的损伤，所以定期复查尤为关键。
 
-在徐诗晓看来，挫折并非坏事，困境往往是成长进阶的契机。
+在每次复查的时候，医生会根据检查的结果判断患者塑形镜配戴状况，必要时医生需要进行角膜塑形镜的调整。
 
-青年应怀揣决心与毅力，以乐观心态直面难题，坦然接纳不完美，正视自身短板，在迎难而上中完善自我，在持续奋进中奔赴成长，书写属于自己的人生答卷。
+初次配戴者须严格按时复查，必要时由医生调整镜片参数。
 
-(记者 华山 制作 徐妙巧） 责任编辑：【周驰】
+复查的时间建议为初次戴镜者应在配戴后的第一天、第一周、第二周、第一个月、第三个月复查，以后维持每三个月定期到医院进行复查。
+
+来源：央视新闻微信公众号
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 14:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 13:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 13:57 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 13:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 13:39 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 13:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 13:36 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 13:36 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 13:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 14:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 13:48 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 13:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 13:45 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 13:56 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 14:03 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 13:56 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 13:54 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 13:56 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 14:07 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 14:03 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 13:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 13:49 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/46140010.shtml)
-- 2026-06-29 14:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/171779105510.shtml)
-- 2026-06-29 13:59 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/4908294235.shtml)
-- 2026-06-29 14:04 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/673458536.shtml)
-- 2026-06-29 13:37 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/92538897968.shtml)
-- 2026-06-29 14:03 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/95142673.shtml)
-- 2026-06-29 13:58 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/2437993.shtml)
-- 2026-06-29 14:02 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/5776385255.shtml)
-- 2026-06-29 14:05 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/836818553391.shtml)
-- 2026-06-29 13:46 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/424427.shtml)
-- 2026-06-29 14:02 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/22866.shtml)
-- 2026-06-29 13:55 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/36689651.shtml)
-- 2026-06-29 14:05 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/659308867.shtml)
-- 2026-06-29 13:52 - [AG 钟意](http://www.blog.minike.top/Article/details/9140872012.shtml)
-- 2026-06-29 13:53 - [第一炉香](https://www.share.kurohicncr.top/Article/details/47193.shtml)
+- 2026-06-29 13:51 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/21085085.shtml)
+- 2026-06-29 14:08 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/936878.shtml)
+- 2026-06-29 13:47 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/251206530655.shtml)
+- 2026-06-29 14:08 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/44274.shtml)
+- 2026-06-29 13:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/14810930.shtml)
+- 2026-06-29 13:43 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/742325434622.shtml)
+- 2026-06-29 13:49 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/38353.shtml)
+- 2026-06-29 13:59 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/7199511.shtml)
+- 2026-06-29 13:48 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/65886415.shtml)
+- 2026-06-29 13:48 - [沙丘](http://www.share.minike.top/Article/details/085774291703.shtml)
+- 2026-06-29 14:06 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/88834180432.shtml)
+- 2026-06-29 14:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/7164627.shtml)
+- 2026-06-29 13:52 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/089831563.shtml)
+- 2026-06-29 14:06 - [金刚川](http://www.blog.kurohicncr.top/Article/details/734596899.shtml)
+- 2026-06-29 14:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/45317596.shtml)

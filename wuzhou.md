@@ -1,56 +1,57 @@
-# 芬兰Kone拟斥资约240亿美元收购TK Elevator
+# 治理“影子账号”骗捐乱象，守护每一份善意
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。 根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。 若纳入债务计算，本次交易对TK Elevator的整体估值约294亿
+山东6岁肿瘤女孩的抗癌纪实视频被批量高仿搬运，收款链接遭恶意篡改；云南白血病患儿的求助信息被异地账号冒用复刻，公众善意捐款最终流入不法分子口袋——据5月31日红星新闻报道，近日，多地曝光类似乱象，一些隐匿在网络中的“影子账号”，通过复制苦难、伪造求助收割爱心、骗取患儿救命钱。所谓“影子账号”，是不法分子以患儿或家长名义开设的高仿账号，他们批量搬运原账号的治疗视频，绑定私人收款二
 
 ## 正文
 
-芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。
+山东6岁肿瘤女孩的抗癌纪实视频被批量高仿搬运，收款链接遭恶意篡改；云南白血病患儿的求助信息被异地账号冒用复刻，公众善意捐款最终流入不法分子口袋——据5月31日红星新闻报道，近日，多地曝光类似乱象，一些隐匿在网络中的“影子账号”，通过复制苦难、伪造求助收割爱心、骗取患儿救命钱。
 
-根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。
+所谓“影子账号”，是不法分子以患儿或家长名义开设的高仿账号，他们批量搬运原账号的治疗视频，绑定私人收款二维码，假借求助之名骗取捐款，而真正的患儿家属往往毫不知情。
 
-若纳入债务计算，本次交易对TK Elevator的整体估值约294亿欧元。
+相较于传统骗捐行为，“影子账号”盗播骗捐呈现出低成本、产业化、隐蔽化的新特征。
 
-Kone表示，合并后的集团总部仍设在芬兰，年销售额约205亿欧元，员工总数超10万人。
+不法分子借助爬虫技术批量抓取治疗影像与求助文案，去水印、改落款、换收款码，零成本打造真假难辨的求助账号，利用网友的悲悯之心持续获利。
 
-2025年，电梯企业Otis Worldwide营收达144亿美元，Schindler Holding收为139亿美元。
+每笔被骗善款，都是患儿的救命钱，其家庭本就承受病痛与经济重压，还要耗费大量时间举证打假、维权举报，部分家长账号还被误认为“借病牟利”、遭举报封禁，家庭苦难之上再添创伤。
 
-此次并购预计每年可产生7亿欧元协同收益。
+不仅如此，此类乱象更深远的危害，在于对社会善意的透支，对公益信任的消解。
 
-Kone首席执行官Philippe Delorme表示：“在行业快速变革的环境下，本次合并将大幅提升我们的能力，更好满足客户对于可靠、可持续解决方案与服务的增长需求。
+那些真正身处绝境、急需帮扶的重病患儿家庭，可能会陷入真诚求助无人信、艰难发声无人助的困境。
 
-” “同时还将加速我们向服务与设备现代化业务的战略转型，增强企业抗风险能力。
+治理“影子账号”骗捐乱象，守护纯粹的网络公益，要打出技术管控、法律惩戒、生态治理的组合拳。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 14:04 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 13:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 13:53 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 13:56 - [T1对战KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:45 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 13:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 14:04 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 13:56 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 14:11 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 14:04 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 13:49 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 14:08 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 14:08 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 13:52 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 14:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 13:49 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 13:49 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/520835114747.shtml)
-- 2026-06-29 14:02 - [A股](http://www.share.kurohicncr.top/Article/details/14888730626.shtml)
-- 2026-06-29 14:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/50531.shtml)
-- 2026-06-29 13:56 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/8104547901.shtml)
-- 2026-06-29 13:59 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/704974731.shtml)
-- 2026-06-29 13:46 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/6555296.shtml)
-- 2026-06-29 13:39 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/295189851.shtml)
-- 2026-06-29 13:47 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/5746183.shtml)
-- 2026-06-29 13:38 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/893829017660.shtml)
-- 2026-06-29 13:44 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/643964.shtml)
-- 2026-06-29 14:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/48920.shtml)
-- 2026-06-29 13:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/65316983.shtml)
-- 2026-06-29 13:47 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/798508463.shtml)
-- 2026-06-29 13:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/5383591.shtml)
-- 2026-06-29 13:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/28479.shtml)
+- 2026-06-29 13:42 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/830113850.shtml)
+- 2026-06-29 13:54 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/28565285.shtml)
+- 2026-06-29 13:47 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/289049735088.shtml)
+- 2026-06-29 13:46 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/615479365530.shtml)
+- 2026-06-29 14:05 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/1133828.shtml)
+- 2026-06-29 13:54 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/987030.shtml)
+- 2026-06-29 13:47 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/929304537120.shtml)
+- 2026-06-29 13:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/368513.shtml)
+- 2026-06-29 14:06 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6935355494.shtml)
+- 2026-06-29 14:05 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/26939833.shtml)
+- 2026-06-29 14:04 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/688681.shtml)
+- 2026-06-29 14:01 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/073201911145.shtml)
+- 2026-06-29 13:56 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/63753.shtml)
+- 2026-06-29 13:59 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.kurohicncr.top/Article/details/76731889827.shtml)
+- 2026-06-29 14:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/876917378881.shtml)

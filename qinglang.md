@@ -1,46 +1,45 @@
-# 毕马威丢失五角大楼合同后 退出美国联邦政府审计业务
+# 华宝基金红利风向标：两市回暖，现金流策略表现优秀
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-英国金融时报周三援引消息人士报道，四大会计师事务所之一的毕马威将关停其美国联邦政府审计业务，并重新调配 450 余名美国员工，此前该公司失去了一份每年价值 6000 万美元的五角大楼合作合同。责任编辑：王永生
+责任编辑：常福强
 
 ## 正文
 
-英国金融时报周三援引消息人士报道，四大会计师事务所之一的毕马威将关停其美国联邦政府审计业务，并重新调配 450 余名美国员工，此前该公司失去了一份每年价值 6000 万美元的五角大楼合作合同。
-
-责任编辑：王永生
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 14:00 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 14:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 14:03 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 13:54 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 13:45 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 13:46 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 13:46 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 13:50 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 13:54 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 13:43 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 13:44 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 13:56 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 14:08 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 14:05 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 13:43 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 13:47 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 14:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 14:04 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 14:08 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 14:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 13:55 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 13:56 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 14:03 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/253981090.shtml)
-- 2026-06-29 13:48 - [一见倾心](http://www.share.kurohicncr.top/Article/details/76426.shtml)
-- 2026-06-29 13:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/21860.shtml)
-- 2026-06-29 13:38 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/818679903852.shtml)
-- 2026-06-29 13:57 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/97528583971.shtml)
-- 2026-06-29 13:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/0041209.shtml)
-- 2026-06-29 13:39 - [Canna纳尔8-0对位单杀Doran](https://www.blog.kurohicncr.top/Article/details/0964368044.shtml)
-- 2026-06-29 13:52 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/78327499768.shtml)
-- 2026-06-29 13:44 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/302984106.shtml)
-- 2026-06-29 13:37 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/0458455.shtml)
-- 2026-06-29 13:48 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/334052.shtml)
-- 2026-06-29 14:01 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/202762.shtml)
-- 2026-06-29 14:00 - [速度与激情9](https://www.blog.minike.top/Article/details/82100152.shtml)
-- 2026-06-29 13:49 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/382283726.shtml)
-- 2026-06-29 13:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/70829040581.shtml)
+- 2026-06-29 14:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/0291246.shtml)
+- 2026-06-29 14:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/0660974409.shtml)
+- 2026-06-29 14:01 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/2737521.shtml)
+- 2026-06-29 13:48 - [灿如繁星定档](http://www.share.minike.top/Article/details/16374958603.shtml)
+- 2026-06-29 13:43 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/3140592907.shtml)
+- 2026-06-29 14:04 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/702943441.shtml)
+- 2026-06-29 13:52 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/319922.shtml)
+- 2026-06-29 14:04 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/0292681.shtml)
+- 2026-06-29 13:42 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/680959.shtml)
+- 2026-06-29 13:55 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/86657.shtml)
+- 2026-06-29 13:42 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/87577819.shtml)
+- 2026-06-29 14:04 - [强⁶](http://www.blog.minike.top/Article/details/54586921366.shtml)
+- 2026-06-29 14:07 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/510262.shtml)
+- 2026-06-29 13:49 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/232277.shtml)
+- 2026-06-29 14:05 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/6136239.shtml)

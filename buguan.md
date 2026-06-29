@@ -1,61 +1,57 @@
-# OpenAI在冲刺IPO关键期未达营收和用户目标
+# 聚焦可玩性食品等 两部门发布案例保护未成年人权益
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-OpenAI最近未能实现其设定的新用户和营收目标，这一挫折已在公司部分领导层中引发担忧，他们担心该公司能否支撑起在数据中心上的巨额开销。 据知情人士透露，首席财务官萨拉．弗莱尔（Sarah Friar）已告知公司其他领导者，她担心如果营收增长不够快，公司可能无法支付未来的算力合同。 这些知情人士称，近几个月来，董事们也更密切地审视了OpenAI的数据中心交易，并对首席执行官山姆
+最高人民法院、国家市场监督管理总局6月2日联合发布一批未成年人权益保护典型案例，在其中一起案例中，明确产品缺陷致未成年人遭受损害，生产者应承担侵权责任。 小刘（9岁）购买某食品公司生产的针筒糖食用，并使用针筒往口中注水玩耍，误将针筒封堵件吸入嘴中导致窒息死亡。小刘的父母将某食品公司诉至法院，请求某食品公司赔偿医疗费、死亡赔偿金、丧葬费等。 经查明，该针筒糖为凝胶糖果，采用仿注射
 
 ## 正文
 
-OpenAI最近未能实现其设定的新用户和营收目标，这一挫折已在公司部分领导层中引发担忧，他们担心该公司能否支撑起在数据中心上的巨额开销。
+最高人民法院、国家市场监督管理总局6月2日联合发布一批未成年人权益保护典型案例，在其中一起案例中，明确产品缺陷致未成年人遭受损害，生产者应承担侵权责任。
 
-据知情人士透露，首席财务官萨拉．弗莱尔（Sarah Friar）已告知公司其他领导者，她担心如果营收增长不够快，公司可能无法支付未来的算力合同。
+小刘（9岁）购买某食品公司生产的针筒糖食用，并使用针筒往口中注水玩耍，误将针筒封堵件吸入嘴中导致窒息死亡。
 
-这些知情人士称，近几个月来，董事们也更密切地审视了OpenAI的数据中心交易，并对首席执行官山姆．阿尔特曼（Sam Altman）在业务放缓的情况下仍努力确保获得更多算力的做法提出了质疑。
+小刘的父母将某食品公司诉至法院，请求某食品公司赔偿医疗费、死亡赔偿金、丧葬费等。
 
-在该公司可能于年底前进行IPO之际，这种对支出的审视正在制约阿尔特曼一度无边的雄心。
+经查明，该针筒糖为凝胶糖果，采用仿注射型塑料容纳管包装（含管道、封堵件、活塞等部件），外包装注明0至3岁禁用及食用方法等，但单支产品标签未标注食用方法。
 
-据知情人士称，弗莱尔和其他高管现在正寻求控制成本，并加强业务运营的纪律性，这有时会让他们与首席执行官产生分歧。
+经鉴定，针筒糖属预包装食品，但未按《食品安全国家标准 预包装食品标签通则》推荐要求标示食用方法；包装物（即针筒）具有可玩性，但其管帽在儿童常见玩耍使用状态下，存在被误吞的可能性。
 
-阿尔特曼和弗莱尔在一份联合声明中表示：“我们的共识非常明确：必须倾尽全力获取算力，并为此并肩作战。
+审理法院认为，案涉针筒糖标注为食品，具有可玩性，应当同时符合儿童玩具标准和食品安全标准。
 
-”他们说，任何关于两人存在分歧或在确保新计算资源方面有所退缩的说法都是“荒谬的”。
+但该针筒糖存在设计缺陷，某食品公司作为生产者，应当对小刘的死亡承担相应赔偿责任。
 
-多年来，阿尔特曼一直试图锁定尽可能多的数据中心算力，他认为算力短缺是OpenAI增长的最大制约因素。
+同时，刘某和王某作为小刘的监护人，未尽到教育、管理和保护的监护职责，应自行承担一定责任。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:50 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 13:54 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 13:41 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:51 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 13:52 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 14:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 13:44 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 13:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 13:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 13:41 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 13:40 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 13:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 13:46 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:01 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 13:49 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 14:00 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 13:42 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 13:55 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 14:02 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 14:05 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 14:07 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 13:57 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/7293128.shtml)
-- 2026-06-29 13:49 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/11668.shtml)
-- 2026-06-29 13:39 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/4889672.shtml)
-- 2026-06-29 13:38 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/1647631.shtml)
-- 2026-06-29 13:50 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/5456039.shtml)
-- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/478912992.shtml)
-- 2026-06-29 13:45 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/96800.shtml)
-- 2026-06-29 13:37 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/73584.shtml)
-- 2026-06-29 13:51 - [青春环游记第三季](https://www.share.minike.top/Article/details/179542176.shtml)
-- 2026-06-29 14:00 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/50911469.shtml)
-- 2026-06-29 13:37 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/105695392.shtml)
-- 2026-06-29 13:36 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/192858760117.shtml)
-- 2026-06-29 13:55 - [5万块的威力](http://www.blog.minike.top/Article/details/65153331.shtml)
-- 2026-06-29 13:54 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/5654893.shtml)
-- 2026-06-29 13:52 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/30966.shtml)
+- 2026-06-29 13:59 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/2498823.shtml)
+- 2026-06-29 14:07 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/948627762677.shtml)
+- 2026-06-29 14:03 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/6767502947.shtml)
+- 2026-06-29 13:44 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/026380497.shtml)
+- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/8181302744.shtml)
+- 2026-06-29 14:02 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/46279.shtml)
+- 2026-06-29 14:07 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/0046260793.shtml)
+- 2026-06-29 13:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/0683691.shtml)
+- 2026-06-29 14:08 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/67364139792.shtml)
+- 2026-06-29 13:57 - [中国战机大片上新](https://www.blog.minike.top/Article/details/352454164.shtml)
+- 2026-06-29 14:00 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/8442256034.shtml)
+- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/765679.shtml)
+- 2026-06-29 13:56 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/4943897829.shtml)
+- 2026-06-29 13:45 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/06472919.shtml)
+- 2026-06-29 13:48 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5838553073.shtml)

@@ -1,58 +1,60 @@
-# 业绩不见起色，贝瑞基因深陷亏损泥淖
+# 佳鑫国际资源早盘涨逾7% 钨价整体呈现筑底反弹态势
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-自2021年开始，贝瑞基因在收入持续下滑的同时，公司也持续深陷亏损泥淖。贝瑞基因4月28日晚披露的2025年年报及4月29日晚披露的2026年一季报显示，公司业绩仍不见起色。 具体来看，2025年，贝瑞基因实现营业收入9.30亿元，同比下降13.76%；归母净利润和扣非净利润分别为-1.97亿元和-2.06亿元，亏损额较2024年略有增加。公司表示，受宏观经济环境、市场需求结构
+佳鑫国际资源（03858）早盘涨超7%，截至发稿，股价上涨6.76%，现报93.95港元，成交额2.55亿港元。 据中钨在线，近几个交易日，钨价整体呈现筑底反弹态势。其6月3日发布的钨市场行情显示，65%黑钨精矿价格45万元/标吨，仲钨酸铵（APT）价格73万元/吨。中邮证券指出，5月以来，国内APT企业检修、减产，减产保价等举措有效消化前期库存。随着原料端价格逐步企稳，冶炼厂
 
 ## 正文
 
-自2021年开始，贝瑞基因在收入持续下滑的同时，公司也持续深陷亏损泥淖。
+佳鑫国际资源（03858）早盘涨超7%，截至发稿，股价上涨6.76%，现报93.95港元，成交额2.55亿港元。
 
-贝瑞基因4月28日晚披露的2025年年报及4月29日晚披露的2026年一季报显示，公司业绩仍不见起色。
+据中钨在线，近几个交易日，钨价整体呈现筑底反弹态势。
 
-具体来看，2025年，贝瑞基因实现营业收入9.30亿元，同比下降13.76%；归母净利润和扣非净利润分别为-1.97亿元和-2.06亿元，亏损额较2024年略有增加。
+其6月3日发布的钨市场行情显示，65%黑钨精矿价格45万元/标吨，仲钨酸铵（APT）价格73万元/吨。
 
-公司表示，受宏观经济环境、市场需求结构性调整及行业竞争加剧等因素影响，公司营业收入有所下降。
+中邮证券指出，5月以来，国内APT企业检修、减产，减产保价等举措有效消化前期库存。
 
-今年一季度，贝瑞基因实现营业收入2.10亿元，同比下降3.46%；归母净利润和扣非净利润分别为-1974万元和-1971万元，亏损额较2025年一季度扩大。
+随着原料端价格逐步企稳，冶炼厂挺价意愿增强，下游刚需采购陆续跟进，市场交易活跃度小幅回升。
 
-公司表示，亏损主要系报告期内营业收入下降、研发费用增加所致。
+叠加大厂长单定价落地形成支撑，APT价格跌势止步，整体逐步迈入筑底阶段。
 
-年报显示，贝瑞基因依托自主可控的高通量测序技术平台与三代HiFi测序技术平台，以“AI+基因科技”双引擎驱动，构建了覆盖出生缺陷三级预防及罕见病诊断的完整产品生态，形成了从筛查到诊断、从科研到临床的闭环商业体系。
+中金认为，短期看，压制钨价的因素正逐步缓解，同时钨的新兴需求及战略属性持续强化。
 
-贝瑞基因在2025年年报中表示，公司始终坚持“创新研发、临床试验、科研服务、产品商业化”的成功商业发展模式。
+一是中东冲突趋于缓和驱动滞胀恐慌有所缓解，国内持货商已现惜售情绪。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 13:48 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 13:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 13:48 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 14:02 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 13:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 13:48 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 13:58 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 13:40 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 13:46 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 13:55 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 13:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 13:58 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 14:03 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 14:05 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 13:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 14:10 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 14:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 13:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 14:03 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 14:06 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 13:59 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 13:43 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 13:49 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 13:51 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/63716799.shtml)
-- 2026-06-29 13:45 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/31160941345.shtml)
-- 2026-06-29 13:52 - [金刚川](https://www.share.kurohicncr.top/Article/details/02494679728.shtml)
-- 2026-06-29 13:58 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/9232950544.shtml)
-- 2026-06-29 13:51 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/1236024.shtml)
-- 2026-06-29 14:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/351096428140.shtml)
-- 2026-06-29 14:04 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/3691952615.shtml)
-- 2026-06-29 13:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/525603165.shtml)
-- 2026-06-29 13:55 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/8448842198.shtml)
-- 2026-06-29 13:46 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/782672.shtml)
-- 2026-06-29 13:50 - [小娘惹](https://www.share.kurohicncr.top/Article/details/3019272986.shtml)
-- 2026-06-29 13:53 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/4902120674.shtml)
-- 2026-06-29 13:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/1936014.shtml)
-- 2026-06-29 13:44 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/634629.shtml)
-- 2026-06-29 13:55 - [强⁶](https://www.blog.kurohicncr.top/Article/details/29563268.shtml)
+- 2026-06-29 13:59 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/447426505298.shtml)
+- 2026-06-29 13:53 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/0370546065.shtml)
+- 2026-06-29 14:03 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/4365540793.shtml)
+- 2026-06-29 13:43 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/7435449232.shtml)
+- 2026-06-29 13:59 - [2025年人口增长10强城市出炉](http://www.blog.kurohicncr.top/Article/details/08059679.shtml)
+- 2026-06-29 13:55 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/614968.shtml)
+- 2026-06-29 14:06 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/34771.shtml)
+- 2026-06-29 14:06 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/44299006.shtml)
+- 2026-06-29 13:57 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/2358724177.shtml)
+- 2026-06-29 13:55 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/543408.shtml)
+- 2026-06-29 14:08 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/0288934066.shtml)
+- 2026-06-29 13:52 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/574805946.shtml)
+- 2026-06-29 13:50 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/72980879097.shtml)
+- 2026-06-29 13:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/45417126722.shtml)
+- 2026-06-29 13:52 - [急先锋](http://www.share.minike.top/Article/details/488238307341.shtml)

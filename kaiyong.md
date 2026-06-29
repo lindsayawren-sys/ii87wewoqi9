@@ -1,47 +1,56 @@
-# 布伦特原油跳涨至111美元上方
+# ImmunityBio在ASCO 2026发布肺癌与膀胱癌新临床及对比数据
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-随着交易员们解读美伊关于重新开放霍尔木兹海峡的信号，布伦特原油价格涨破每桶111美元，为英国石油公司等能源股提供了支撑。责任编辑：张俊 SF065
+ImmunityBio在2026年美国临床肿瘤学会年会上公布了两项壁报和一篇在线摘要，展示了其IL-15受体激动剂免疫疗法ANKTIVA在非小细胞肺癌和膀胱癌领域的最新临床数据。 在非小细胞肺癌方面，两项随机III期试验数据值得关注。第一项为ResQ201A试验，评估ANKTIVA联合替雷利珠单抗及多西他赛，对比多西他赛单药治疗免疫检查点抑制剂耐药的晚期或转移性非小细胞肺癌患者
 
 ## 正文
 
-随着交易员们解读美伊关于重新开放霍尔木兹海峡的信号，布伦特原油价格涨破每桶111美元，为英国石油公司等能源股提供了支撑。
+ImmunityBio在2026年美国临床肿瘤学会年会上公布了两项壁报和一篇在线摘要，展示了其IL-15受体激动剂免疫疗法ANKTIVA在非小细胞肺癌和膀胱癌领域的最新临床数据。
 
-责任编辑：张俊 SF065
+在非小细胞肺癌方面，两项随机III期试验数据值得关注。
+
+第一项为ResQ201A试验，评估ANKTIVA联合替雷利珠单抗及多西他赛，对比多西他赛单药治疗免疫检查点抑制剂耐药的晚期或转移性非小细胞肺癌患者的疗效。
+
+第二项为QUILT-2.023试验，评估ANKTIVA联合检查点抑制剂作为一线治疗方案在非小细胞肺癌患者中的疗效。
+
+针对卡介苗无应答的非肌层浸润性膀胱癌，ImmunityBio公布了一项匹配调整间接比较分析结果，对比ANKTIVA联合BCG与帕博利珠单抗的疗效。
+
+该分析基于QUILT-3.032试验与帕博利珠单抗单药治疗数据的间接比较。
+
+此前在2026年美国泌尿外科协会年会上，ImmunityBio已公布了ANKTIVA+BCG相对于其他两种FDA批准疗法的间接比较结果。
+
+数据显示：与nadofaragene firadenovec-vncg相比，ANKTIVA+BCG治疗的患者在任何时间点达到完全缓解的可能性是其两倍（69.7% vs 53.4%），中位完全缓解持续时间超过两倍（22.1个月 vs 9.7个月），并将膀胱切除风险降低60%；与TAR-200相比，ANKTIVA+BCG在12个月时完全缓解率数值更高（49.2% vs 45.9%），且任何级别治疗相关不良事件显著更少（61.7% vs 83.5%）。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 14:02 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 13:53 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 13:39 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 14:02 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 13:38 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 13:40 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 14:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 14:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 13:44 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 13:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 13:36 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 14:08 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 13:50 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 14:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 13:57 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:07 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 13:42 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 13:59 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 13:50 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 13:56 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:09 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/7757753.shtml)
-- 2026-06-29 13:50 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/53444440294.shtml)
-- 2026-06-29 13:37 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/18871833072.shtml)
-- 2026-06-29 13:47 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/703526.shtml)
-- 2026-06-29 13:50 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/0882934.shtml)
-- 2026-06-29 13:53 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/491008429474.shtml)
-- 2026-06-29 13:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/26173637.shtml)
-- 2026-06-29 14:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/922647849327.shtml)
-- 2026-06-29 14:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/0546360715.shtml)
-- 2026-06-29 13:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/39148695.shtml)
-- 2026-06-29 13:50 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/24917.shtml)
-- 2026-06-29 14:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/78280017033.shtml)
-- 2026-06-29 13:49 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/59988550923.shtml)
-- 2026-06-29 13:39 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/152801708656.shtml)
-- 2026-06-29 13:50 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/128843775169.shtml)
+- 2026-06-29 14:09 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/74350674357.shtml)
+- 2026-06-29 13:48 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/43113626.shtml)
+- 2026-06-29 13:43 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/017860724271.shtml)
+- 2026-06-29 13:56 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/05120238.shtml)
+- 2026-06-29 14:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/275159898.shtml)
+- 2026-06-29 13:58 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/10361868.shtml)
+- 2026-06-29 13:50 - [时光音乐会](https://www.blog.minike.top/Article/details/453739100.shtml)
+- 2026-06-29 13:58 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/9438734.shtml)
+- 2026-06-29 13:59 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/6280700099.shtml)
+- 2026-06-29 14:04 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/11115.shtml)
+- 2026-06-29 13:51 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/923349610840.shtml)
+- 2026-06-29 14:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/98468.shtml)
+- 2026-06-29 14:09 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/5706408.shtml)
+- 2026-06-29 14:11 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/643554805690.shtml)
+- 2026-06-29 14:07 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/388687060.shtml)

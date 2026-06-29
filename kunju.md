@@ -1,59 +1,58 @@
-# 一季度广东各级消委会为消费者挽回经济损失1.02亿元
+# 芝商所5月交易量创历史新高 日均合约3320万份
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 许青青)据广东省消费者委员会28日介绍，今年一季度，广东全省各级消费者委员会共接待消费者来访和咨询3万人次，处理消费者投诉20.70万件，其中受理并调解结案15.28万件，为消费者挽回经济损失1.02亿元。从投诉类别看，商品类投诉呈下降趋势，服务类投诉同比上升。数据显示，一季度广东全省各级消委会收到商品类投诉占投诉总量的38.70%，同比下降11
+芝加哥商品交易所集团6月2日公布，2026年5月日均交易量达3320万份合约，同比增长15%，创下该月份的历史最高纪录。在全球经济不确定性加剧的背景下，投资者对风险对冲工具的需求持续上升，推动这家全球最大衍生品交易所的交投活跃度显著提升。 数据显示，利率产品仍是芝商所交易量最大的板块，5月日均交易量达1880万份合约，同比增长16%。其中2年期美国国债期货表现尤为亮眼，月均交易
 
 ## 正文
 
-中新网广州4月29日电 (记者 许青青)据广东省消费者委员会28日介绍，今年一季度，广东全省各级消费者委员会共接待消费者来访和咨询3万人次，处理消费者投诉20.70万件，其中受理并调解结案15.28万件，为消费者挽回经济损失1.02亿元。
+芝加哥商品交易所集团6月2日公布，2026年5月日均交易量达3320万份合约，同比增长15%，创下该月份的历史最高纪录。
 
-从投诉类别看，商品类投诉呈下降趋势，服务类投诉同比上升。
+在全球经济不确定性加剧的背景下，投资者对风险对冲工具的需求持续上升，推动这家全球最大衍生品交易所的交投活跃度显著提升。
 
-数据显示，一季度广东全省各级消委会收到商品类投诉占投诉总量的38.70%，同比下降11.92%。
+数据显示，利率产品仍是芝商所交易量最大的板块，5月日均交易量达1880万份合约，同比增长16%。
 
-服务类占投诉总量的60.65%，同比增长9.10%。
+其中2年期美国国债期货表现尤为亮眼，月均交易量达190万份合约，创下历史新高，并在5月26日单日创下700万份合约的成交纪录。
 
-居服务类投诉前三位的是互联网服务、生活社会服务和教育培训服务，占服务类投诉总量78.26%。
+10年期美国国债期货交易量增长30%，达360万份合约；超长期国债期货月均交易量达78.3万份，同样刷新历史纪录。
 
-从投诉性质分析，售后服务、合同和质量三类性质投诉量较大，占投诉总量的85.44%。
+股指产品日均交易量为800万份合约，同比增长21%。
 
-该三类投诉问题的投诉量长期位居前列。
+微型E-Mini纳斯达克100期货交易量大幅增长47%，达220万份合约，反映出散户投资者对科技股相关衍生品的浓厚兴趣。
 
-同比增速最快的为虚假宣传类投诉，同比上涨172.67%。
+能源板块方面，WTI原油期货交易量增长4%至93.2万份合约，而微型WTI原油期货交易量飙升317%至27.2万份合约。
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 13:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 14:03 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 13:40 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 13:59 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 13:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 13:37 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 13:45 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 13:42 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 13:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 13:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 13:45 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 13:44 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 13:52 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 14:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:56 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 14:07 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:57 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 14:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 14:08 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 14:06 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 14:11 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/414737208.shtml)
-- 2026-06-29 13:59 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/8324104693.shtml)
-- 2026-06-29 13:46 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/04073095.shtml)
-- 2026-06-29 13:50 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/92326.shtml)
-- 2026-06-29 13:42 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/725414389.shtml)
-- 2026-06-29 13:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/96048.shtml)
-- 2026-06-29 14:03 - [一生一世](http://www.share.minike.top/Article/details/49514.shtml)
-- 2026-06-29 13:47 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/65089.shtml)
-- 2026-06-29 13:50 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/01695.shtml)
-- 2026-06-29 13:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/78976.shtml)
-- 2026-06-29 13:52 - [流金岁月](http://www.blog.minike.top/Article/details/19663015.shtml)
-- 2026-06-29 13:55 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/425331191.shtml)
-- 2026-06-29 14:04 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/369591.shtml)
-- 2026-06-29 13:58 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/9949992329.shtml)
-- 2026-06-29 14:00 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/3804849.shtml)
+- 2026-06-29 13:45 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/675031946.shtml)
+- 2026-06-29 14:07 - [起风了](http://www.blog.minike.top/Article/details/029375.shtml)
+- 2026-06-29 13:44 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/61750874.shtml)
+- 2026-06-29 14:03 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/76311533394.shtml)
+- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/795196036.shtml)
+- 2026-06-29 13:58 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/3676800.shtml)
+- 2026-06-29 14:11 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/4445139.shtml)
+- 2026-06-29 14:06 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/06789.shtml)
+- 2026-06-29 13:57 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/5054319.shtml)
+- 2026-06-29 14:06 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/543687844.shtml)
+- 2026-06-29 13:53 - [5万块的威力](https://www.share.minike.top/Article/details/1579827.shtml)
+- 2026-06-29 13:54 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/6323486751.shtml)
+- 2026-06-29 14:06 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/57719006.shtml)
+- 2026-06-29 14:11 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/232954115.shtml)
+- 2026-06-29 13:56 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/84759470217.shtml)

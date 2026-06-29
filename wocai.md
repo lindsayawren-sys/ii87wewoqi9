@@ -1,44 +1,46 @@
-# 三一重工：第一季度净利润同比增长0.46%
+# 美元走强 有报道称伊朗停止与美国的沟通
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，4月29日，三一重工公告称，2026年第一季度实现营业收入240.42亿元，同比增长14.22%；归属于上市公司股东的净利润为24.81亿元，同比增长0.46%。
+彭博美元现货指数飙升至盘中高点，所有G-10货币相对于美元当日都走低，之前塔斯尼姆通讯社报道称，为了抗议以色列相关活动，伊朗将停止与美国的沟通。 彭博美元现货指数一度上涨0.3%；新西兰元和瑞士法郎领跌G-10货币。责任编辑：刘明亮
 
 ## 正文
 
-每经AI快讯，4月29日，三一重工公告称，2026年第一季度实现营业收入240.42亿元，同比增长14.22%；归属于上市公司股东的净利润为24.81亿元，同比增长0.46%。
+彭博美元现货指数飙升至盘中高点，所有G-10货币相对于美元当日都走低，之前塔斯尼姆通讯社报道称，为了抗议以色列相关活动，伊朗将停止与美国的沟通。
+
+彭博美元现货指数一度上涨0.3%；新西兰元和瑞士法郎领跌G-10货币。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 14:05 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 13:43 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 13:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 13:43 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 13:42 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 13:37 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 13:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 13:59 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 13:42 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 13:41 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 13:53 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 13:54 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 13:57 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 13:42 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 13:59 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 13:43 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 14:10 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 13:52 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 14:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/438166751572.shtml)
-- 2026-06-29 14:01 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/89312.shtml)
-- 2026-06-29 14:01 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/58324187840.shtml)
-- 2026-06-29 13:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/921680599.shtml)
-- 2026-06-29 13:38 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/73138992783.shtml)
-- 2026-06-29 13:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5601030806.shtml)
-- 2026-06-29 13:55 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/67883859768.shtml)
-- 2026-06-29 13:59 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/3023331664.shtml)
-- 2026-06-29 13:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/1086283.shtml)
-- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/992750313606.shtml)
-- 2026-06-29 13:57 - [强⁶](http://www.blog.kurohicncr.top/Article/details/103172406862.shtml)
-- 2026-06-29 13:56 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/3605480892.shtml)
-- 2026-06-29 13:37 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/51007233.shtml)
-- 2026-06-29 13:55 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1363424480.shtml)
-- 2026-06-29 13:58 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/9269932.shtml)
+- 2026-06-29 14:04 - [女心理师](http://www.share.minike.top/Article/details/4210115105.shtml)
+- 2026-06-29 13:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/673435727.shtml)
+- 2026-06-29 13:53 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/00080714916.shtml)
+- 2026-06-29 14:01 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/00585588.shtml)
+- 2026-06-29 13:49 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/75565532672.shtml)
+- 2026-06-29 13:42 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/76328.shtml)
+- 2026-06-29 14:08 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/780514.shtml)
+- 2026-06-29 13:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/988535.shtml)
+- 2026-06-29 14:07 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/77762889.shtml)
+- 2026-06-29 14:11 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/339676.shtml)
+- 2026-06-29 13:58 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/3478149.shtml)
+- 2026-06-29 14:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/7314022340.shtml)
+- 2026-06-29 14:03 - [105年初心滚烫](http://www.blog.minike.top/Article/details/6157240175.shtml)
+- 2026-06-29 14:07 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/72585009169.shtml)
+- 2026-06-29 14:02 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/76053669923.shtml)

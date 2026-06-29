@@ -1,60 +1,59 @@
-# 招商银行中层调整 多位分行干部获提任
+# InCoax与美国一级运营商签署光纤延伸解决方案协议
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 招商银行再次向招商金控输送高管。 近日，招商金控发布公告称，聘任郭锡昆为首席合规官、总法律顾问，此前其为招行总行法律合规部副总经理。 履历显示，郭锡昆，厦门大学民商法学专业硕士，持有法律职业资格证书，曾任招商银行深圳分行法律合规部总经理助理、副总经理、总经理，总行法律合规部总经理助理、副总经理等职务。 除了新加盟的郭锡昆，招商金控还有多位高管具备招行背景
+瑞典宽带接入解决方案提供商InCoax Networks AB于6月2日宣布，已与美国一家一级电信运营商签署协议，为其光纤延伸解决方案在光纤宽带安装领域建立商业合作框架。 该协议紧接InCoax光纤延伸产品的近期发布。该解决方案旨在解决光纤宽带大规模部署中的实际安装难题：光纤入户点往往与住宅网关的最佳位置不一致。通过复用室内现有同轴电缆，该方案可减少铺设新室内光纤或以太网线的需
 
 ## 正文
 
-来源：金融人事mini 招商银行再次向招商金控输送高管。
+瑞典宽带接入解决方案提供商InCoax Networks AB于6月2日宣布，已与美国一家一级电信运营商签署协议，为其光纤延伸解决方案在光纤宽带安装领域建立商业合作框架。
 
-近日，招商金控发布公告称，聘任郭锡昆为首席合规官、总法律顾问，此前其为招行总行法律合规部副总经理。
+该协议紧接InCoax光纤延伸产品的近期发布。
 
-履历显示，郭锡昆，厦门大学民商法学专业硕士，持有法律职业资格证书，曾任招商银行深圳分行法律合规部总经理助理、副总经理、总经理，总行法律合规部总经理助理、副总经理等职务。
+该解决方案旨在解决光纤宽带大规模部署中的实际安装难题：光纤入户点往往与住宅网关的最佳位置不一致。
 
-除了新加盟的郭锡昆，招商金控还有多位高管具备招行背景，现任总经理王小青、副总经理江朝阳、李德林都曾担任过招行高管，副总经理江朝阳、朱立伟目前还是招行非执行董事。
+通过复用室内现有同轴电缆，该方案可减少铺设新室内光纤或以太网线的需求，从而降低安装复杂度并加速客户激活。
 
-总行外，2026年4月份的监管批复信息显示，招商银行有多家一级分行行长、行长助理的任职资格获准，均为系统内提任。
+InCoax首席执行官Jakob Tobieson表示：“与美国一级运营商达成的这一协议，是对我们战略方向的重要验证。
 
-4月22日，张虎任招行乌鲁木齐分行行长；曾任呼和浩特分行行长助理、公司金融事业部总裁、副行长，2021年4月任大连分行副行长，2024年12月任沈阳分行党委委员。
+它为我们光纤延伸方案的核心应用场景之一建立了商业框架，也再次印证了复用现有同轴基础设施、简化室内光纤安装的现实意义。
 
-4月21日，何嫣任招行杭州分行行长助理；曾任杭州高新支行行长。
+” 该解决方案主要面向独栋住宅及部分小型公寓楼，基于MoCA 2.5技术，以非托管桥接方式运行，支持对称多千兆连接。
 
-4月14日，王迪伟任招行重庆分行行长助理。
+运营商可沿用其现有光纤平台、住宅网关及客户开通流程，无需对原有系统进行大规模改造。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 13:53 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 14:03 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 14:03 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 13:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 13:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 13:59 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 13:39 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 13:39 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 13:43 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:02 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 13:47 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 13:50 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 14:05 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 13:58 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 14:06 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 13:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 14:06 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 13:47 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 13:54 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 13:49 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:52 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 13:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:07 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 14:09 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 13:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/3260121358.shtml)
-- 2026-06-29 13:37 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/119784.shtml)
-- 2026-06-29 13:54 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/8964893.shtml)
-- 2026-06-29 13:41 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/1082683004.shtml)
-- 2026-06-29 13:38 - [一生一世](http://www.blog.kurohicncr.top/Article/details/47074622.shtml)
-- 2026-06-29 13:48 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/182737193277.shtml)
-- 2026-06-29 14:03 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/205482051.shtml)
-- 2026-06-29 13:48 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/074901.shtml)
-- 2026-06-29 13:57 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/63218664478.shtml)
-- 2026-06-29 13:48 - [天道](https://www.blog.minike.top/Article/details/8455565.shtml)
-- 2026-06-29 13:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/84458.shtml)
-- 2026-06-29 13:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/33025553361.shtml)
-- 2026-06-29 13:43 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/990843338.shtml)
-- 2026-06-29 14:01 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/74136302245.shtml)
-- 2026-06-29 13:36 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/378179.shtml)
+- 2026-06-29 13:45 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/28092196159.shtml)
+- 2026-06-29 13:51 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/4165523.shtml)
+- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/65309760.shtml)
+- 2026-06-29 13:49 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/096038749296.shtml)
+- 2026-06-29 13:43 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/1409672.shtml)
+- 2026-06-29 13:43 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/67532041.shtml)
+- 2026-06-29 13:54 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/3515490409.shtml)
+- 2026-06-29 13:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/371073917760.shtml)
+- 2026-06-29 13:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/37173711.shtml)
+- 2026-06-29 13:43 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/86420.shtml)
+- 2026-06-29 13:55 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/12692.shtml)
+- 2026-06-29 14:04 - [A股限售股解禁一览](http://www.share.kurohicncr.top/Article/details/8319344081.shtml)
+- 2026-06-29 14:03 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/3969302863.shtml)
+- 2026-06-29 13:53 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5524171662.shtml)
+- 2026-06-29 13:44 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/987860.shtml)

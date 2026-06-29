@@ -1,61 +1,57 @@
-# 长江有色：28日锡价下跌 看跌浓厚现货交投谨慎
+# 强势反弹！002384，午后涨停
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-今日午盘后沪锡走势：今日沪锡合约2606下跌，开盘价报392310元/吨，盘中最高报392510元/吨，最低报380660元/吨，结算价报385460元/吨，收盘报384600元/吨，下跌7870元，跌幅为2.01%；沪锡主力月2606合约成交量187538手，持仓量39956手，较前一日增加887手 今日现货锡价走势：据长江有色金属网获悉，4月28日ccmn长江综合市场1#锡
+昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。今年以来，该股已累计大涨近150%。 具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。昨日，该股盘中跳水跌停。 据了解，该股昨日突然跳水，或是受一些市场传闻影响。昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出
 
 ## 正文
 
-今日午盘后沪锡走势：今日沪锡合约2606下跌，开盘价报392310元/吨，盘中最高报392510元/吨，最低报380660元/吨，结算价报385460元/吨，收盘报384600元/吨，下跌7870元，跌幅为2.01%；沪锡主力月2606合约成交量187538手，持仓量39956手，较前一日增加887手 今日现货锡价走势：据长江有色金属网获悉，4月28日ccmn长江综合市场1#锡价报381400元/吨-384400元/吨，均价报382900元/吨，较前一日价格下跌9500元；今日长江现货市场1#锡价报382000元/吨-384000元/吨，均价383000元/吨，较上一交易价格下跌1300元/吨。
+昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。
 
-ccmn锡市分析：本交易日美元指数延续98关口高位偏强运行，当前市场焦点聚焦美联储议息会议决议及美联储官员言论等重要议程之上，当前来看美伊和谈仍存不确定性，多头资金保持谨慎，美股呈现分化，此外，五一节前资金避险离场、多头获利了结，锡价大幅度回调。
+今年以来，该股已累计大涨近150%。
 
-供需端现状 全球锡市整体呈供需紧平衡、边际逐步松动格局。
+具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。
 
-供应端多方约束持续发力，缅甸核心矿区复产持续推进，印尼政策管控导致出口波动收缩，刚果（金）地缘扰动拖累产销物流，叠加高品位矿源紧缺、开采成本走高，原料短板持续压制海内外冶炼开工，行业整体供应弹性不足、增量空间有限。
+昨日，该股盘中跳水跌停。
 
-需求端结构性分化凸显，AI 算力、汽车电子、半导体封装等新兴赛道需求强劲，持续为锡消费形成核心支撑；而马口铁、传统消费电子、通用焊料等传统领域需求平淡乏力，旺季复苏力度不足。
+据了解，该股昨日突然跳水，或是受一些市场传闻影响。
 
-现货交投 期货市场空头情绪浓厚，价格破位下行，直接压制现货交投信心。
+昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出现问题、核心业务发展不及预期等内容。
 
-现货商家为促成交普遍加大出货力度，现货市场贸易商让利出货，终端消费面跟进乏力，下游用户在高位价格回落后，采购行为反而更趋谨慎，多数选择观望等待价格进一步明朗。
+对此，有券商研究员称，公司业务一切进展顺利，索尔思早已经于2025年正式完成交割+并表+控制权的转移，不存在收购风险。
 
-宏观面焦点聚焦及锡价走势预测 市场将聚焦美国一季度经济数据与美联储官员讲话，这将直接影响降息预期与美元走势。
+收购已经全部落地，财务也已经于去年10月并表。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 13:44 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 14:03 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 13:38 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 14:03 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 13:46 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 13:45 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 13:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 14:05 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 13:44 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:03 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 14:04 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 14:01 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 14:10 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 13:58 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 14:11 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 13:55 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 14:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 13:58 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 14:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 13:46 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 13:55 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 13:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [送你一朵小红花](https://www.blog.minike.top/Article/details/8787430.shtml)
-- 2026-06-29 13:48 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/82474.shtml)
-- 2026-06-29 13:38 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/386724917.shtml)
-- 2026-06-29 13:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/3801988.shtml)
-- 2026-06-29 13:52 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/66996.shtml)
-- 2026-06-29 13:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/26846.shtml)
-- 2026-06-29 13:53 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/4484282092.shtml)
-- 2026-06-29 13:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/435534698498.shtml)
-- 2026-06-29 14:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/117391.shtml)
-- 2026-06-29 13:58 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/45802132.shtml)
-- 2026-06-29 13:53 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/6306626662.shtml)
-- 2026-06-29 14:05 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/163620.shtml)
-- 2026-06-29 13:50 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/3617327.shtml)
-- 2026-06-29 13:49 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/43039850595.shtml)
-- 2026-06-29 13:46 - [三都主：淘汰赛我会支持日本](https://www.share.kurohicncr.top/Article/details/09190311073.shtml)
+- 2026-06-29 13:55 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/76299.shtml)
+- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/22106.shtml)
+- 2026-06-29 13:45 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/56820730.shtml)
+- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7537170.shtml)
+- 2026-06-29 14:00 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/828240048700.shtml)
+- 2026-06-29 13:44 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/572956034.shtml)
+- 2026-06-29 13:52 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.kurohicncr.top/Article/details/6332609.shtml)
+- 2026-06-29 13:56 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/2343055.shtml)
+- 2026-06-29 13:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/667779190132.shtml)
+- 2026-06-29 13:55 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/86667746.shtml)
+- 2026-06-29 13:42 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/128049487.shtml)
+- 2026-06-29 14:02 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/0243311.shtml)
+- 2026-06-29 14:01 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/257171.shtml)
+- 2026-06-29 13:42 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/21561733.shtml)
+- 2026-06-29 13:45 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/0671136.shtml)

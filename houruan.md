@@ -1,56 +1,57 @@
-# “五一”假期北京迎出行高峰 8条地铁延时运营
+# 英唐智控又要"买买买"了：拟8亿吞下两个标的背后，一场长达十年的转型困局
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-记者从北京市交通委获悉，临近“五一”，旅游与市民出游客流叠加，北京市将迎来交通流量高峰。据预测，假期铁路、民航、省际客运、公路自驾进出京日均487.9万人次，较2025年同期上升7.4%，创“五一”新高；5月1日单日客流达544.8万人次，有望刷新单日进出京历史纪录。5月1日0时至5月5日24时，北京市域内所有收费公路对7座以下(含7座)载客车辆免收通行费。 此次假期北京出行呈
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？ 01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。一
 
 ## 正文
 
-记者从北京市交通委获悉，临近“五一”，旅游与市民出游客流叠加，北京市将迎来交通流量高峰。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据预测，假期铁路、民航、省际客运、公路自驾进出京日均487.9万人次，较2025年同期上升7.4%，创“五一”新高；5月1日单日客流达544.8万人次，有望刷新单日进出京历史纪录。
+来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？
 
-5月1日0时至5月5日24时，北京市域内所有收费公路对7座以下(含7座)载客车辆免收通行费。
+01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。
 
-此次假期北京出行呈现以下特点： 一是自驾成主力。
+一个月后预案出炉：公司拟以发行股份+现金的方式，拿下桂林光隆集成科技100%股权和上海奥简微电子100%股权，交易总对价约8.08亿元，同时向不超过35名特定投资者募集配套资金。
 
-公路自驾成为市民进出京旅行的首选方式，占进出京客流总量的约六成，日均交通量304.7万辆次。
+表面叙事非常熟悉且合乎逻辑——“从低毛利的电子元器件分销商，向高壁垒的半导体IDM企业华丽转身”。
 
-二是“前出后进”潮汐特征明显。
+从交易草案看，光隆集成主攻光开关、光保护模块和OCS光路交换机等，广泛应用于光网络保护、测试系统、AI智算中心、数据中心光路调度、光传感、激光雷达等领域。
 
-假期首尾形成“双峰”，4月30日和5月1日为出京高峰；5月4日、5日为返京高峰，单日客流预计超过290万人次。
+奥简微电子则聚焦电源管理类模拟芯片，涵盖线性稳压器、降压转换器、升压转换器、升降压转换器等，广泛应用于消费电子、通信电子、医疗电子等，听起来个个踩在AI算力、光通信、国产替代的风口上。
 
-三是重点区域压力集中。
+英唐智控表示，与标的公司在市场、产品和技术等方面存在显著协同。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 13:59 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 13:46 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 13:59 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 13:50 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 13:46 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 13:39 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:38 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 13:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 13:39 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 13:43 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 13:51 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 14:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 14:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 13:54 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 14:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 14:07 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 14:01 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 13:56 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:52 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/25079108207.shtml)
-- 2026-06-29 14:00 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/2163500.shtml)
-- 2026-06-29 13:45 - [周生如故](https://www.share.minike.top/Article/details/36076032693.shtml)
-- 2026-06-29 13:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/782868.shtml)
-- 2026-06-29 13:44 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/25147759.shtml)
-- 2026-06-29 13:53 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/370711815641.shtml)
-- 2026-06-29 13:58 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/53320719.shtml)
-- 2026-06-29 13:37 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/1499839746.shtml)
-- 2026-06-29 13:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/7499781370.shtml)
-- 2026-06-29 14:05 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/90329.shtml)
-- 2026-06-29 13:52 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/4676697099.shtml)
-- 2026-06-29 14:02 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/739083643040.shtml)
-- 2026-06-29 13:40 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/71481.shtml)
-- 2026-06-29 13:47 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/2832689.shtml)
-- 2026-06-29 13:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/901224755077.shtml)
+- 2026-06-29 13:56 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/55553808.shtml)
+- 2026-06-29 14:09 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/780445.shtml)
+- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/58912001103.shtml)
+- 2026-06-29 13:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/5729129.shtml)
+- 2026-06-29 13:47 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/409357813.shtml)
+- 2026-06-29 14:01 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/42415059719.shtml)
+- 2026-06-29 13:56 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/6412650425.shtml)
+- 2026-06-29 14:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/100271.shtml)
+- 2026-06-29 13:52 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/87366838627.shtml)
+- 2026-06-29 14:08 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/7144266.shtml)
+- 2026-06-29 13:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/36519.shtml)
+- 2026-06-29 14:11 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/873053.shtml)
+- 2026-06-29 13:47 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/2411063524.shtml)
+- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/3123141402.shtml)
+- 2026-06-29 14:10 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7567203.shtml)

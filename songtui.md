@@ -1,54 +1,61 @@
-# 中国贸促会：澳大利亚将担任第四届链博会主宾国
+# Arrowhead将出席两场医疗大会 多项关键数据即将读出
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 17:46 来源：中国新闻网 4月29日，中国贸促会举行例行新闻发布会。新闻发言人王冠男在会上介绍，第四届链博会各项筹备工作进展顺利。截至目前，已在境内外举办61场路演推介活动，相关国际组织、外国政商界嘉宾和专业观众，以及广大中外企业参展参会情况超出预期，充分反映各国特别是国际工商界搭乘中国“十五五”经济发展快车和推动国际产业链供应链合作的强烈
+Arrowhead Pharmaceuticals周二宣布，公司将参加6月举行的两场重要医疗健康会议，并在会上进行炉边谈话。届时管理层将分享公司在RNA干扰疗法领域的最新进展。 根据公司公告，Arrowhead将出席2026年杰富瑞全球医疗保健会议，时间为6月2日至4日，其中炉边谈话定于6月3日上午8时10分（美国东部时间）举行。另一场是6月8日至10日举办的高盛第47届全球医
 
 ## 正文
 
-发布时间：2026年04月29日 17:46 来源：中国新闻网 4月29日，中国贸促会举行例行新闻发布会。
+Arrowhead Pharmaceuticals周二宣布，公司将参加6月举行的两场重要医疗健康会议，并在会上进行炉边谈话。
 
-新闻发言人王冠男在会上介绍，第四届链博会各项筹备工作进展顺利。
+届时管理层将分享公司在RNA干扰疗法领域的最新进展。
 
-截至目前，已在境内外举办61场路演推介活动，相关国际组织、外国政商界嘉宾和专业观众，以及广大中外企业参展参会情况超出预期，充分反映各国特别是国际工商界搭乘中国“十五五”经济发展快车和推动国际产业链供应链合作的强烈意愿。
+根据公司公告，Arrowhead将出席2026年杰富瑞全球医疗保健会议，时间为6月2日至4日，其中炉边谈话定于6月3日上午8时10分（美国东部时间）举行。
 
-王冠男提到，近日，澳大利亚政府正式确认，将担任第四届链博会主宾国，这是澳大利亚首次以官方国家级身份正式参与链博会，将由澳大利亚贸易投资委员会牵头组织设立澳大利亚国家馆和组织相关活动。
+另一场是6月8日至10日举办的高盛第47届全球医疗保健年会，炉边谈话安排在6月10日上午9时（美国东部时间）。
 
-(记者 迟瀚宇) 责任编辑：【刘湃】
+两场会议的演示材料及网络直播链接均可通过Arrowhead官网投资者关系页面获取。
+
+此次会议出席正值Arrowhead关键临床数据密集发布前夕。
+
+公司最受关注的催化剂是预计于第三季度公布的plozasiran治疗严重高甘油三酯血症的SHASTA-3和SHASTA-4研究数据。
+
+该药物作为一种预防胰腺炎的疗法被开发，若数据积极，美国市场销售峰值有望达到30亿至40亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 13:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 13:36 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 13:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 13:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 13:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 13:43 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 13:39 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 13:51 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 14:00 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 13:50 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 13:57 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 13:41 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 13:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 14:02 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 13:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 14:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 13:55 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 13:53 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 13:53 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:56 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 13:45 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:56 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 14:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 14:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 13:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 13:56 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/10227974.shtml)
-- 2026-06-29 13:52 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/634347647.shtml)
-- 2026-06-29 14:02 - [周生如故](https://www.blog.minike.top/Article/details/5465148966.shtml)
-- 2026-06-29 13:45 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/90154.shtml)
-- 2026-06-29 14:02 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/534594129355.shtml)
-- 2026-06-29 13:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/6633502726.shtml)
-- 2026-06-29 13:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/663020579870.shtml)
-- 2026-06-29 13:49 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/722743.shtml)
-- 2026-06-29 13:50 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/5960208994.shtml)
-- 2026-06-29 14:01 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/7056646310.shtml)
-- 2026-06-29 13:39 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/0318476238.shtml)
-- 2026-06-29 13:43 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/039607202802.shtml)
-- 2026-06-29 13:45 - [NBA交易](https://www.blog.minike.top/Article/details/5470231010.shtml)
-- 2026-06-29 14:04 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0149293332.shtml)
-- 2026-06-29 14:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/422020.shtml)
+- 2026-06-29 13:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/506342584850.shtml)
+- 2026-06-29 13:45 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/94481751066.shtml)
+- 2026-06-29 13:46 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/234296.shtml)
+- 2026-06-29 13:54 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/831569498675.shtml)
+- 2026-06-29 14:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/4073667738.shtml)
+- 2026-06-29 13:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/36694737141.shtml)
+- 2026-06-29 13:54 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/123248829614.shtml)
+- 2026-06-29 14:11 - [DSpark论文深度解读](http://www.share.minike.top/Article/details/03518.shtml)
+- 2026-06-29 13:57 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/078108463.shtml)
+- 2026-06-29 13:59 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/78883843328.shtml)
+- 2026-06-29 13:50 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/819054.shtml)
+- 2026-06-29 14:09 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/65853.shtml)
+- 2026-06-29 13:50 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/8125790.shtml)
+- 2026-06-29 14:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/8223052.shtml)
+- 2026-06-29 13:49 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/38389809.shtml)

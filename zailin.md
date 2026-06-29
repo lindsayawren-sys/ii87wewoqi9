@@ -1,47 +1,58 @@
-# 欧洲股市在亚洲下跌后企稳
+# 商业航天IPO生死局
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-在亚洲交易时段走软后，欧洲股市上涨，投资者正在权衡伊朗战争风险与油价上涨；英国石油公司等能源股领涨板块。责任编辑：张俊 SF065
+成败同框，悲喜交织。资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。 作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。 至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IP
 
 ## 正文
 
-在亚洲交易时段走软后，欧洲股市上涨，投资者正在权衡伊朗战争风险与油价上涨；英国石油公司等能源股领涨板块。
+成败同框，悲喜交织。
 
-责任编辑：张俊 SF065
+资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。
+
+作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。
+
+2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。
+
+至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IPO进程中，从民营火箭公司星河动力、蓝箭航天，到国资背景的快舟火箭（航天科工火箭技术有限公司），涵盖火箭制造、卫星制造与应用全产业链。
+
+一名接近快舟火箭的人士对经济观察报直言：“2026年是商业航天IPO的‘生死窗口期’，错过等于出局。
+
+” 为什么必须是2026？
+
+2026年之所以成为商业航天IPO的集中爆发年，是多重时间压力叠加的结果。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 13:40 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 13:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 13:46 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 14:06 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 13:51 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 13:45 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 13:52 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 13:50 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 13:43 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 13:46 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 13:42 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 13:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 14:10 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 13:48 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 13:57 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 13:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 13:48 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 14:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 13:56 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 14:02 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 14:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:10 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 13:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 13:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/75945636.shtml)
-- 2026-06-29 13:42 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/70057628848.shtml)
-- 2026-06-29 14:03 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/119316613482.shtml)
-- 2026-06-29 13:43 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/0150133231.shtml)
-- 2026-06-29 13:39 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/52446540.shtml)
-- 2026-06-29 13:46 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/62306067665.shtml)
-- 2026-06-29 13:59 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/306361.shtml)
-- 2026-06-29 14:00 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/5717763.shtml)
-- 2026-06-29 13:47 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/89124398.shtml)
-- 2026-06-29 13:52 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/390213583.shtml)
-- 2026-06-29 14:02 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/03865433.shtml)
-- 2026-06-29 13:48 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/14470676.shtml)
-- 2026-06-29 13:56 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/5379450.shtml)
-- 2026-06-29 13:55 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/19582213.shtml)
-- 2026-06-29 13:44 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/074383.shtml)
+- 2026-06-29 13:47 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/359919.shtml)
+- 2026-06-29 13:45 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/544476.shtml)
+- 2026-06-29 13:58 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/19985827881.shtml)
+- 2026-06-29 13:55 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/302052208350.shtml)
+- 2026-06-29 13:51 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/48987.shtml)
+- 2026-06-29 14:10 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/002699365220.shtml)
+- 2026-06-29 13:49 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/456356520922.shtml)
+- 2026-06-29 14:05 - [一生一世](https://www.blog.minike.top/Article/details/86604.shtml)
+- 2026-06-29 13:50 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/5756200116.shtml)
+- 2026-06-29 13:49 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/8563753794.shtml)
+- 2026-06-29 13:42 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/905248.shtml)
+- 2026-06-29 13:54 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/518415009.shtml)
+- 2026-06-29 14:10 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/67733196.shtml)
+- 2026-06-29 13:56 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/50550797.shtml)
+- 2026-06-29 14:01 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/31086.shtml)

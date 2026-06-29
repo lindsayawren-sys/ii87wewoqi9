@@ -1,56 +1,60 @@
-# 中国人民银行深圳市分行公示辖内未取得“支付”“征信”“信用评级”等金融业务资质经营主体名单
+# 华安基金：地缘缓和预期带动油价下跌，美债收益率延续回落
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，中国人民银行深圳市分行近日发布《关于公示深圳辖内未取得“支付”“征信”“信用评级”等金融业务资质经营主体名单（第一批）的公告》。为贯彻落实党的二十大和中央金融工作会议精神，规范市场秩序，强化对非法金融活动的源头管控，防范化解金融风险，保护金融消费者合法权益，对未取得“支付”“征信”“信用评级”等金融业务资质，但经营主体名称、经营范围包含金融类字样的机构予
+Ø 黄金行情回顾及主要观点： 上周伦敦现货黄金收于4，538美元/盎司（周环比0.6%），国内AU9999黄金收于985元/克（周环比-0.7%）。 上周美债收益率延续回落，宏观数据形成了对黄金的边际支撑。5月28日，美国4月核心PCE同比3.3%，完全符合市场预期，较前值3.2%温和走高但未出现超预期跳升。此外，美国一季度GDP年化增速从初值2.0%下修至1.6%，初请失业金
 
 ## 正文
 
-4月28日金融一线消息，中国人民银行深圳市分行近日发布《关于公示深圳辖内未取得“支付”“征信”“信用评级”等金融业务资质经营主体名单（第一批）的公告》。
+Ø 黄金行情回顾及主要观点： 上周伦敦现货黄金收于4，538美元/盎司（周环比0.6%），国内AU9999黄金收于985元/克（周环比-0.7%）。
 
-为贯彻落实党的二十大和中央金融工作会议精神，规范市场秩序，强化对非法金融活动的源头管控，防范化解金融风险，保护金融消费者合法权益，对未取得“支付”“征信”“信用评级”等金融业务资质，但经营主体名称、经营范围包含金融类字样的机构予以公示。
+上周美债收益率延续回落，宏观数据形成了对黄金的边际支撑。
 
-中国人民银行深圳市分行提醒称，请社会公众提高警惕，加强甄别，注意核实涉金融经营主体的经营资质，选择正规持牌机构提供的支付、征信、信用评级等金融服务，切实维护自身利益。
+5月28日，美国4月核心PCE同比3.3%，完全符合市场预期，较前值3.2%温和走高但未出现超预期跳升。
 
-对于相关机构，中国人民银行深圳市分行指出，名称、经营范围含涉金融字样易对金融消费者造成误导。
+此外，美国一季度GDP年化增速从初值2.0%下修至1.6%，初请失业金人数升至21.5万人，反映经济动能正在减速。
 
-请本名单所列经营主体及时至登记机关变更名称、经营范围，移除“支付”“征信”“信用评级”等字样，或向登记机关申请注销登记。
+数据公布后，美债收益率与美元指数回落，市场对美联储加息的紧迫感有所缓解，黄金的机会成本压力随之下降。
 
-责任编辑：曹睿潼
+上周油价大幅下跌，主因美伊协议预期升温，市场押注霍尔木兹海峡将重新开放，原油供应担忧缓解。
+
+布伦特原油周跌8.31%至约92美元/桶，油价走低直接削弱了输入性通胀压力，市场对美联储加息的紧迫感随之降温。
+
+短期看，油价与金价的跷跷板效应明显。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:40 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 13:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 13:53 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:38 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:55 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 13:52 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 13:54 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 13:54 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:41 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 13:36 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 13:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 13:50 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 13:41 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 14:10 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 13:58 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 13:43 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 14:10 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 13:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 13:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 13:54 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:43 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 13:54 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 13:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 13:58 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 13:47 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 14:04 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:02 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/934481.shtml)
-- 2026-06-29 14:01 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1493849575.shtml)
-- 2026-06-29 13:56 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/938289306.shtml)
-- 2026-06-29 13:44 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/53328.shtml)
-- 2026-06-29 13:56 - [急先锋](http://www.blog.minike.top/Article/details/45848.shtml)
-- 2026-06-29 13:36 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/308811.shtml)
-- 2026-06-29 13:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/3160858.shtml)
-- 2026-06-29 14:04 - [扫黑风暴](http://www.share.minike.top/Article/details/01268.shtml)
-- 2026-06-29 13:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/684103984.shtml)
-- 2026-06-29 13:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/355644088.shtml)
-- 2026-06-29 13:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/701023616655.shtml)
-- 2026-06-29 13:39 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/36648244.shtml)
-- 2026-06-29 13:46 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/09690631.shtml)
-- 2026-06-29 13:37 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/667889.shtml)
-- 2026-06-29 14:00 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/240813672.shtml)
+- 2026-06-29 13:47 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/512397927.shtml)
+- 2026-06-29 13:54 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/0854641.shtml)
+- 2026-06-29 14:04 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/696363700913.shtml)
+- 2026-06-29 13:47 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/084949506.shtml)
+- 2026-06-29 13:42 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/2331185147.shtml)
+- 2026-06-29 13:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/6432646689.shtml)
+- 2026-06-29 14:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/339659887.shtml)
+- 2026-06-29 13:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/84446218.shtml)
+- 2026-06-29 14:04 - [张真源解读相思锁](https://www.share.minike.top/Article/details/831963555.shtml)
+- 2026-06-29 13:48 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/496870914779.shtml)
+- 2026-06-29 13:47 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/133563.shtml)
+- 2026-06-29 14:05 - [送你一朵小红花](http://www.blog.minike.top/Article/details/9089384123.shtml)
+- 2026-06-29 13:55 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/87066059.shtml)
+- 2026-06-29 13:42 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/4478228001.shtml)
+- 2026-06-29 14:11 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/98764.shtml)

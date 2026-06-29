@@ -1,51 +1,56 @@
-# “债市一姐”告别华西证券，拟转任兴业证券固收首席
+# 宇树科技IPO，提交注册
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。（中国证券报）责任编辑：杨赐
+6月2日，上交所官网显示，宇树科技科创板IPO提交注册，正式启动注册程序，距离登陆A股更近一步。 按此节奏，宇树科技将成为A股“具身智能第一股”。公司拟公开发行新股不低于4044.64万股，募集资金42.02亿元，募资投向聚焦核心技术攻坚与长期战略布局，重点布局智能机器人大模型研发领域。 在业内看来，在科创板的加持下，宇树科技凭借全栈自研的核心技术体系、规模化商业能力，有望为硬
 
 ## 正文
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。
+6月2日，上交所官网显示，宇树科技科创板IPO提交注册，正式启动注册程序，距离登陆A股更近一步。
 
-这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。
+按此节奏，宇树科技将成为A股“具身智能第一股”。
 
-记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。
+公司拟公开发行新股不低于4044.64万股，募集资金42.02亿元，募资投向聚焦核心技术攻坚与长期战略布局，重点布局智能机器人大模型研发领域。
 
-（中国证券报）责任编辑：杨赐
+在业内看来，在科创板的加持下，宇树科技凭借全栈自研的核心技术体系、规模化商业能力，有望为硬科技版图再添核心力量，进一步凸显科创板服务国家战略、赋能未来产业的核心价值，并为通用机器人产业创新升级注入新动能。
+
+2025年度，宇树科技人形机器人出货量已超5500台（纯人形，不含轮式双臂机器人）。
+
+宇树科技称，结合第三方发布的2025年全球范围其他行业企业人形机器人出货量数据，公司2025年人形机器人出货量为全球行业第一。
+
+产品布局上，宇树科技已有矩阵较为丰富，覆盖了人形机器人的全尺寸（H1、H2）与中型及中小型（G1、R1）两大领域，以及四足机器人的行业级（B1、B2及A2）与消费级（Go1、Go2）两大方向。
+
+业绩方面，宇树科技是国内少有的已盈利具身智能企业。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 13:47 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 13:49 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 14:04 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 13:36 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 13:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 13:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 13:49 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 13:55 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 13:37 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 13:57 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 13:39 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 13:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 13:49 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:49 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 13:54 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 13:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 13:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:11 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 14:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 14:01 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 14:04 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 13:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/77572535.shtml)
-- 2026-06-29 13:58 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/49628625416.shtml)
-- 2026-06-29 14:00 - [明星大侦探第四季](https://www.share.minike.top/Article/details/637300080031.shtml)
-- 2026-06-29 13:56 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/89081753346.shtml)
-- 2026-06-29 13:48 - [强⁶](http://www.share.kurohicncr.top/Article/details/221724471.shtml)
-- 2026-06-29 13:44 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/6132470050.shtml)
-- 2026-06-29 13:45 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/47696753.shtml)
-- 2026-06-29 13:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/7172813.shtml)
-- 2026-06-29 13:50 - [送你一朵小红花](http://www.share.minike.top/Article/details/05374494750.shtml)
-- 2026-06-29 13:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/27405494.shtml)
-- 2026-06-29 13:54 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/7881391859.shtml)
-- 2026-06-29 13:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/542431.shtml)
-- 2026-06-29 13:46 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/14073159.shtml)
-- 2026-06-29 13:44 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/441186.shtml)
-- 2026-06-29 13:37 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/903960607841.shtml)
+- 2026-06-29 14:05 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/19875441.shtml)
+- 2026-06-29 13:42 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/356918.shtml)
+- 2026-06-29 14:03 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/13763.shtml)
+- 2026-06-29 13:54 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/772914850.shtml)
+- 2026-06-29 14:10 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/55990831683.shtml)
+- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/51960532351.shtml)
+- 2026-06-29 13:50 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/354659267226.shtml)
+- 2026-06-29 13:47 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/549509.shtml)
+- 2026-06-29 14:02 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/6015697.shtml)
+- 2026-06-29 13:47 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/490299867.shtml)
+- 2026-06-29 13:54 - [扫黑风暴](https://www.blog.minike.top/Article/details/994134.shtml)
+- 2026-06-29 13:59 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/94484239.shtml)
+- 2026-06-29 14:03 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/41278.shtml)
+- 2026-06-29 13:44 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/95246733748.shtml)
+- 2026-06-29 13:48 - [张真源解读相思锁](https://www.share.minike.top/Article/details/010627.shtml)

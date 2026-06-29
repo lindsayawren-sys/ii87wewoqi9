@@ -1,60 +1,56 @@
-# 余斌：中国卓越绩效管理有四大趋势性跃迁
+# 浙江嘉兴“红船小讲解”：童声话党史 薪火代代传
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电(记者 查志远)当前，中国经济已由高速增长转向高质量发展阶段，组织竞争的逻辑正在发生深刻变化。在这一转型中， 卓越绩效管理模式(PEM)作为一套被国际广泛验证、与中国国情深度耦合的组织管理评价框架，正迎来前所未有的战略机遇期。4月28日下午，“中国卓越绩效管理发展白皮书—卓越绩效管理良好实践在中国”项目发布会暨课题签约会在北京未来教育研究院举行。会上，湖北
+中新网嘉兴6月2日电 题：浙江嘉兴“红船小讲解”：童声话党史 薪火代代传 作者 邵燕飞 傅飞扬 黄彦君 “序厅是一个两层楼的圆形展厅，最吸引眼球的便是正中间全铜铸造的大型红船，从历史画卷中冲出，让人眼前一亮……”日前，在浙江嘉兴南湖革命纪念馆，少先队红领巾讲解员严嘉成的声音穿过人群，吸引了众多游客的目光。 作为整个纪念馆的开场讲解，严嘉成深知自己肩上的分量。“我们讲述的不只是一
 
 ## 正文
 
-中新网北京4月28日电(记者 查志远)当前，中国经济已由高速增长转向高质量发展阶段，组织竞争的逻辑正在发生深刻变化。
+中新网嘉兴6月2日电 题：浙江嘉兴“红船小讲解”：童声话党史 薪火代代传 作者 邵燕飞 傅飞扬 黄彦君 “序厅是一个两层楼的圆形展厅，最吸引眼球的便是正中间全铜铸造的大型红船，从历史画卷中冲出，让人眼前一亮……”日前，在浙江嘉兴南湖革命纪念馆，少先队红领巾讲解员严嘉成的声音穿过人群，吸引了众多游客的目光。
 
-在这一转型中， 卓越绩效管理模式(PEM)作为一套被国际广泛验证、与中国国情深度耦合的组织管理评价框架，正迎来前所未有的战略机遇期。
+作为整个纪念馆的开场讲解，严嘉成深知自己肩上的分量。
 
-4月28日下午，“中国卓越绩效管理发展白皮书—卓越绩效管理良好实践在中国”项目发布会暨课题签约会在北京未来教育研究院举行。
+“我们讲述的不只是一段历史，更是一份初心。
 
-会上，湖北省绩效管理研究会与北京大学经济学院正式签署“中国卓越绩效管理良好实践” 课题合作协议，并宣布课题核心成果《中国卓越绩效管理发展白皮书(2026)》将于2026年12月正式对外发布。
+”他接受中新网采访时说。
 
-国务院发展研究中心原党组成员、副主任、中国经济50人论坛成员，项目评审委员会主席余斌表示，基于多年实践观察，中国企业和组织的卓越绩效管理正经历以下四大趋势性跃迁： 一是从“工具应用”向“系统嵌入”跃迁。
+2013年，第一期“红船小讲解”夏令营活动成功举办，让成长在红船旁的少年成为红船故事的讲述者。
 
-早期企业引入平衡计分卡、KPI、OKR等工具，往往停留在人力资源或战略部门的“工具层面”。
+目前，“红船小讲解”已有570多名嘉兴市级核心队员，累计讲解2800多次，服务听众超34万人次，成为当地红色旅游的一道亮丽风景。
 
-而今，领先组织开始将卓越绩效理念嵌入治理结构、业务流程、文化价值观，使其成为组织运行的“底层操作系统”。
+南湖革命纪念馆少先队红领巾讲解员高晴萱表示，2024年加入团队以来，她不定期参加讲解活动，有时一天就要给两批到三批游客讲述红船故事。
 
-GB/T19580的七大类目正是一套完整的系统嵌入框架。
+为了帮助“红船小讲解”迅速成长，南湖革命纪念馆建立了一套从招募、选拔、培训到考核、上岗的完整体系。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 13:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 13:39 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 13:47 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:46 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 13:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 13:45 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 13:57 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 13:52 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 13:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 13:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 13:42 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 13:53 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:53 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:52 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 13:45 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 14:10 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 13:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 14:11 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 14:11 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 13:48 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 14:05 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 13:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 13:58 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/71530903678.shtml)
-- 2026-06-29 13:59 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/298433.shtml)
-- 2026-06-29 14:02 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/428428224.shtml)
-- 2026-06-29 14:03 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/386253.shtml)
-- 2026-06-29 13:42 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/13978.shtml)
-- 2026-06-29 14:05 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/757020954278.shtml)
-- 2026-06-29 13:48 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/07531820804.shtml)
-- 2026-06-29 13:53 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/400584.shtml)
-- 2026-06-29 13:54 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/6240523283.shtml)
-- 2026-06-29 14:01 - [医药股集体爆发](http://www.share.minike.top/Article/details/433333635728.shtml)
-- 2026-06-29 13:37 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/8816489.shtml)
-- 2026-06-29 13:54 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/39969823880.shtml)
-- 2026-06-29 13:39 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/4938280346.shtml)
-- 2026-06-29 14:02 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/359614113.shtml)
-- 2026-06-29 13:37 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/85024683.shtml)
+- 2026-06-29 13:49 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/9870638.shtml)
+- 2026-06-29 14:12 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/916272298188.shtml)
+- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/3119449140.shtml)
+- 2026-06-29 14:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/285413.shtml)
+- 2026-06-29 13:53 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/3160916906.shtml)
+- 2026-06-29 14:10 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/63981.shtml)
+- 2026-06-29 13:45 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/62468.shtml)
+- 2026-06-29 13:42 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/56875.shtml)
+- 2026-06-29 13:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/23830.shtml)
+- 2026-06-29 13:57 - [《贺子珍》](http://www.share.minike.top/Article/details/0854433711.shtml)
+- 2026-06-29 14:02 - [急先锋](http://www.blog.minike.top/Article/details/6971311070.shtml)
+- 2026-06-29 13:56 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/218478.shtml)
+- 2026-06-29 14:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/887510.shtml)
+- 2026-06-29 14:05 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/19559.shtml)
+- 2026-06-29 13:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/06845658683.shtml)

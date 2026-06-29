@@ -1,60 +1,61 @@
-# 3.3万亿上海银行未来五年将增员5000人！近七成补充至营销条线 董事长顾建忠：反复思考了三天，也很纠结
+# 第一观察｜总书记寄望红色基因薪火相传
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。 4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。这件事我反复思考了三天，也很纠结。” 纠结的原因不难理解——当前行业大势是人员精
+在“六一”国际儿童节到来之际，习近平总书记亲切回信中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员，勉励他们高举队旗跟党走，传承红色基因，增长知识本领，磨练意志品质，做党和人民的红孩子，在新征程上跑好历史接力赛，并祝他们和全国的小朋友们节日快乐。 写信给习近平总书记的少先队红领巾讲解员，来自中国共产党的诞生地——上海和浙江嘉兴。2017年，习近平总书记在党的十九大闭幕后首次离京
 
 ## 正文
 
-来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。
+在“六一”国际儿童节到来之际，习近平总书记亲切回信中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员，勉励他们高举队旗跟党走，传承红色基因，增长知识本领，磨练意志品质，做党和人民的红孩子，在新征程上跑好历史接力赛，并祝他们和全国的小朋友们节日快乐。
 
-4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。
+写信给习近平总书记的少先队红领巾讲解员，来自中国共产党的诞生地——上海和浙江嘉兴。
 
-这件事我反复思考了三天，也很纠结。
+2017年，习近平总书记在党的十九大闭幕后首次离京，就带领新一届中央政治局常委专程前往两地瞻仰中共一大会址和南湖红船，回顾建党历史，学习革命先辈的崇高精神，强调铭记党的奋斗历程、时刻不忘初心。
 
-” 纠结的原因不难理解——当前行业大势是人员精简、通过AI降本增效，逆势扩招在这样的背景下便显得有些“不合时宜”。
+赓续红色血脉，是习近平总书记长期以来对广大少年儿童的深切寄望。
 
-刚刚过去的2025年，上海银行刚刚减员了：报告期内在职员工14558人（含劳务派遣人员），较上一年减少154人。
+十年前，中国共产党成立95周年，习近平总书记“六一”前夕回信大陈岛老垦荒队员的后代、浙江省台州市椒江区12名小学生，勉励他们继承和弘扬大陈岛垦荒精神，热爱祖国、好好学习、砥砺品格；五年前，建党100周年，总书记在“六一”前夕回信勉励江苏省淮安市新安小学的少先队员，从小坚定听党话、跟党走的决心；今年是建党105周年，总书记再次对孩子们提出“高举队旗跟党走”的期许……这些承载厚重历史记忆的时刻，都是引领广大少年儿童坚定理想信念、传承红色基因的宝贵契机。
 
-其中母公司14053人、子公司505人，分别减少141人、13人。
+此次回信中，习近平总书记对孩子们“厚植了爱党、爱国、爱社会主义的情感，得到了锻炼与成长”感到十分欣慰，对青少年思政教育的高度重视溢于言表。
 
-上海银行做出这样的人员扩充规划目的也很明确。
+红色资源是我们党艰辛而辉煌奋斗历程的见证，是最宝贵的精神财富；红色场馆、红色展览是生动的思政大课堂。
 
-顾建忠在业绩说明会上指出，人的价值与作用始终不可替代，现阶段上海银行营销人员占比偏低。
+就在今春考察河北雄安新区时，习近平总书记来到北京四中雄安校区，走进教室，观看孩子们朗诵《黄河颂》。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 13:37 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 13:45 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 13:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 14:05 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 13:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 13:40 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 13:43 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 14:01 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 13:43 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 13:37 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 13:51 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 13:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 13:57 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 14:11 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 13:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:53 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 14:06 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 13:51 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 14:04 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 13:49 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 13:46 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 13:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 13:48 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 13:51 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 13:59 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 14:03 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:01 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/29319.shtml)
-- 2026-06-29 13:49 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/573685028860.shtml)
-- 2026-06-29 13:54 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/444930.shtml)
-- 2026-06-29 13:58 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/99799145.shtml)
-- 2026-06-29 13:59 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/4917536998.shtml)
-- 2026-06-29 14:01 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/219323629452.shtml)
-- 2026-06-29 13:48 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/18115.shtml)
-- 2026-06-29 13:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/73120186254.shtml)
-- 2026-06-29 13:58 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.minike.top/Article/details/978658.shtml)
-- 2026-06-29 13:52 - [爱很美味](https://www.share.minike.top/Article/details/27227.shtml)
-- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/88494.shtml)
-- 2026-06-29 13:43 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/7427046024.shtml)
-- 2026-06-29 13:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/434732425754.shtml)
-- 2026-06-29 13:58 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/994941925224.shtml)
-- 2026-06-29 13:55 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/12045.shtml)
+- 2026-06-29 13:57 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/5607276.shtml)
+- 2026-06-29 14:07 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/42670.shtml)
+- 2026-06-29 13:55 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/539038.shtml)
+- 2026-06-29 13:42 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/45770192.shtml)
+- 2026-06-29 13:46 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/88180501201.shtml)
+- 2026-06-29 14:09 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/079934.shtml)
+- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/79689922.shtml)
+- 2026-06-29 13:47 - [中国战机大片上新](http://www.share.minike.top/Article/details/5151868.shtml)
+- 2026-06-29 13:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/798508.shtml)
+- 2026-06-29 13:43 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/235413671.shtml)
+- 2026-06-29 13:52 - [当我回母校教书](https://www.share.minike.top/Article/details/80625.shtml)
+- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/017087.shtml)
+- 2026-06-29 13:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/354399620717.shtml)
+- 2026-06-29 14:10 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/59617616.shtml)
+- 2026-06-29 14:10 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/937958.shtml)

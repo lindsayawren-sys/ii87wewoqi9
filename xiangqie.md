@@ -1,59 +1,60 @@
-# 成都统一战线“同心智库”沙龙活动在西南民族大学举办
+# 002501筹划重大资产重组，不停牌
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-4月24日，成都统一战线“同心智库”沙龙活动在西南民族大学举办。成都市委统战部、西南民族大学党委统战部、双流区委统战部、市级各民主党派机关有关负责同志、成都统一战线“同心智库”及西南民族大学党外专家代表等30余人参加活动。西南民族大学党委常委、副校长乔俊杰，市委统战部副部长、机关党委书记孙红侠出席活动并讲话。活动分为参观学习和座谈交流两个阶段。第一阶段，在西南民族大学党委常委、
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！又有A股上市公司筹划重大资产重组。 *ST利源（002501）6月2日晚间公告，6月2日，公司召开第六届董事会第二十五次会议，审议通过了《关于筹划重大资产重组暨签署框架协议的议案》。公司拟支付现金购买交易对方持有的江西金利城市矿产股份有限公司（简称“金利股份
 
 ## 正文
 
-4月24日，成都统一战线“同心智库”沙龙活动在西南民族大学举办。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-成都市委统战部、西南民族大学党委统战部、双流区委统战部、市级各民主党派机关有关负责同志、成都统一战线“同心智库”及西南民族大学党外专家代表等30余人参加活动。
+又有A股上市公司筹划重大资产重组。
 
-西南民族大学党委常委、副校长乔俊杰，市委统战部副部长、机关党委书记孙红侠出席活动并讲话。
+*ST利源（002501）6月2日晚间公告，6月2日，公司召开第六届董事会第二十五次会议，审议通过了《关于筹划重大资产重组暨签署框架协议的议案》。
 
-活动分为参观学习和座谈交流两个阶段。
+公司拟支付现金购买交易对方持有的江西金利城市矿产股份有限公司（简称“金利股份”）3539.49万股股份，占金利股份总股本的36.19%，同时金利股份的主要股东将其持有的剩余29.53%股份的表决权委托给公司，并将该部分股份质押给公司。
 
-第一阶段，在西南民族大学党委常委、统战部部长罗萍讲解引导下，集体参观西南民族大学校史馆，深入了解学校办学历程与统战工作成效。
+本次交易完成后公司将合计控制金利股份65.72%的表决权，金利股份成为公司的控股子公司。
 
-第二阶段，围绕“党外代表人士如何提升参政议政效能”开展座谈。
+根据《上市公司股票停复牌规则》《上市公司重大资产重组管理办法》《深圳证券交易所上市公司自律监管指引第6号——停复牌》等规定，公司股票不停牌。
 
-市委统战部研究室负责同志介绍了成都统一战线“同心智库”建设运行情况及近年来专家参谋建议成果转化情况。
+公告称，本次交易预计将构成《上市公司重大资产重组管理办法》规定的重大资产重组。
 
-9位专家代表分别就“党外代表人士如何做好参政议政工作”“年度选题方向”作主题分享和选题分享。
+公司将按照相关规定，聘请中介机构开展相关工作，并根据本次交易的进展情况，严格按照相关法律法规的规定履行有关的审议程序和信息披露义务。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 13:40 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 13:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 13:47 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 13:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 13:37 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:52 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 13:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 13:45 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 13:50 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 13:51 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 13:41 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 14:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 13:48 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 13:42 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 13:56 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 14:04 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 13:47 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 13:49 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 14:00 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 14:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:57 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 13:54 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 13:51 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 13:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 13:53 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/258398754350.shtml)
-- 2026-06-29 13:36 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/889870.shtml)
-- 2026-06-29 13:46 - [强⁶](https://www.share.kurohicncr.top/Article/details/3354979226.shtml)
-- 2026-06-29 13:47 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/766505676.shtml)
-- 2026-06-29 14:00 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/8873066.shtml)
-- 2026-06-29 13:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/31734.shtml)
-- 2026-06-29 13:58 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/014650.shtml)
-- 2026-06-29 13:49 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/35412001203.shtml)
-- 2026-06-29 14:02 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/233743287329.shtml)
-- 2026-06-29 13:40 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/44253076248.shtml)
-- 2026-06-29 13:38 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/436671.shtml)
-- 2026-06-29 14:00 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/97231844870.shtml)
-- 2026-06-29 13:56 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/2527127279.shtml)
-- 2026-06-29 13:51 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/85338786644.shtml)
-- 2026-06-29 13:44 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/0144172.shtml)
+- 2026-06-29 13:52 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/64914305.shtml)
+- 2026-06-29 13:46 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/70226619.shtml)
+- 2026-06-29 13:51 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/84470.shtml)
+- 2026-06-29 14:07 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/909392458.shtml)
+- 2026-06-29 14:11 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/103708.shtml)
+- 2026-06-29 13:56 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/6607665.shtml)
+- 2026-06-29 13:44 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9462054.shtml)
+- 2026-06-29 14:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/22971.shtml)
+- 2026-06-29 13:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/04119738.shtml)
+- 2026-06-29 14:09 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/162300728.shtml)
+- 2026-06-29 14:02 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/35282.shtml)
+- 2026-06-29 13:48 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/848346394014.shtml)
+- 2026-06-29 13:46 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/23174879149.shtml)
+- 2026-06-29 13:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/5051524934.shtml)
+- 2026-06-29 13:59 - [NBA交易](http://www.share.minike.top/Article/details/252706468.shtml)

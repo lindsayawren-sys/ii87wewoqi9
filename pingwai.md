@@ -1,53 +1,48 @@
-# 伊朗德黑兰机场宣布增加航线和航班频次
+# 特朗普任命Pulte为代理国家情报总监
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。 伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。 阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。他说，伊玛目霍梅尼国际
+“我任命联邦住房金融局局长、房利美/房地美董事长William J． Pulte担任代理国家情报总监，”特朗普在Truth Social上表示。 “在此期间，他将继续担任联邦住房金融局局长，”他补充道。责任编辑：何云
 
 ## 正文
 
-据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。
+“我任命联邦住房金融局局长、房利美/房地美董事长William J． Pulte担任代理国家情报总监，”特朗普在Truth Social上表示。
 
-伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。
+“在此期间，他将继续担任联邦住房金融局局长，”他补充道。
 
-阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。
-
-他说，伊玛目霍梅尼国际机场两个航站楼的出入境通道均严格遵守相关标准，并在安全的环境下运行。
-
-据伊朗方面25日消息，伊玛目霍梅尼国际机场当天恢复运营。
-
-(央视新闻客户端)
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 13:50 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 13:58 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 13:38 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 14:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 13:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 13:42 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 13:50 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 14:03 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 13:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 14:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 14:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:01 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 13:51 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 14:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 14:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 14:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 14:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:54 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 14:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 13:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 14:00 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 13:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/13111815.shtml)
-- 2026-06-29 13:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/6010462.shtml)
-- 2026-06-29 13:51 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/994193737.shtml)
-- 2026-06-29 13:51 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/30606.shtml)
-- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/90859663151.shtml)
-- 2026-06-29 13:49 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/11016246537.shtml)
-- 2026-06-29 13:46 - [韩国拟将部分刑责年龄降至13岁](http://www.share.kurohicncr.top/Article/details/96392.shtml)
-- 2026-06-29 13:43 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/77324812461.shtml)
-- 2026-06-29 13:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/04993584.shtml)
-- 2026-06-29 14:05 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/19080.shtml)
-- 2026-06-29 14:05 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/319060771.shtml)
-- 2026-06-29 13:37 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/9207054305.shtml)
-- 2026-06-29 13:38 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/6279215347.shtml)
-- 2026-06-29 13:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/1690570462.shtml)
-- 2026-06-29 13:42 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/49350479.shtml)
+- 2026-06-29 13:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/8812552.shtml)
+- 2026-06-29 14:03 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/327503872.shtml)
+- 2026-06-29 13:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/87206383.shtml)
+- 2026-06-29 13:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/08369.shtml)
+- 2026-06-29 14:04 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/944621149.shtml)
+- 2026-06-29 13:53 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/313364858423.shtml)
+- 2026-06-29 14:01 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/6191293.shtml)
+- 2026-06-29 14:03 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/037354862.shtml)
+- 2026-06-29 13:54 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/45778291.shtml)
+- 2026-06-29 14:11 - [T1零封KC MSI](https://www.share.minike.top/Article/details/28070532779.shtml)
+- 2026-06-29 14:00 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/93430205.shtml)
+- 2026-06-29 14:10 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/91932693.shtml)
+- 2026-06-29 13:58 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/98354.shtml)
+- 2026-06-29 14:06 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/9293773.shtml)
+- 2026-06-29 13:51 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/69005019742.shtml)

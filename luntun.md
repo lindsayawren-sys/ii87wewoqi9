@@ -1,61 +1,50 @@
-# 销量全球第一的石头科技，股价又接近新低了
+# 交银国际：领展房产基金维持“买入”评级 目标价45.70港元
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：花椒财经 上周，扫地机器人龙头石头科技发布了2025年年报和2026年一季报。 先看年报： 2025年营收186.95亿元，同比增长56.51%，创上市以来新高。根据IDC报告，石头科技全球扫地机器人出货580万台，市场份额17.7%，连续两年销量销额双料第一。 再看一季报： 2026年Q1营收42.
+交银国际发布研报称，领展房产基金（00823）2026财年业绩营运压力与预期相若，派息符合预期，同时领展以必需消费为主的香港零售组合面对北上消费展现出韧性。该行相信其2026/27财年业绩仍可大致稳定，而回购以及房地产信托纳可能纳入港股通则会成为公司中长期股价催化剂。该行维持买入评级及目标价45.70港元。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+交银国际发布研报称，领展房产基金（00823）2026财年业绩营运压力与预期相若，派息符合预期，同时领展以必需消费为主的香港零售组合面对北上消费展现出韧性。
 
-来源：花椒财经 上周，扫地机器人龙头石头科技发布了2025年年报和2026年一季报。
+该行相信其2026/27财年业绩仍可大致稳定，而回购以及房地产信托纳可能纳入港股通则会成为公司中长期股价催化剂。
 
-先看年报： 2025年营收186.95亿元，同比增长56.51%，创上市以来新高。
+该行维持买入评级及目标价45.70港元。
 
-根据IDC报告，石头科技全球扫地机器人出货580万台，市场份额17.7%，连续两年销量销额双料第一。
-
-再看一季报： 2026年Q1营收42.27亿元，同比增长23.31%；归母净利润3.23亿元，同比增长20.83%，利润增速一年多来首次转正。
-
-季报一出，中信建投、光大证券等多家券商随即给出乐观评价，“拐点“两个字开始频繁出现在研报标题里。
-
-全球第一、营收新高、利润拐点……如果只看这些关键词，石头科技的故事看起来非常吸睛。
-
-但石头科技的股价，却不是那么一回事。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 13:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:43 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 13:48 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 13:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 13:56 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 13:56 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 13:41 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 14:02 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 13:43 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 13:38 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:55 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 13:52 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 13:39 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 14:02 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 14:10 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 13:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 14:04 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 13:45 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 13:55 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 13:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 14:10 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 13:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 13:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 13:48 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 13:59 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 13:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/37868540210.shtml)
-- 2026-06-29 13:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/394825152.shtml)
-- 2026-06-29 13:49 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/92104.shtml)
-- 2026-06-29 13:47 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/918435982866.shtml)
-- 2026-06-29 14:05 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.kurohicncr.top/Article/details/54154230.shtml)
-- 2026-06-29 13:38 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/9907168730.shtml)
-- 2026-06-29 13:55 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/17733350.shtml)
-- 2026-06-29 13:56 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5189172506.shtml)
-- 2026-06-29 13:49 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/47761370914.shtml)
-- 2026-06-29 14:03 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/366425705538.shtml)
-- 2026-06-29 13:46 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/56317180094.shtml)
-- 2026-06-29 13:39 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/2103177248.shtml)
-- 2026-06-29 13:39 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/54318.shtml)
-- 2026-06-29 13:36 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/269569097.shtml)
-- 2026-06-29 13:49 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/17586558.shtml)
+- 2026-06-29 13:55 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/1120619.shtml)
+- 2026-06-29 13:50 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/142189909137.shtml)
+- 2026-06-29 14:09 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/58435759.shtml)
+- 2026-06-29 13:59 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/3676707646.shtml)
+- 2026-06-29 14:10 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/4624639578.shtml)
+- 2026-06-29 14:03 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/018566.shtml)
+- 2026-06-29 13:45 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/5093916.shtml)
+- 2026-06-29 13:50 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/00571256612.shtml)
+- 2026-06-29 13:43 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/38754595546.shtml)
+- 2026-06-29 14:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/057378.shtml)
+- 2026-06-29 13:50 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/574792405441.shtml)
+- 2026-06-29 13:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/733753236407.shtml)
+- 2026-06-29 13:44 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/93947118.shtml)
+- 2026-06-29 13:45 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/44153776201.shtml)
+- 2026-06-29 13:54 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/0469480.shtml)

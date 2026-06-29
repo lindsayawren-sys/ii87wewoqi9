@@ -1,50 +1,55 @@
-# 交银国际：凯莱英目标价上调至136.6港元 维持“买入”评级
+# Pimco：AI尚未构成“久期供给冲击” 当前美债收益率受货币政策预期驱动
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，将凯莱英H股目标价调高至136.6港元，A 股为159.2元人民币，维持“买入”的投资评级。基于首财季的超预期业绩表现，交银国际上调凯莱英2026-28年经调整净利润预测2-14%。 该行指，尽管面临汇率波动和小份子业务高基数的影响，该公司在2026年首财季录得强劲且超预期的利润增长，反映出新兴业务订单需求的持续高涨和经营效率的提升。公司在高景气度赛道的后期
+品浩（Pimco）表示，人工智能相关借贷热潮未来可能对债券市场产生更大影响，但认为这股力量主导了近期美国长期国债收益率上涨的说法，似乎被夸大了。 Pimco多资产信贷策略师Lotfi Karoui在一份报告中写道，由债务融资支持的AI投资最终可能推高风险溢价，也就是投资者持有风险更高或期限更长资产时要求的额外回报，但这一过程很可能会在数年间逐步展开。 他说，眼下美国长期国债收益
 
 ## 正文
 
-交银国际发布研报称，将凯莱英H股目标价调高至136.6港元，A 股为159.2元人民币，维持“买入”的投资评级。
+品浩（Pimco）表示，人工智能相关借贷热潮未来可能对债券市场产生更大影响，但认为这股力量主导了近期美国长期国债收益率上涨的说法，似乎被夸大了。
 
-基于首财季的超预期业绩表现，交银国际上调凯莱英2026-28年经调整净利润预测2-14%。
+Pimco多资产信贷策略师Lotfi Karoui在一份报告中写道，由债务融资支持的AI投资最终可能推高风险溢价，也就是投资者持有风险更高或期限更长资产时要求的额外回报，但这一过程很可能会在数年间逐步展开。
 
-该行指，尽管面临汇率波动和小份子业务高基数的影响，该公司在2026年首财季录得强劲且超预期的利润增长，反映出新兴业务订单需求的持续高涨和经营效率的提升。
+他说，眼下美国长期国债收益率走高，更合理的解释是，伊朗战争加剧通胀风险，促使市场对美联储利率路径的预期发生变化。
 
-公司在高景气度赛道的后期订单规模扩大和前瞻性投入，可望带来较强的长期高增长确定性。
+Karoui写道：“AI建设带来的结构性压力确实存在，但其上升过程缓慢，并不是目前投资者正在看到的收益率走势背后的驱动因素。
 
-责任编辑：卢昱君
+周期性因素仍支撑债券在对冲中的作用。
+
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 13:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 13:49 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 13:49 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:03 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 13:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:56 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 14:05 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 13:44 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 13:42 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 14:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 13:46 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 13:58 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 14:11 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 14:03 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 13:58 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 13:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 13:48 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 13:45 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 13:43 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 14:04 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [沙丘](http://www.share.kurohicncr.top/Article/details/078030535817.shtml)
-- 2026-06-29 13:59 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/65337256830.shtml)
-- 2026-06-29 13:45 - [委内瑞拉地震死亡人数升至1450人](http://www.share.minike.top/Article/details/7096001056.shtml)
-- 2026-06-29 13:48 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/1924137713.shtml)
-- 2026-06-29 13:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/0467351.shtml)
-- 2026-06-29 13:46 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/84202872.shtml)
-- 2026-06-29 13:46 - [流金岁月](http://www.share.kurohicncr.top/Article/details/152571.shtml)
-- 2026-06-29 13:38 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/9660913.shtml)
-- 2026-06-29 13:47 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/37555.shtml)
-- 2026-06-29 13:57 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/187825.shtml)
-- 2026-06-29 14:01 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/529521698167.shtml)
-- 2026-06-29 13:57 - [周生如故](http://www.share.minike.top/Article/details/93125.shtml)
-- 2026-06-29 14:03 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/16527420.shtml)
-- 2026-06-29 13:56 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/8255846886.shtml)
-- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/8265514.shtml)
+- 2026-06-29 14:11 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/15489.shtml)
+- 2026-06-29 13:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/645605193.shtml)
+- 2026-06-29 13:46 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/3065596015.shtml)
+- 2026-06-29 14:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/03698367.shtml)
+- 2026-06-29 14:08 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/198558702.shtml)
+- 2026-06-29 13:42 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/792502.shtml)
+- 2026-06-29 13:56 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/752781742.shtml)
+- 2026-06-29 13:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/007153826789.shtml)
+- 2026-06-29 13:49 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/696090894246.shtml)
+- 2026-06-29 14:01 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/24658599411.shtml)
+- 2026-06-29 13:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/35113166.shtml)
+- 2026-06-29 13:51 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/5519393390.shtml)
+- 2026-06-29 13:43 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/28987.shtml)
+- 2026-06-29 13:44 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/422081894942.shtml)
+- 2026-06-29 13:50 - [明星大侦探第四季](https://www.share.minike.top/Article/details/7600463042.shtml)

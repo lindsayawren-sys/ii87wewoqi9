@@ -1,57 +1,60 @@
-# 一季度全国规模以上工业企业利润同比增长15.5%
+# 【持仓分析】中财期货鸡蛋净多头持仓连续第3日增加！
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：国家统计局4月27日发布的数据显示，一季度，我国工业经济稳步回升，全国规模以上工业企业实现利润总额16960.4亿元，同比增长15.5%，较1—2月份加快0.3个百分点。 装备制造业支撑作用明显。一季度，规模以上装备制造业利润同比增长21.0%，占全部规模以上工业企业利润比重达33.7%。 高技术制造业利润实现快速增长。一季度，规模以上高技术制造业利润同
+前20期商动态：净持仓较上日减少903手6月1日，鸡蛋前20名期货公司（全月份合约加总）多单持仓58.05万手，空单持仓55.38万手，多空比1.05。净持仓为2.67万手，相较上日减少903手。据统计，近两年价格和净持仓数据的相关系数为0.34，两者存在低度正相关关系(同向性)。数据时间2026-06-01鸡蛋指数收盘价4377.43净持仓26,683鸡蛋主力合约机构动向：从
 
 ## 正文
 
-央视网消息(新闻联播)：国家统计局4月27日发布的数据显示，一季度，我国工业经济稳步回升，全国规模以上工业企业实现利润总额16960.4亿元，同比增长15.5%，较1—2月份加快0.3个百分点。
+前20期商动态：净持仓较上日减少903手6月1日，鸡蛋前20名期货公司（全月份合约加总）多单持仓58.05万手，空单持仓55.38万手，多空比1.05。
 
-装备制造业支撑作用明显。
+净持仓为2.67万手，相较上日减少903手。
 
-一季度，规模以上装备制造业利润同比增长21.0%，占全部规模以上工业企业利润比重达33.7%。
+据统计，近两年价格和净持仓数据的相关系数为0.34，两者存在低度正相关关系(同向性)。
 
-高技术制造业利润实现快速增长。
+数据时间2026-06-01鸡蛋指数收盘价4377.43净持仓26,683鸡蛋主力合约机构动向：从净多头持仓排行来看，创元期货以7065手净多排行榜首，日内净多头头寸增加1106手，该公司品种主力合约近一年盈利为4,022.41万元。
 
-一季度，规模以上高技术制造业利润同比增长47.4%，拉动全部规模以上工业企业利润增长7.9个百分点。
+净空排行方面，东方财富期货以2.12万手拔得头筹，日内净空头头寸增加2279手，该公司品种主力合约近一年盈利为-13,053.14万元。
 
-其中，智能化产品需求增加，带动智能无人飞行器制造、其他智能消费设备制造行业利润实现快速增长。
+分类会员持仓净持仓净持仓增减近一年盈利（万）净多前三创元期货7,0651,1064,022.41中财期货6,3091,5184,569.13永安期货5,6232121,610.09净空前三东方财富期货21,2422,279-13,053.14平安期货8,496185-5,325.73中信建投期货5,721578-2,485.49中财期货净持仓与价格变化对比图从上文可以得出，鸡蛋年内盈利最高的机构为：中财期货。
+
+在过去的20个自然日（14个交易日）中，中财期货净头寸增加6次，减少8次，增减调仓胜率为57.14%。
+
+数据时间2026-06-01净持仓数值6,309收盘价4391增减变化1,518
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:58 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 13:57 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 13:57 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 13:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 13:41 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 13:40 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 13:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:47 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 13:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 13:41 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 13:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 13:42 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 14:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 13:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 13:52 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 14:10 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 14:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 13:57 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 13:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 13:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 13:59 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 13:57 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 13:45 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 13:50 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 13:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/97085.shtml)
-- 2026-06-29 13:37 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/041011858.shtml)
-- 2026-06-29 13:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/16609460529.shtml)
-- 2026-06-29 13:43 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/787764720.shtml)
-- 2026-06-29 13:37 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/34303643.shtml)
-- 2026-06-29 13:54 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/837214.shtml)
-- 2026-06-29 13:57 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/784201.shtml)
-- 2026-06-29 14:00 - [委内瑞拉地震死亡人数升至1450人](http://www.share.minike.top/Article/details/734214.shtml)
-- 2026-06-29 14:03 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/652331.shtml)
-- 2026-06-29 13:43 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/6741780.shtml)
-- 2026-06-29 13:55 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/7289044.shtml)
-- 2026-06-29 14:03 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/733457.shtml)
-- 2026-06-29 13:49 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/59526187.shtml)
-- 2026-06-29 13:54 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/463465.shtml)
-- 2026-06-29 13:37 - [强⁶](https://www.blog.kurohicncr.top/Article/details/91184607.shtml)
+- 2026-06-29 13:48 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/660470.shtml)
+- 2026-06-29 14:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/803152864.shtml)
+- 2026-06-29 14:10 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/84379.shtml)
+- 2026-06-29 13:57 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6888622.shtml)
+- 2026-06-29 13:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/461371375942.shtml)
+- 2026-06-29 14:08 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/57374693.shtml)
+- 2026-06-29 14:06 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/3314288023.shtml)
+- 2026-06-29 14:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/69742.shtml)
+- 2026-06-29 14:07 - [急先锋](http://www.share.minike.top/Article/details/36688410.shtml)
+- 2026-06-29 13:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/0077555.shtml)
+- 2026-06-29 13:47 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/196884.shtml)
+- 2026-06-29 13:51 - [一见倾心](https://www.share.kurohicncr.top/Article/details/465571697287.shtml)
+- 2026-06-29 14:03 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7828375.shtml)
+- 2026-06-29 14:10 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/927938690.shtml)
+- 2026-06-29 13:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/6605684.shtml)

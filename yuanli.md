@@ -1,60 +1,60 @@
-# 华尔街看北京车展：十大观察和惊喜车型
+# 十大科学护眼倡议在沪“出炉”
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 摩根大通实地调研给出十大观察：5米级豪华六座SUV价格战下探至22万元、超快充升级为“电池+网络+软件”生态军备赛、海外利润是国内2-3倍成车企护城河，外资品牌则将中国定为电动化主战场加速本土重构。比亚迪唐L与宝马新iX3为本次车展“最大惊喜车型”。 北京车展不只是新车首发，更像一份关于2026年中国车市“竞争往哪里卷”的现场答案：大六座豪华SUV把价格线压到
+中新网上海6月1日电 (记者 陈静)十大科学护眼倡议1日在沪“出炉”。本次倡议是在2026年第九届“近视论道”会议的现场，由复旦大学附属眼耳鼻喉科医院、上海市眼视光学研究中心牵头，全体参会眼科专家联合发起的，希望民众升级爱眼、护眼理念，突破时间限制，融入365天的日常生活。记者了解到，十大科学护眼倡议包括：屈光建档常态化、电子产品使用严控时、眼部检查定期做等；倡导儿童应尽早建立
 
 ## 正文
 
-来源：华尔街见闻 摩根大通实地调研给出十大观察：5米级豪华六座SUV价格战下探至22万元、超快充升级为“电池+网络+软件”生态军备赛、海外利润是国内2-3倍成车企护城河，外资品牌则将中国定为电动化主战场加速本土重构。
+中新网上海6月1日电 (记者 陈静)十大科学护眼倡议1日在沪“出炉”。
 
-比亚迪唐L与宝马新iX3为本次车展“最大惊喜车型”。
+本次倡议是在2026年第九届“近视论道”会议的现场，由复旦大学附属眼耳鼻喉科医院、上海市眼视光学研究中心牵头，全体参会眼科专家联合发起的，希望民众升级爱眼、护眼理念，突破时间限制，融入365天的日常生活。
 
-北京车展不只是新车首发，更像一份关于2026年中国车市“竞争往哪里卷”的现场答案：大六座豪华SUV把价格线压到更大众的区间，补能从单车参数升级为“电池+网络+软件”的生态战，出海从叙事变成利润缓冲，外资品牌则把研发、供应链和软件栈加速搬进中国，智能驾驶向L3下放的节奏明显加快。
+记者了解到，十大科学护眼倡议包括：屈光建档常态化、电子产品使用严控时、眼部检查定期做等；倡导儿童应尽早建立屈光发育档案，视力要早筛早查，要准确验光也要准确配镜，要像测身高一样重视检测眼轴长度；儿童青少年课余时间应减少使用手机，成年人休息时间应减少手机刷屏；儿童青少年应每半年进行1次验光复查。
 
-据追风交易台，摩根大通亚太汽车研究团队于2026年4月23至24日实地走访北京车展，参加11场行业专家、整车厂及自动驾驶供应商会议，形成十大核心观察。
+除了倡导关注儿童眼健康外，十大科学护眼倡议还聚焦全人群眼部健康痛点，倡导全年龄段、全生命周期科学护眼，让守护清晰视界成为每日习惯。
 
-车型层面的“最大惊喜”也很明确：中国品牌中，比亚迪“唐L（Grand Tang）”因外观、内饰和相对竞争力最突出，外资品牌中，宝马全新iX3长轴距SUV最令分析师印象深刻。
+十大科学护眼倡议提出，每一个人都是爱眼护眼的第一责任人。
 
-对二级市场而言，这次车展的交易提示更偏“冷静”。
+爱眼护眼贵在坚持，爱眼不止全国爱眼日(6月6日)当天，应将爱眼护眼行动落实在全年365天。
 
-过去20年汽车板块在车展前一个月平均约2%正收益，车展后一个月多为持平至下跌。
+倡议提出将每年6月的第一周扩展为爱眼周，6月扩展为爱眼月。
 
-当前节奏相似，MSCI中国汽车指数本月迄今跑输MSCI中国指数约5%，部分归因于获利回吐。
+据悉，十大科学护眼倡议倡导眼病防为先，爱眼从全年龄段眼健康动态精准建档做起，早筛查、早发现、早干预、早康复。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 13:41 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 13:43 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 13:56 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 13:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 13:55 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 14:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 13:44 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 13:52 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 13:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 13:58 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 13:48 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 13:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 14:07 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 13:48 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 13:56 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 13:54 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 13:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 13:47 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 13:46 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:58 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 14:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 14:00 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:11 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 14:09 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 13:47 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/32557.shtml)
-- 2026-06-29 13:54 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/1288013153.shtml)
-- 2026-06-29 14:05 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/107131086.shtml)
-- 2026-06-29 13:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7373295.shtml)
-- 2026-06-29 13:46 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/531111724826.shtml)
-- 2026-06-29 13:44 - [沉睡花园](http://www.share.minike.top/Article/details/78026146583.shtml)
-- 2026-06-29 13:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/528796769.shtml)
-- 2026-06-29 13:37 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/49452.shtml)
-- 2026-06-29 13:47 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/07988357428.shtml)
-- 2026-06-29 13:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/99051546.shtml)
-- 2026-06-29 13:47 - [扬名立万](https://www.share.minike.top/Article/details/311994537.shtml)
-- 2026-06-29 14:03 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/2494796.shtml)
-- 2026-06-29 13:52 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/2694257033.shtml)
-- 2026-06-29 13:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/7768049.shtml)
-- 2026-06-29 13:45 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/6508911600.shtml)
+- 2026-06-29 13:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7485808207.shtml)
+- 2026-06-29 13:57 - [千与千寻](http://www.blog.minike.top/Article/details/90918647.shtml)
+- 2026-06-29 14:03 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/153361087.shtml)
+- 2026-06-29 14:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/630104629304.shtml)
+- 2026-06-29 14:09 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/349362.shtml)
+- 2026-06-29 13:47 - [天道](https://www.share.kurohicncr.top/Article/details/0015900417.shtml)
+- 2026-06-29 14:01 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/94719871.shtml)
+- 2026-06-29 13:56 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/165756420.shtml)
+- 2026-06-29 14:05 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/5300819.shtml)
+- 2026-06-29 13:45 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/2542498032.shtml)
+- 2026-06-29 13:59 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/0487476714.shtml)
+- 2026-06-29 14:09 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/907502585241.shtml)
+- 2026-06-29 13:53 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/1168487.shtml)
+- 2026-06-29 14:06 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/483950351396.shtml)
+- 2026-06-29 14:06 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/7988927462.shtml)

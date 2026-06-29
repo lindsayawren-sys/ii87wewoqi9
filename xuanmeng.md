@@ -1,58 +1,48 @@
-# 中共中央政治局：抓好农业生产 稳定生猪等农产品价格
+# 韩国5月通胀率超3%创两年多最高，因能源价格飙升
 
-> 更新时间：2026-06-29 14:06:03 UTC+8
+> 更新时间：2026-06-29 14:12:02 UTC+8
 
 ## 摘要
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，要强化就业优先政策导向，加强教育、医疗、托育等民生建设。抓好农业生产，稳定生猪等农产品价格。完善常态化帮扶机制，确保不发生规模性返贫致贫。做好安全生产、防灾减灾、食品药品安全等工作。要深入开展树立和践行正确政绩观学习教育，把学习教育的成效转化为推动高质量发展的实效。责任编辑：李铁民
+韩国数据与统计部周二公布的数据显示，受中东冲突后全球能源价格波动的影响，韩国5月份消费者价格指数（CPI）同比上涨超过3%。 作为衡量通胀的关键指标，韩国5月份CPI同比上涨3.1%，创下26个月以来的最高涨幅。 此次上涨主要受石油产品价格飙升的影响，其中汽油价格上涨23.1%，柴油价格上涨33.3%。责任编辑：于健 SF069
 
 ## 正文
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+韩国数据与统计部周二公布的数据显示，受中东冲突后全球能源价格波动的影响，韩国5月份消费者价格指数（CPI）同比上涨超过3%。
 
-会议强调，要强化就业优先政策导向，加强教育、医疗、托育等民生建设。
+作为衡量通胀的关键指标，韩国5月份CPI同比上涨3.1%，创下26个月以来的最高涨幅。
 
-抓好农业生产，稳定生猪等农产品价格。
+此次上涨主要受石油产品价格飙升的影响，其中汽油价格上涨23.1%，柴油价格上涨33.3%。
 
-完善常态化帮扶机制，确保不发生规模性返贫致贫。
-
-做好安全生产、防灾减灾、食品药品安全等工作。
-
-要深入开展树立和践行正确政绩观学习教育，把学习教育的成效转化为推动高质量发展的实效。
-
-责任编辑：李铁民
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 13:44 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 13:48 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 13:55 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 14:02 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 13:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 13:53 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:37 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 14:01 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 14:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 14:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 14:04 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 13:41 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 14:10 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 13:57 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 13:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 14:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 14:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 13:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 14:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 14:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/88214.shtml)
-- 2026-06-29 14:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/554634.shtml)
-- 2026-06-29 13:43 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/21281220.shtml)
-- 2026-06-29 13:41 - [扬名立万](https://www.share.kurohicncr.top/Article/details/896401.shtml)
-- 2026-06-29 13:41 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/74758.shtml)
-- 2026-06-29 13:46 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/287152142523.shtml)
-- 2026-06-29 13:44 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/31327564819.shtml)
-- 2026-06-29 13:45 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/6842240896.shtml)
-- 2026-06-29 14:04 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/926299220581.shtml)
-- 2026-06-29 13:59 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/184928530.shtml)
-- 2026-06-29 14:05 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/4102996685.shtml)
-- 2026-06-29 13:48 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/353780.shtml)
-- 2026-06-29 14:05 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/2792539586.shtml)
-- 2026-06-29 13:39 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/84683.shtml)
-- 2026-06-29 13:46 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/637730787.shtml)
+- 2026-06-29 14:00 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/10465430323.shtml)
+- 2026-06-29 13:50 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/816352696872.shtml)
+- 2026-06-29 13:42 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/459369.shtml)
+- 2026-06-29 13:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/694119210649.shtml)
+- 2026-06-29 13:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/96525.shtml)
+- 2026-06-29 14:09 - [双高胎](http://www.blog.kurohicncr.top/Article/details/181891458.shtml)
+- 2026-06-29 14:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/04140425.shtml)
+- 2026-06-29 14:05 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/608586373.shtml)
+- 2026-06-29 13:48 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/0703520702.shtml)
+- 2026-06-29 14:04 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/90774.shtml)
+- 2026-06-29 13:55 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/312853786.shtml)
+- 2026-06-29 13:43 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/74101595102.shtml)
+- 2026-06-29 14:01 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/17144753.shtml)
+- 2026-06-29 13:48 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/44573322.shtml)
+- 2026-06-29 13:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/2113994889.shtml)
