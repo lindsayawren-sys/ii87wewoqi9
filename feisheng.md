@@ -1,61 +1,56 @@
-# 中金：腾讯控股维持“跑赢行业”评级 目标价666港元
+# 安徽省政协原副主席周喜安一审被判死缓
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中金发布研报称，腾讯控股（00700）首季Non-IFRS纯利同比升11%，符合市场预期。受流水递延影响，首季收入同比增9%，则低于市场预期。中金维持腾讯今明两年收入和Non-IFRS净利润预测。维持“跑赢行业”评级，维持目标价666港元，对应预测今年Non-IFRS市盈率20倍。 报告称，腾讯首季游戏业务流水增速可观，长青游戏再创新高。今年春节较晚，导致部分游戏流水以及分成递
+中新社北京5月7日电 (记者 张素)记者从中国最高人民法院获悉，5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案。 法院以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。 公开资料显示，周喜安生于1963年8月，河南新野人。2025年2月，
 
 ## 正文
 
-中金发布研报称，腾讯控股（00700）首季Non-IFRS纯利同比升11%，符合市场预期。
+中新社北京5月7日电 (记者 张素)记者从中国最高人民法院获悉，5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案。
 
-受流水递延影响，首季收入同比增9%，则低于市场预期。
+法院以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。
 
-中金维持腾讯今明两年收入和Non-IFRS净利润预测。
+公开资料显示，周喜安生于1963年8月，河南新野人。
 
-维持“跑赢行业”评级，维持目标价666港元，对应预测今年Non-IFRS市盈率20倍。
+2025年2月，官方通报其被查。
 
-报告称，腾讯首季游戏业务流水增速可观，长青游戏再创新高。
+同年7月，官方通报其被开除党籍和公职。
 
-今年春节较晚，导致部分游戏流水以及分成递延至后续季度确认。
+他被指“利用职权为亲属和身边工作人员谋取利益”“干预和插手市场经济活动”“大搞权钱交易”等。
 
-该行预计次季国内游戏收入同比增12%，海外游戏增10%。
+经审理查明，2012年至2025年，被告人周喜安利用担任四川省巴中市市长、四川省资阳市委书记、安徽省副省长等职务上的便利，以及职权或者地位形成的便利条件，为有关单位和个人，在工程承揽、资金拨付和用地审批等事项上提供帮助，非法收受财物，共计折合人民币1.34亿余元。
 
-中金称，腾讯首季广告收入增长加快，同比增20%，料次季广告收入同比增17%。
+法院认为，被告人周喜安的行为构成受贿罪，应依法惩处。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 18:50 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 18:57 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 18:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 18:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 19:05 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 19:06 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 19:12 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 18:52 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:57 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 18:48 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 19:12 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 18:52 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 19:04 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 18:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 19:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 19:04 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 19:19 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 18:59 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 19:23 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 19:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 19:21 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 19:19 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 19:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/63509367030.shtml)
-- 2026-06-29 19:01 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/9627468917.shtml)
-- 2026-06-29 18:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/382065057.shtml)
-- 2026-06-29 19:14 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/1083597.shtml)
-- 2026-06-29 18:50 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/367006726592.shtml)
-- 2026-06-29 19:00 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/3069680.shtml)
-- 2026-06-29 18:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/002964.shtml)
-- 2026-06-29 19:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/918930.shtml)
-- 2026-06-29 18:49 - [叠纸](http://www.share.minike.top/Article/details/483084.shtml)
-- 2026-06-29 19:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/91223940.shtml)
-- 2026-06-29 18:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/326618.shtml)
-- 2026-06-29 19:06 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/32292487416.shtml)
-- 2026-06-29 19:02 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/13662245.shtml)
-- 2026-06-29 18:56 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/45699541299.shtml)
-- 2026-06-29 19:16 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/22557.shtml)
+- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/254873.shtml)
+- 2026-06-29 19:07 - [小娘惹](https://www.share.kurohicncr.top/Article/details/53725.shtml)
+- 2026-06-29 19:15 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/97063353.shtml)
+- 2026-06-29 18:56 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/0199608779.shtml)
+- 2026-06-29 19:04 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/038427426421.shtml)
+- 2026-06-29 19:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/32556348.shtml)
+- 2026-06-29 19:15 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/451139298.shtml)
+- 2026-06-29 19:05 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/04876.shtml)
+- 2026-06-29 19:08 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/099151137755.shtml)
+- 2026-06-29 19:15 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/667902495.shtml)
+- 2026-06-29 19:02 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/096849591704.shtml)
+- 2026-06-29 19:22 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/148434.shtml)
+- 2026-06-29 19:22 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/966944801.shtml)
+- 2026-06-29 19:02 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/384903.shtml)
+- 2026-06-29 19:22 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/836535.shtml)

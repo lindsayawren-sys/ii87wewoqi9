@@ -1,61 +1,58 @@
-# 止升下挫！白银宽幅震荡何时休？
+# 专家：中国消费市场正从“规模扩张”转向“创新驱动”
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 核心原因 秘鲁消息刺激的补涨难持续，情绪影响偏短期； 中东地缘僵局等中观利空仍在；美债利率创新高，金融属性施压； 投资需求虽回暖（SLV ETF回流超170吨），但纽期银交割不及预期，注册仓单占比不降反升，难以重演库存挤压。 后市展望 贵金属整体仍处宽幅震荡，何时重回单边升势，需增长担忧超越通胀焦
+中新社上海5月8日电 (记者 李姝徵)在上海市政府新闻办公室8日举办的中外媒体财经沙龙上，多位财经观察者指出，中国消费市场正从规模扩张转向创新驱动。 中欧陆家嘴国际金融研究院副院长刘功润指出，中国消费市场正在构建一个“双向增强”的体系：一方面通过数字基建和创新业态，让产品触达全球消费者；另一方面，全球最丰富的消费场景和海量数据又反过来赋能国内供应链。这种良性互动，使中国市场不再
 
 ## 正文
 
-作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 核心原因 秘鲁消息刺激的补涨难持续，情绪影响偏短期； 中东地缘僵局等中观利空仍在；美债利率创新高，金融属性施压； 投资需求虽回暖（SLV ETF回流超170吨），但纽期银交割不及预期，注册仓单占比不降反升，难以重演库存挤压。
+中新社上海5月8日电 (记者 李姝徵)在上海市政府新闻办公室8日举办的中外媒体财经沙龙上，多位财经观察者指出，中国消费市场正从规模扩张转向创新驱动。
 
-后市展望 贵金属整体仍处宽幅震荡，何时重回单边升势，需增长担忧超越通胀焦虑，重新主导利率定价。
+中欧陆家嘴国际金融研究院副院长刘功润指出，中国消费市场正在构建一个“双向增强”的体系：一方面通过数字基建和创新业态，让产品触达全球消费者；另一方面，全球最丰富的消费场景和海量数据又反过来赋能国内供应链。
 
-昨夜今晨，白银一改此前几日持续向上的偏强走势，掉头向下并领跌贵金属板块，“光速调整”看似出乎意料，但有其必然性。
+这种良性互动，使中国市场不再仅是“全球最大规模”，也正迈向全球消费创新高地。
 
-对于本周在秘鲁消息刺激下的上涨，我们此前分析中已将其定位为相对有色金属的补涨，特别是针对秘鲁石油公司最新的救助法令，本质是缓解能源危机，有助于降低矿产银供应下滑的担忧，剩余的情绪化影响对市场而言更偏短期。
+百观科技CEO吴冕卿表示，中国消费者如今更看重产品和服务是否契合自身需求，而非品牌是国产还是海外。
 
-而中观维度的利空仍在中东地缘僵局，亦即海峡封锁一系列负面影响。
+那些尊重本土市场、真正理解消费者需求的海外品牌都在中国取得了成功。
 
-从目前美国通胀传导路径看，能源价格的上行已开始向核心通胀传导，支持降息的美联储官员比例愈发走低，即将上任的新主席沃什推进政府主导的降息行动也将愈发艰难。
+“秦朔朋友圈”创始人秦朔指出，中国消费者的实物消费量、品种、质量、丰富程度都在提升。
 
-更雪上加霜的是，前任主席鲍威尔留任理事，占据了原本属于新任主席的理事名额，此前有着政府经历且年初刚被重新任命的理事米兰被迫辞任，委员会内部政府主导力量趋弱意味着联储独立性随之加强。
+中国市场的消费供给在品质与价格上，已形成不容忽视的国际竞争力。
 
-因此，叠加前述数据、联储官员讲话以及米兰辞任等消息共同影响下，10年期美债利率触及4.5%，续创地缘冲突以来新高，30年期美债利率更是站上5%，触及财政部“红线”，利率市场持续定价更高的通胀及随之而来更紧的政策基调，从金融属性角度对贵金属施压。
+2025年，上海接待入境游客超936万人次，入境消费超千亿元人民币，均创历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 19:09 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 18:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:05 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 19:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 19:09 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 18:49 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 19:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 18:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 18:48 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 19:17 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 18:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 19:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 18:56 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:15 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 18:56 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:11 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:06 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 18:54 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 19:03 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 19:15 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 19:17 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 19:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 19:00 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/7812635374.shtml)
-- 2026-06-29 18:58 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/01197.shtml)
-- 2026-06-29 19:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/446639.shtml)
-- 2026-06-29 18:55 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/77885070.shtml)
-- 2026-06-29 18:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/438088506757.shtml)
-- 2026-06-29 18:54 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/311347802708.shtml)
-- 2026-06-29 19:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/41328097410.shtml)
-- 2026-06-29 19:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/1230264326.shtml)
-- 2026-06-29 19:17 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/56283.shtml)
-- 2026-06-29 19:09 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/476998627672.shtml)
-- 2026-06-29 18:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2804775.shtml)
-- 2026-06-29 18:49 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/317708.shtml)
-- 2026-06-29 18:52 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/0523817349.shtml)
-- 2026-06-29 18:48 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/518196832.shtml)
-- 2026-06-29 19:00 - [流金岁月](https://www.share.minike.top/Article/details/726066.shtml)
+- 2026-06-29 19:08 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/2649134.shtml)
+- 2026-06-29 18:58 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/642481469.shtml)
+- 2026-06-29 19:09 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/80336.shtml)
+- 2026-06-29 19:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/89720741616.shtml)
+- 2026-06-29 19:11 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/601842248.shtml)
+- 2026-06-29 18:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/428097.shtml)
+- 2026-06-29 19:23 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/229062522.shtml)
+- 2026-06-29 19:04 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/6064490332.shtml)
+- 2026-06-29 19:05 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/28552869.shtml)
+- 2026-06-29 19:19 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/328258658.shtml)
+- 2026-06-29 19:15 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/182176.shtml)
+- 2026-06-29 18:54 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/09934563637.shtml)
+- 2026-06-29 19:18 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/152036622287.shtml)
+- 2026-06-29 19:06 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/0903946124.shtml)
+- 2026-06-29 19:09 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/4638195.shtml)

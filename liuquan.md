@@ -1,56 +1,59 @@
-# 保时捷称设计被抄袭引热议 买车除了外观还要注意什么
+# 美伊冲突以来 沙特与阿联酋仍冒险经霍尔木兹海峡运输原油
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-“保时捷称被抄袭致敬有些许无奈”——这条消息以超过125万的热度登上微博热搜榜第七位。事情的起因是在“2026·易境思”论坛上，保时捷中国传媒公关副总裁公开表示，保时捷的设计对中国汽车行业产生了广泛影响，推动了某种趋同的审美风格，但同时她也坦言“设计易被模仿，但设计背后的灵魂不会轻易被平替”。几乎同一时间，黑猫投诉 【下载黑猫投诉客户端】平台发布了另一条汽车行业重磅消息：“赛力
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。 尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。 沙特阿
 
 ## 正文
 
-“保时捷称被抄袭致敬有些许无奈”——这条消息以超过125万的热度登上微博热搜榜第七位。
+根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。
 
-事情的起因是在“2026·易境思”论坛上，保时捷中国传媒公关副总裁公开表示，保时捷的设计对中国汽车行业产生了广泛影响，推动了某种趋同的审美风格，但同时她也坦言“设计易被模仿，但设计背后的灵魂不会轻易被平替”。
+尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。
 
-几乎同一时间，黑猫投诉 【下载黑猫投诉客户端】平台发布了另一条汽车行业重磅消息：“赛力斯维权索赔100万”——赛力斯汽车有限公司因名誉权纠纷起诉一名网友，要求其删除侵权言论并公开道歉，索赔金额高达100万元。
+在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。
 
-两条消息叠加在一起，将汽车行业的知识产权争议和消费者权益保护话题同时推向了舆论中心。
+沙特阿美拒绝置评，而阿布扎比国家石油公司未回应置评请求。
 
-对于普通消费者来说，买车是一笔不小的开支，尤其是豪华品牌汽车动辄几十万甚至上百万的售价，更是让每一个决策都需要慎重。
+自3月初霍尔木兹海峡关闭以来，全球供应危机日益加剧。
 
-然而，汽车消费中的“坑”却层出不穷：有的车主提车后发现实际配置与宣传手册不一致；有的车辆在使用一段时间后被厂商远程限制某些功能（即俗称的“锁电”）；还有的在4S店遭遇强制捆绑保险、加装装潢、加价提车等各种套路。
+企业为将货物运出正承担更高风险并支付更高成本。
 
-更让人头疼的是，很多问题在购车前的试驾环节根本暴露不出来，只有真正开始日常使用了才会逐渐显现。
+为了避免被发现，大多数船只通行时都关闭了应答器。
 
-而一旦出现问题，从厂家客服到4S店销售再到售后维修，层层推诿的情况时有发生。
+根据知情人士透露，在那些生产和供应受阻于波斯湾的企业中，阿布扎比国家石油公司是最早一批通过霍尔木兹海峡运输原油、燃料和天然气的公司之一。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 19:02 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 19:10 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 18:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 19:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 18:57 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 19:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:12 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 19:06 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 19:11 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 19:23 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 19:00 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 19:15 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 19:09 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 19:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 19:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 19:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 19:19 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 19:01 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 18:57 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 18:55 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 19:20 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 19:22 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/9646509.shtml)
-- 2026-06-29 18:54 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/29750822249.shtml)
-- 2026-06-29 18:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/2947548498.shtml)
-- 2026-06-29 18:58 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/075521322.shtml)
-- 2026-06-29 19:13 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/09832549675.shtml)
-- 2026-06-29 18:57 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/371469973.shtml)
-- 2026-06-29 19:00 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/277178.shtml)
-- 2026-06-29 18:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/3988261.shtml)
-- 2026-06-29 18:51 - [扬名立万](https://www.share.kurohicncr.top/Article/details/29794.shtml)
-- 2026-06-29 18:48 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/34380253.shtml)
-- 2026-06-29 19:03 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/503473.shtml)
-- 2026-06-29 18:49 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/8061838.shtml)
-- 2026-06-29 19:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/24719753780.shtml)
-- 2026-06-29 19:15 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/0708275.shtml)
-- 2026-06-29 19:04 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/74757237.shtml)
+- 2026-06-29 19:12 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/417755263.shtml)
+- 2026-06-29 18:56 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/4265125.shtml)
+- 2026-06-29 19:20 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/28219.shtml)
+- 2026-06-29 19:04 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/12446027343.shtml)
+- 2026-06-29 19:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/7140512914.shtml)
+- 2026-06-29 19:15 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/73116920758.shtml)
+- 2026-06-29 18:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/240187885.shtml)
+- 2026-06-29 19:21 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/3693545378.shtml)
+- 2026-06-29 19:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/161378691.shtml)
+- 2026-06-29 19:01 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/503396182.shtml)
+- 2026-06-29 19:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/15910.shtml)
+- 2026-06-29 19:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/439557.shtml)
+- 2026-06-29 19:14 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/735567034502.shtml)
+- 2026-06-29 19:21 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/8270260.shtml)
+- 2026-06-29 19:14 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/74758563.shtml)

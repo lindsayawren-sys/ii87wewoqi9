@@ -1,61 +1,61 @@
-# 光大期货：5月15日能源化工日报
+# CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心小幅上移，其中WTI 6月合约收盘上涨0.15美元至101.17美元/桶，涨幅0.15%。布伦特7月合约收盘上涨0.09美元至105.72美元/桶，涨幅0.09%。SC2606以626.2元/桶收盘，下跌4.3元/桶，跌幅0.68%。自周三晚间以来已有30艘船只通过海峡，仍远低于战前
+文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。这一幕后来成为特朗普时代最经典的政治画面之一。 此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心小幅上移，其中WTI 6月合约收盘上涨0.15美元至101.17美元/桶，涨幅0.15%。
+文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。
 
-布伦特7月合约收盘上涨0.09美元至105.72美元/桶，涨幅0.09%。
+” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。
 
-SC2606以626.2元/桶收盘，下跌4.3元/桶，跌幅0.68%。
+这一幕后来成为特朗普时代最经典的政治画面之一。
 
-自周三晚间以来已有30艘船只通过海峡，仍远低于战前每日140艘的正常总量。
+此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。
 
-然而，一艘从非洲向阿联酋运输牲畜的印度货船周四在阿曼近海沉没；英国海事安全机构UKMTO报告称，有“未经授权的人员”登上一艘停泊在阿联酋富查伊拉港外海的船只，并正将其驶向伊朗。
+他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼这家电视台。
 
-2026年4月，尼日利亚原油产量显著提升，达到OPEC批准的每日150万桶生产配额的99.2%。
+▲美国有线电视新闻网(CNN)创办人泰德·特纳(Ted Turner)。
 
-尼日利亚上游石油监管委员会发布的最新生产数据显示，与2026年3月相比，该国原油产量增长了7.58%。
+图源：CNN 但当地时间5月6日，在CNN创始人泰德·特纳去世后，特朗普却专门发文悼念这位媒体大亨。
 
-据该委员会称，4月份原油峰值产量达到每日185万桶，当月最低产量为每日146万桶。
+特朗普称特纳是“广播行业最伟大的人之一”，同时又含沙射影：“新东家接手后毁了CNN……特纳倍受打击。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 19:03 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 18:48 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 19:10 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 19:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 19:03 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 19:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 18:56 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 18:56 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 18:58 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 19:09 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 19:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 19:12 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 19:01 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 19:03 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 19:23 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:54 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 19:21 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 19:09 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 19:01 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 18:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 19:12 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 19:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 19:07 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 19:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 18:55 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:19 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 18:56 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 19:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/061942785214.shtml)
-- 2026-06-29 19:13 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/065111.shtml)
-- 2026-06-29 19:00 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/9618714275.shtml)
-- 2026-06-29 19:06 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/790256213.shtml)
-- 2026-06-29 19:04 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/995139873.shtml)
-- 2026-06-29 18:51 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/94665490405.shtml)
-- 2026-06-29 18:59 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/324573.shtml)
-- 2026-06-29 19:00 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/391293518745.shtml)
-- 2026-06-29 18:59 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/70134.shtml)
-- 2026-06-29 19:08 - [叠纸](http://www.share.kurohicncr.top/Article/details/25684333673.shtml)
-- 2026-06-29 19:00 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/436967.shtml)
-- 2026-06-29 19:01 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/5621272.shtml)
-- 2026-06-29 19:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/70923029.shtml)
-- 2026-06-29 19:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/25438195938.shtml)
-- 2026-06-29 18:51 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/535977710592.shtml)
+- 2026-06-29 19:04 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/17448898563.shtml)
+- 2026-06-29 19:04 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/8180859.shtml)
+- 2026-06-29 19:22 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/024301725814.shtml)
+- 2026-06-29 19:07 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/685753.shtml)
+- 2026-06-29 18:54 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/019271081061.shtml)
+- 2026-06-29 19:06 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/169555.shtml)
+- 2026-06-29 18:58 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/516287.shtml)
+- 2026-06-29 19:06 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/2861000.shtml)
+- 2026-06-29 19:09 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/14223444.shtml)
+- 2026-06-29 19:14 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/2480070.shtml)
+- 2026-06-29 19:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8584101.shtml)
+- 2026-06-29 18:54 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/47883771737.shtml)
+- 2026-06-29 19:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/354513836.shtml)
+- 2026-06-29 19:23 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/624847899039.shtml)
+- 2026-06-29 19:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5082586936.shtml)

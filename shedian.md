@@ -1,58 +1,58 @@
-# 纽约汇市：美元单周涨幅创3月初以来最大 全球债市普跌且油价上涨
+# 韩国前国务总理韩德洙因参与内乱重要任务等罪名二审被判15年
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-全球债券市场普跌之际，美元连续第五天上涨；与此同时，随着市场越来越怀疑中东能源供应能否很快恢复正常，油价上涨。彭博美元指数录得3月6日以来最大单周涨幅。 彭博美元指数周五上涨0.4%，单周涨幅超过1.2%。 布伦特原油一度上涨3.8%，逼近每桶110美元，随后涨幅收窄。 根据CFTC数据，截至5月12日当周，投机性外汇交易员削减美元多头押注，规模由前一周的76亿美元降至50亿美
+中新社首尔5月7日电 (记者 金旭 刘旭)据韩联社报道，韩国前国务总理韩德洙7日因参与内乱重要任务等罪名二审被判有期徒刑15年，较一审判决的23年刑期减少8年。 首尔高等法院认定，二审判决与一审相同，韩德洙的大部分主要罪名成立，包括制造虚假公文、违反“总统档案法”等罪名。 法院认定，为制造“2024年12月3日紧急戒严令的宣布经过了国务委员审议程序”的表象，韩德洙曾建议召开国务
 
 ## 正文
 
-全球债券市场普跌之际，美元连续第五天上涨；与此同时，随着市场越来越怀疑中东能源供应能否很快恢复正常，油价上涨。
+中新社首尔5月7日电 (记者 金旭 刘旭)据韩联社报道，韩国前国务总理韩德洙7日因参与内乱重要任务等罪名二审被判有期徒刑15年，较一审判决的23年刑期减少8年。
 
-彭博美元指数录得3月6日以来最大单周涨幅。
+首尔高等法院认定，二审判决与一审相同，韩德洙的大部分主要罪名成立，包括制造虚假公文、违反“总统档案法”等罪名。
 
-彭博美元指数周五上涨0.4%，单周涨幅超过1.2%。
+法院认定，为制造“2024年12月3日紧急戒严令的宣布经过了国务委员审议程序”的表象，韩德洙曾建议召开国务会议，并在戒严宣布后试图让国务委员们在相关文件上签字，因此构成参与内乱重要任务罪。
 
-布伦特原油一度上涨3.8%，逼近每桶110美元，随后涨幅收窄。
+同时，法院还认定韩德洙与韩国前行政安全部长官李祥敏讨论了封锁主要机构及对媒体实施断水断电的方案，同样构成参与内乱重要任务罪。
 
-根据CFTC数据，截至5月12日当周，投机性外汇交易员削减美元多头押注，规模由前一周的76亿美元降至50亿美元。
+韩德洙方对二审判决表示不服并将提起上诉。
 
-美国国债2年期收益率上涨6个基点，至4.077%，创逾一年来最高；10年期收益率周五飙升逾10个基点。
+2026年1月，韩德洙因协助内乱头目等罪名一审被判有期徒刑23年，随后他提起上诉。
 
-所有G-10货币兑美元周五均下跌；日元跌幅最小，而新西兰元和澳元跌幅最大。
+4月，韩国负责调查紧急戒严事件的特检组提出二审判处韩德洙23年有期徒刑的量刑建议。
 
-美元/日元连续第五天上涨，创三个多月来最长连涨纪录；该货币对最高升至158.79，创下本月新高。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 19:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 18:49 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:54 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 19:16 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 18:49 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 19:12 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 18:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 19:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 19:01 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 18:52 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 19:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 19:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 18:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 19:23 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 19:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 18:58 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 19:21 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 19:09 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 18:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:57 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 18:58 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 18:54 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 18:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/01082454256.shtml)
-- 2026-06-29 19:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/73981.shtml)
-- 2026-06-29 18:50 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/634427767907.shtml)
-- 2026-06-29 18:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/58349307591.shtml)
-- 2026-06-29 18:50 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/439938358987.shtml)
-- 2026-06-29 19:05 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/72314376.shtml)
-- 2026-06-29 19:05 - [美人鱼](https://www.share.minike.top/Article/details/299064191.shtml)
-- 2026-06-29 19:05 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/1058542.shtml)
-- 2026-06-29 19:17 - [金刚川](http://www.blog.kurohicncr.top/Article/details/123510161427.shtml)
-- 2026-06-29 19:14 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/41862460301.shtml)
-- 2026-06-29 19:12 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/7948645.shtml)
-- 2026-06-29 19:14 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/19111558.shtml)
-- 2026-06-29 18:58 - [一生一世](http://www.share.kurohicncr.top/Article/details/8678257.shtml)
-- 2026-06-29 18:52 - [一生一世](http://www.share.kurohicncr.top/Article/details/77217998203.shtml)
-- 2026-06-29 19:07 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/1790104744.shtml)
+- 2026-06-29 19:00 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/877281400.shtml)
+- 2026-06-29 19:05 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6719599.shtml)
+- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/2283544.shtml)
+- 2026-06-29 19:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/180308325902.shtml)
+- 2026-06-29 19:23 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7650727161.shtml)
+- 2026-06-29 19:05 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/9925038.shtml)
+- 2026-06-29 19:18 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/960123510.shtml)
+- 2026-06-29 19:03 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/827564.shtml)
+- 2026-06-29 19:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/806429605054.shtml)
+- 2026-06-29 19:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/32319931.shtml)
+- 2026-06-29 19:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/9983155.shtml)
+- 2026-06-29 19:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/47080.shtml)
+- 2026-06-29 19:19 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/49600485814.shtml)
+- 2026-06-29 19:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/97336162.shtml)
+- 2026-06-29 19:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/16141158443.shtml)

@@ -1,57 +1,58 @@
-# 国际足联为何服软了
+# 特种车辆制造商Oshkosh宣派每股0.57美元季度股息
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-美加墨世界杯将于6月11日至7月19日举行。这是世界杯首次由三个国家联合承办，也是扩军至48支队伍后的首届赛事。 距离赛事启幕已不足30天，关于“中国大陆地区能否实现转播”的疑问终于有了答案。受版权报价分歧、国内球迷观赛需求不及预期等因素影响，这场围绕直播版权的商业博弈，持续了半年之久。 15日下午，中央广播电视总台(央视)与国际足联共同宣布，就国际足联世界杯新周期版权合作达成
+特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。 股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。这是Oshkosh连续第10年提高或维持季度股息水平。此次派息金额与上一季度持平。 公司背景 Oshkosh总部位于
 
 ## 正文
 
-美加墨世界杯将于6月11日至7月19日举行。
+特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。
 
-这是世界杯首次由三个国家联合承办，也是扩军至48支队伍后的首届赛事。
+该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。
 
-距离赛事启幕已不足30天，关于“中国大陆地区能否实现转播”的疑问终于有了答案。
+股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。
 
-受版权报价分歧、国内球迷观赛需求不及预期等因素影响，这场围绕直播版权的商业博弈，持续了半年之久。
+这是Oshkosh连续第10年提高或维持季度股息水平。
 
-15日下午，中央广播电视总台(央视)与国际足联共同宣布，就国际足联世界杯新周期版权合作达成共识，合作赛事包括2026年世界杯、2030年世界杯、2027年女足世界杯、2031年女足世界杯。
+此次派息金额与上一季度持平。
 
-根据双方合作意向，央视确认获得本周期合作赛事中国大陆独家全媒体权利及媒体分授权利。
+公司背景 Oshkosh总部位于威斯康星州，主要生产消防车、混凝土搅拌车、军用战术车辆以及机场除雪设备。
 
-这场博弈迎来“双赢”结局，几天前便释放出关键信号：国际足联做出让步。
+公司旗下品牌包括Pierce、McNeilus、JLGR等。
 
-据媒体报道，针对美加墨世界杯版权事宜，双方最终达成一致的价格远低于国际足联的最初报价。
+其国防部门约占公司总营收的35%。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:02 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 18:55 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 18:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 19:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 18:51 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 18:57 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 19:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 19:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 19:11 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:12 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 18:56 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 19:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 18:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 19:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 19:06 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 19:17 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 19:14 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:55 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/8507021.shtml)
-- 2026-06-29 19:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/29823933.shtml)
-- 2026-06-29 19:00 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/99610902.shtml)
-- 2026-06-29 19:07 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/9699235413.shtml)
-- 2026-06-29 18:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/053279.shtml)
-- 2026-06-29 19:13 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/483598.shtml)
-- 2026-06-29 19:09 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/05074482.shtml)
-- 2026-06-29 18:48 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/8398166.shtml)
-- 2026-06-29 18:48 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/722527.shtml)
-- 2026-06-29 19:03 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/15611706425.shtml)
-- 2026-06-29 18:50 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/26496670729.shtml)
-- 2026-06-29 19:12 - [叠纸](https://www.blog.kurohicncr.top/Article/details/300551928671.shtml)
-- 2026-06-29 19:09 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/7594586.shtml)
-- 2026-06-29 18:53 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/82894354.shtml)
-- 2026-06-29 19:15 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/49719471.shtml)
+- 2026-06-29 19:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/7307342425.shtml)
+- 2026-06-29 19:19 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/17150.shtml)
+- 2026-06-29 19:22 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/316698816.shtml)
+- 2026-06-29 18:57 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/34109305.shtml)
+- 2026-06-29 19:17 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/3496278.shtml)
+- 2026-06-29 19:14 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/647484927810.shtml)
+- 2026-06-29 19:09 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/267971977460.shtml)
+- 2026-06-29 19:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/89550.shtml)
+- 2026-06-29 19:19 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/976310379468.shtml)
+- 2026-06-29 19:04 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/685920.shtml)
+- 2026-06-29 19:22 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/41608.shtml)
+- 2026-06-29 19:06 - [小娘惹](https://www.share.kurohicncr.top/Article/details/6934239.shtml)
+- 2026-06-29 18:57 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/437188.shtml)
+- 2026-06-29 19:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/1913106.shtml)
+- 2026-06-29 19:14 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/9327211661.shtml)

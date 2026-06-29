@@ -1,46 +1,50 @@
-# 印度上调成品油价格
+# 外交部：敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-由于全球能源价格持续走高导致进口成本激增，印度政府于周五宣布上调成品油零售价格，每升提价3卢比（约合0.03美元），以缓解能源补贴带来的财政压力。 调整后，首都新德里地区的汽油零售价升至每升97.77卢比（约合1.17美元），柴油价格升至每升90.67卢比（约合1.09美元）。责任编辑：龙运翔
+【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。中方对此予以强烈谴责和坚决反对
 
 ## 正文
 
-由于全球能源价格持续走高导致进口成本激增，印度政府于周五宣布上调成品油零售价格，每升提价3卢比（约合0.03美元），以缓解能源补贴带来的财政压力。
+【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。
 
-调整后，首都新德里地区的汽油零售价升至每升97.77卢比（约合1.17美元），柴油价格升至每升90.67卢比（约合1.09美元）。
+中方对此予以强烈谴责和坚决反对，已向英方提出严正交涉。
 
-责任编辑：龙运翔
+我们敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气，维护中英关系来之不易的良好发展势头。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 19:10 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 19:05 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:58 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:49 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:07 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 18:50 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 18:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 19:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 19:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 19:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 18:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 18:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 19:19 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:19 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 19:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 19:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 19:02 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 19:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 18:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 18:57 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/30045.shtml)
-- 2026-06-29 19:03 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/844861915484.shtml)
-- 2026-06-29 19:14 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/036699884515.shtml)
-- 2026-06-29 18:48 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/65125102.shtml)
-- 2026-06-29 19:11 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/93566965550.shtml)
-- 2026-06-29 19:06 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/5973647990.shtml)
-- 2026-06-29 19:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/19188145.shtml)
-- 2026-06-29 18:50 - [当家电外通风口出现鸟窝](https://www.blog.kurohicncr.top/Article/details/402004995038.shtml)
-- 2026-06-29 18:55 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/9816168.shtml)
-- 2026-06-29 19:13 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/448320586022.shtml)
-- 2026-06-29 19:15 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/100522089.shtml)
-- 2026-06-29 19:03 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/22228737438.shtml)
-- 2026-06-29 18:53 - [送你一朵小红花](http://www.share.minike.top/Article/details/631155551209.shtml)
-- 2026-06-29 19:09 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/706032.shtml)
-- 2026-06-29 19:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/4635080.shtml)
+- 2026-06-29 19:03 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/58085288.shtml)
+- 2026-06-29 18:54 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/997286576035.shtml)
+- 2026-06-29 19:08 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/504093.shtml)
+- 2026-06-29 19:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/29732766.shtml)
+- 2026-06-29 19:16 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/06918271.shtml)
+- 2026-06-29 19:21 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/49105835.shtml)
+- 2026-06-29 19:14 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/52647221.shtml)
+- 2026-06-29 19:18 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/28792400791.shtml)
+- 2026-06-29 19:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/8354730.shtml)
+- 2026-06-29 19:04 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/98434610.shtml)
+- 2026-06-29 19:08 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/316570218.shtml)
+- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/911377924.shtml)
+- 2026-06-29 19:03 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/703505211.shtml)
+- 2026-06-29 19:13 - [TFING全员黑西装](http://www.share.minike.top/Article/details/626034.shtml)
+- 2026-06-29 19:06 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/014160247986.shtml)

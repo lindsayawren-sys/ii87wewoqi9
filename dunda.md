@@ -1,57 +1,56 @@
-# 东北书博会“昨日时光”引客来 旧书市场焕发青春活力
+# A股午后回暖跌幅收窄，市场成交额连续三日突破3万亿元
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网长春5月15日电 (谭伟旗 金乔)泛黄的书页、复古的画报、印刻着岁月痕迹的老报纸……正在吉林长春举办的第三届东北图书交易博览会，特设“昨日时光”旧书展区，承载着时代记忆的古旧出版物吸引大量年轻人驻足翻阅、打卡留念。 记者在现场看到，书迷们穿梭于各个书摊之间，仔细挑选着心仪的旧书。昔日以中老年读者为主要客群的旧书市场，如今正悄然换上“青春面孔”。 “95后”姑娘周彤从事编辑
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指5月8日集体低开。早盘弱势整理，午前跌幅略有扩大。午后明显回暖，跌幅收窄。 从盘面上看，电池产业链领跌，半导体概念股调整明显，创新药、光伏、AI算力概念股走弱。商业航天、人形机器人题材爆发，CPO、PCB概念股活跃。 至收盘，上证综指跌0.14点，报4179.95点；深证成指跌0.5%，报155
 
 ## 正文
 
-中新网长春5月15日电 (谭伟旗 金乔)泛黄的书页、复古的画报、印刻着岁月痕迹的老报纸……正在吉林长春举办的第三届东北图书交易博览会，特设“昨日时光”旧书展区，承载着时代记忆的古旧出版物吸引大量年轻人驻足翻阅、打卡留念。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者在现场看到，书迷们穿梭于各个书摊之间，仔细挑选着心仪的旧书。
+A股三大股指5月8日集体低开。
 
-昔日以中老年读者为主要客群的旧书市场，如今正悄然换上“青春面孔”。
+早盘弱势整理，午前跌幅略有扩大。
 
-“95后”姑娘周彤从事编辑工作，对旧书有着特别的偏爱，此次专程来书展挑选经典名著类旧书。
+午后明显回暖，跌幅收窄。
 
-当被记者问及名著已有多种新版本为何仍青睐旧书时，她笑着解释：“旧书的纸张触感、独特的印刷工艺，还有那种沉淀下来的时光味道，都特别吸引我。
+从盘面上看，电池产业链领跌，半导体概念股调整明显，创新药、光伏、AI算力概念股走弱。
 
-” 本次旧书展区汇聚多家古旧书店，带来旧图书、旧期刊、老报纸等各类出版物共七千余册。
+商业航天、人形机器人题材爆发，CPO、PCB概念股活跃。
 
-其中一家参展商带来了上世纪五六十年代的画报、老杂志、老笔记本、拓片和连环画等特色藏品。
+至收盘，上证综指跌0.14点，报4179.95点；深证成指跌0.5%，报15563.8点；创业板指跌0.96%，报3796.13点。
 
-“我们参展并非单纯以售书为目的，更希望通过这些老物件，让年轻人感受文化传承的力量。
+Wind统计显示，两市及北交所共3634只股票上涨，1725只股票下跌，平盘有148只股票。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 19:09 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 19:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 18:57 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 19:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 19:16 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 19:11 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 18:53 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 18:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 18:49 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 18:56 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 19:18 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 18:58 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 19:13 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 19:21 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 19:20 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 18:56 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 19:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 18:59 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:58 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 19:02 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/283298.shtml)
-- 2026-06-29 19:06 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/5736045.shtml)
-- 2026-06-29 19:06 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/3426232.shtml)
-- 2026-06-29 18:50 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/646114520.shtml)
-- 2026-06-29 18:48 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/873426577.shtml)
-- 2026-06-29 19:16 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/32434287.shtml)
-- 2026-06-29 19:00 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/432137389.shtml)
-- 2026-06-29 19:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/2568500817.shtml)
-- 2026-06-29 19:16 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/72259046.shtml)
-- 2026-06-29 18:48 - [爱很美味](http://www.blog.minike.top/Article/details/59673883106.shtml)
-- 2026-06-29 19:00 - [乔家的儿女](https://www.share.minike.top/Article/details/25048.shtml)
-- 2026-06-29 19:03 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/80480.shtml)
-- 2026-06-29 19:01 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/714825596.shtml)
-- 2026-06-29 18:58 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/88574.shtml)
-- 2026-06-29 19:11 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2088292129.shtml)
+- 2026-06-29 19:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/1580508372.shtml)
+- 2026-06-29 18:55 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/311332117.shtml)
+- 2026-06-29 19:05 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/38920799.shtml)
+- 2026-06-29 19:03 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/86615453.shtml)
+- 2026-06-29 19:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/00224957.shtml)
+- 2026-06-29 18:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/968921478.shtml)
+- 2026-06-29 19:11 - [NBA交易](https://www.share.minike.top/Article/details/018109.shtml)
+- 2026-06-29 19:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/42412144.shtml)
+- 2026-06-29 19:22 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/211336483668.shtml)
+- 2026-06-29 19:00 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/98788761040.shtml)
+- 2026-06-29 18:59 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/424830061597.shtml)
+- 2026-06-29 18:57 - [一生一世](http://www.blog.kurohicncr.top/Article/details/72184288.shtml)
+- 2026-06-29 18:55 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/4733826212.shtml)
+- 2026-06-29 18:56 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/229723.shtml)
+- 2026-06-29 19:15 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/679894683089.shtml)

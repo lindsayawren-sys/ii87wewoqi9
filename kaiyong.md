@@ -1,55 +1,56 @@
-# 美股期权伽马效应放大芯片股波动
+# Starz退出环球影业协议，利润率目标推迟至2027年下半年
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-近期半导体板块的剧烈波动可能并非完全由基本面驱动。据Real Investment Advice分析，短期看涨期权合约数量的激增正在引发“伽马挤压”效应。当大量投资者集中买入短期看涨期权时，作为对手方的期权做市商为了对冲风险，需要买入对应股票，从而进一步推高股价。然而，一旦期权到期或股价转向，做市商会迅速反向平仓，导致下跌同样被放大。这一机制不仅影响了英特尔、AMD、美光等热门
+美国付费电视网络Starz表示，在决定不再续签与环球影业的“Pay-Two”窗口协议后，公司已将20%的利润率目标从2026年推迟至2027年下半年实现。 协议终止原因 “Pay-Two”协议此前允许Starz在环球影业院线电影上映后的第二个付费窗口期拥有独家播放权。但由于流媒体战争的加剧和内容成本的持续上涨，Starz认为该协议的成本效益已不再划算。Starz首席执行官表示，
 
 ## 正文
 
-近期半导体板块的剧烈波动可能并非完全由基本面驱动。
+美国付费电视网络Starz表示，在决定不再续签与环球影业的“Pay-Two”窗口协议后，公司已将20%的利润率目标从2026年推迟至2027年下半年实现。
 
-据Real Investment Advice分析，短期看涨期权合约数量的激增正在引发“伽马挤压”效应。
+协议终止原因 “Pay-Two”协议此前允许Starz在环球影业院线电影上映后的第二个付费窗口期拥有独家播放权。
 
-当大量投资者集中买入短期看涨期权时，作为对手方的期权做市商为了对冲风险，需要买入对应股票，从而进一步推高股价。
+但由于流媒体战争的加剧和内容成本的持续上涨，Starz认为该协议的成本效益已不再划算。
 
-然而，一旦期权到期或股价转向，做市商会迅速反向平仓，导致下跌同样被放大。
+Starz首席执行官表示，退出该协议将释放约3.5亿美元的年度现金流，这些资金将用于投资原创内容和提升用户参与度。
 
-这一机制不仅影响了英特尔、AMD、美光等热门芯片股，甚至波及租车公司Avis等与半导体无关的个股。
+财务影响与战略调整 Starz预计，退出该协议将对2026年的收入产生约12%的短期冲击，但随着原创内容的投入和用户流失的减缓，预计2027年下半年营收将恢复增长。
 
-投资者需警惕这种由衍生品驱动的波动可能随时逆转。
+公司将20%的利润率目标推迟至2027年下半年，较原计划晚了约12至18个月。
 
-责任编辑：张俊 SF065
+作为调整的一部分，Starz将加大对历史剧和都市剧等利基类型原创剧集的投入，并计划在2027年推出广告支持的订阅层级。
+
+母公司支持 Starz的母公司表示支持这一战略调整。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 19:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 18:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 19:01 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 19:01 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 19:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 18:54 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 18:49 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 19:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 18:59 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 18:52 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 19:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 19:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 19:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 19:14 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 19:18 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 18:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 19:12 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 19:09 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/709022215098.shtml)
-- 2026-06-29 19:10 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/6255292.shtml)
-- 2026-06-29 19:15 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/8693015.shtml)
-- 2026-06-29 19:01 - [起风了](http://www.blog.minike.top/Article/details/473611.shtml)
-- 2026-06-29 19:10 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/875984606276.shtml)
-- 2026-06-29 18:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/189262.shtml)
-- 2026-06-29 19:02 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/181448.shtml)
-- 2026-06-29 19:05 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/6140491.shtml)
-- 2026-06-29 19:16 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/29248.shtml)
-- 2026-06-29 19:14 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/039818434738.shtml)
-- 2026-06-29 19:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/379925.shtml)
-- 2026-06-29 18:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/43541399.shtml)
-- 2026-06-29 18:58 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/651348316.shtml)
-- 2026-06-29 18:50 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/72500305026.shtml)
-- 2026-06-29 18:57 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/6330574397.shtml)
+- 2026-06-29 18:58 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/88059.shtml)
+- 2026-06-29 19:06 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/2077736.shtml)
+- 2026-06-29 19:00 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/8171917.shtml)
+- 2026-06-29 19:03 - [沉睡花园](http://www.blog.minike.top/Article/details/12153.shtml)
+- 2026-06-29 19:15 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/8306534933.shtml)
+- 2026-06-29 19:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/370128.shtml)
+- 2026-06-29 19:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/210582.shtml)
+- 2026-06-29 19:16 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/483856163.shtml)
+- 2026-06-29 19:05 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/6940457637.shtml)
+- 2026-06-29 19:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/00126.shtml)
+- 2026-06-29 19:10 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/28966.shtml)
+- 2026-06-29 19:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/002105709.shtml)
+- 2026-06-29 19:12 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/500209290850.shtml)
+- 2026-06-29 19:13 - [第一炉香](https://www.share.minike.top/Article/details/4424135802.shtml)
+- 2026-06-29 19:13 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/01896961.shtml)

@@ -1,49 +1,45 @@
-# 国金证券：阿里巴巴-W维持“买入”评级 AI业务加速增长
+# 今年4月末我国外汇储备规模为34105亿美元
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-国金证券发布研报称，阿里芯片+云+模型三位一体，是国内全栈AI龙头，云业务加速增长，即时零售有望显著减亏。阿里巴巴-W（09988）预计FY2027-2029年经调整归母净利润分别为974.97/1438.90/1919.77亿元，对应经调整PE分别为23.5/15.9/11.9倍，维持“买入”评级。责任编辑：卢昱君
+发布时间：2026年05月08日 13:57 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 正文
 
-国金证券发布研报称，阿里芯片+云+模型三位一体，是国内全栈AI龙头，云业务加速增长，即时零售有望显著减亏。
-
-阿里巴巴-W（09988）预计FY2027-2029年经调整归母净利润分别为974.97/1438.90/1919.77亿元，对应经调整PE分别为23.5/15.9/11.9倍，维持“买入”评级。
-
-责任编辑：卢昱君
+发布时间：2026年05月08日 13:57 来源：央视新闻 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 18:57 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 19:10 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 19:13 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 18:50 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:54 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 19:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 19:03 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 19:01 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 18:50 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 18:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 18:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 19:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 19:22 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 18:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 19:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 18:54 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 19:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 19:21 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:13 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 19:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 19:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 19:14 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 19:17 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 19:03 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 18:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/22237852962.shtml)
-- 2026-06-29 19:11 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/76565.shtml)
-- 2026-06-29 19:15 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/28255.shtml)
-- 2026-06-29 19:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/070061.shtml)
-- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/449608.shtml)
-- 2026-06-29 19:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/97621482971.shtml)
-- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/86037.shtml)
-- 2026-06-29 19:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/82653944041.shtml)
-- 2026-06-29 19:15 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/13067911546.shtml)
-- 2026-06-29 19:04 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/87534465.shtml)
-- 2026-06-29 19:06 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/64730.shtml)
-- 2026-06-29 18:53 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/8201647533.shtml)
-- 2026-06-29 18:48 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/22858.shtml)
-- 2026-06-29 19:03 - [金牌调解](https://www.share.minike.top/Article/details/84766261.shtml)
-- 2026-06-29 18:53 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/09483422.shtml)
+- 2026-06-29 19:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/6544460.shtml)
+- 2026-06-29 19:17 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/3984180627.shtml)
+- 2026-06-29 19:09 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/2012828522.shtml)
+- 2026-06-29 18:59 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/8197116431.shtml)
+- 2026-06-29 18:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/46269843705.shtml)
+- 2026-06-29 18:55 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/574544058895.shtml)
+- 2026-06-29 19:12 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/06440.shtml)
+- 2026-06-29 18:58 - [我和我的家乡](https://www.share.minike.top/Article/details/76097018096.shtml)
+- 2026-06-29 19:23 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/0484175.shtml)
+- 2026-06-29 19:02 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/19666667.shtml)
+- 2026-06-29 19:20 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/4840400008.shtml)
+- 2026-06-29 18:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/81563.shtml)
+- 2026-06-29 18:55 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/909386863508.shtml)
+- 2026-06-29 19:21 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/51608727046.shtml)
+- 2026-06-29 18:58 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/36757723.shtml)

@@ -1,57 +1,60 @@
-# 华泰期货：地缘局势仍不明朗，液化石油气盘面震荡运行
+# 光大证券，离头部券商越来越远
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场分析 1、5月14日地区价格：山东市场，6500-6600；华北市场，6400-6520；华东市场，7000-7320；沿江市场，6750-6990；西北市场，6150-6500；华南市场，7250-7350。（数据来源：卓创资讯） 2、2026年6月上半月中国华东冷冻货到岸价格丙烷1001美元/吨，跌12美元/吨，丁烷1051美元/吨，跌1
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源丨腾讯财经 文 | 王立广 编辑 | 刘鹏 2025年，A股市场走出了一轮资产重估行情，上证指数全年上涨18.41%，创业板指更是大涨近50%。在资本市场活跃的市场环境下，券商行业普遍交出了营收利润双增的成绩单。数据显示，上市券商在2025年营业收入超过百亿元的有16家，较2024年增加5家，其中光大证
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场分析 1、5月14日地区价格：山东市场，6500-6600；华北市场，6400-6520；华东市场，7000-7320；沿江市场，6750-6990；西北市场，6150-6500；华南市场，7250-7350。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-（数据来源：卓创资讯） 2、2026年6月上半月中国华东冷冻货到岸价格丙烷1001美元/吨，跌12美元/吨，丁烷1051美元/吨，跌12美元/吨，折合人民币价格丙烷7538元/吨，跌94元/吨，丁烷7914元/吨，跌94元/吨。
+来源丨腾讯财经 文 | 王立广 编辑 | 刘鹏 2025年，A股市场走出了一轮资产重估行情，上证指数全年上涨18.41%，创业板指更是大涨近50%。
 
-（数据来源：卓创资讯） 3、2026年6月上半月中国华南冷冻货到岸价格丙烷1001美元/吨，跌12美元/吨，丁烷1051美元/吨，跌12美元/吨，折合人民币价格丙烷7538元/吨，跌94元/吨，丁烷7914元/吨，跌94元/吨。
+在资本市场活跃的市场环境下，券商行业普遍交出了营收利润双增的成绩单。
 
-（数据来源：卓创资讯） 国际油价与PG盘面反弹后进入震荡态势，短期方向指引较不明朗。
+数据显示，上市券商在2025年营业收入超过百亿元的有16家，较2024年增加5家，其中光大证券重新回到百亿营收阵营。
 
-现货方面，昨日国内液化气现货价格整体波动幅度有限。
+财报显示，2025年，光大证券实现营业收入108.52亿元，同比增加13.06%；实现净利润37.24亿元，同比增加21.77%。
 
-其中，山东民用液化气与醚后碳四主流成交价格出现下调。
+总资产规模达到3181.14亿元，较2024年末增长8.59%；归属于母公司股东的权益为719.24亿元，同比增长5.17%。
 
-民用气下游需求平稳，市场交投氛围尚可；醚后碳四下游需求欠佳，业者入市积极性依然不高，市场活跃度一般。
+2025年是券商行业业绩大爆发的一年，中信证券营收增长28.79%，净利润增长38.58%；中金公司营收增长33.50%，净利润大增71.93%；广发证券营收增长34.33%，净利润增长42.18%。
 
-目前来看，在伊朗局势陷入僵局、海峡通航持续受阻的环境下，LPG供应端支撑偏强，到岸成本维持高位，但美国出口的增长与需求端的负反馈限制了市场的向上弹性。
+相较之下，光大证券营收和净利润增速相对明显偏弱，呈现落后态势。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 19:14 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 19:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 18:54 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 19:03 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 18:48 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:05 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 19:15 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 19:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 18:58 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 19:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 18:58 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 19:16 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 19:13 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 19:14 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 19:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 19:14 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 19:03 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 18:57 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 18:55 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 18:59 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 19:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 18:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 19:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 18:57 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/96343201707.shtml)
-- 2026-06-29 19:17 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/874577847.shtml)
-- 2026-06-29 19:09 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/239679356.shtml)
-- 2026-06-29 18:56 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/0437128770.shtml)
-- 2026-06-29 19:03 - [请回答王牌2019](http://www.blog.minike.top/Article/details/915320.shtml)
-- 2026-06-29 18:51 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/48536276558.shtml)
-- 2026-06-29 18:57 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/1394764080.shtml)
-- 2026-06-29 18:55 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/01640415782.shtml)
-- 2026-06-29 19:16 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/468102.shtml)
-- 2026-06-29 19:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/941547629207.shtml)
-- 2026-06-29 19:08 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/95526.shtml)
-- 2026-06-29 19:17 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/4321684360.shtml)
-- 2026-06-29 19:08 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/65817130.shtml)
-- 2026-06-29 19:04 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/217254.shtml)
-- 2026-06-29 18:59 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/325412761.shtml)
+- 2026-06-29 19:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/181878.shtml)
+- 2026-06-29 18:55 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/91383.shtml)
+- 2026-06-29 19:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/065647725639.shtml)
+- 2026-06-29 19:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/47569.shtml)
+- 2026-06-29 19:07 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/3779560.shtml)
+- 2026-06-29 19:17 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/810914355571.shtml)
+- 2026-06-29 19:18 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/000706.shtml)
+- 2026-06-29 18:54 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/9784377.shtml)
+- 2026-06-29 18:59 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/148238720200.shtml)
+- 2026-06-29 19:23 - [V8](https://www.share.kurohicncr.top/Article/details/1053938154.shtml)
+- 2026-06-29 19:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/68906.shtml)
+- 2026-06-29 18:58 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/91680118292.shtml)
+- 2026-06-29 19:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/136677.shtml)
+- 2026-06-29 19:17 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/799996.shtml)
+- 2026-06-29 19:15 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/92297853.shtml)

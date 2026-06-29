@@ -1,58 +1,59 @@
-# AI芯片制造商Cerebras Systems IPO估值飙升至近700亿美元
+# 湖南浏阳烟花厂爆炸事故已致37人死亡1人失联
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-人工智能芯片制造商Cerebras Systems登陆美股上市，IPO募资55亿美元，上市首日股价暴涨超一倍，再度凸显投资者对人工智能及半导体板块的狂热追捧。 尽管这家硅谷科技企业在行业外知名度不高，且几年前还被视作英伟达的二流竞争对手、不被市场看好，但凭借与OpenAI、亚马逊的战略合作，其依然完成了今年规模最大的IPO。 华尔街对此次IPO的热烈反应，只会进一步拉高市场对O
+中新社长沙5月8日电 (记者 唐小晴)5月4日16时43分许，湖南浏阳市华盛烟花制造燃放有限公司发生爆炸事故。官方8日最新通报称，截止到5月8日12时，事故造成37人死亡、1人失联，在医救治51人(其中重症5人，生命体征平稳)。目前，现场搜救工作已基本结束。事故发生后，长沙迅速启动应急响应，成立浏阳“5·4”事故处置工作组，调动1500余人开展救援、处置、救治等工作。 通报称，
 
 ## 正文
 
-人工智能芯片制造商Cerebras Systems登陆美股上市，IPO募资55亿美元，上市首日股价暴涨超一倍，再度凸显投资者对人工智能及半导体板块的狂热追捧。
+中新社长沙5月8日电 (记者 唐小晴)5月4日16时43分许，湖南浏阳市华盛烟花制造燃放有限公司发生爆炸事故。
 
-尽管这家硅谷科技企业在行业外知名度不高，且几年前还被视作英伟达的二流竞争对手、不被市场看好，但凭借与OpenAI、亚马逊的战略合作，其依然完成了今年规模最大的IPO。
+官方8日最新通报称，截止到5月8日12时，事故造成37人死亡、1人失联，在医救治51人(其中重症5人，生命体征平稳)。
 
-华尔街对此次IPO的热烈反应，只会进一步拉高市场对OpenAI、Anthropic上市的期待，两家企业最快有望于今年紧随埃隆·马斯克旗下太空探索技术公司SpaceX登陆公开资本市场。
+目前，现场搜救工作已基本结束。
 
-市场对Cerebras股票需求旺盛，投行多次上调发行指导价。
+事故发生后，长沙迅速启动应急响应，成立浏阳“5·4”事故处置工作组，调动1500余人开展救援、处置、救治等工作。
 
-公司于周三晚间将IPO发行价定为每股185美元，而本周早些时候其募资目标仅为48亿美元。
+通报称，经对现场开展多轮地毯式搜救，调取公司从业人员情况，结合公司门禁、视频数据、线下走访、电话视频连线、人员辨认和多轮DNA比对等方式，对失联人员进行全面排查，确认事故造成37人死亡、1人失联。
 
-该股周四午后挂牌交易后，盘中一度飙升至385美元，随后因波动过大触发临时停牌；收盘大涨68%，报收311美元。
+伤者救治、善后处置、原因调查、排查整治等工作正在有序进行。
 
-Cerebras上市后市值接近700亿美元，体量比肩通用汽车、华纳兄弟探索，同时也与苹果、三星等处于同一层次。
+公安机关已对涉嫌重大责任事故罪的8人传唤到案。
 
-Cerebras早在近两年前就首次递交上市申请。
+据悉，5月5日，湖南召开全省安全生产工作视频会议，深刻汲取事故教训，迅速在全省开展安全生产风险隐患大排查大整治，举一反三抓好重点行业领域安全防范工作，压紧压实安全生产责任，从源头上防范化解安全风险。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 19:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 19:08 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 18:48 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 18:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 18:57 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 18:56 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 19:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 19:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 19:08 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 19:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 19:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 18:55 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 18:59 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 19:07 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 19:04 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 19:23 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 19:18 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 19:06 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 19:00 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 18:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 19:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 19:19 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 19:05 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 18:57 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [NBA交易](https://www.share.kurohicncr.top/Article/details/2776853.shtml)
-- 2026-06-29 19:04 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/32901791697.shtml)
-- 2026-06-29 18:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/114008048.shtml)
-- 2026-06-29 18:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/14780938310.shtml)
-- 2026-06-29 18:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/48917.shtml)
-- 2026-06-29 19:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/38832165.shtml)
-- 2026-06-29 19:04 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/396954905.shtml)
-- 2026-06-29 18:48 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/01533273797.shtml)
-- 2026-06-29 18:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/43723.shtml)
-- 2026-06-29 19:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/907394562.shtml)
-- 2026-06-29 19:10 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/64833453.shtml)
-- 2026-06-29 19:12 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/240361.shtml)
-- 2026-06-29 19:07 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/719942.shtml)
-- 2026-06-29 19:00 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/6856824789.shtml)
-- 2026-06-29 19:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/6647360.shtml)
+- 2026-06-29 19:11 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/468317.shtml)
+- 2026-06-29 19:22 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/1777067455.shtml)
+- 2026-06-29 19:23 - [青春环游记第三季](http://www.blog.minike.top/Article/details/44357.shtml)
+- 2026-06-29 19:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/1235329.shtml)
+- 2026-06-29 19:18 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/563188340.shtml)
+- 2026-06-29 18:55 - [青春环游记第三季](https://www.share.minike.top/Article/details/807720408.shtml)
+- 2026-06-29 19:06 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/64572.shtml)
+- 2026-06-29 18:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/509914211.shtml)
+- 2026-06-29 19:21 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/05227070.shtml)
+- 2026-06-29 19:03 - [人形机器人](https://www.share.kurohicncr.top/Article/details/846517873.shtml)
+- 2026-06-29 19:21 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/705775.shtml)
+- 2026-06-29 19:23 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/4738875.shtml)
+- 2026-06-29 18:56 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/1802588849.shtml)
+- 2026-06-29 19:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/65890.shtml)
+- 2026-06-29 19:12 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/75844734109.shtml)

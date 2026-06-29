@@ -1,56 +1,60 @@
-# 上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％
+# 天祥集团拒绝EQT上调后的121亿美元收购要约
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。 数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。 上海市户籍60岁及以上的老年人口中，男性占47.8%，女性
+天祥集团表示，正考虑出售或分拆旗下能源与基础设施业务部门 天祥集团正式拒绝瑞典收购集团 EQT 提出的121 亿美元优化版收购方案，认为该报价严重低估公司价值；同时集团仍在推进战略评估，考虑分拆剥离能源与基础设施业务板块。 这家全球检测、检验与认证服务机构，拒绝了 EQT 于周二提出的修订要约：每股现金对价 58 英镑，对应企业整体估值 89.3 亿英镑（折合 121 亿美元）
 
 ## 正文
 
-中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。
+天祥集团表示，正考虑出售或分拆旗下能源与基础设施业务部门 天祥集团正式拒绝瑞典收购集团 EQT 提出的121 亿美元优化版收购方案，认为该报价严重低估公司价值；同时集团仍在推进战略评估，考虑分拆剥离能源与基础设施业务板块。
 
-数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。
+这家全球检测、检验与认证服务机构，拒绝了 EQT 于周二提出的修订要约：每股现金对价 58 英镑，对应企业整体估值 89.3 亿英镑（折合 121 亿美元）。
 
-上海市户籍60岁及以上的老年人口中，男性占47.8%，女性占52.2%。
+早在上月，EQT 已将收购报价从此前每股 51.50 英镑，上调至每股 54 英镑。
 
-截至2025年年底，上海养老服务行业共有养老护理员6.75万人，卫生专业技术人员3274人。
+天祥集团周五表示，董事会一致且明确做出拒绝决议。
 
-上海持续构建居家养老、社区养老、机构养老相融合的养老服务格局。
+公司认为，该收购要约显著低估自身内在价值，且附带多项交易条件，存在重大落地执行风险。
 
-除了在社区养老、机构养老上不断加强服务，近年来，上海尝试为老年人家庭提供适老化改造，小到换鞋凳、小夜灯，大到厨房、卫生间的整体改造，均致力于让居家养老更舒适、更安全。
+集团仍在推进战略评估，拟将能源与基础设施业务从天祥检测认证主体中出售或分拆独立。
 
-数据显示，2025年，上海居家环境适老化改造户数共计11031户，其中享受补贴的有10938户。
+目前天祥已优先启动该业务的出售流程，并表示已收到多家潜在收购方的积极意向。
 
-(完)
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 18:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 18:59 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 18:52 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 19:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 19:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 19:09 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 18:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 18:56 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 19:12 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 19:17 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 19:08 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 19:19 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 19:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 19:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 19:21 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 19:16 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 19:04 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 19:20 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 18:57 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 19:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 19:05 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 19:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 19:11 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/736616.shtml)
-- 2026-06-29 18:57 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/049177420.shtml)
-- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/909729107083.shtml)
-- 2026-06-29 18:49 - [女心理师](https://www.share.kurohicncr.top/Article/details/556488.shtml)
-- 2026-06-29 19:05 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/17754974.shtml)
-- 2026-06-29 18:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/1322802481.shtml)
-- 2026-06-29 18:50 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/99176174.shtml)
-- 2026-06-29 19:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/795803630918.shtml)
-- 2026-06-29 18:56 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/564038184.shtml)
-- 2026-06-29 18:50 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/21101268.shtml)
-- 2026-06-29 19:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/704608.shtml)
-- 2026-06-29 19:17 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/42921676.shtml)
-- 2026-06-29 18:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/4074257.shtml)
-- 2026-06-29 19:13 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/123865763458.shtml)
-- 2026-06-29 18:52 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/43120577509.shtml)
+- 2026-06-29 18:55 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/32618725403.shtml)
+- 2026-06-29 18:59 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/0650917110.shtml)
+- 2026-06-29 19:00 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/62654993.shtml)
+- 2026-06-29 19:23 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/1453565.shtml)
+- 2026-06-29 18:56 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/470460.shtml)
+- 2026-06-29 19:18 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/675731.shtml)
+- 2026-06-29 19:01 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/220773.shtml)
+- 2026-06-29 19:17 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/94827.shtml)
+- 2026-06-29 19:02 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/65943324337.shtml)
+- 2026-06-29 19:14 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/029873587.shtml)
+- 2026-06-29 19:23 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/975531016.shtml)
+- 2026-06-29 19:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/23269538.shtml)
+- 2026-06-29 18:58 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/554157675737.shtml)
+- 2026-06-29 19:14 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/2492313725.shtml)
+- 2026-06-29 19:18 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/242229974886.shtml)

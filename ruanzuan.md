@@ -1,58 +1,58 @@
-# 玲珑轮胎总裁周令坤：出海机遇远远大于风险
+# 挪威对俄鳕鱼协议引争议，遭国内业者起诉
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。玲珑轮胎总裁周令坤在演讲中表示，在配套市场方面，玲珑轮胎在配套领域做得相对较好，目前全球排名前十的整车厂中，已有八家是我们的供货客户，估计很快就能实现对前十家整车厂的全面供货。“在这个过程中，我们完全没有感受到外资OEM的封闭性，反而更多感受到的是机遇，是非常有利
+挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。 此举使挪威陷入两难。尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。自2025年7月起，
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。
 
-玲珑轮胎总裁周令坤在演讲中表示，在配套市场方面，玲珑轮胎在配套领域做得相对较好，目前全球排名前十的整车厂中，已有八家是我们的供货客户，估计很快就能实现对前十家整车厂的全面供货。
+一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。
 
-“在这个过程中，我们完全没有感受到外资OEM的封闭性，反而更多感受到的是机遇，是非常有利的发展契机。
+此举使挪威陷入两难。
 
-”他说。
+尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。
 
-他表示，这种机遇的背后，是相对成熟的产业链优势。
+然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。
 
-往上游看，从原材料环节开始，国内完善的产业基础，再加上我们新建工厂的优势，让我们的设备更具备智能制造的基础。
+自2025年7月起，挪威对俄罗斯大型渔业企业Norebo和Murman Seafood实施了限制措施，禁止其船只进入挪威水域和港口。
 
-无论是产品出口，我们的价格竞争力都非常明显，工厂新、原材料价格有优势、制造成本可控。
+被制裁的Norebo公司已采取法律行动，在挪威法庭质疑该禁令的合法性，认为其违反了1976年签署的挪俄渔业协议。
 
-同时，受外部等因素影响，我们现在也在推进产业链出海。
+该公司控制着俄罗斯在巴伦支海约40%的鳕鱼配额，若其船队被持续拒之门外，将面临巨大损失。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 18:50 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 19:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 18:59 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 19:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 19:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 19:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 19:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 18:56 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 19:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 18:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 19:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 19:03 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 19:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 19:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:22 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 19:22 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 19:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 19:05 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 19:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 19:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 19:19 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/186401.shtml)
-- 2026-06-29 18:55 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/7249291.shtml)
-- 2026-06-29 19:00 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/12658930.shtml)
-- 2026-06-29 19:13 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/205082629.shtml)
-- 2026-06-29 19:04 - [女心理师](http://www.share.kurohicncr.top/Article/details/206928.shtml)
-- 2026-06-29 19:08 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/344407578.shtml)
-- 2026-06-29 18:53 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/25142936.shtml)
-- 2026-06-29 18:56 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/12066384232.shtml)
-- 2026-06-29 19:07 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/002713.shtml)
-- 2026-06-29 19:01 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/8202456.shtml)
-- 2026-06-29 19:17 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/9225430.shtml)
-- 2026-06-29 19:04 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/142034870515.shtml)
-- 2026-06-29 19:03 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/00853721.shtml)
-- 2026-06-29 18:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/012757.shtml)
-- 2026-06-29 19:08 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/91332533.shtml)
+- 2026-06-29 18:59 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/35068.shtml)
+- 2026-06-29 19:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/2050934.shtml)
+- 2026-06-29 19:20 - [一生一世](http://www.blog.kurohicncr.top/Article/details/56189559.shtml)
+- 2026-06-29 19:18 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/671428898.shtml)
+- 2026-06-29 19:00 - [爱很美味](https://www.blog.minike.top/Article/details/883355238351.shtml)
+- 2026-06-29 19:14 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/1671838.shtml)
+- 2026-06-29 19:03 - [毒液2](https://www.share.kurohicncr.top/Article/details/379545250.shtml)
+- 2026-06-29 19:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/026009968252.shtml)
+- 2026-06-29 18:54 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/752897891.shtml)
+- 2026-06-29 19:20 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/34417133.shtml)
+- 2026-06-29 19:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/07385.shtml)
+- 2026-06-29 19:15 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/215710.shtml)
+- 2026-06-29 19:13 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/97454.shtml)
+- 2026-06-29 19:07 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/4878126573.shtml)
+- 2026-06-29 19:02 - [女心理师](http://www.blog.minike.top/Article/details/6695011636.shtml)

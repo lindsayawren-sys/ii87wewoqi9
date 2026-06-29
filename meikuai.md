@@ -1,55 +1,44 @@
-# 河南证监局原党委委员、副局长楚天慧被开除党籍和公职
+# 中邮证券：神州控股经营质量全面改善 首次覆盖给予“买入”评级
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-来源：央视网 央视网消息：中央纪委国家监委网站5月15日通报，据中央纪委国家监委驻中国证券监督管理委员会纪检监察组、河南省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国证券监督管理委员会纪检监察组与河南省漯河市监委对中国证监会河南监管局原党委委员、副局长楚天慧严重违纪违法问题进行了纪律审查和监察调查。 经查，楚天慧丧失理想信念，背弃初心使命，对中央八项规定精
+中邮证券发布研报称，预计神州控股（00861）2026-2028年分别实现营收229.23、253.30、283.77亿元，同比增速分别为9.08%、10.50%、12.03%；分别实现归母净利润1.00、1.76、3.03亿元，同比增速分别为217.91%、76.43%、71.83%；基本每股收益分别为0.06、0.11、0.18元，对应2026年5月6日收盘价2.45港元，
 
 ## 正文
 
-来源：央视网 央视网消息：中央纪委国家监委网站5月15日通报，据中央纪委国家监委驻中国证券监督管理委员会纪检监察组、河南省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国证券监督管理委员会纪检监察组与河南省漯河市监委对中国证监会河南监管局原党委委员、副局长楚天慧严重违纪违法问题进行了纪律审查和监察调查。
+中邮证券发布研报称，预计神州控股（00861）2026-2028年分别实现营收229.23、253.30、283.77亿元，同比增速分别为9.08%、10.50%、12.03%；分别实现归母净利润1.00、1.76、3.03亿元，同比增速分别为217.91%、76.43%、71.83%；基本每股收益分别为0.06、0.11、0.18元，对应2026年5月6日收盘价2.45港元，PE分别为35.71、20.24、11.78；首次覆盖给予“买入”评级。
 
-经查，楚天慧丧失理想信念，背弃初心使命，对中央八项规定精神置若罔闻，长期违规收受礼品礼金及消费卡，接受可能影响公正执行公务的宴请；违反组织原则，不按规定报告个人有关事项；纪律意识淡薄，借用多人多个账户长期违规买卖股票，违规拥有非上市公司股份；纪法底线失守，弃守监管职责，利用职务便利及职务影响力，在公司监管、稽查执法等工作中为他人谋取利益，非法收受巨额财物。
-
-楚天慧严重违反党的组织纪律、廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，在党的十八大后仍不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
-
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国证监会党委研究，决定给予楚天慧开除党籍处分；经中央纪委国家监委驻中国证券监督管理委员会纪检监察组研究，决定给予楚天慧开除公职处分；收缴其违纪违法所得。
-
-经河南省漯河市监委研究，决定将楚天慧涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
-
-责任编辑：刘万里 SF014
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 18:53 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 18:57 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 19:03 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 19:17 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 19:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 19:16 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 19:03 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 19:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:00 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 19:17 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 19:21 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 18:57 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 19:00 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 19:08 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 19:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 19:08 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:09 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 19:04 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 19:21 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [斛珠夫人](https://www.blog.minike.top/Article/details/4002055732.shtml)
-- 2026-06-29 18:50 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/44004986930.shtml)
-- 2026-06-29 19:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/02703.shtml)
-- 2026-06-29 18:51 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/081307513568.shtml)
-- 2026-06-29 19:15 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/42495161.shtml)
-- 2026-06-29 18:59 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/414209493220.shtml)
-- 2026-06-29 18:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/38684815740.shtml)
-- 2026-06-29 19:10 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/415062213943.shtml)
-- 2026-06-29 19:10 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/761537758.shtml)
-- 2026-06-29 18:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/625288.shtml)
-- 2026-06-29 18:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/4380231902.shtml)
-- 2026-06-29 18:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/16969097.shtml)
-- 2026-06-29 18:54 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/3944506.shtml)
-- 2026-06-29 19:14 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/4018538.shtml)
-- 2026-06-29 18:57 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/307809.shtml)
+- 2026-06-29 19:04 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/92082875221.shtml)
+- 2026-06-29 19:12 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/222657.shtml)
+- 2026-06-29 19:04 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/66901.shtml)
+- 2026-06-29 19:16 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/971024216.shtml)
+- 2026-06-29 19:15 - [天道](http://www.blog.minike.top/Article/details/734002876.shtml)
+- 2026-06-29 19:19 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/556061.shtml)
+- 2026-06-29 18:55 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/08959.shtml)
+- 2026-06-29 19:21 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/2557280988.shtml)
+- 2026-06-29 19:14 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/644802901992.shtml)
+- 2026-06-29 18:54 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/63889.shtml)
+- 2026-06-29 19:22 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/8295734.shtml)
+- 2026-06-29 19:06 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/2010628690.shtml)
+- 2026-06-29 19:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/85911916239.shtml)
+- 2026-06-29 19:02 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/83764.shtml)
+- 2026-06-29 19:18 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/582109648.shtml)

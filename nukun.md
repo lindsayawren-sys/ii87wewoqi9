@@ -1,56 +1,58 @@
-# 厨师掉入货梯 消防员徒手撕挡板救援
+# 元道通信涉嫌欺诈发行、财务造假，或触及重大违法强制退市情形
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 20:59 来源：中国新闻网 近日，山西晋中，平遥县发生一起电梯被困事故。接警后，平遥县消防救援大队柳根西街站出动2车14人赶赴现场。 据悉，由于饭店厨师打开传菜货梯门查看时不慎脚滑，导致从货梯上摔下。1名消防员利用撬棍将货梯侧门进行破拆，4名队员在翘一角后集中发力将货梯撕开大口。随后一名人员继续破拆，其余人员放置担架并辅助被困人员进行移动，7
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！证监会5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公
 
 ## 正文
 
-发布时间：2026年05月16日 20:59 来源：中国新闻网 近日，山西晋中，平遥县发生一起电梯被困事故。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-接警后，平遥县消防救援大队柳根西街站出动2车14人赶赴现场。
+证监会5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。
 
-据悉，由于饭店厨师打开传菜货梯门查看时不慎脚滑，导致从货梯上摔下。
+经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。
 
-1名消防员利用撬棍将货梯侧门进行破拆，4名队员在翘一角后集中发力将货梯撕开大口。
+证监会拟对上市公司罚款23884万元，对3名责任人员合计罚款1800万元并对相关人员采取5年证券市场禁入措施。
 
-随后一名人员继续破拆，其余人员放置担架并辅助被困人员进行移动，7分钟后，成功将被困人员救出并送医。
+元道通信涉嫌触及重大违法强制退市情形，深交所将依法启动退市程序。
 
-(张立程 吕文军） 责任编辑：【吉翔】
+证监会已冻结元道通信募集资金相关账户，目前正在对中介机构执业情况开展调查。
+
+对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 19:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 19:07 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 19:03 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 19:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 19:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:57 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 18:49 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 19:08 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 19:17 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 18:56 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 18:56 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:04 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 19:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 19:20 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 19:17 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 19:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 19:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 19:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 19:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 19:16 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 19:13 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 19:19 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/526745.shtml)
-- 2026-06-29 19:01 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/53197168.shtml)
-- 2026-06-29 18:49 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/398244330.shtml)
-- 2026-06-29 19:13 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/0982661.shtml)
-- 2026-06-29 19:08 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/9416974.shtml)
-- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/02965.shtml)
-- 2026-06-29 18:59 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/38487677.shtml)
-- 2026-06-29 19:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/271379.shtml)
-- 2026-06-29 18:54 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/669931.shtml)
-- 2026-06-29 19:14 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/86641.shtml)
-- 2026-06-29 18:59 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/63077.shtml)
-- 2026-06-29 19:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/9019453621.shtml)
-- 2026-06-29 19:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/89116.shtml)
-- 2026-06-29 18:49 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5347712.shtml)
-- 2026-06-29 19:13 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/261212690.shtml)
+- 2026-06-29 19:02 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/848004894615.shtml)
+- 2026-06-29 19:02 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/30503046501.shtml)
+- 2026-06-29 19:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/52385255049.shtml)
+- 2026-06-29 19:05 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/131388502.shtml)
+- 2026-06-29 19:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/83765.shtml)
+- 2026-06-29 19:16 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/3077984.shtml)
+- 2026-06-29 19:17 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/418665059444.shtml)
+- 2026-06-29 18:58 - [小娘惹](http://www.blog.minike.top/Article/details/5797610111.shtml)
+- 2026-06-29 19:03 - [王俊凯命名方式](https://www.share.minike.top/Article/details/4682474.shtml)
+- 2026-06-29 19:06 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/433235243.shtml)
+- 2026-06-29 18:58 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/7821280.shtml)
+- 2026-06-29 19:11 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/72104860.shtml)
+- 2026-06-29 18:54 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/56851.shtml)
+- 2026-06-29 18:58 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/055843294.shtml)
+- 2026-06-29 18:57 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/17339106.shtml)

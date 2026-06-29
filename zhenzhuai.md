@@ -1,57 +1,61 @@
-# 美国长岛铁路工人举行罢工 系1994年以来首次停工
+# 上海将承办2028年奥运会资格系列赛
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-全美最繁忙通勤线路——长岛铁路，迎来三十余年来首次全线停运。此前劳资双方未能在周五夜间截止期限内敲定涨薪方案。 此次罢工始于周六，涉及约3500名机车技师、电力工人与信号工作人员，也是该线路自1994年以来首次大规模停工。经过两日谈判仍未达成共识后，机车司机与乘务员工会全国副主席凯文・塞克斯顿在午夜后的新闻发布会上正式宣布罢工启动。 “很遗憾，从今日凌晨零点零一分起，我们正式开
+中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔
 
 ## 正文
 
-全美最繁忙通勤线路——长岛铁路，迎来三十余年来首次全线停运。
+中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。
 
-此前劳资双方未能在周五夜间截止期限内敲定涨薪方案。
+这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。
 
-此次罢工始于周六，涉及约3500名机车技师、电力工人与信号工作人员，也是该线路自1994年以来首次大规模停工。
+其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔；2028年6月8日至11日在奥兰多收官。
 
-经过两日谈判仍未达成共识后，机车司机与乘务员工会全国副主席凯文・塞克斯顿在午夜后的新闻发布会上正式宣布罢工启动。
+每站赛事的具体项目设置还待确认，目前计划设项包括三人篮球、沙滩排球、自由式小轮车、攀岩、腰旗橄榄球和滑板。
 
-“很遗憾，从今日凌晨零点零一分起，我们正式开启长岛铁路罢工行动。
+其中，自由式小轮车、攀岩和滑板是2024年首届奥运会资格系列赛项目，三人篮球、沙滩排球和腰旗橄榄球则是新加入的项目。
 
-”塞克斯顿说道。
+为在奥运会举办的十几天之外持续保持奥林匹克运动的热度，并吸引更多青年人的关注，国际奥委会在巴黎奥运周期创办了奥运会资格系列赛。
 
-铁路停运势必进一步加重长岛路面交通压力，平日30万名通勤民众只能改换其他交通方式出行。
+创立这一赛事，也是奥林匹克运动改革路线图《奥林匹克2020+5议程》中的一项重要举措。
 
-长岛铁路工会方面要求薪资涨幅达到5%左右，以此抵消通胀带来的生活压力。
+国际奥委会主席柯丝蒂·考文垂说：“本届资格系列赛是通往洛杉矶奥运会道路上一项激动人心的全球赛事。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 18:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 19:12 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 19:06 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 19:03 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 19:16 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 19:04 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 19:11 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 18:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 19:07 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 19:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 19:21 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 19:09 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 18:56 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 19:01 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 19:21 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 19:06 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 19:22 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 19:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:54 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:16 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 19:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 18:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 19:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 19:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/98618.shtml)
-- 2026-06-29 19:02 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/4199141.shtml)
-- 2026-06-29 18:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/04025.shtml)
-- 2026-06-29 18:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3128321.shtml)
-- 2026-06-29 19:08 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/74592489.shtml)
-- 2026-06-29 19:11 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/45482.shtml)
-- 2026-06-29 18:54 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/43446560.shtml)
-- 2026-06-29 19:04 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/861454860.shtml)
-- 2026-06-29 18:48 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/40176858.shtml)
-- 2026-06-29 18:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/8323487089.shtml)
-- 2026-06-29 18:58 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/65321.shtml)
-- 2026-06-29 18:54 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/87184.shtml)
-- 2026-06-29 18:57 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/91596.shtml)
-- 2026-06-29 19:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/042683.shtml)
-- 2026-06-29 19:15 - [TOP Prada](https://www.share.minike.top/Article/details/407308288.shtml)
+- 2026-06-29 19:19 - [逆天祖国人](https://www.share.minike.top/Article/details/11981639.shtml)
+- 2026-06-29 19:23 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/865578466.shtml)
+- 2026-06-29 19:04 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/93292905077.shtml)
+- 2026-06-29 19:13 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/205211.shtml)
+- 2026-06-29 18:57 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/68939.shtml)
+- 2026-06-29 19:07 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/571134336709.shtml)
+- 2026-06-29 19:00 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/94810428024.shtml)
+- 2026-06-29 19:19 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/124256197388.shtml)
+- 2026-06-29 19:10 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/70777836.shtml)
+- 2026-06-29 19:16 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/128369847482.shtml)
+- 2026-06-29 19:17 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/7156464.shtml)
+- 2026-06-29 18:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/09781675.shtml)
+- 2026-06-29 18:58 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/844910534.shtml)
+- 2026-06-29 19:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/0416596.shtml)
+- 2026-06-29 19:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/727736.shtml)

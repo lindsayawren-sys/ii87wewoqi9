@@ -1,60 +1,59 @@
-# 【市场聚焦】橡胶：隐忧仍存
+# 央行连续18个月增持黄金
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中粮期货研究中心 摘要 橡胶当前强中有弱的格局，意味着短期行情依旧偏强。但受各类潜在隐忧制约，上行空间将受到限制。同时，后续若产区产量恢复，橡胶盘面存在大幅回调的可能。 目前橡胶处于强中有弱的状态。所谓强，即基本面偏强，价格持续上涨，盘面与基本面形成了相互印证。所谓弱，是指在橡胶强势之中存在隐忧，这些隐忧当前未必会显现出作用，而在后市可能会给橡胶带来大幅回调。 基本面偏多，体现
+本报记者 杜雨萌5月7日，中国人民银行公布的数据显示，截至4月末，我国黄金储备为7464万盎司，较3月末的7438万盎司增加26万盎司，为连续第18个月增持黄金。东方金诚首席宏观分析师王青在接受《证券日报》记者采访时表示，4月份，受地缘局势扰动影响，国际油价大幅走高，同时市场对美联储降息的预期有所降温，多重因素推动国际金价连续第二个月回落，这也成为当月央行增持黄金的直接原因。针
 
 ## 正文
 
-中粮期货研究中心 摘要 橡胶当前强中有弱的格局，意味着短期行情依旧偏强。
+本报记者 杜雨萌5月7日，中国人民银行公布的数据显示，截至4月末，我国黄金储备为7464万盎司，较3月末的7438万盎司增加26万盎司，为连续第18个月增持黄金。
 
-但受各类潜在隐忧制约，上行空间将受到限制。
+东方金诚首席宏观分析师王青在接受《证券日报》记者采访时表示，4月份，受地缘局势扰动影响，国际油价大幅走高，同时市场对美联储降息的预期有所降温，多重因素推动国际金价连续第二个月回落，这也成为当月央行增持黄金的直接原因。
 
-同时，后续若产区产量恢复，橡胶盘面存在大幅回调的可能。
+针对央行近一年半持续增持黄金的操作，受访专家普遍认为，核心原因是全球政治经济格局呈现新变化。
 
-目前橡胶处于强中有弱的状态。
+即便当前国际金价处在历史高位，但从优化官方国际储备配置的角度来看，增持黄金的配置价值与必要性仍在提升。
 
-所谓强，即基本面偏强，价格持续上涨，盘面与基本面形成了相互印证。
+“截至2026年4月末，在我国主要由外汇储备和黄金储备构成的官方国际储备中，黄金储备占比约为9.1%，明显低于15%左右的全球平均水平。
 
-所谓弱，是指在橡胶强势之中存在隐忧，这些隐忧当前未必会显现出作用，而在后市可能会给橡胶带来大幅回调。
+此外，黄金又是全球广泛接受的最终支付手段，因此，央行增持黄金有助于增强主权货币信用，为稳慎推进人民币国际化创造有利条件。
 
-基本面偏多，体现在需求端超预期利好，供给端长短逻辑共振向上。
+”王青表示，后续央行稳步增持黄金仍将是大趋势。
 
-从需求端来看，3月重卡销量数据创出近几年来同期最高水平；4月重卡销量虽有所回落，但仍处于近几年高位。
+结合近期国际金价表现来看，市场对于全球能源供应中断以及通胀持续升温的担忧明显下降，这使得前期压制国际金价的逻辑趋于弱化，推动国际金价再度走强。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 18:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 19:03 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 19:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 19:03 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 19:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 19:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 19:05 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 19:12 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 18:51 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 19:02 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 19:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 19:12 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 19:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 19:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 19:05 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 19:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 19:14 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 19:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 19:14 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 19:17 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 19:15 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 19:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 18:55 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 19:19 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 19:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/48821875.shtml)
-- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/8285438.shtml)
-- 2026-06-29 18:56 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/325329163303.shtml)
-- 2026-06-29 19:06 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/212153.shtml)
-- 2026-06-29 19:10 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/125335795182.shtml)
-- 2026-06-29 19:07 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/48046110193.shtml)
-- 2026-06-29 19:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.kurohicncr.top/Article/details/8412479104.shtml)
-- 2026-06-29 19:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/87753385.shtml)
-- 2026-06-29 19:11 - [我和我的家乡](http://www.blog.minike.top/Article/details/24985454070.shtml)
-- 2026-06-29 19:10 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/723011402.shtml)
-- 2026-06-29 19:02 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/76375.shtml)
-- 2026-06-29 19:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/264020.shtml)
-- 2026-06-29 19:05 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/288803.shtml)
-- 2026-06-29 18:50 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/45477277.shtml)
-- 2026-06-29 19:14 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/767911347.shtml)
+- 2026-06-29 19:22 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/681848.shtml)
+- 2026-06-29 19:24 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/036931505.shtml)
+- 2026-06-29 19:21 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/4093682.shtml)
+- 2026-06-29 18:58 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/66140801831.shtml)
+- 2026-06-29 19:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/6043759.shtml)
+- 2026-06-29 19:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/03089.shtml)
+- 2026-06-29 19:15 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/63628654.shtml)
+- 2026-06-29 19:22 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/555415628.shtml)
+- 2026-06-29 19:04 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/9670545.shtml)
+- 2026-06-29 18:57 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/637383887.shtml)
+- 2026-06-29 18:59 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/70407.shtml)
+- 2026-06-29 19:09 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/661294.shtml)
+- 2026-06-29 19:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/2791590097.shtml)
+- 2026-06-29 18:55 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/01791.shtml)
+- 2026-06-29 18:58 - [第一炉香](https://www.share.kurohicncr.top/Article/details/338354314361.shtml)

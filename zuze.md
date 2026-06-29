@@ -1,61 +1,57 @@
-# Nu Holdings营收突破50亿美元，但季度利润率承压
+# 开盘：美股周四高开 道指突破5万点
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。按中性汇率计算，净利润为8.71亿美元，同比增长41%。年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。 毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。经风险调整后的净息差（NIM）从第四季度的
+北京时间5月7日晚，美股周四高开，道指突破5万点关口。布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 道指涨193.39点，涨幅为0.39%，报50103.98点；纳指涨40.55点，涨幅为0.16%，报25879.50点；标普500指数涨6.50点，涨幅为0.09%，报7371.62点。 布伦特原油交投于
 
 ## 正文
 
-Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。
+北京时间5月7日晚，美股周四高开，道指突破5万点关口。
 
-按中性汇率计算，净利润为8.71亿美元，同比增长41%。
+布伦特原油连续第三天下跌。
 
-年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。
+交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
 
-毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。
+道指涨193.39点，涨幅为0.39%，报50103.98点；纳指涨40.55点，涨幅为0.16%，报25879.50点；标普500指数涨6.50点，涨幅为0.09%，报7371.62点。
 
-经风险调整后的净息差（NIM）从第四季度的10.5%下降100个基点至9.5%。
+布伦特原油交投于每桶99美元附近，延续前两个交易日累计12%的跌势，原因是市场越来越相信中东协议已近在眼前。
 
-早期逾期率（15至90天不良贷款率）上升89个基点至5.0%，与2024年第一季度和2025年第一季度观察到的季节性模式一致。
+6月交割的WTI原油期货下跌2.5%，至每桶92.79美元。
 
-总信贷组合同比增长40%至372亿美元。
+布伦特原油本周累计下跌逾10%。
 
-成本收入比从第四季度的19.9%改善至17.6%。
+即便经历这轮下跌，布伦特原油价格仍比2月底冲突爆发时高出40%；与此同时。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 19:00 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 18:52 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 19:07 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 19:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 19:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 18:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 19:00 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 19:09 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 19:15 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 19:08 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 18:55 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:48 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 18:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 18:58 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:05 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 18:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 19:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 19:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 19:23 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:19 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 19:03 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 19:03 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 19:12 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 19:01 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/2723894.shtml)
-- 2026-06-29 18:51 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/1620186.shtml)
-- 2026-06-29 18:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/220708658700.shtml)
-- 2026-06-29 19:13 - [第一炉香](https://www.share.minike.top/Article/details/76623854785.shtml)
-- 2026-06-29 19:16 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/15079561.shtml)
-- 2026-06-29 19:05 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/694482.shtml)
-- 2026-06-29 19:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/691614534464.shtml)
-- 2026-06-29 18:53 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/36479.shtml)
-- 2026-06-29 18:50 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/214773034.shtml)
-- 2026-06-29 18:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/24934.shtml)
-- 2026-06-29 18:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/296704299.shtml)
-- 2026-06-29 19:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/65369.shtml)
-- 2026-06-29 19:10 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/40120.shtml)
-- 2026-06-29 18:56 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/418763.shtml)
-- 2026-06-29 19:14 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/0788463657.shtml)
+- 2026-06-29 19:01 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/48413207.shtml)
+- 2026-06-29 19:13 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/59275.shtml)
+- 2026-06-29 19:00 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/96878.shtml)
+- 2026-06-29 19:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/0452696.shtml)
+- 2026-06-29 19:05 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/661272581.shtml)
+- 2026-06-29 19:15 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/80674.shtml)
+- 2026-06-29 19:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/787393478664.shtml)
+- 2026-06-29 19:17 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/6121156259.shtml)
+- 2026-06-29 19:16 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/519319810.shtml)
+- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/040180097431.shtml)
+- 2026-06-29 18:58 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/68258563751.shtml)
+- 2026-06-29 18:57 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/03599.shtml)
+- 2026-06-29 19:12 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/97900475.shtml)
+- 2026-06-29 19:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/3581439.shtml)
+- 2026-06-29 18:58 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/24099789436.shtml)

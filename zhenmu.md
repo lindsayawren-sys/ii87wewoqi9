@@ -1,61 +1,58 @@
-# 宏观逆风与供应扰动博弈，国内有色金属早盘全线溃败，长江1#铜领跌1950元/吨！
+# nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货早盘休市行情： ——5月15日长江现货价格动态： 1#铜价报105790元/吨，跌1950元；升水为180元/吨，持平；A00铝锭报24370元/吨，跌240元；贴水报175元；0#锌报24750元/吨，跌120元；1#锌报24650元/吨，跌120元；1#铅锭报16525元/吨，跌75元；1#镍报144350元/吨，跌1550元；1#锡报423500元/吨
+激光技术公司nLIGHT股价大涨22%，此前该公司公布的一季度财报显示营收和利润双双超出市场预期，主要得益于国防领域对高能激光器的强劲需求。 财报亮点 财报显示，nLIGHT一季度营收为6，200万美元，同比增长18%，高于分析师预期的5，800万美元。调整后每股亏损为0.05美元，优于市场预期的亏损0.12美元，且较去年同期的亏损0.10美元有所收窄。毛利率为28.5%，高于
 
 ## 正文
 
-长江有色金属网 期货早盘休市行情： ——5月15日长江现货价格动态： 1#铜价报105790元/吨，跌1950元；升水为180元/吨，持平；A00铝锭报24370元/吨，跌240元；贴水报175元；0#锌报24750元/吨，跌120元；1#锌报24650元/吨，跌120元；1#铅锭报16525元/吨，跌75元；1#镍报144350元/吨，跌1550元；1#锡报423500元/吨，跌4500元； 【宏观与市场情绪】 美国4月零售销售数据创下8个月最强涨幅，叠加PPI超预期，市场对美联储降息的预期大幅降温，甚至出现加息概率。
+激光技术公司nLIGHT股价大涨22%，此前该公司公布的一季度财报显示营收和利润双双超出市场预期，主要得益于国防领域对高能激光器的强劲需求。
 
-美元指数重返强势格局，对以美元计价的有色金属构成直接压制。
+财报亮点 财报显示，nLIGHT一季度营收为6，200万美元，同比增长18%，高于分析师预期的5，800万美元。
 
-不过，地缘局势的不确定性及全球供应链的局部断裂，使得部分品种在宏观逆风中依然展现出极强的抗跌属性。
+调整后每股亏损为0.05美元，优于市场预期的亏损0.12美元，且较去年同期的亏损0.10美元有所收窄。
 
-【铜：高位回调，基本面逻辑未改】 宏观层面，强势美元与美联储鹰派预期直接提升了铜的持有成本，叠加多头高位获利了结，铜价面临回调压力。
+毛利率为28.5%，高于去年同期的25.0%，主要受益于产品结构优化和生产效率提升。
 
-产业端，虽然赞比亚放松硫酸出口限制缓解了部分供应焦虑，但全球铜矿供应风险依然严峻。
+国防业务成增长引擎 国防业务营收同比增长45%至2，800万美元，占总营收的45%。
 
-印尼矿山复产推迟、秘鲁能源危机以及国内铜矿加工费持续负向运行，均强化了矿端紧缺的事实。
+公司表示，多个高能激光定向能武器项目进入生产阶段，包括美国陆军IFPC-HEL项目和海军ODIN项目。
 
-需求结构上，尽管高价铜抑制了部分下游采买，但AI服务器与新能源汽车等新兴需求正重塑消费结构，为铜价提供长期支撑。
+国防订单积压增至创纪录的1.1亿美元，较上季度增长20%。
 
-预计今日现货铜将延续下跌调整，但整体仍维持高位震荡。
+管理层在电话会议上指出，随着中东冲突持续，军方对反无人机和反火箭弹激光系统的采购优先级显著提高。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 19:11 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 19:14 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 19:02 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 19:15 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 18:50 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 19:14 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 18:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 19:02 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 19:13 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 19:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 18:56 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 18:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 19:01 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 18:49 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 19:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 19:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 19:03 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 19:17 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 19:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 19:11 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 19:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 19:20 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 19:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 19:20 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/421012970.shtml)
-- 2026-06-29 18:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/4171216.shtml)
-- 2026-06-29 19:01 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/77203141.shtml)
-- 2026-06-29 19:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/026184145.shtml)
-- 2026-06-29 18:48 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/615826473473.shtml)
-- 2026-06-29 19:02 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/156956538760.shtml)
-- 2026-06-29 18:58 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/7781851250.shtml)
-- 2026-06-29 19:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1711525.shtml)
-- 2026-06-29 19:12 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/699726285.shtml)
-- 2026-06-29 18:59 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/39268.shtml)
-- 2026-06-29 19:03 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/577617.shtml)
-- 2026-06-29 18:53 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/1224364.shtml)
-- 2026-06-29 18:53 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/43116.shtml)
-- 2026-06-29 19:01 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/765422.shtml)
-- 2026-06-29 18:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/539089185.shtml)
+- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/702055964.shtml)
+- 2026-06-29 19:16 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6761483825.shtml)
+- 2026-06-29 19:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/560209965206.shtml)
+- 2026-06-29 19:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/18425.shtml)
+- 2026-06-29 19:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/301066.shtml)
+- 2026-06-29 19:09 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/90449.shtml)
+- 2026-06-29 19:09 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/95355089.shtml)
+- 2026-06-29 19:18 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2916271957.shtml)
+- 2026-06-29 19:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/123782.shtml)
+- 2026-06-29 19:23 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/172528428596.shtml)
+- 2026-06-29 18:59 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/25698768259.shtml)
+- 2026-06-29 19:17 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/99845.shtml)
+- 2026-06-29 19:22 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/995535781.shtml)
+- 2026-06-29 19:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/6613624.shtml)
+- 2026-06-29 19:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/45021.shtml)

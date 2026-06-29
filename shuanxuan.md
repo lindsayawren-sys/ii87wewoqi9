@@ -1,60 +1,58 @@
-# 江苏将全面实施“人工智能+”行动 打造创新发展高地
+# 日本3月实际薪资连续第三个月攀升为日本央行加息提供支撑
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达
+日本政府周五公布数据显示，3月实际工资同比上涨1%，连续第三个月录得增长，进一步为日本央行在6月下次政策会议上加息提供依据。 数据凸显日本薪资增长势头稳固，日本春季劳资谈判已连续第三年达成5%以上的加薪幅度。 日本央行将于6月15日至16日再度审议利率决议，央行将薪资与物价稳步上行视作再度加息的前提条件。调查显示，近三分之二经济学家预计日本央行将在6月底前把基准利率上调至1.0
 
 ## 正文
 
-中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。
+日本政府周五公布数据显示，3月实际工资同比上涨1%，连续第三个月录得增长，进一步为日本央行在6月下次政策会议上加息提供依据。
 
-刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。
+数据凸显日本薪资增长势头稳固，日本春季劳资谈判已连续第三年达成5%以上的加薪幅度。
 
-目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达4400万余次。
+日本央行将于6月15日至16日再度审议利率决议，央行将薪资与物价稳步上行视作再度加息的前提条件。
 
-江苏将发挥制造优势，把制造业作为AI赋能的主赛道，从研发设计、生产管理、产品质检、物流运输到市场营销，全链条推动AI规模化、商业化应用，同时拓展AI+科学、医疗、教育、交通、政务、社会治理等应用，让AI深度融入生产生活。
+调查显示，近三分之二经济学家预计日本央行将在6月底前把基准利率上调至1.0%。
 
-在筑牢基础底座方面，刘小涛指出，人工智能世界，词元(Token)是基础细胞，算法是工具，要素是算力和数据。
+作为衡量家庭购买力核心指标的经通胀调整实际工资，虽较2月修正后2%的涨幅有所回落，但高于1月0.7%的增幅；而1月也是日本时隔13个月首次实现实际工资正增长。
 
-江苏算力规模超10万P居全国前列，其中智算7.8万P。
+日本3月名义平均工资（现金总收入）同比上涨2.7%，达317254日元（约合2029.52美元），2月该数据修正后为大涨3.4%。
 
-数据方面，以江苏省卫生健康云为例，每日健康数据交互超千万级，累计1600多亿条；建成全省统一的“影像云”，大家到医院看病基本上不用带片子，全省通用，同时建成了21个专病数据集。
+日本总务省用于核算实际工资的消费者通胀率3月为1.6%，名义薪资增速已超过这一通胀水平；同时通胀率连续第三个月低于日本央行2%的政策目标。
 
-此外，江苏将发展数据标注产业，建设高质量数据集，到2027年高质量数据集将超1000个。
+受政府补贴对冲日元走弱推高进口成本、以及伊朗局势推升油价等因素影响，日本整体通胀水平持续回落。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:11 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 19:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 18:59 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 18:59 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 18:53 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 19:05 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 18:50 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 18:52 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 19:02 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 18:56 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 19:13 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 18:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 18:52 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 19:10 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 19:15 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 19:07 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 18:57 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 18:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 19:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 19:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 19:08 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 19:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 19:20 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 18:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 19:10 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [当我回母校教书](https://www.blog.minike.top/Article/details/760500520869.shtml)
-- 2026-06-29 19:08 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/0860194840.shtml)
-- 2026-06-29 18:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/76059672327.shtml)
-- 2026-06-29 19:06 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/378563.shtml)
-- 2026-06-29 18:57 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/87462751.shtml)
-- 2026-06-29 19:11 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/008353.shtml)
-- 2026-06-29 18:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/65357.shtml)
-- 2026-06-29 19:14 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/151288.shtml)
-- 2026-06-29 18:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/06242173252.shtml)
-- 2026-06-29 18:58 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/82192.shtml)
-- 2026-06-29 19:08 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/66015712570.shtml)
-- 2026-06-29 18:58 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/9459677008.shtml)
-- 2026-06-29 19:05 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/718089709.shtml)
-- 2026-06-29 19:17 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/34458178.shtml)
-- 2026-06-29 18:58 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/055237030.shtml)
+- 2026-06-29 19:14 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8068125557.shtml)
+- 2026-06-29 19:09 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/47039213.shtml)
+- 2026-06-29 18:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/5088945321.shtml)
+- 2026-06-29 19:01 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/4463956.shtml)
+- 2026-06-29 19:20 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/4910590.shtml)
+- 2026-06-29 18:56 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/2535818.shtml)
+- 2026-06-29 18:54 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/51357745.shtml)
+- 2026-06-29 18:59 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/22087113658.shtml)
+- 2026-06-29 19:17 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/40991.shtml)
+- 2026-06-29 19:16 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/82933831879.shtml)
+- 2026-06-29 19:14 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/0891216.shtml)
+- 2026-06-29 18:55 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/39385336.shtml)
+- 2026-06-29 19:08 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/41325009.shtml)
+- 2026-06-29 19:00 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/770988744.shtml)
+- 2026-06-29 19:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/496898956822.shtml)

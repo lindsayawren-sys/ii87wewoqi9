@@ -1,61 +1,47 @@
-# 打造“多党合作实践体” 北京科技小院“育种”
+# 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-“这是我们刚刚学过的‘鱼菜共生’！”近日，在北京市海淀区第二实验小学，一群二年级学生围在一组循环水培装置前，指着水箱里的鱼和上方生长的蔬菜，兴奋地讨论着。“鱼菜共生”是常见的生态种养模式，如今成了小学生可触摸、可观察的真实场景。而把这堂生动科普课“搬”进校园的，正是统农092号北京科技小院。 科普课程进校园播撒“种子” 自2018年以来，中共北京市委统战部整合高校、科研院所及各
+发布时间：2026年05月08日 20:58 来源：中国新闻网 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利 责任编辑：【翟璐】
 
 ## 正文
 
-“这是我们刚刚学过的‘鱼菜共生’！
-
-”近日，在北京市海淀区第二实验小学，一群二年级学生围在一组循环水培装置前，指着水箱里的鱼和上方生长的蔬菜，兴奋地讨论着。
-
-“鱼菜共生”是常见的生态种养模式，如今成了小学生可触摸、可观察的真实场景。
-
-而把这堂生动科普课“搬”进校园的，正是统农092号北京科技小院。
-
-科普课程进校园播撒“种子” 自2018年以来，中共北京市委统战部整合高校、科研院所及各方资源，推动建立了113家“统”字牌科技小院，探索兼顾科技创新、社会服务与人才培养的新路。
-
-与大多数扎根乡村、服务田间地头的科技小院不同，统农092号落地于以教育和科技高地著称的海淀区。
-
-这里高校院所云集、创新资源密集，丰厚的科教资源成了一片“沃土”，让这座科技小院得以“生长”出20余节科普课程，走进校园播撒“科学精神种子”。
-
-成立两年来，统农092号北京科技小院汇聚了12位来自民革、民建、农工党和无党派的统一战线成员。
+发布时间：2026年05月08日 20:58 来源：中国新闻网 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利 责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 19:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 18:57 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 18:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 19:15 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 19:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 18:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 19:00 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 19:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 18:53 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 19:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 18:49 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 19:07 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 18:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:04 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 19:13 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 19:12 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 19:23 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 19:13 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 18:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 19:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 19:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 19:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 19:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 18:59 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 19:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 19:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 19:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/27993.shtml)
-- 2026-06-29 19:03 - [沙丘](http://www.blog.kurohicncr.top/Article/details/8974702713.shtml)
-- 2026-06-29 19:10 - [起风了](http://www.blog.kurohicncr.top/Article/details/20232640158.shtml)
-- 2026-06-29 19:16 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/269748.shtml)
-- 2026-06-29 18:51 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/301417.shtml)
-- 2026-06-29 19:16 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/040935634.shtml)
-- 2026-06-29 18:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/53906433.shtml)
-- 2026-06-29 19:02 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/59131340355.shtml)
-- 2026-06-29 18:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/589945414118.shtml)
-- 2026-06-29 19:02 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/6051397283.shtml)
-- 2026-06-29 18:51 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/57331318375.shtml)
-- 2026-06-29 19:07 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/2997226.shtml)
-- 2026-06-29 19:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/414860667882.shtml)
-- 2026-06-29 19:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/248918317.shtml)
-- 2026-06-29 18:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/641940653.shtml)
+- 2026-06-29 19:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/75646148.shtml)
+- 2026-06-29 19:03 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/604848781190.shtml)
+- 2026-06-29 19:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/3982687.shtml)
+- 2026-06-29 19:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/828626899.shtml)
+- 2026-06-29 19:04 - [叠纸](http://www.share.minike.top/Article/details/6784780.shtml)
+- 2026-06-29 18:57 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/054176315960.shtml)
+- 2026-06-29 18:56 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/7870337835.shtml)
+- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/368299016756.shtml)
+- 2026-06-29 19:17 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/1293336.shtml)
+- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/45335.shtml)
+- 2026-06-29 19:02 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/77198914.shtml)
+- 2026-06-29 19:21 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/29594291.shtml)
+- 2026-06-29 18:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/36827365.shtml)
+- 2026-06-29 19:17 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/47669335414.shtml)
+- 2026-06-29 19:11 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/62218576.shtml)

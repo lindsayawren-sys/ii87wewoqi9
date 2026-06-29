@@ -1,59 +1,50 @@
-# Z调查丨“新能源车开启涨价潮”冲上热搜 供应链成本走高是诱因
+# 特朗普称美国不需要限制石油和燃料出口
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-近期，多家新能源车企释放调价信号，或直接上调部分车型售价，或逐步缩减终端购车优惠，开启低调的“涨价”试探。#新能源车开启涨价潮#话题词一度冲上热搜。目前新能源车涨价情况如何？为什么要进行调价？对此，中国蓝新闻记者进行了调查。比亚迪选装包价格涨幅达2100元某销售：整体影响不大中国蓝新闻记者致电湖州长兴某比亚迪4S店时，销售总监表示，由于成本上升，比亚迪部分车型确实存在价格调整。
+美国总统特朗普在被问及是否会考虑限制石油或航空燃油出口时，他回答道：“我们不需要它们。” 特朗普在华盛顿向记者发表讲话。 特朗普说：“我们拥有大量的石油”。责任编辑：王永生
 
 ## 正文
 
-近期，多家新能源车企释放调价信号，或直接上调部分车型售价，或逐步缩减终端购车优惠，开启低调的“涨价”试探。
+美国总统特朗普在被问及是否会考虑限制石油或航空燃油出口时，他回答道：“我们不需要它们。
 
-#新能源车开启涨价潮#话题词一度冲上热搜。
+” 特朗普在华盛顿向记者发表讲话。
 
-目前新能源车涨价情况如何？
+特朗普说：“我们拥有大量的石油”。
 
-为什么要进行调价？
-
-对此，中国蓝新闻记者进行了调查。
-
-比亚迪选装包价格涨幅达2100元某销售：整体影响不大中国蓝新闻记者致电湖州长兴某比亚迪4S店时，销售总监表示，由于成本上升，比亚迪部分车型确实存在价格调整。
-
-如天神之眼B辅助驾驶激光版选装价格从9900元上调至12000元，涨幅达2100元 。
-
-在谈及本次涨价有目前新能源汽车销售是否造成影响时，这位销售总监表示，其实现在整体而言影响不是很大。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 19:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 18:57 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 19:00 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 19:09 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 18:52 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 19:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:50 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 19:06 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 19:03 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 19:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:59 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 18:57 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 19:00 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 18:55 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 18:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 19:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 18:54 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 19:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 19:18 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 19:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 19:12 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 19:00 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/063126522.shtml)
-- 2026-06-29 19:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/52588316.shtml)
-- 2026-06-29 18:57 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/36393.shtml)
-- 2026-06-29 19:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/17797941.shtml)
-- 2026-06-29 18:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/8069042.shtml)
-- 2026-06-29 19:17 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/493076686767.shtml)
-- 2026-06-29 18:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/796967.shtml)
-- 2026-06-29 18:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/18284.shtml)
-- 2026-06-29 19:02 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5393165209.shtml)
-- 2026-06-29 18:54 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/49211.shtml)
-- 2026-06-29 18:52 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/83587.shtml)
-- 2026-06-29 18:51 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/134129448.shtml)
-- 2026-06-29 18:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/83252162232.shtml)
-- 2026-06-29 18:50 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/81879.shtml)
-- 2026-06-29 19:06 - [东方风云榜](https://www.share.minike.top/Article/details/84827312.shtml)
+- 2026-06-29 19:18 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/657396216048.shtml)
+- 2026-06-29 19:17 - [急先锋](http://www.blog.minike.top/Article/details/70909652.shtml)
+- 2026-06-29 19:04 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/84516.shtml)
+- 2026-06-29 19:05 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/197115.shtml)
+- 2026-06-29 19:14 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/685185587.shtml)
+- 2026-06-29 19:11 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/03740169589.shtml)
+- 2026-06-29 19:09 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/872904.shtml)
+- 2026-06-29 19:17 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/53135.shtml)
+- 2026-06-29 19:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/8557181366.shtml)
+- 2026-06-29 18:58 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/16765.shtml)
+- 2026-06-29 19:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/1400831.shtml)
+- 2026-06-29 19:13 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/588516301144.shtml)
+- 2026-06-29 18:56 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/947530091953.shtml)
+- 2026-06-29 19:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/292590.shtml)
+- 2026-06-29 18:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/06990711.shtml)

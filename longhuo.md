@@ -1,50 +1,58 @@
-# 日本宫城县附近海域发生6.3级地震 无海啸风险
+# 美国4月非农就业新增11.5万人 失业率4.3%
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据日本广播协会(NHK)报道，当地时间15日20时22分左右，日本宫城县附近海域发生6.3级地震，震源深度50公里。此次地震没有引发海啸的风险。 据报道，日本宫城县、岩手县、青森县、秋田县和福岛县等多地有震感。
+中新社华盛顿5月8日电 (记者 陈孟统)美国劳工部8日发布数据称，美国4月非农就业人数新增11.5万人，失业率4.3%，环比持平。 这一数据大幅高于市场的普遍预期，也是非农就业数据近一年来首次出现连续增长。 美国消费者新闻与商业频道(CNBC)报道称，4月的非农数据表明美国经济和劳动力市场的韧性，但单月数据并不足以形成新的趋势判断。过去一年，美国就业市场的月度波动一直很大。 数
 
 ## 正文
 
-中新网5月15日电 据日本广播协会(NHK)报道，当地时间15日20时22分左右，日本宫城县附近海域发生6.3级地震，震源深度50公里。
+中新社华盛顿5月8日电 (记者 陈孟统)美国劳工部8日发布数据称，美国4月非农就业人数新增11.5万人，失业率4.3%，环比持平。
 
-此次地震没有引发海啸的风险。
+这一数据大幅高于市场的普遍预期，也是非农就业数据近一年来首次出现连续增长。
 
-据报道，日本宫城县、岩手县、青森县、秋田县和福岛县等多地有震感。
+美国消费者新闻与商业频道(CNBC)报道称，4月的非农数据表明美国经济和劳动力市场的韧性，但单月数据并不足以形成新的趋势判断。
+
+过去一年，美国就业市场的月度波动一直很大。
+
+数据显示，美国4月的就业增长主要来自医疗保健业、运输和仓储业以及零售业，而联邦政府就业人数继续下降。
+
+其中，医疗保健业新增3.7万个岗位，运输和仓储业增加3万个，零售业新增2.2万个。
+
+在薪资方面，美国4月私营部门平均时薪环比上涨6美分，至37.41美元，涨幅0.2%；同比上涨3.6%。
+
+美联社分析指出，美国就业市场在今年以来表现稳健，但坏消息是，通胀正在再次吞噬工资增长。
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 19:02 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 19:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 19:14 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 19:06 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 18:48 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 19:08 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 18:53 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 18:57 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 18:48 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 19:13 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 19:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 19:03 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 19:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 19:15 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 19:02 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 19:19 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 19:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 19:01 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 19:03 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 18:57 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 19:13 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 19:12 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 19:04 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/43841076.shtml)
-- 2026-06-29 19:10 - [爱很美味](http://www.share.kurohicncr.top/Article/details/839762.shtml)
-- 2026-06-29 19:00 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/0810292.shtml)
-- 2026-06-29 18:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/1377105446.shtml)
-- 2026-06-29 19:02 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/285082392571.shtml)
-- 2026-06-29 19:09 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/4259037170.shtml)
-- 2026-06-29 19:10 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/5824515.shtml)
-- 2026-06-29 18:55 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/09476733.shtml)
-- 2026-06-29 19:07 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/8731024.shtml)
-- 2026-06-29 19:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/558283.shtml)
-- 2026-06-29 18:53 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/64482.shtml)
-- 2026-06-29 19:12 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/6457801694.shtml)
-- 2026-06-29 18:52 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/993078893089.shtml)
-- 2026-06-29 19:09 - [逃狱兄弟](https://www.share.minike.top/Article/details/5228286549.shtml)
-- 2026-06-29 18:56 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/45704.shtml)
+- 2026-06-29 19:20 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/184780257.shtml)
+- 2026-06-29 19:12 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/95276.shtml)
+- 2026-06-29 19:16 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/107786.shtml)
+- 2026-06-29 19:13 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/030348237354.shtml)
+- 2026-06-29 18:57 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/47164.shtml)
+- 2026-06-29 19:06 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/5310542.shtml)
+- 2026-06-29 19:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/800376013.shtml)
+- 2026-06-29 18:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/700225915603.shtml)
+- 2026-06-29 18:55 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/666891.shtml)
+- 2026-06-29 19:16 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/635383.shtml)
+- 2026-06-29 19:00 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/526974.shtml)
+- 2026-06-29 19:04 - [NBA交易](http://www.share.kurohicncr.top/Article/details/627788184578.shtml)
+- 2026-06-29 19:13 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/34301366.shtml)
+- 2026-06-29 19:05 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/986634668.shtml)
+- 2026-06-29 18:56 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/480223678212.shtml)

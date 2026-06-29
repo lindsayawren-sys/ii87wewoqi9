@@ -1,58 +1,56 @@
-# 光大期货0515热点追踪：通胀压力难解，白银盘中放量大跌
+# 花旗集团计划大规模扩招财富管理部门
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-本周以来，白银经历了一轮过山车行情。上半周受秘鲁发布能源危机紧急法令影响，市场担心白银供应量减少，价格大幅冲高。而本周后半周美国CPI、PPI数据相继发布，通胀压力显著增加，叠加美国4月零售销售同比增幅达4.9%，为近8个月来最强劲表现，市场对后续降息预期进一步降温，并催生加息预期，强美元对贵金属走势形成压制。此外，美参议院批准沃什担任美联储主席，沃什上台后通胀和降息问题无疑面
+花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。 扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。花旗计划在未来三年内将财富管理业务的客户资产规模从
 
 ## 正文
 
-本周以来，白银经历了一轮过山车行情。
+花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。
 
-上半周受秘鲁发布能源危机紧急法令影响，市场担心白银供应量减少，价格大幅冲高。
+扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。
 
-而本周后半周美国CPI、PPI数据相继发布，通胀压力显著增加，叠加美国4月零售销售同比增幅达4.9%，为近8个月来最强劲表现，市场对后续降息预期进一步降温，并催生加息预期，强美元对贵金属走势形成压制。
+新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。
 
-此外，美参议院批准沃什担任美联储主席，沃什上台后通胀和降息问题无疑面临较大考验，市场关注其首次官方表态，表态前夕市场资金出于避险需求获利了结，白银减仓大跌，盘中最大跌幅超10%。
+花旗计划在未来三年内将财富管理业务的客户资产规模从当前的约1.2万亿美元提升至1.5万亿美元。
 
-基本面来看，世界白银协会数据显示，2026年全球白银将连续第六年供不应求，供需缺口较2025年扩大15%，供给端脆弱性进一步凸显。
+该主管称，扩招是为了填补市场空白，花旗在财富管理领域的市场份额与商业银行龙头地位并不匹配。
 
-与此同时，白银需求不断增加，工业属性已成为支撑银价的核心力量。
+背景与战略 此次扩招正值花旗集团推进其“Project Phoenix”重组计划的收尾阶段，该计划旨在简化管理层级、削减成本并聚焦核心业务。
 
-除传统光伏领域外，未来全球将大力发展AI算力基础设施与新能源汽车及其配套设施，对白银的需求也非常高，且暂时无法用其他金属大幅替代。
+财富管理与交易咨询业务被列为优先增长领域。
 
-目前国内外交易所库存均处于近年低位，实物交割偏紧格局持续存在。
+花旗此前在财富管理领域的投入不及同业，其财富管理营收占公司总营收约15%，而摩根士丹利这一比例超过40%。
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 19:03 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 19:08 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 19:14 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:10 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 19:07 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 19:06 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 18:56 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 19:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:05 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 19:09 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 19:13 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 19:20 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 19:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 19:00 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 19:19 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 18:55 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 19:07 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 18:54 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 19:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 18:55 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/39365987815.shtml)
-- 2026-06-29 19:16 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/9520602.shtml)
-- 2026-06-29 19:13 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/48249118.shtml)
-- 2026-06-29 18:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/98883832.shtml)
-- 2026-06-29 19:14 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/648805201104.shtml)
-- 2026-06-29 18:52 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/859098630.shtml)
-- 2026-06-29 18:53 - [小娘惹](https://www.share.minike.top/Article/details/762745611.shtml)
-- 2026-06-29 19:06 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/5463334524.shtml)
-- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/619794603.shtml)
-- 2026-06-29 18:49 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/71681.shtml)
-- 2026-06-29 19:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/885541.shtml)
-- 2026-06-29 18:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/07509463.shtml)
-- 2026-06-29 18:57 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/04020980.shtml)
-- 2026-06-29 19:17 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/7887767756.shtml)
-- 2026-06-29 19:17 - [金牌调解](https://www.share.minike.top/Article/details/93221235.shtml)
+- 2026-06-29 19:20 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/370048.shtml)
+- 2026-06-29 19:18 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/84849.shtml)
+- 2026-06-29 18:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/42462968.shtml)
+- 2026-06-29 18:58 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/08955.shtml)
+- 2026-06-29 19:22 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/203547.shtml)
+- 2026-06-29 19:15 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/019724.shtml)
+- 2026-06-29 18:59 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/400698.shtml)
+- 2026-06-29 19:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/02324972969.shtml)
+- 2026-06-29 19:04 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/4223162307.shtml)
+- 2026-06-29 19:01 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/39809493.shtml)
+- 2026-06-29 19:20 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/50615.shtml)
+- 2026-06-29 19:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/60003253148.shtml)
+- 2026-06-29 18:59 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/83978589.shtml)
+- 2026-06-29 19:20 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/119498.shtml)
+- 2026-06-29 19:23 - [逆天祖国人](http://www.share.minike.top/Article/details/6424260.shtml)

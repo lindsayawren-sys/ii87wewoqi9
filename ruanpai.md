@@ -1,56 +1,54 @@
-# 杭州市人工智能通识教育联盟成立
+# 瓶装饮料巨头Coca-Cola HBC营收走高，咖啡因饮品需求激增带动销量增长
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网杭州5月16日电(记者 王逸飞)16日的杭州市具身智能创新发展大会暨国家具身智能应用中试基地揭牌活动上，杭州市人工智能通识教育联盟正式成立。这成为该市推动人工智能通识教育的最新探索。 杭州市人工智能通识教育联盟是在杭州市委改革办、杭州市发改委、杭州市教育局、杭州市人力社保局等部门联合推动下，杭州高新科创集团支持组建的行业协同组织。 该联盟以“提高素养，促进就业，赋能产业”
+专题：聚焦美股2026年第一季度财报 公司持续扩张咖世家咖啡（Costa Coffee）与维尼亚诺咖啡（Caffe Vergnano）业务 在含咖啡因类饮品需求火爆的拉动下，上市企业 Coca-Cola HBC 实现内生销售额增长。 这家同时在伦敦、雅典上市的可口可乐装瓶商，能量饮料销量大增 27%，魔爪饮料多款创新产品表现亮眼；同时受益于持续拓展咖世家咖啡、维尼亚诺咖啡门店，
 
 ## 正文
 
-中新网杭州5月16日电(记者 王逸飞)16日的杭州市具身智能创新发展大会暨国家具身智能应用中试基地揭牌活动上，杭州市人工智能通识教育联盟正式成立。
+专题：聚焦美股2026年第一季度财报 公司持续扩张咖世家咖啡（Costa Coffee）与维尼亚诺咖啡（Caffe Vergnano）业务 在含咖啡因类饮品需求火爆的拉动下，上市企业 Coca-Cola HBC 实现内生销售额增长。
 
-这成为该市推动人工智能通识教育的最新探索。
+这家同时在伦敦、雅典上市的可口可乐装瓶商，能量饮料销量大增 27%，魔爪饮料多款创新产品表现亮眼；同时受益于持续拓展咖世家咖啡、维尼亚诺咖啡门店，外带及线下渠道咖啡销量大涨 39%。
 
-杭州市人工智能通识教育联盟是在杭州市委改革办、杭州市发改委、杭州市教育局、杭州市人力社保局等部门联合推动下，杭州高新科创集团支持组建的行业协同组织。
+作为可口可乐全球最大装瓶合作商之一，公司当期销售额达27.1 亿欧元（折合 31.8 亿美元），去年同期为 24.2 亿欧元；内生营收同比增长 11.6%。
 
-该联盟以“提高素养，促进就业，赋能产业”为核心任务，以政校研企协同联动为特色，聚焦人工智能通识课程体系开发，师资素养提升与教学资源共享，打造集标准研制、教学实践、资源共建、创新孵化于一体的新型教育和产业协作平台。
+分析师此前预期其净销售额为 27.0 亿欧元，内生营收增速预期 11.8%，公司实际业绩基本符合预期。
 
-联盟成员包括浙江大学、宇树科技股份有限公司、北京航空航天大学杭州创新研究院等。
+整体产品销量增至7.06 亿标准箱，上年同期为 6.438 亿箱； 每标准箱净销售收入从去年一季度的 3.76 欧元提升至3.84 欧元。
 
-杭州作为中国人工智能发展前沿城市，正全力打造“全国人工智能创新发展第一城”。
+Coca-Cola HBC 上调全年业绩指引： 预计全年内生营收增长 6%–7%，内生息税前利润增幅预计在7%–10%区间。
 
-近年，该市在推动人工智能通识教育方面发力颇多，旨在加快培养适应人工智能时代发展需求的高水平创新人才。
-
-例如该市为学生和教师分别制定《杭州市中小学人工智能教育地方课程纲要(试行)》和《杭州市中小学教师人工智能素养框架(试行)》，将产业发展、风土人情等融入课程实施；从去年秋季学期起，该市所有中小学所有学段已实现人工智能通识课程全覆盖，每学年不少于10课时。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 18:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:03 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 19:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 19:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 19:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 18:48 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 19:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 18:48 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 19:12 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 18:59 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 19:03 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 19:01 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:06 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 18:54 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 19:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 18:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 19:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 18:57 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 19:11 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/7409171.shtml)
-- 2026-06-29 18:49 - [黄金也扛不住了](https://www.share.minike.top/Article/details/724439.shtml)
-- 2026-06-29 19:17 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/2037477856.shtml)
-- 2026-06-29 19:16 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/04597.shtml)
-- 2026-06-29 18:48 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/59075.shtml)
-- 2026-06-29 19:04 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/86265483.shtml)
-- 2026-06-29 19:04 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/54646071463.shtml)
-- 2026-06-29 18:55 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/242111954.shtml)
-- 2026-06-29 18:53 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/89639.shtml)
-- 2026-06-29 19:00 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/8348965356.shtml)
-- 2026-06-29 18:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/692473340.shtml)
-- 2026-06-29 19:05 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/359938632843.shtml)
-- 2026-06-29 18:50 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/302016148322.shtml)
-- 2026-06-29 18:49 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8441330660.shtml)
-- 2026-06-29 18:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/916811.shtml)
+- 2026-06-29 19:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/70373.shtml)
+- 2026-06-29 19:15 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/829105.shtml)
+- 2026-06-29 19:05 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/42009080887.shtml)
+- 2026-06-29 19:14 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/260409519459.shtml)
+- 2026-06-29 19:13 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/402433.shtml)
+- 2026-06-29 19:11 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/352282343.shtml)
+- 2026-06-29 19:05 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/6058764608.shtml)
+- 2026-06-29 19:09 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/1468780063.shtml)
+- 2026-06-29 19:20 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/301595084.shtml)
+- 2026-06-29 19:03 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/3614880.shtml)
+- 2026-06-29 19:12 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/3193064901.shtml)
+- 2026-06-29 19:04 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/35744192582.shtml)
+- 2026-06-29 19:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/15020107706.shtml)
+- 2026-06-29 19:01 - [斛珠夫人](https://www.blog.minike.top/Article/details/7519938100.shtml)
+- 2026-06-29 19:06 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/639235718112.shtml)

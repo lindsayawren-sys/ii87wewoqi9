@@ -1,56 +1,50 @@
-# 515投资者保护 | 全平台传播4813万！博时基金《+油！人生》荣获2026年度最具影响力投教项目奖
+# 广合科技获UBS Group AG增持4500股 每股作价180.28港元
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。博时基金凭借《+油！人生》固收+投教纪录片，荣获2026年度“最具影响力投教项目奖”。 据悉，传统的投教内容往往聚焦于产品讲解或市场分析，容易与普通投资者的真实生活产生距离感。博时基金出品的《+油！人生》投教纪录片，则选择了一条温暖而真诚的路径——让投
+香港联交所最新资料显示，5月4日，UBS Group AG增持广合科技（01989）4500股，每股作价180.28港元，总金额约为81.13万港元。增持后最新持股数目为414.09万股，最新持股比例为9.00%。责任编辑：卢昱君
 
 ## 正文
 
-专题：515投资者保护！
+香港联交所最新资料显示，5月4日，UBS Group AG增持广合科技（01989）4500股，每股作价180.28港元，总金额约为81.13万港元。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+增持后最新持股数目为414.09万股，最新持股比例为9.00%。
 
-博时基金凭借《+油！
-
-人生》固收+投教纪录片，荣获2026年度“最具影响力投教项目奖”。
-
-据悉，传统的投教内容往往聚焦于产品讲解或市场分析，容易与普通投资者的真实生活产生距离感。
-
-博时基金出品的《+油！
-
-人生》投教纪录片，则选择了一条温暖而真诚的路径——让投资者成为主角。
-
-这档纪录片的镜头对准了三个不同年龄阶段的投资者：一对在深圳打拼的年轻夫妻、一个懂生活的上海职业女性、一对爱好粤剧的广州老友。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 19:13 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 19:09 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 18:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 19:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 19:12 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 19:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 18:52 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 19:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 19:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 18:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 19:00 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 18:56 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 19:23 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:01 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 19:17 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 19:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:06 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 18:54 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 19:04 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 19:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 19:23 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 19:13 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 18:56 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/60068878389.shtml)
-- 2026-06-29 19:04 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/2373492568.shtml)
-- 2026-06-29 18:51 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/90914627.shtml)
-- 2026-06-29 19:13 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2440256.shtml)
-- 2026-06-29 19:10 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/4430825.shtml)
-- 2026-06-29 19:10 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/929352136452.shtml)
-- 2026-06-29 19:00 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/077709423.shtml)
-- 2026-06-29 19:15 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/37042.shtml)
-- 2026-06-29 19:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/243028825.shtml)
-- 2026-06-29 19:06 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/8519888866.shtml)
-- 2026-06-29 19:05 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/44282018.shtml)
-- 2026-06-29 19:17 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/54489490.shtml)
-- 2026-06-29 19:10 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/34161.shtml)
-- 2026-06-29 19:15 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/205867.shtml)
-- 2026-06-29 19:07 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/192138491730.shtml)
+- 2026-06-29 19:03 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/399161.shtml)
+- 2026-06-29 19:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/32560366959.shtml)
+- 2026-06-29 19:18 - [千与千寻](https://www.share.kurohicncr.top/Article/details/13117789790.shtml)
+- 2026-06-29 19:18 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/316166.shtml)
+- 2026-06-29 19:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/5464784.shtml)
+- 2026-06-29 18:57 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/97580.shtml)
+- 2026-06-29 18:54 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/43411.shtml)
+- 2026-06-29 19:14 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/580969849519.shtml)
+- 2026-06-29 19:06 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/679058865.shtml)
+- 2026-06-29 18:55 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/59135012.shtml)
+- 2026-06-29 19:14 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/6332748065.shtml)
+- 2026-06-29 19:01 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/33848569418.shtml)
+- 2026-06-29 19:10 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/8182576.shtml)
+- 2026-06-29 18:59 - [流金岁月](http://www.blog.minike.top/Article/details/4369276.shtml)
+- 2026-06-29 18:58 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/35460328.shtml)

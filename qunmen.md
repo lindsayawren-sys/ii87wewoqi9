@@ -1,57 +1,57 @@
-# Microbot Medical遭做空机构狙击，股价暴跌近8%
+# 挪威央行加息抑制通胀 欧洲股市小幅走高
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-医疗设备公司Microbot Medical股价周四盘中暴跌逾7%，此前做空机构White Diamond Research发布报告，对其核心产品LIBERTY血管内机器人系统的商业可行性提出尖锐质疑，同时公司一季度营收远不及预期的数据也令市场信心承压。 做空报告五大指控 White Diamond在报告中披露持有Microbot空仓，目标价设定为1美元。该机构通过采访使用过L
+欧洲股市周四小幅上扬，因投资者静待有关华盛顿与德黑兰即将达成停战协议的报道结果。 泛欧斯托克 600 指数早盘勉强持平。英国富时 100 指数下跌 0.25%，法国 CAC 40 指数与德国 DAX 指数分别上涨 0.2% 和 0.3%。 挪威央行周三将利率上调 25 个基点至 4.25%，这是伊朗战争爆发、全球通胀担忧重燃以来，首个加息的主要央行。 挪威央行行长伊达・沃尔登・
 
 ## 正文
 
-医疗设备公司Microbot Medical股价周四盘中暴跌逾7%，此前做空机构White Diamond Research发布报告，对其核心产品LIBERTY血管内机器人系统的商业可行性提出尖锐质疑，同时公司一季度营收远不及预期的数据也令市场信心承压。
+欧洲股市周四小幅上扬，因投资者静待有关华盛顿与德黑兰即将达成停战协议的报道结果。
 
-做空报告五大指控 White Diamond在报告中披露持有Microbot空仓，目标价设定为1美元。
+泛欧斯托克 600 指数早盘勉强持平。
 
-该机构通过采访使用过LIBERTY系统的外科医生，指出了五大核心问题： 其一，设备成本过高。
+英国富时 100 指数下跌 0.25%，法国 CAC 40 指数与德国 DAX 指数分别上涨 0.2% 和 0.3%。
 
-一位匿名外科医生表示，LIBERTY系统每次手术会增加3000至4000美元的额外费用，且没有任何报销机制，不仅延长手术时间，在精准度上也不优于人工操作。
+挪威央行周三将利率上调 25 个基点至 4.25%，这是伊朗战争爆发、全球通胀担忧重燃以来，首个加息的主要央行。
 
-该医生直言：“这只会给你增加额外工作量，手术时间更长。
+挪威央行行长伊达・沃尔登・巴彻在声明中表示：“通胀水平过高，且已连续多年高于目标。
 
-不用机器人你自己也能做，而且更快、精准度一样，还能省下3000美元。
+” “自 3 月以来，货币政策前景未发生实质性变化，但中东战争仍给经济前景带来巨大不确定性。
 
-” 其二，用户接受度低。
+” 欧洲股市追随亚洲市场隔夜的平淡走势。
 
-来自坦帕综合医院的Charles Briggs医生告诉研究人员，在他所在的15名血管外科医生中，他是唯一定期使用LIBERTY系统的医生。
+此前，唐纳德・特朗普总统称协议尚未敲定，并称伊朗接受该提议 “或许是一个大胆的假设”。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 19:05 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 19:10 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 19:10 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 19:00 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 19:15 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 18:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 18:59 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 18:51 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 19:04 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 19:22 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 19:07 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 18:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 19:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 19:06 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 19:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 19:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:21 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/530028059.shtml)
-- 2026-06-29 19:09 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/88809913.shtml)
-- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/96296832.shtml)
-- 2026-06-29 19:11 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/236163.shtml)
-- 2026-06-29 19:17 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/56150.shtml)
-- 2026-06-29 19:17 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/1635570.shtml)
-- 2026-06-29 19:14 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/40433981499.shtml)
-- 2026-06-29 18:48 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/6334335275.shtml)
-- 2026-06-29 19:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/475426363.shtml)
-- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/77247.shtml)
-- 2026-06-29 18:56 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/1442172763.shtml)
-- 2026-06-29 19:10 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/61077.shtml)
-- 2026-06-29 18:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/893218659.shtml)
-- 2026-06-29 19:12 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/757571.shtml)
-- 2026-06-29 18:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/93515.shtml)
+- 2026-06-29 19:20 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/466198.shtml)
+- 2026-06-29 18:56 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/259816013.shtml)
+- 2026-06-29 19:14 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/194513.shtml)
+- 2026-06-29 18:58 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/0832316993.shtml)
+- 2026-06-29 19:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/9486020665.shtml)
+- 2026-06-29 19:04 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/9847111.shtml)
+- 2026-06-29 19:13 - [毒液2](http://www.blog.kurohicncr.top/Article/details/212151.shtml)
+- 2026-06-29 18:57 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/44647659.shtml)
+- 2026-06-29 19:20 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/804402488.shtml)
+- 2026-06-29 19:20 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/2296561.shtml)
+- 2026-06-29 19:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/424572944.shtml)
+- 2026-06-29 19:17 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/85672666.shtml)
+- 2026-06-29 19:02 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/8926081350.shtml)
+- 2026-06-29 19:22 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/32900115642.shtml)
+- 2026-06-29 19:12 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/688380730896.shtml)

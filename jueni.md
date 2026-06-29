@@ -1,57 +1,56 @@
-# 专骗未成年人！以赠送游戏“皮肤”为诱饵 电诈团伙被捣毁
+# 一年缩减近400个分支机构，泰康人寿高管最高年薪超500万
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-近日，山东临沂警方摧毁了一个针对未成年人实施电信诈骗的犯罪团伙。据警方初步查证，此案涉及全国各地受害者200多人，涉案金额巨大。 以赠送游戏装备为诱饵 实施诈骗200多起 犯罪嫌疑人交代，他们自去年8月份到案发时，在网上以赠送“皮肤”等游戏装备为诱饵，骗取钱财，累计针对未成年人实施诈骗200多起。今年4月8日，警方在临沂市兰山区捣毁一出租房内犯罪窝点。由于黄某文等3名犯罪嫌疑人
+来源：银瑞社 泰康人寿向来重视代理人团队的建设。 上个月，泰康HWP优才项目成果发布会在湖北武汉泰康之家·楚园举行。 这一项目自2023年3月启动，此次发布了三周年核心成果，标志着泰康人寿在非一线城市布局健康财富规划师（HWP）队伍取得阶段性突破。 泰康保险集团创始人、董事长兼CEO陈东升通过视频寄语：“HWP是长寿时代的幸福使者，优才项目已取得良好的市场口碑。” 按照披露，优
 
 ## 正文
 
-近日，山东临沂警方摧毁了一个针对未成年人实施电信诈骗的犯罪团伙。
+来源：银瑞社 泰康人寿向来重视代理人团队的建设。
 
-据警方初步查证，此案涉及全国各地受害者200多人，涉案金额巨大。
+上个月，泰康HWP优才项目成果发布会在湖北武汉泰康之家·楚园举行。
 
-以赠送游戏装备为诱饵 实施诈骗200多起 犯罪嫌疑人交代，他们自去年8月份到案发时，在网上以赠送“皮肤”等游戏装备为诱饵，骗取钱财，累计针对未成年人实施诈骗200多起。
+这一项目自2023年3月启动，此次发布了三周年核心成果，标志着泰康人寿在非一线城市布局健康财富规划师（HWP）队伍取得阶段性突破。
 
-今年4月8日，警方在临沂市兰山区捣毁一出租房内犯罪窝点。
+泰康保险集团创始人、董事长兼CEO陈东升通过视频寄语：“HWP是长寿时代的幸福使者，优才项目已取得良好的市场口碑。
 
-由于黄某文等3名犯罪嫌疑人在网上行骗作案到凌晨，此时，他们还在房内睡觉。
+” 按照披露，优才项目已在山东、四川、河南、湖北等26家分公司的117个城市完成布局，初步形成高产能、高素质、高效率的绩优队伍形态。
 
-在前期的侦查中民警发现，黄某文等3人都有各自的房间。
+对于一家寿险公司而言，代理人团队的综合素质，是企业发展的核心关键。
 
-警方担心的是，如果不能快速控制嫌疑人，他们手机里涉嫌犯罪的证据很有可能被删掉。
+近日，泰康人寿因“全国销冠”任某被带走一事处于风口浪尖，更令其深刻代理人团队合规培训、监督检查的重要性。
 
-临沂市公安局兰山分局刑侦大队七中队中队长 韩晓东：我们制定了详细的抓捕计划，由于嫌疑人居住在高层楼内，我们强攻会产生一定的风险，因为这些嫌疑人手里的聊天软件，都具备一键删除所有聊天记录的功能。
+作为非上市寿险的老大哥，泰康人寿的每个动态，都牵动着市场神经。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 18:58 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 19:13 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 18:55 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 19:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 18:52 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 19:17 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 19:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 19:15 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 19:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 18:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 19:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:21 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 19:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:23 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 19:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 19:14 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 18:58 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 19:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 19:05 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/6510590677.shtml)
-- 2026-06-29 18:59 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/10084446.shtml)
-- 2026-06-29 19:15 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/989390776217.shtml)
-- 2026-06-29 18:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/324538.shtml)
-- 2026-06-29 18:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/7080937322.shtml)
-- 2026-06-29 19:00 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/1530044.shtml)
-- 2026-06-29 18:56 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/890706018486.shtml)
-- 2026-06-29 18:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/98484920670.shtml)
-- 2026-06-29 18:51 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/74582455.shtml)
-- 2026-06-29 19:02 - [当我回母校教书](http://www.share.minike.top/Article/details/80603.shtml)
-- 2026-06-29 19:10 - [美人鱼](https://www.share.kurohicncr.top/Article/details/12477365.shtml)
-- 2026-06-29 19:03 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/30845280471.shtml)
-- 2026-06-29 18:53 - [小娘惹](https://www.blog.minike.top/Article/details/44259282759.shtml)
-- 2026-06-29 19:10 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/369099599.shtml)
-- 2026-06-29 19:09 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/682575.shtml)
+- 2026-06-29 19:06 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/1111354.shtml)
+- 2026-06-29 19:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/84531.shtml)
+- 2026-06-29 19:03 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/131524056.shtml)
+- 2026-06-29 19:02 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/330117067202.shtml)
+- 2026-06-29 19:16 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/47137433.shtml)
+- 2026-06-29 19:04 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/930948.shtml)
+- 2026-06-29 19:19 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/0163347831.shtml)
+- 2026-06-29 19:08 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/73075.shtml)
+- 2026-06-29 18:54 - [中方向委方追加1亿元援助](http://www.share.minike.top/Article/details/67434807519.shtml)
+- 2026-06-29 19:08 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/93017834.shtml)
+- 2026-06-29 19:15 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/8359081.shtml)
+- 2026-06-29 19:22 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/083370613806.shtml)
+- 2026-06-29 19:11 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/174639845773.shtml)
+- 2026-06-29 19:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/81195684.shtml)
+- 2026-06-29 19:13 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/4978093803.shtml)

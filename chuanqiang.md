@@ -1,60 +1,56 @@
-# 巨力索具被证监会立案
+# 熄了老烟囱 “热”了长江畔
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电(记者 谢艺观)巨力索具15日晚发布公告，公司于5月15日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，2026年5月13日，中国证监会决定对公司立案。 公告称，截至目前，公司经营状况正常。立案调查期间，公司将积极配合中国证监会的各项工作，并持续关注上述事项的进展情况，严格按照规定及监管要求履行信息披露义务
+“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。 沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。远处，两根标志性的烟囱巍然耸立，直指云端。 继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”
 
 ## 正文
 
-中新网北京5月16日电(记者 谢艺观)巨力索具15日晚发布公告，公司于5月15日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，2026年5月13日，中国证监会决定对公司立案。
+“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。
 
-公告称，截至目前，公司经营状况正常。
+沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。
 
-立案调查期间，公司将积极配合中国证监会的各项工作，并持续关注上述事项的进展情况，严格按照规定及监管要求履行信息披露义务。
+远处，两根标志性的烟囱巍然耸立，直指云端。
 
-今年3月，深交所就曾对巨力索具及相关当事人作出通报批评处分，违规行为包括，“商业航天”属于市场热点概念，但巨力索具对商业航天业务的信息发布不完整，风险提示不充分；未及时核实并澄清相关市场传闻。
+继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。
 
-公开信息显示，巨力索具股份有限公司始建于1985年，是中国规模大、品种齐全、制造专业的索具制造公司。
+人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”。
 
-2010年1月26日巨力索具在深交所上市。
+这里是新中国成立后西南地区首座自动化火力发电厂——重庆发电厂旧址，也是重庆目前保存最完好的工业遗产建筑群之一。
 
-天眼查信息显示，巨力索具的母公司为巨力集团，其中，杨建忠持股83%、杨子持股17%，且杨子担任公司副董事长。
+处于三峡库区的重庆，是我国工业重镇。
 
-巨力索具一季报显示，公司实现营业收入5.6亿元，同比增长14.67%；归属于上市公司股东的净利润为371.16万元，同比下降38%。
+过去，沿江布局的工业企业在促进当地经济发展同时，也给长江生态环境带来持续的承载压力。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 19:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 18:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 19:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 19:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 19:11 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 18:51 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 19:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 19:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 19:01 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 18:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 19:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 19:01 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:59 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 19:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 18:58 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 19:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:23 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 19:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 19:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 19:07 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 19:07 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/02691.shtml)
-- 2026-06-29 18:57 - [AG 宫斗](https://www.blog.minike.top/Article/details/294886479.shtml)
-- 2026-06-29 19:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/51666249.shtml)
-- 2026-06-29 19:05 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/545208749810.shtml)
-- 2026-06-29 18:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/77926.shtml)
-- 2026-06-29 19:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/5211628250.shtml)
-- 2026-06-29 19:09 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/9970602793.shtml)
-- 2026-06-29 18:53 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/0839646412.shtml)
-- 2026-06-29 19:11 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/77666907.shtml)
-- 2026-06-29 19:03 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/64986.shtml)
-- 2026-06-29 19:04 - [美人鱼](https://www.share.kurohicncr.top/Article/details/83091214929.shtml)
-- 2026-06-29 18:53 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/376891253906.shtml)
-- 2026-06-29 19:13 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/412432351.shtml)
-- 2026-06-29 18:50 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/51659669.shtml)
-- 2026-06-29 19:08 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/5226063968.shtml)
+- 2026-06-29 19:06 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/867121210155.shtml)
+- 2026-06-29 18:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/710414.shtml)
+- 2026-06-29 19:02 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/81264203.shtml)
+- 2026-06-29 19:03 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/6120072783.shtml)
+- 2026-06-29 19:21 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/48661404.shtml)
+- 2026-06-29 19:04 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/02767162.shtml)
+- 2026-06-29 19:17 - [中国战机大片上新](https://www.blog.minike.top/Article/details/33702410.shtml)
+- 2026-06-29 19:01 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/65079.shtml)
+- 2026-06-29 19:14 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/0999914123.shtml)
+- 2026-06-29 19:13 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/034403.shtml)
+- 2026-06-29 19:21 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/608025.shtml)
+- 2026-06-29 19:21 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/367088653.shtml)
+- 2026-06-29 19:23 - [请回答王牌2019](http://www.blog.minike.top/Article/details/36970442940.shtml)
+- 2026-06-29 19:13 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/283295989.shtml)
+- 2026-06-29 19:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/2532520.shtml)

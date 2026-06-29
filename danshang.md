@@ -1,51 +1,59 @@
-# 香港镜头中的山西彩塑：跨越四十年的文化守望
+# 港股本周收盘站稳26000点 腾讯、阿里、京东季度业绩成市场焦点
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 10:55 来源：中国新闻网 5月15日，由山西省古建筑与彩塑壁画保护研究院与香港佛教志莲图书馆联合推出的《镜界存真——山西佛教彩塑的光影志》展览在山西古建筑博物馆开展。展览首次集中展示了20世纪八十年代香港志莲净苑摄影团队拍摄的山西佛教彩塑珍贵影像。 40年后，回看这批影像，许多彩塑已遭盗损或色彩改变，照片成为修复对照的珍贵依据，给后人留下一
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。 回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。 下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场
 
 ## 正文
 
-发布时间：2026年05月16日 10:55 来源：中国新闻网 5月15日，由山西省古建筑与彩塑壁画保护研究院与香港佛教志莲图书馆联合推出的《镜界存真——山西佛教彩塑的光影志》展览在山西古建筑博物馆开展。
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。
 
-展览首次集中展示了20世纪八十年代香港志莲净苑摄影团队拍摄的山西佛教彩塑珍贵影像。
+回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。
 
-40年后，回看这批影像，许多彩塑已遭盗损或色彩改变，照片成为修复对照的珍贵依据，给后人留下一份不可复刻的历史档案。
+下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场预判三家企业盈利表现将明显分化。
 
-(记者 张立程 山西太原报道） 责任编辑：【吉翔】
+高歌证券金融首席分析师聂振邦表示，港股进入大型科技股业绩披露窗口期，有望持续吸引增量资金布局。
+
+他认为，若香港恒生指数能够连续两日收市站稳在26500点上方，本月大盘有望进一步挑战27000点整数关口。
+
+奕丰环球市场(iFAST Global Markets)投资总监温钢城表示，市场普遍预期腾讯控股、阿里巴巴、京东集团三家科技企业仍将持续加大人工智能领域投资，后续将重点观察各家核心业务增长韧性，以及管理层对公司未来发展前景的战略解读。
+
+展望港股后市，渣打银行认为，行情走势或将主要受中东局势牵动，整体呈现“先跌后升”格局。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 18:50 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 18:52 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 18:57 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 18:56 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 19:10 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 18:51 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 19:12 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 19:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:17 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 18:49 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 19:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 19:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 18:55 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 19:14 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 19:11 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 18:58 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 18:58 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 19:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 19:06 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 19:11 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 19:16 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 19:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 19:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 18:56 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/0948458.shtml)
-- 2026-06-29 19:03 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/391880450483.shtml)
-- 2026-06-29 19:12 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/945917.shtml)
-- 2026-06-29 19:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/4189722052.shtml)
-- 2026-06-29 18:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/655872965.shtml)
-- 2026-06-29 18:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/8691415134.shtml)
-- 2026-06-29 18:56 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/4153055.shtml)
-- 2026-06-29 19:08 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/53695.shtml)
-- 2026-06-29 18:56 - [黄金也扛不住了](http://www.share.minike.top/Article/details/52284270239.shtml)
-- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/933685.shtml)
-- 2026-06-29 19:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/799806688219.shtml)
-- 2026-06-29 19:12 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/45998546855.shtml)
-- 2026-06-29 19:03 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/03022.shtml)
-- 2026-06-29 19:08 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/696679246678.shtml)
-- 2026-06-29 18:48 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/283016614783.shtml)
+- 2026-06-29 19:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/991724850302.shtml)
+- 2026-06-29 19:04 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/638888.shtml)
+- 2026-06-29 19:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/8737752.shtml)
+- 2026-06-29 19:08 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/462630.shtml)
+- 2026-06-29 18:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/20186304.shtml)
+- 2026-06-29 19:06 - [周生如故](https://www.blog.minike.top/Article/details/5854876393.shtml)
+- 2026-06-29 19:20 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/6410545.shtml)
+- 2026-06-29 19:23 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/89006873713.shtml)
+- 2026-06-29 19:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/500161.shtml)
+- 2026-06-29 19:18 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/19635619114.shtml)
+- 2026-06-29 18:57 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/6673684482.shtml)
+- 2026-06-29 19:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/368573.shtml)
+- 2026-06-29 19:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/0451697612.shtml)
+- 2026-06-29 18:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/572702720136.shtml)
+- 2026-06-29 19:18 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/892662.shtml)

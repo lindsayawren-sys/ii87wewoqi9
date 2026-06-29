@@ -1,57 +1,46 @@
-# 醉驾男子路遇检查假装“路人”，交警一眼识破！
+# 高校毕业生创新高 上海打出组合拳护航就业
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 10:17 来源：中国新闻网 近日，攀枝花市公安局交警一大队开展夜间路面设卡执勤过程中，一辆行驶的车辆突然反常停靠路边，驾驶员随即下车四处张望、形迹可疑。 执勤交警陈俊材敏锐察觉到了这一异常情况，立刻上前核查询问。面对检查，该男子身上酒气浓重，却百般抵赖矢口否认自己驾车行驶。 民警随即调取周边监控影像，还原了其驾车的行驶过程。民警随即对男子进行
+发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
 
 ## 正文
 
-发布时间：2026年05月15日 10:17 来源：中国新闻网 近日，攀枝花市公安局交警一大队开展夜间路面设卡执勤过程中，一辆行驶的车辆突然反常停靠路边，驾驶员随即下车四处张望、形迹可疑。
-
-执勤交警陈俊材敏锐察觉到了这一异常情况，立刻上前核查询问。
-
-面对检查，该男子身上酒气浓重，却百般抵赖矢口否认自己驾车行驶。
-
-民警随即调取周边监控影像，还原了其驾车的行驶过程。
-
-民警随即对男子进行呼气式酒精检测，其结果为97mg/100ml，已达到醉驾标准。
-
-该男子被警方依法传唤至交警大队作进一步调查，因涉嫌危险驾驶罪已被公安机关依法刑事拘留。
-
-提醒广大驾驶人：酒后驾车莫心存侥幸，刻意伪装、百般抵赖都难逃法网，自觉做到开车不喝酒、喝酒不开车。
-
-(来源：攀枝花公安） 责任编辑：【魏聪聪】
+发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 19:00 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 18:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 19:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 19:15 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 19:13 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 19:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 19:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 19:06 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 19:07 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 18:54 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 19:00 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 18:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 19:04 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 19:07 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 19:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 19:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 19:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:02 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 19:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 19:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 19:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 19:20 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 19:03 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 19:07 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/33311.shtml)
-- 2026-06-29 18:54 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/453002.shtml)
-- 2026-06-29 18:59 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/261468.shtml)
-- 2026-06-29 19:15 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/9135253864.shtml)
-- 2026-06-29 18:49 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/85612035.shtml)
-- 2026-06-29 19:06 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/47103.shtml)
-- 2026-06-29 19:15 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/047498.shtml)
-- 2026-06-29 18:51 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/1210774167.shtml)
-- 2026-06-29 19:07 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/03220.shtml)
-- 2026-06-29 19:13 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/76315131.shtml)
-- 2026-06-29 19:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/89944007.shtml)
-- 2026-06-29 19:16 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/37574515876.shtml)
-- 2026-06-29 18:56 - [啊啊啊](https://www.blog.minike.top/Article/details/06459.shtml)
-- 2026-06-29 18:48 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/94311397887.shtml)
-- 2026-06-29 18:58 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/77903.shtml)
+- 2026-06-29 19:13 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/2352843.shtml)
+- 2026-06-29 18:54 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/552605590229.shtml)
+- 2026-06-29 19:13 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/45257235472.shtml)
+- 2026-06-29 18:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/0026293656.shtml)
+- 2026-06-29 19:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/78907497215.shtml)
+- 2026-06-29 19:06 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/14291.shtml)
+- 2026-06-29 19:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/11992.shtml)
+- 2026-06-29 18:56 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/41057475988.shtml)
+- 2026-06-29 19:19 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/877712.shtml)
+- 2026-06-29 18:54 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/357523908227.shtml)
+- 2026-06-29 19:06 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0519961902.shtml)
+- 2026-06-29 18:59 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/96364.shtml)
+- 2026-06-29 19:06 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/804707.shtml)
+- 2026-06-29 19:09 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/09166544789.shtml)
+- 2026-06-29 19:10 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/0738300752.shtml)

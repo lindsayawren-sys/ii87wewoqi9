@@ -1,59 +1,61 @@
-# 主动量化掘金中盘成长机遇，长城智悦均衡混合正在发行中
+# “免费修车”“高额返现”“维修补贴”……斩断车险骗保黑色产业链
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 在经济结构加速转型的背景下，兼具成长弹性与经营稳健性的中盘资产，正成为机构与个人投资者布局的重点。顺应市场配置需求及公募基金费率改革趋势，长城智悦均衡混合（A类：027035；C类：027036）正在发行中。该产品以长城基金自研的“AI+多因子”量化模型为核心、全市场选股为特色、浮动费率为保障，依托资深量化团队实力，打造适配震荡
+原标题：斩断车险骗保黑色产业链 “免费修车”“高额返现”“维修补贴”——这些看似诱人的福利，很多是精心布设的车险骗保陷阱。近年来，车险骗保乱象屡禁不止、花样翻新，已形成集拉客、造事、定损、理赔于一体的黑色产业链，不法汽修厂、部分车主甚至保险公司内部人员纷纷卷入其中。 不法汽修厂精准抓住部分车主贪小便宜的心理，以“免费维修”“高额返现”为诱饵，通过伪造事故现场、夸大车辆损失、虚开
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 在经济结构加速转型的背景下，兼具成长弹性与经营稳健性的中盘资产，正成为机构与个人投资者布局的重点。
+原标题：斩断车险骗保黑色产业链 “免费修车”“高额返现”“维修补贴”——这些看似诱人的福利，很多是精心布设的车险骗保陷阱。
 
-顺应市场配置需求及公募基金费率改革趋势，长城智悦均衡混合（A类：027035；C类：027036）正在发行中。
+近年来，车险骗保乱象屡禁不止、花样翻新，已形成集拉客、造事、定损、理赔于一体的黑色产业链，不法汽修厂、部分车主甚至保险公司内部人员纷纷卷入其中。
 
-该产品以长城基金自研的“AI+多因子”量化模型为核心、全市场选股为特色、浮动费率为保障，依托资深量化团队实力，打造适配震荡市的中盘均衡配置工具，为投资者提供全新的量化投资选择。
+不法汽修厂精准抓住部分车主贪小便宜的心理，以“免费维修”“高额返现”为诱饵，通过伪造事故现场、夸大车辆损失、虚开维修清单等手段骗取保费，更有甚者串通保险公司内部人员，打通骗保全流程，让骗保行为更具隐蔽性，严重侵蚀保险行业健康发展的根基。
 
-长城智悦均衡混合是一只主动量化产品，产品定位清晰，业绩基准对标中证500指数，但选股范围更加广泛。
+车险骗保危害不小。
 
-这意味着，基金经理可在更广的标的池中挖掘优质个股，超额收益来源空间更广，有望实现更加精细化的个股与模型风险管理。
+对保险行业而言，大量虚假理赔不仅推高保险赔付成本，扰乱正常市场秩序，更破坏行业诚信生态。
 
-在具体操作层面，长城智悦均衡混合将深度运用“AI+多因子”模型。
+对车主而言，“免费维修”背后，隐藏着更高的经济成本与法律风险。
 
-该模型依托长城基金量化团队自主研发的量化投研系统，从数据采集到因子挖掘、从模型构建到交易执行实现了全流程一体化。
+异常理赔记录会让车主被认定为高风险客户，导致保费上涨；若默许他人虚报损失、出借证件提供虚假理赔资料，即便未直接参与造假，也需承担相应法律责任，不仅可能被驳回理赔申请，还会留下不良记录，影响后续投保，可谓“捡小便宜吃大亏”。
 
-尤为值得一提的是，该团队自2021年起便前瞻布局AI在量化投资中的应用，目前已将深度学习等技术全面引入实盘，用于因子挖掘、非结构化数据处理、风险与波动率控制等关键环节，力求在复杂的市场环境中捕捉定价偏差带来的投资机会。
+惩治车险骗保，保险行业需率先压实主体责任，筑牢风险防线。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 18:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 18:59 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 19:08 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 18:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 19:14 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 18:48 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 19:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 19:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 19:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 18:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 18:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 19:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 19:12 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 19:09 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 19:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 19:02 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 19:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 19:15 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 18:57 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 19:22 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 19:00 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 19:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/0115768.shtml)
-- 2026-06-29 19:13 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/3941133131.shtml)
-- 2026-06-29 18:58 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/2139739978.shtml)
-- 2026-06-29 19:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/03775380069.shtml)
-- 2026-06-29 19:09 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/636558.shtml)
-- 2026-06-29 19:15 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/979853195073.shtml)
-- 2026-06-29 18:49 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/09182.shtml)
-- 2026-06-29 18:54 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/17510749.shtml)
-- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/46313.shtml)
-- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/380906179888.shtml)
-- 2026-06-29 18:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/313241490112.shtml)
-- 2026-06-29 19:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0768568085.shtml)
-- 2026-06-29 18:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/715061.shtml)
-- 2026-06-29 19:08 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/512725647007.shtml)
-- 2026-06-29 19:16 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/364021697801.shtml)
+- 2026-06-29 19:20 - [美人鱼](http://www.share.kurohicncr.top/Article/details/9696767.shtml)
+- 2026-06-29 19:10 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/0633877938.shtml)
+- 2026-06-29 18:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/749933.shtml)
+- 2026-06-29 19:15 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/3250982.shtml)
+- 2026-06-29 19:07 - [极限挑战第一季](https://www.share.minike.top/Article/details/827785603786.shtml)
+- 2026-06-29 19:00 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/86097.shtml)
+- 2026-06-29 19:03 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/15728.shtml)
+- 2026-06-29 19:20 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/7233806.shtml)
+- 2026-06-29 19:09 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/3450000352.shtml)
+- 2026-06-29 19:16 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/77452.shtml)
+- 2026-06-29 19:11 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/848481.shtml)
+- 2026-06-29 19:06 - [女心理师](http://www.blog.minike.top/Article/details/12034215.shtml)
+- 2026-06-29 19:24 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/385214238471.shtml)
+- 2026-06-29 19:08 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/44379.shtml)
+- 2026-06-29 19:08 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/552436.shtml)

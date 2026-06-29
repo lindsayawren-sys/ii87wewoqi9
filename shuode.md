@@ -1,58 +1,60 @@
-# 联合国秘书长欢迎黎以延长停火
+# 出海“直通车”落地义乌两年：区域试点走向普惠红利
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-联合国秘书长发言人办公室16日说，秘书长古特雷斯欢迎黎巴嫩与以色列之间的停火期限再延长45天。 该办公室在一则新闻通报中说，古特雷斯重申，联合国支持旨在结束敌对行动、减轻黎以边境两侧民众苦难的一切努力。古特雷斯敦促各方充分遵守停火并履行各自国际法义务。联合国方面支持推动全面落实安理会第1701号决议的所有外交努力。 在美方斡旋下，以黎分别于4月14日和23日在华盛顿举行了两轮大
+中新网杭州5月8日电(记者 王逸飞)近日，在浙江义乌港直通仓作业现场，数台崭新的新能源汽车依次缓缓驶入集装箱。海事执法人员现场开展监装核对、箱体核查、货物查验等全流程监管。整车封箱完毕，现场查验同步办结，全程无需转运至港口二次开箱、重复核验。 曾经，内陆外贸货物出口需抵港完成装箱、查验等流程，若出现问题，会导致物流链条长、企业物流成本高甚至无法按期交付问题。2024年5月，浙江
 
 ## 正文
 
-联合国秘书长发言人办公室16日说，秘书长古特雷斯欢迎黎巴嫩与以色列之间的停火期限再延长45天。
+中新网杭州5月8日电(记者 王逸飞)近日，在浙江义乌港直通仓作业现场，数台崭新的新能源汽车依次缓缓驶入集装箱。
 
-该办公室在一则新闻通报中说，古特雷斯重申，联合国支持旨在结束敌对行动、减轻黎以边境两侧民众苦难的一切努力。
+海事执法人员现场开展监装核对、箱体核查、货物查验等全流程监管。
 
-古特雷斯敦促各方充分遵守停火并履行各自国际法义务。
+整车封箱完毕，现场查验同步办结，全程无需转运至港口二次开箱、重复核验。
 
-联合国方面支持推动全面落实安理会第1701号决议的所有外交努力。
+曾经，内陆外贸货物出口需抵港完成装箱、查验等流程，若出现问题，会导致物流链条长、企业物流成本高甚至无法按期交付问题。
 
-在美方斡旋下，以黎分别于4月14日和23日在华盛顿举行了两轮大使级会谈。
+2024年5月，浙江海事部门在义乌落地出海“直通车”服务，将整套监管服务前移至义乌本地作业现场，实现货物“出厂即出海”。
 
-以黎于4月17日开始为期10天的临时停火，美国总统特朗普4月23日宣布停火延长三周。
+两年来，这一改革在持续深化中逐步由区域试点变为普惠红利，成为浙江总结好运用好“义乌发展经验”的体现切口。
 
-黎巴嫩方面5月15日表示，黎美以三方在华盛顿举行的第三轮会谈取得“对黎方有利的外交进展”，各方同意将停火期限再延长45天。
+从试点到普惠，变化体现于环节更省。
+
+以前述新能源汽车出口为例，海事部门通过实施“同装同查”现场服务，打破了港口查验的地域限制，将传统10个物流环节精简至7个，实现货物“不开箱、不换箱、一箱到底”。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 19:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 19:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:13 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:03 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 18:57 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 18:53 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 18:53 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 19:02 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 18:58 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 18:56 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 18:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 18:55 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 19:12 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 19:22 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 19:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 19:15 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:55 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 19:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 19:15 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 19:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 19:19 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 18:58 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 18:55 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 19:09 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 19:02 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/583136860.shtml)
-- 2026-06-29 18:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/77521591720.shtml)
-- 2026-06-29 19:03 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/24444841021.shtml)
-- 2026-06-29 18:48 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/45333.shtml)
-- 2026-06-29 18:50 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/647393.shtml)
-- 2026-06-29 19:12 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2303755176.shtml)
-- 2026-06-29 18:53 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/5076545.shtml)
-- 2026-06-29 18:55 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/91587541016.shtml)
-- 2026-06-29 19:06 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/63467657462.shtml)
-- 2026-06-29 19:13 - [扫黑风暴](https://www.blog.minike.top/Article/details/108578883335.shtml)
-- 2026-06-29 18:54 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/446320879526.shtml)
-- 2026-06-29 18:55 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/47208922.shtml)
-- 2026-06-29 19:05 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/60620010.shtml)
-- 2026-06-29 18:48 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/32700822998.shtml)
-- 2026-06-29 19:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/781483867955.shtml)
+- 2026-06-29 19:13 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/752639891351.shtml)
+- 2026-06-29 19:17 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/74014.shtml)
+- 2026-06-29 19:00 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/065671926601.shtml)
+- 2026-06-29 19:15 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/679220.shtml)
+- 2026-06-29 19:15 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/4297356.shtml)
+- 2026-06-29 19:19 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/04969142781.shtml)
+- 2026-06-29 19:11 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/79825522871.shtml)
+- 2026-06-29 19:01 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/2397526.shtml)
+- 2026-06-29 19:07 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/614130412.shtml)
+- 2026-06-29 18:56 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/503952.shtml)
+- 2026-06-29 19:05 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/700054.shtml)
+- 2026-06-29 19:19 - [爱很美味](http://www.share.minike.top/Article/details/13380.shtml)
+- 2026-06-29 18:57 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/376880.shtml)
+- 2026-06-29 18:57 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/90658496264.shtml)
+- 2026-06-29 19:01 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/25793986.shtml)

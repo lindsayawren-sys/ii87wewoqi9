@@ -1,46 +1,59 @@
-# 日本自民党围绕修订“安保三文件”提出建议
+# 瑞银：亚洲经济有望保持韧性
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 20:14 来源：央视新闻 责任编辑：【王祎】
+中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。 据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。 战争导致霍尔木兹海峡受阻，给一
 
 ## 正文
 
-发布时间：2026年05月16日 20:14 来源：央视新闻 责任编辑：【王祎】
+中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。
+
+据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。
+
+亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。
+
+战争导致霍尔木兹海峡受阻，给一些严重依赖能源进口的经济体带来压力，然而，亚洲应对外部危机的关键支撑因素仍在。
+
+与过往危机时相比，亚洲的能源现况及供应链已有所不同，战略储油、替代能源兴起和财政措施为短期影响提供了缓冲。
+
+与此同时，人工智能热潮等结构性力量依然是亚洲地区强大的增长引擎，而宏观经济条件也相对稳健。
+
+“中国、韩国、新加坡、马来西亚等国的能源储备相对较高，可以有效缓冲地缘政治的影响。
+
+我们认为，只要不出现能源供应长时间严重中断的情况，亚洲经济的韧性有望保持。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 18:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 18:58 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 19:02 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 19:11 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 19:05 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 19:17 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 19:06 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 19:04 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 18:51 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 19:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 19:03 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 19:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 19:16 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 18:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 18:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 19:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 19:02 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:56 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 19:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 18:56 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 19:01 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 18:59 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 19:01 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 19:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 19:12 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/514070659821.shtml)
-- 2026-06-29 18:59 - [女心理师](https://www.blog.minike.top/Article/details/63958.shtml)
-- 2026-06-29 18:49 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/9657360.shtml)
-- 2026-06-29 19:03 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/464265.shtml)
-- 2026-06-29 19:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/522155633376.shtml)
-- 2026-06-29 18:52 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/106622285.shtml)
-- 2026-06-29 19:11 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/61339757646.shtml)
-- 2026-06-29 19:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/6314836.shtml)
-- 2026-06-29 19:09 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/07106.shtml)
-- 2026-06-29 18:57 - [叠纸](https://www.blog.minike.top/Article/details/839541066653.shtml)
-- 2026-06-29 18:49 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/53127.shtml)
-- 2026-06-29 19:07 - [乔家的儿女](http://www.blog.minike.top/Article/details/266278970311.shtml)
-- 2026-06-29 19:01 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/12888711.shtml)
-- 2026-06-29 18:53 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/690759345208.shtml)
-- 2026-06-29 19:10 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/430037635084.shtml)
+- 2026-06-29 19:01 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/59145410775.shtml)
+- 2026-06-29 19:14 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/012589450.shtml)
+- 2026-06-29 19:22 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/7942245.shtml)
+- 2026-06-29 19:07 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/65554881088.shtml)
+- 2026-06-29 18:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/3104843967.shtml)
+- 2026-06-29 18:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/3947189.shtml)
+- 2026-06-29 18:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/9653182.shtml)
+- 2026-06-29 18:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/49318.shtml)
+- 2026-06-29 19:00 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/597413.shtml)
+- 2026-06-29 19:03 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/405651213.shtml)
+- 2026-06-29 19:09 - [金刚川](http://www.share.minike.top/Article/details/3867459823.shtml)
+- 2026-06-29 19:22 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/72441604.shtml)
+- 2026-06-29 19:19 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/775687.shtml)
+- 2026-06-29 19:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/34120.shtml)
+- 2026-06-29 19:18 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/4482052229.shtml)

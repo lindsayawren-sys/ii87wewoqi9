@@ -1,51 +1,59 @@
-# 周末看摩托车赛成国人新爱好：每逢周末“WSBK”“张雪机车”搜索指数明显升高
+# “我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。 百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。 同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。#OPPO 文案价值观#也登上了微博热搜。 据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。”文案本意是为表达“是温柔妈妈，也是
 
 ## 正文
 
-中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。
 
-百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。
+#OPPO 文案价值观#也登上了微博热搜。
 
-同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音、快手热榜等。
+据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。
 
-此外，张雪机车冠军车手瓦伦丁·德比斯也收获众多粉丝，截至5月17日上午10时许，德比斯抖音账号粉丝数超过119万，B站账号粉丝数也超过20万。
+跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
 
-(完)
+”文案本意是为表达“是温柔妈妈，也是追星女孩”的主题，但相关措辞引发网友吐槽，认为容易引发歧义，涉嫌违背公序良俗。
+
+引发争议后，目前该文案对外已不可见。
+
+今日下午，OPPO官微再次发布了一则新的母亲节文案，但在网友们的吐槽声中，该文案开启了评论精选。
+
+针对此事，截至发稿前，OPPO官方暂无回应。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 19:09 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 19:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 19:01 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 18:58 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 18:56 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 19:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 18:54 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 19:09 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:16 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 19:13 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 19:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 18:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 19:21 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 19:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 19:21 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 19:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 19:22 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 18:55 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 19:11 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 18:58 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 19:11 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 18:58 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:18 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/7227310.shtml)
-- 2026-06-29 18:49 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/713031813.shtml)
-- 2026-06-29 19:04 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/0018389540.shtml)
-- 2026-06-29 19:11 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/1469336636.shtml)
-- 2026-06-29 18:49 - [起风了](https://www.share.minike.top/Article/details/11117.shtml)
-- 2026-06-29 19:07 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/1484602514.shtml)
-- 2026-06-29 19:00 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/6774929.shtml)
-- 2026-06-29 18:52 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/63758800.shtml)
-- 2026-06-29 19:16 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/329338.shtml)
-- 2026-06-29 19:06 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/95913.shtml)
-- 2026-06-29 18:58 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/677443411120.shtml)
-- 2026-06-29 19:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/884706936.shtml)
-- 2026-06-29 19:06 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/117570305856.shtml)
-- 2026-06-29 19:04 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/92254.shtml)
-- 2026-06-29 19:13 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/753051596217.shtml)
+- 2026-06-29 18:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/357340.shtml)
+- 2026-06-29 18:55 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/241535280696.shtml)
+- 2026-06-29 19:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/419739371070.shtml)
+- 2026-06-29 19:02 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/741892336559.shtml)
+- 2026-06-29 19:20 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/025535348715.shtml)
+- 2026-06-29 19:13 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/773093848474.shtml)
+- 2026-06-29 18:58 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/87040393145.shtml)
+- 2026-06-29 19:19 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/240369159.shtml)
+- 2026-06-29 19:06 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/84508269652.shtml)
+- 2026-06-29 19:06 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/22273.shtml)
+- 2026-06-29 19:17 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/488843242734.shtml)
+- 2026-06-29 19:13 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/115634780405.shtml)
+- 2026-06-29 19:11 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/351829.shtml)
+- 2026-06-29 19:20 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/38593859.shtml)
+- 2026-06-29 18:55 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/65753408123.shtml)

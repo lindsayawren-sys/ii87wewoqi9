@@ -1,56 +1,61 @@
-# 所罗门群岛反对党领袖威尔当选总理 中方祝贺
+# 中方敦促欧方取消对中国产品的不公平、歧视性做法
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，5月15日所罗门群岛反对党领袖威尔当选所新任总理。中方对此有何评论？对中所关系有何期待？ 郭嘉昆：中方祝贺威尔先生当选所罗门群岛总理。中方愿同所罗门群岛新一届政府携手拓展两国各领域务实合作，持续深化中所相互尊重、共同发展的全面战略伙伴关系，推动构建新时代中所命运共同体
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。 据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。 发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由
 
 ## 正文
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。
 
-有记者提问：据报道，5月15日所罗门群岛反对党领袖威尔当选所新任总理。
+据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。
 
-中方对此有何评论？
+发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。
 
-对中所关系有何期待？
+中方拒绝接受，并坚决反对。
 
-郭嘉昆：中方祝贺威尔先生当选所罗门群岛总理。
+发言人表示，欧盟将中国划定为“高风险国家”，将影响中欧互信，破坏双边经贸合作，不利于中欧乃至全球产供链稳定，甚至带来“脱钩断链”的风险。
 
-中方愿同所罗门群岛新一届政府携手拓展两国各领域务实合作，持续深化中所相互尊重、共同发展的全面战略伙伴关系，推动构建新时代中所命运共同体取得新的进展。
+欧盟强行采取措施排挤中国产品，违背市场规律和公平原则，不仅损害中国企业利益，更将反噬自身，影响欧盟绿色转型和能源安全。
 
-(完)
+发言人强调，中方敦促欧方立即停止将中国列为“高风险国家”的污名化行为，取消对中国产品的不公平、歧视性做法。
+
+中方将密切关注，并认真评估欧方政策对中国企业利益和中欧产供链的影响，将采取措施维护中国企业正当合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 19:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 19:14 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 19:09 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 19:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 19:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 19:11 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 19:17 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 18:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 19:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 18:49 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 18:49 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 19:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 19:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 19:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 18:57 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 18:57 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 19:21 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 19:02 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 19:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 19:22 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 19:12 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 19:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 18:57 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 18:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 19:06 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/8863620438.shtml)
-- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/8177608.shtml)
-- 2026-06-29 19:06 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/2097536381.shtml)
-- 2026-06-29 19:09 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/61096.shtml)
-- 2026-06-29 18:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/74147.shtml)
-- 2026-06-29 19:17 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/16200.shtml)
-- 2026-06-29 19:06 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/2183720093.shtml)
-- 2026-06-29 19:14 - [扫黑风暴](http://www.share.minike.top/Article/details/55607.shtml)
-- 2026-06-29 19:02 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/252315015587.shtml)
-- 2026-06-29 18:50 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/659549.shtml)
-- 2026-06-29 18:49 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/930974984775.shtml)
-- 2026-06-29 19:16 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/5455692.shtml)
-- 2026-06-29 19:03 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/27530.shtml)
-- 2026-06-29 19:03 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/58636.shtml)
-- 2026-06-29 19:17 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/6992333.shtml)
+- 2026-06-29 19:01 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/874736249.shtml)
+- 2026-06-29 19:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/49490257011.shtml)
+- 2026-06-29 18:57 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/044474084188.shtml)
+- 2026-06-29 19:01 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/2242236.shtml)
+- 2026-06-29 19:17 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/84191033678.shtml)
+- 2026-06-29 19:17 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/8328768.shtml)
+- 2026-06-29 19:17 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/885270808.shtml)
+- 2026-06-29 18:55 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/85734.shtml)
+- 2026-06-29 19:23 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/2058315.shtml)
+- 2026-06-29 19:08 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/22666.shtml)
+- 2026-06-29 19:09 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/99150100.shtml)
+- 2026-06-29 19:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/140812858.shtml)
+- 2026-06-29 19:13 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/24461406.shtml)
+- 2026-06-29 19:12 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/1364127919.shtml)
+- 2026-06-29 19:16 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/939786959.shtml)

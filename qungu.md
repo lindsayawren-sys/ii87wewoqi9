@@ -1,56 +1,57 @@
-# 百余位专家学者聚焦欧亚前沿议题 共话地区治理与大国外交
+# 英国Quantum Motion融资1.6亿美元，押注硅基量子计算“晶体管时刻”
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月16日电 (记者 刘相琳)“欧亚研究：学术前沿与热点问题”学术研讨会16日在西南政法大学举行，来自国内多家高端智库、重点高校的百余位专家学者与会，共探欧亚研究学术前沿，服务国家周边外交与区域国别学发展。西南政法大学党委常委、副校长张晓君在开幕式致辞中表示，该校历来重视政治学学科建设和发展，正积极推进区域国别学学科培育工作。本次研讨会将进一步推动中国欧亚地区问题研究
+伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。 Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。与传统量子计算方案需要大型定制设施
 
 ## 正文
 
-中新网重庆5月16日电 (记者 刘相琳)“欧亚研究：学术前沿与热点问题”学术研讨会16日在西南政法大学举行，来自国内多家高端智库、重点高校的百余位专家学者与会，共探欧亚研究学术前沿，服务国家周边外交与区域国别学发展。
+伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。
 
-西南政法大学党委常委、副校长张晓君在开幕式致辞中表示，该校历来重视政治学学科建设和发展，正积极推进区域国别学学科培育工作。
+本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。
 
-本次研讨会将进一步推动中国欧亚地区问题研究，从而对该校的政治学、区域国别学研究更好地服务国家重大战略、现代化新重庆建设起到直接推动作用。
+Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。
 
-开幕式上，由西南政法大学政治与公共管理学院院长、亚欧研究院院长曾向红等著的《内变外联：中亚国家治理与地区秩序研究》新书正式揭幕。
+与传统量子计算方案需要大型定制设施、功耗达数兆瓦不同，该公司的系统可部署于标准数据中心机架，成本与空间需求降低100倍，能耗降低1000倍。
 
-该书系统回顾中亚五国独立三十余年发展历程，提出中亚局势与地区秩序呈现“内变外联”特征，围绕国家治理、外交政策、区域合作、域外大国政策等议题展开研究，对推动中亚研究与多学科融合具有启发意义。
+该公司CEO James Palles-Dimmock表示：“量子计算只有建立在可扩展的平台上才能发挥全部潜力，而硅是实现这一目标的最强路径。
 
-此次研讨会设置两场主旨报告与三个平行分论坛。
+”2025年，Quantum Motion已在英国国家量子计算中心部署了全球首台全栈式硅CMOS量子计算机，并已进入DARPA量子基准测试计划的B阶段。
 
-季志业、潘志平、邓浩、许涛等多位资深专家，分别就欧亚格局走向、大国博弈、区域合作、中俄关系、上合组织发展、中亚交通与移民等议题作主旨分享。
+该公司由牛津大学和伦敦大学学院教授于2017年创立，目前已拓展至西班牙和澳大利亚，并与GlobalFoundries深化制造合作。
 
-平行分论坛分别围绕“国家治理与地区治理”“大国博弈与欧亚形势”“中国与中亚国家合作”“国际组织与地区治理”及中亚研究专题展开深入研讨，三十余位专家学者交流最新研究成果。
+英国商业银行直接投资总监Charlotte Lawrence指出：“我们不再仅仅停留在理论层面，而是在英国切实开始构建量子计算平台。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 19:05 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 19:02 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 19:02 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 19:00 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 19:13 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:58 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 19:05 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 19:14 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 19:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:10 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 18:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 19:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:15 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 19:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 19:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 19:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:23 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 19:10 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 19:05 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 19:22 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/012058618918.shtml)
-- 2026-06-29 18:57 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/53448906.shtml)
-- 2026-06-29 19:01 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/4325036277.shtml)
-- 2026-06-29 19:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/49930046.shtml)
-- 2026-06-29 19:05 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/8191430433.shtml)
-- 2026-06-29 19:08 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/48568426835.shtml)
-- 2026-06-29 18:49 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/864386378603.shtml)
-- 2026-06-29 18:56 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/596837.shtml)
-- 2026-06-29 18:58 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/30235290.shtml)
-- 2026-06-29 19:06 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/299858999.shtml)
-- 2026-06-29 19:00 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/426230709.shtml)
-- 2026-06-29 18:58 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/416360495.shtml)
-- 2026-06-29 18:52 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/01659.shtml)
-- 2026-06-29 19:15 - [5万块的威力](http://www.blog.minike.top/Article/details/395741.shtml)
-- 2026-06-29 19:17 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/0635515.shtml)
+- 2026-06-29 19:05 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/1615706687.shtml)
+- 2026-06-29 19:13 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/99702.shtml)
+- 2026-06-29 19:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/0392996.shtml)
+- 2026-06-29 18:57 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/81139.shtml)
+- 2026-06-29 18:59 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/093493.shtml)
+- 2026-06-29 19:14 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/5234302104.shtml)
+- 2026-06-29 18:58 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/87815559.shtml)
+- 2026-06-29 19:07 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/436656368.shtml)
+- 2026-06-29 19:04 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/5032622.shtml)
+- 2026-06-29 19:08 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/693372081657.shtml)
+- 2026-06-29 19:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/92972689.shtml)
+- 2026-06-29 19:00 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/813991099331.shtml)
+- 2026-06-29 19:04 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/26908.shtml)
+- 2026-06-29 18:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/315900.shtml)
+- 2026-06-29 19:16 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/56900275965.shtml)

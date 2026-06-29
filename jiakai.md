@@ -1,49 +1,57 @@
-# 英伟达市值突破5.5万亿美元，股价飙升
+# 新业态新模式 一季度我国智能消费设备制造增速明显
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-周四，人工智能芯片巨头英伟达（NVDA）市值创下5.7 万亿美元历史新高，股价大涨超 4%，创下盘中历史最高纪录。 这家半导体巨头将于下周发布财报，受此预期推动，英伟达股价与科技板块（XLK）同步走强。 今年以来，英伟达股价已累计上涨超 26%，过去 12 个月涨幅达 70%。责任编辑：郭明煜
+今年一季度，在消费品以旧换新政策加力扩围、AI技术与消费产品深度融合的双重拉动下，我国智能消费设备制造发展态势向好，生产增速亮眼，成为工业经济增长的重要支撑。 这几天，多款面向普通消费者的智能设备集中亮相： 可实现识物、翻译、拍摄的智能眼镜； 具备情绪感知与人机交互能力的陪伴机器人；搭载AI技术，能实现多色彩、多材质打印的3D打印机，一系列智能产品成为大家的消费新选择。 数据显
 
 ## 正文
 
-周四，人工智能芯片巨头英伟达（NVDA）市值创下5.7 万亿美元历史新高，股价大涨超 4%，创下盘中历史最高纪录。
+今年一季度，在消费品以旧换新政策加力扩围、AI技术与消费产品深度融合的双重拉动下，我国智能消费设备制造发展态势向好，生产增速亮眼，成为工业经济增长的重要支撑。
 
-这家半导体巨头将于下周发布财报，受此预期推动，英伟达股价与科技板块（XLK）同步走强。
+这几天，多款面向普通消费者的智能设备集中亮相： 可实现识物、翻译、拍摄的智能眼镜； 具备情绪感知与人机交互能力的陪伴机器人；搭载AI技术，能实现多色彩、多材质打印的3D打印机，一系列智能产品成为大家的消费新选择。
 
-今年以来，英伟达股价已累计上涨超 26%，过去 12 个月涨幅达 70%。
+数据显示，一季度，我国智能手机产量2.98亿台，同比增长6.9%，服务机器人产量超440万套，同比增长2.6%。
 
-责任编辑：郭明煜
+整机销售也带动了上游电子元器件产量增长。
+
+集成电路作为核心配套元器件，产量1272亿块，同比增长24.3%，为智能消费产品生产提供坚实支撑。
+
+出口表现亮眼。
+
+一季度，规模以上计算机、通信和其他电子设备制造业累计实现出口交货值同比增长4.2%，其中： 液晶电视机出口2561万台，同比增长9.0%； 集成电路出口850亿个，同比增长13.4%。
+
+中国电子信息产业发展研究院电子信息研究所副所长 马晓凯：智能消费作为人工智能商业化规模化应用的典型赛道，在政策红利的持续释放和技术创新的有效驱动下，新一代智能终端和智能体加快推广，新场景、新业态、新模式正在加速培育。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 19:04 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 19:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 19:15 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 18:50 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 18:53 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 19:08 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 18:52 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:04 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 18:49 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 19:13 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 18:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 19:03 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 19:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 18:57 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 19:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 19:11 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 19:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 19:16 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/580944617.shtml)
-- 2026-06-29 19:15 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/46748825.shtml)
-- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/931952.shtml)
-- 2026-06-29 18:48 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/366993.shtml)
-- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/92686928.shtml)
-- 2026-06-29 18:56 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/74933573375.shtml)
-- 2026-06-29 18:51 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/841603.shtml)
-- 2026-06-29 18:59 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/295270349312.shtml)
-- 2026-06-29 19:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/88148544.shtml)
-- 2026-06-29 19:04 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/31133277658.shtml)
-- 2026-06-29 19:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/957520607.shtml)
-- 2026-06-29 19:14 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/98963864764.shtml)
-- 2026-06-29 18:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/015279147.shtml)
-- 2026-06-29 19:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/08097464.shtml)
-- 2026-06-29 19:10 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/4992939.shtml)
+- 2026-06-29 18:56 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/8554246.shtml)
+- 2026-06-29 19:15 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/877882057.shtml)
+- 2026-06-29 19:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/43623355.shtml)
+- 2026-06-29 19:01 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/10244487226.shtml)
+- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/90304.shtml)
+- 2026-06-29 19:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/31302026.shtml)
+- 2026-06-29 19:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/476914.shtml)
+- 2026-06-29 19:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/040763436.shtml)
+- 2026-06-29 19:24 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/493162655566.shtml)
+- 2026-06-29 19:17 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/226800.shtml)
+- 2026-06-29 19:23 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/89539153.shtml)
+- 2026-06-29 19:03 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/83019.shtml)
+- 2026-06-29 19:10 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/995167.shtml)
+- 2026-06-29 18:55 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/198231.shtml)
+- 2026-06-29 19:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/0634672.shtml)

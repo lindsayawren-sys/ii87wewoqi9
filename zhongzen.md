@@ -1,58 +1,56 @@
-# 苔藓复水释放资源脉冲 中国科学家揭秘森林生态系统碳氮循环新机制
+# 加拿大电动汽车市场迎来中国力量，比亚迪、吉利、奇瑞等加速布局
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网成都5月14日电 (王利文)中国科学院成都生物研究所14日消息称，潘开文团队在苔藓释放资源脉冲影响土壤活性碳氮机制研究中取得进展。研究结果表明，干燥苔藓复水产生的资源脉冲能够在数天内增加土壤碳氮资源及微生物生物量，这为理解森林生态系统碳氮循环过程提供了新的科学依据和视角。 据介绍，相关成果以“Mosses alter soil carbon and nitrogen re
+IT之家 5 月 7 日消息，据 Carscoops 报道，加拿大市场的大门正缓缓敞开。就在特斯拉在该国重新推出中国制造的 Model 3 之际，多家扩张势头强劲的中国车企也已做好布局，准备紧随其后进军加拿大市场。吉利、奇瑞、比亚迪均已着手布局加拿大市场。作为筹备工作的一部分，奇瑞已将旗下捷途品牌的两款 SUV 运往多伦多，车辆悬挂安大略省车企牌照。Autonews Canad
 
 ## 正文
 
-中新网成都5月14日电 (王利文)中国科学院成都生物研究所14日消息称，潘开文团队在苔藓释放资源脉冲影响土壤活性碳氮机制研究中取得进展。
+IT之家 5 月 7 日消息，据 Carscoops 报道，加拿大市场的大门正缓缓敞开。
 
-研究结果表明，干燥苔藓复水产生的资源脉冲能够在数天内增加土壤碳氮资源及微生物生物量，这为理解森林生态系统碳氮循环过程提供了新的科学依据和视角。
+就在特斯拉在该国重新推出中国制造的 Model 3 之际，多家扩张势头强劲的中国车企也已做好布局，准备紧随其后进军加拿大市场。
 
-据介绍，相关成果以“Mosses alter soil carbon and nitrogen resources and microbial biomass during desiccation and rehydration(苔藓在脱水-复水过程中改变土壤碳氮资源与微生物生物量)”为题，发表在农林领域国际期刊《植物与土壤》(Plant and Soil)上。
+吉利、奇瑞、比亚迪均已着手布局加拿大市场。
 
-论文第一作者为中国科学院成都生物研究所特别研究助理、博士后肖露梅，研究员潘开文为通讯作者。
+作为筹备工作的一部分，奇瑞已将旗下捷途品牌的两款 SUV 运往多伦多，车辆悬挂安大略省车企牌照。
 
-苔藓作为非维管变水植物，在温带和高山生态系统中发挥着重要的水源涵养和养分维持作用。
+Autonews Canada 网站确认，这两款车型为捷途 E5 纯电动 SUV。
 
-川西亚高山森林地表广泛分布的苔藓层，对土壤碳氮循环过程具有重要影响。
+该车型在澳大利亚的起售价约 3.7 万澳元（IT之家注：现汇率约合 18.3 万元人民币），目前澳元与加元汇率大致持平。
 
-此前，学术界对干燥苔藓复水后释放胞内物质动态特征及其对土壤碳氮资源及微生物生物量的影响机制尚不明确。
+据悉这批车辆只是临时入境，而在此前不久，奇瑞已派遣近二十名加拿大本地经销商代表前往北京车展，让他们实地考察中国汽车市场。
 
-该研究团队以九寨沟云杉天然林下塔藓和锦丝藓两种优势苔藓为研究对象，探究了在重度干燥、中度干燥和持续湿润三种状态下，苔藓在5天复水过程中释放资源脉冲的碳氮动态特征及其对土壤碳氮资源、微生物生物量碳和氮的影响。
+并非只有奇瑞在加拿大展开关键布局。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 18:52 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:15 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 18:54 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 19:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 18:55 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 19:04 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 18:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 19:11 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 18:57 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 18:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 19:12 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 18:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 19:04 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 19:08 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 19:17 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 19:14 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 19:09 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/72464.shtml)
-- 2026-06-29 18:53 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/767687.shtml)
-- 2026-06-29 19:01 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/2891893.shtml)
-- 2026-06-29 19:10 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/0329211.shtml)
-- 2026-06-29 18:52 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/4958055.shtml)
-- 2026-06-29 19:14 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/8399531813.shtml)
-- 2026-06-29 19:10 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/903216.shtml)
-- 2026-06-29 18:50 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/37922758496.shtml)
-- 2026-06-29 18:51 - [流金岁月](https://www.share.kurohicncr.top/Article/details/551798921972.shtml)
-- 2026-06-29 19:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/41050658342.shtml)
-- 2026-06-29 19:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/66374.shtml)
-- 2026-06-29 19:00 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/327756962.shtml)
-- 2026-06-29 19:09 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/6995988.shtml)
-- 2026-06-29 19:00 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/40494329.shtml)
-- 2026-06-29 18:51 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/754209.shtml)
+- 2026-06-29 18:58 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/476874134.shtml)
+- 2026-06-29 19:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/42245065.shtml)
+- 2026-06-29 19:15 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/26052797.shtml)
+- 2026-06-29 19:13 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/60583909.shtml)
+- 2026-06-29 19:19 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/970424931.shtml)
+- 2026-06-29 19:13 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/776475970.shtml)
+- 2026-06-29 19:04 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/59850763.shtml)
+- 2026-06-29 19:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/77455798.shtml)
+- 2026-06-29 19:18 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/16612.shtml)
+- 2026-06-29 19:17 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/28582551265.shtml)
+- 2026-06-29 18:59 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/745401065.shtml)
+- 2026-06-29 19:05 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/6740041.shtml)
+- 2026-06-29 18:55 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/95766220518.shtml)
+- 2026-06-29 19:15 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/55281970.shtml)
+- 2026-06-29 19:04 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/68506185472.shtml)

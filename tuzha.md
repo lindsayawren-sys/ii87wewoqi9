@@ -1,57 +1,60 @@
-# 首届中国新文创市集满场“黑科技” 观众：超出预期
+# 马士基股价下跌，CEO警告伊朗战争未来数月影响将加剧
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。来自全国各地的爆款文创汇聚于此。记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。从“没想到”到“随处可见”，科技正成为文创的标配。观众
+核心要点 丹麦航运巨头马士基首席执行官文森特・克莱尔周四向 CNBC 表示，美伊战争为全球贸易敲响了 “新警钟”，并警告其影响在未来数月或将进一步恶化。 在马士基公布第一季度财报后，克莱尔做客 CNBC《欧洲早间财经》栏目时称，集团正面临巨大成本压力，而这些成本势必转嫁至客户。 马士基股价最新下跌约 7.2%，较早前跌幅有所收窄。财报显示，公司盈利能力大幅下滑，但维持全年业绩指
 
 ## 正文
 
-发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。
+核心要点 丹麦航运巨头马士基首席执行官文森特・克莱尔周四向 CNBC 表示，美伊战争为全球贸易敲响了 “新警钟”，并警告其影响在未来数月或将进一步恶化。
 
-来自全国各地的爆款文创汇聚于此。
+在马士基公布第一季度财报后，克莱尔做客 CNBC《欧洲早间财经》栏目时称，集团正面临巨大成本压力，而这些成本势必转嫁至客户。
 
-记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。
+马士基股价最新下跌约 7.2%，较早前跌幅有所收窄。
 
-从“没想到”到“随处可见”，科技正成为文创的标配。
+财报显示，公司盈利能力大幅下滑，但维持全年业绩指引不变，同时警示中东持续冲突的冲击。
 
-观众也期待文创产品更加个性化和智能化。
+“我们属于高能源消耗行业，当前局势催生了全新的市场环境，必须着手应对。
 
-(记者 董语飞 郎佳慧 北京报道） 责任编辑：【吉翔】
+这将对第二、第三季度业绩产生重大影响。
+
+” 中东战事升级推动油价飙升，霍尔木兹海峡通航受限的持续不确定性也令油价维持高位。
+
+油价暴涨还引发市场担忧：多国通胀水平或将进一步抬升。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 19:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:03 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 18:59 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 18:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 19:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 18:48 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 18:55 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 18:58 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 18:53 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 19:03 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 19:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 19:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 19:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 19:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 19:02 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:21 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 19:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 19:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 19:09 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 19:00 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 19:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 18:57 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 19:08 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 18:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 19:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/69247235076.shtml)
-- 2026-06-29 19:08 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/78558853.shtml)
-- 2026-06-29 19:13 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/821530.shtml)
-- 2026-06-29 19:09 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/3523224906.shtml)
-- 2026-06-29 18:54 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/3738516.shtml)
-- 2026-06-29 19:06 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/54552170.shtml)
-- 2026-06-29 19:11 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/773470513124.shtml)
-- 2026-06-29 19:13 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/65280.shtml)
-- 2026-06-29 19:03 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/7824179609.shtml)
-- 2026-06-29 18:49 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/994513478828.shtml)
-- 2026-06-29 18:48 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/6382376311.shtml)
-- 2026-06-29 18:56 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/860867508085.shtml)
-- 2026-06-29 18:59 - [叠纸](http://www.blog.kurohicncr.top/Article/details/67624.shtml)
-- 2026-06-29 18:55 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/82664893982.shtml)
-- 2026-06-29 18:58 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/85387854049.shtml)
+- 2026-06-29 19:07 - [千与千寻](http://www.blog.minike.top/Article/details/722716.shtml)
+- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/406031.shtml)
+- 2026-06-29 19:19 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/692659.shtml)
+- 2026-06-29 19:22 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/9429522002.shtml)
+- 2026-06-29 19:05 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/263461.shtml)
+- 2026-06-29 19:19 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/41121187348.shtml)
+- 2026-06-29 18:55 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/20642952121.shtml)
+- 2026-06-29 18:55 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/494334914347.shtml)
+- 2026-06-29 19:18 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/69910.shtml)
+- 2026-06-29 19:19 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/906751393.shtml)
+- 2026-06-29 19:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/40415004944.shtml)
+- 2026-06-29 18:54 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/860809054451.shtml)
+- 2026-06-29 19:24 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/61507539036.shtml)
+- 2026-06-29 19:10 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/480653833532.shtml)
+- 2026-06-29 19:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/167264.shtml)

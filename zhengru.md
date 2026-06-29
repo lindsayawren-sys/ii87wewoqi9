@@ -1,56 +1,59 @@
-# 人民论坛网评 | 用“小实事”累积“大幸福”
+# 阿航逆势创纪录盈利，美以对伊战争冲击难阻业绩新高
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-青年兴则国家兴，青年强则国家强。习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信指出：你们牢记党的嘱托，扎根科技创新、乡村振兴、社会服务、卫国戍边等基层一线，以实干担当书写无悔青春，展现了新时代中国青年自信自强、昂扬向上的良好风貌。基层一线是国家治理的“神经末梢”，也是年轻干部成长成才的“沃土原野”。年轻干部唯有主动深入基层，在实践沃野中经风雨、见世面、壮筋骨、长
+阿联酋航空周四公布全年财报，尽管美国和以色列针对伊朗的战争导致中东空域关闭、航线大规模中断，这家海湾最大航司仍实现创纪录净利润，证明了其财务韧性。 财报显示，截至3月底的2025-26财年，阿联酋航空税后净利润达54亿美元，高于上年同期的52亿美元，连续第二年蝉联全球最盈利航司。集团税前利润达66.5亿美元，同比增长7%，收入增长3%至410亿美元。 阿联酋航空董事长兼首席执行
 
 ## 正文
 
-青年兴则国家兴，青年强则国家强。
+阿联酋航空周四公布全年财报，尽管美国和以色列针对伊朗的战争导致中东空域关闭、航线大规模中断，这家海湾最大航司仍实现创纪录净利润，证明了其财务韧性。
 
-习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信指出：你们牢记党的嘱托，扎根科技创新、乡村振兴、社会服务、卫国戍边等基层一线，以实干担当书写无悔青春，展现了新时代中国青年自信自强、昂扬向上的良好风貌。
+财报显示，截至3月底的2025-26财年，阿联酋航空税后净利润达54亿美元，高于上年同期的52亿美元，连续第二年蝉联全球最盈利航司。
 
-基层一线是国家治理的“神经末梢”，也是年轻干部成长成才的“沃土原野”。
+集团税前利润达66.5亿美元，同比增长7%，收入增长3%至410亿美元。
 
-年轻干部唯有主动深入基层，在实践沃野中经风雨、见世面、壮筋骨、长才干，方能练就服务人民群众的硬本领，成长为能担重任、可堪大用的栋梁之材。
+阿联酋航空董事长兼首席执行官谢赫·艾哈迈德·本·赛义德·阿勒马克图姆表示，本财年前11个月业绩强劲，月度持续超额完成目标，但2月28日爆发的战争在最后一个月对运营造成严重冲击。
 
-沾“土气”方能有“底气”。
+伊朗向阿联酋发射导弹和无人机后，迪拜国际机场一度暂停商业航班，中东大面积临时关闭领空导致数千架次航班取消。
 
-基层是政策落地的“最后一公里”，连接的是柴米油盐的日常，承载着人民群众生活真实的期盼。
+面对挑战，阿航通过提高票价抵消了客运量小幅下滑的影响。
 
-年轻干部不能满足于“办公室里谋思路”，要主动放下架子、扑下身子、迈开步子，深入田间地头了解农事民情、走遍村头巷尾摸清基础设施短板、踏进社区楼栋核对惠民补贴发放，用真心换取民心。
+全年客运量为5320万人次，略低于上年。
 
-积极融入人民群众的“议事圈”“生活圈”，把板凳坐热、把话匣打开，面对面唠家常、心贴心谈诉求、多听“牢骚话”、多记“烦心事”，沉下身、静下心、融进去。
+较高的客运收益率帮助维持了盈利水平。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 19:08 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:49 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 18:58 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 18:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 19:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 19:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 19:17 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 18:59 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 19:01 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 18:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 19:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 19:21 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 19:11 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 19:13 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 18:55 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 19:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 19:18 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 19:20 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:20 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 19:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/492990642.shtml)
-- 2026-06-29 19:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/053741959.shtml)
-- 2026-06-29 19:00 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/171573461.shtml)
-- 2026-06-29 19:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/028038.shtml)
-- 2026-06-29 18:54 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/40881595307.shtml)
-- 2026-06-29 19:17 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/91271813.shtml)
-- 2026-06-29 18:55 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/181736.shtml)
-- 2026-06-29 18:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/9683013344.shtml)
-- 2026-06-29 18:49 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/174079547777.shtml)
-- 2026-06-29 18:57 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/602903441.shtml)
-- 2026-06-29 19:04 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/575586.shtml)
-- 2026-06-29 19:15 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/4211576.shtml)
-- 2026-06-29 19:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/40322598.shtml)
-- 2026-06-29 19:03 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/47514449308.shtml)
-- 2026-06-29 18:58 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/0286859869.shtml)
+- 2026-06-29 19:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/292377168213.shtml)
+- 2026-06-29 19:13 - [千与千寻](http://www.share.minike.top/Article/details/7609805.shtml)
+- 2026-06-29 19:20 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/5276861959.shtml)
+- 2026-06-29 18:57 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/3113375.shtml)
+- 2026-06-29 18:56 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/1334257.shtml)
+- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/45317.shtml)
+- 2026-06-29 18:56 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/56652425.shtml)
+- 2026-06-29 19:15 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/684650267.shtml)
+- 2026-06-29 19:07 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/6898585148.shtml)
+- 2026-06-29 19:10 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/909915574.shtml)
+- 2026-06-29 19:00 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/1250078.shtml)
+- 2026-06-29 19:00 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/15114966.shtml)
+- 2026-06-29 18:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/602754795614.shtml)
+- 2026-06-29 19:12 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/944533.shtml)
+- 2026-06-29 19:07 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/411667053.shtml)

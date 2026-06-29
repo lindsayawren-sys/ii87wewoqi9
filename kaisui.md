@@ -1,57 +1,60 @@
-# 重庆忠县实景演艺三国故事 吸引海内外游客齐聚三峡之畔
+# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什么是3D打印机？人这一辈子，一定要去一趟眉山！王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访
+央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
 
 ## 正文
 
-书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
+央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
 
-年轻人的第一台“新家电”，为什么是3D打印机？
+当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
 
-人这一辈子，一定要去一趟眉山！
+今天的中国能源版图上，跃动着蓬勃的绿色动力。
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
+在海上，153米的风机叶片旋转一圈发出62度电。
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
+一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
 
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
+如今，全国每发出10度电，就有约4度来自于可再生能源。
 
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
 
-专家提示科幻走进现实！
+目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 19:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 18:51 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 19:01 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 19:05 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 18:59 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 19:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 19:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 18:58 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 19:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 19:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 19:23 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 19:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 19:00 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 19:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 19:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 18:56 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 19:07 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 19:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 19:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 19:11 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 19:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 19:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 19:07 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 19:11 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/309121.shtml)
-- 2026-06-29 19:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/2856053851.shtml)
-- 2026-06-29 19:06 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/2453784841.shtml)
-- 2026-06-29 19:11 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/30855491713.shtml)
-- 2026-06-29 18:56 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/09652.shtml)
-- 2026-06-29 18:52 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/069765.shtml)
-- 2026-06-29 18:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/80392394126.shtml)
-- 2026-06-29 19:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/1400000.shtml)
-- 2026-06-29 18:55 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/39505524.shtml)
-- 2026-06-29 19:04 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/724053.shtml)
-- 2026-06-29 18:51 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/25277003766.shtml)
-- 2026-06-29 18:59 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/13743260.shtml)
-- 2026-06-29 18:49 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/89011660.shtml)
-- 2026-06-29 19:00 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/67756310.shtml)
-- 2026-06-29 18:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/67543147342.shtml)
+- 2026-06-29 19:23 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/2679585.shtml)
+- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/24558842.shtml)
+- 2026-06-29 19:24 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/165636.shtml)
+- 2026-06-29 18:54 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/31882.shtml)
+- 2026-06-29 19:04 - [机器人学校开学了](http://www.blog.minike.top/Article/details/0074692776.shtml)
+- 2026-06-29 19:19 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/684613568298.shtml)
+- 2026-06-29 19:04 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/3401468.shtml)
+- 2026-06-29 19:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/85127.shtml)
+- 2026-06-29 19:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/29328285.shtml)
+- 2026-06-29 19:23 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/631595508.shtml)
+- 2026-06-29 19:04 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/80289.shtml)
+- 2026-06-29 19:20 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/06345.shtml)
+- 2026-06-29 19:04 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/71824.shtml)
+- 2026-06-29 18:54 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/87611252542.shtml)
+- 2026-06-29 19:19 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/03837994357.shtml)

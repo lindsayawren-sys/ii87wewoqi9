@@ -1,56 +1,61 @@
-# 科兴制药二度闯关港股IPO：收入增长乏力利润靠非经常性损益支撑 创新成色不足在研产品面临红海竞争
+# 受贿1.34亿余元 安徽省政协原副主席周喜安一审被判死缓
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，科创板上市公司科兴制药再次向港交所递交主板上市申请，由中信建投国际独家保荐，启动第二次A+H股上市进程。招股书显示，公司此次港股IPO募资净额将主要用于创新药及生物类似药研发、引进优质药物、搭建海外营销团队和补充运营资金等方面。 从表面数据看，科兴制药正处于业绩上升通道。2023-2025年，公司营收
+2026年5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案，以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。 经审理查明：2012年至2025年，被告人周喜安利用担任四川省巴中市市长、四川省资阳市委书记、安徽省副省长等职务上的便利，以及职
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年5月7日，福建省漳州市中级人民法院公开宣判安徽省政协原党组成员、副主席周喜安受贿一案，以受贿罪判处被告人周喜安死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；将追缴在案的周喜安受贿所得财物及其孳息依法上缴国库，不足部分继续追缴。
 
-近日，科创板上市公司科兴制药再次向港交所递交主板上市申请，由中信建投国际独家保荐，启动第二次A+H股上市进程。
+经审理查明：2012年至2025年，被告人周喜安利用担任四川省巴中市市长、四川省资阳市委书记、安徽省副省长等职务上的便利，以及职权或者地位形成的便利条件，为有关单位和个人，在工程承揽、资金拨付和用地审批等事项上提供帮助，非法收受财物，共计折合人民币1.34亿余元。
 
-招股书显示，公司此次港股IPO募资净额将主要用于创新药及生物类似药研发、引进优质药物、搭建海外营销团队和补充运营资金等方面。
+漳州市中级人民法院认为，被告人周喜安的行为构成受贿罪，应依法惩处。
 
-从表面数据看，科兴制药正处于业绩上升通道。
+周喜安受贿数额特别巨大，并使国家和人民利益遭受特别重大损失。
 
-2023-2025年，公司营收从12.59亿元稳步增长至15.34亿元；净利润更是从2023年亏损1.9亿元，到2024年盈利3148万元，再到2025年暴增至1.56亿元。
+鉴于其受贿犯罪中有未遂情节，到案后如实供述罪行，主动交代监察机关尚未掌握的大部分受贿犯罪事实，认罪悔罪，积极退赃，受贿所得财物及其孳息大部分已追缴到案，具有法定、酌定从宽处罚情节，对其判处死刑，可不立即执行。
 
-然而，在这份看似亮眼的成绩单背后，却隐藏着业绩含金量不足、创新能力薄弱、财务风险积聚等问题。
+法庭遂作出上述判决。
 
-收入增长乏力，利润靠非经常性损益支撑 2020年12月，科兴制药登陆科创板。
+据悉，漳州市中级人民法院于2026年2月5日公开开庭审理了该案。
 
-上市首年，公司实现营收12.11亿元，归母净利润1.39亿元。
+庭审中，检察机关出示了相关证据，被告人周喜安及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，周喜安进行了最后陈述，并当庭表示认罪悔罪。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 18:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 19:16 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 19:00 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 19:04 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 19:08 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 19:16 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 18:50 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 19:11 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 19:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 18:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 18:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 19:13 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 19:17 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 19:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 18:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 18:57 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 19:13 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:17 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 19:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 19:05 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 19:19 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 19:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 19:03 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/7000241935.shtml)
-- 2026-06-29 19:06 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/817373.shtml)
-- 2026-06-29 18:51 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/236896.shtml)
-- 2026-06-29 19:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/8286240.shtml)
-- 2026-06-29 18:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/081670.shtml)
-- 2026-06-29 18:55 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/758252350.shtml)
-- 2026-06-29 18:52 - [王俊凯命名方式](https://www.share.minike.top/Article/details/22935278201.shtml)
-- 2026-06-29 18:48 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/7022456.shtml)
-- 2026-06-29 19:17 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/715623693.shtml)
-- 2026-06-29 19:13 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/00117559705.shtml)
-- 2026-06-29 19:17 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/165188974.shtml)
-- 2026-06-29 19:13 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/00071.shtml)
-- 2026-06-29 19:01 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/5878705348.shtml)
-- 2026-06-29 19:03 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/18671.shtml)
-- 2026-06-29 18:53 - [美人鱼](http://www.share.kurohicncr.top/Article/details/57102314.shtml)
+- 2026-06-29 18:55 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/817666163866.shtml)
+- 2026-06-29 19:18 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/227280310.shtml)
+- 2026-06-29 18:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/62657351.shtml)
+- 2026-06-29 19:19 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/65297382667.shtml)
+- 2026-06-29 19:00 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/449832.shtml)
+- 2026-06-29 18:57 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/160506903.shtml)
+- 2026-06-29 19:19 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/84507106.shtml)
+- 2026-06-29 19:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/74482.shtml)
+- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/240367287.shtml)
+- 2026-06-29 19:13 - [绘画区你赢了](https://www.blog.minike.top/Article/details/746758639564.shtml)
+- 2026-06-29 19:17 - [请回答王牌2019](http://www.blog.minike.top/Article/details/63602086877.shtml)
+- 2026-06-29 19:15 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/366610421.shtml)
+- 2026-06-29 19:10 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/37150542.shtml)
+- 2026-06-29 18:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/15508703638.shtml)
+- 2026-06-29 19:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/99151143759.shtml)

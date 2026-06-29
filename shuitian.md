@@ -1,58 +1,54 @@
-# 星巴克再裁数百名总部员工，推进业务转型自救
+# 俄罗斯称伊朗布什尔核电站建设工作逐步恢复 现场工人数明显增加
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-内容速览 星巴克宣布关闭位于芝加哥、亚特兰大、达拉斯以及加州伯班克的区域总部办公室。 星巴克（SBUX）新一轮改革落地：裁员 300 名美国员工、关闭多家区域总部办公室，这是首席执行官布莱恩・尼科尔为扭转这家咖啡连锁颓势推出的最新举措。 公司周五表示，管理层已下达任务，在此前数千人裁员的基础上进一步精简人员，目的是优化运营、削减成本、打造更可持续的经营模式。 具体细节 此次裁撤
+据国际文传电讯社（IFX）报道，俄罗斯国家原子能公司首席执行官Alexey Likhachev表示，伊朗布什尔核电站的建设工作正逐步恢复，目前现场约有2，200名伊朗工人，较4月底的700人明显增加。 目前的工作重点是加固和浇筑二号动力机组。 他表示，二号机组反应堆的建设完成度已超过60%，蒸汽发生器完成度为50%；关键设备计划于明年发运。 三号机组的铸造和锻造工作也在推进。
 
 ## 正文
 
-内容速览 星巴克宣布关闭位于芝加哥、亚特兰大、达拉斯以及加州伯班克的区域总部办公室。
+据国际文传电讯社（IFX）报道，俄罗斯国家原子能公司首席执行官Alexey Likhachev表示，伊朗布什尔核电站的建设工作正逐步恢复，目前现场约有2，200名伊朗工人，较4月底的700人明显增加。
 
-星巴克（SBUX）新一轮改革落地：裁员 300 名美国员工、关闭多家区域总部办公室，这是首席执行官布莱恩・尼科尔为扭转这家咖啡连锁颓势推出的最新举措。
+目前的工作重点是加固和浇筑二号动力机组。
 
-公司周五表示，管理层已下达任务，在此前数千人裁员的基础上进一步精简人员，目的是优化运营、削减成本、打造更可持续的经营模式。
+他表示，二号机组反应堆的建设完成度已超过60%，蒸汽发生器完成度为50%；关键设备计划于明年发运。
 
-具体细节 此次裁撤的 300 个美国总部岗位，主要集中在西雅图，同时涵盖全美各地远程岗位，涉及技术、营销、财务、研发等多个部门，门店零售员工不受此次裁员影响。
+三号机组的铸造和锻造工作也在推进。
 
-星巴克将关闭四座区域办公点：芝加哥、亚特兰大、达拉斯、加州伯班克。
+一旦确认军事冲突不会再次爆发，俄罗斯国家原子能公司已准备好迅速安排俄方人员全面返回伊朗。
 
-北美保留的区域办公点包括：纽约、多伦多、佛罗里达州科勒尔盖布尔斯，以及西雅图总部、新建的田纳西州纳什维尔企业中心。
+该项目对俄罗斯而言仍属优先事项。
 
-公司同时正在评估海外总部办公室，不排除进一步缩减的可能。
-
-背景情况 星巴克计划在2028 财年末之前削减 20 亿美元成本，用以平衡其在门店运营上数亿美元的投入。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 19:00 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 19:05 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 18:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 19:12 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 18:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 19:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 18:59 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 18:54 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 19:00 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 19:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 19:13 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 18:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 19:22 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 19:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 19:14 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 19:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 19:12 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 19:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 18:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 19:14 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 19:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/3154011234.shtml)
-- 2026-06-29 19:04 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/97566899.shtml)
-- 2026-06-29 18:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/01270495.shtml)
-- 2026-06-29 18:51 - [TFING全员黑西装](https://www.share.minike.top/Article/details/684824.shtml)
-- 2026-06-29 18:50 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/94436129379.shtml)
-- 2026-06-29 19:07 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/63530.shtml)
-- 2026-06-29 18:53 - [V8](https://www.share.kurohicncr.top/Article/details/0335558448.shtml)
-- 2026-06-29 19:07 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/39821524.shtml)
-- 2026-06-29 19:11 - [极限挑战第一季](http://www.share.minike.top/Article/details/25383.shtml)
-- 2026-06-29 19:12 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/301275.shtml)
-- 2026-06-29 19:09 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/85266.shtml)
-- 2026-06-29 19:03 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/464384234.shtml)
-- 2026-06-29 19:01 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/5511005.shtml)
-- 2026-06-29 19:17 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/34865860.shtml)
-- 2026-06-29 19:02 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/92994431.shtml)
+- 2026-06-29 19:05 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/4998602674.shtml)
+- 2026-06-29 19:13 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/7065083169.shtml)
+- 2026-06-29 19:21 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/22641668.shtml)
+- 2026-06-29 19:07 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/96775807045.shtml)
+- 2026-06-29 19:20 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/98746674007.shtml)
+- 2026-06-29 19:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/58054153.shtml)
+- 2026-06-29 19:07 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/14639023230.shtml)
+- 2026-06-29 19:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/837140.shtml)
+- 2026-06-29 19:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/56557996.shtml)
+- 2026-06-29 18:59 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/00391741.shtml)
+- 2026-06-29 19:21 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/80460826393.shtml)
+- 2026-06-29 19:05 - [明星大侦探第四季](https://www.share.minike.top/Article/details/882248.shtml)
+- 2026-06-29 19:15 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/496864.shtml)
+- 2026-06-29 19:09 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/379005369.shtml)
+- 2026-06-29 19:11 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/58726866261.shtml)

@@ -1,57 +1,45 @@
-# （文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长
+# 【图解】“五一”遇春假，全场景消费活力迸发
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新社太原5月16日电 题：中国热播剧带火古戏台 戏曲大省山西戏韵悠长 中新社记者 范丽芳 “近700岁的老戏台见证时光流转，终于在镜头前成了主角。”近日，随着中国知名导演张艺谋的新剧《主角》热播，剧中“破蒙戏”核心取景地——山西芮城县东吕村的元代“连三舞台”，引发社交媒体平台网友对古戏台的关注。 在戏曲大省山西，2800余座古戏台星罗棋布，约占中国现存古戏台的70%，中国现存
+内容来源：经济日报 文案/设计：景远 策划：刘江 校对：石兰 审核：张厚为 来源：中国经济报
 
 ## 正文
 
-中新社太原5月16日电 题：中国热播剧带火古戏台 戏曲大省山西戏韵悠长 中新社记者 范丽芳 “近700岁的老戏台见证时光流转，终于在镜头前成了主角。
-
-”近日，随着中国知名导演张艺谋的新剧《主角》热播，剧中“破蒙戏”核心取景地——山西芮城县东吕村的元代“连三舞台”，引发社交媒体平台网友对古戏台的关注。
-
-在戏曲大省山西，2800余座古戏台星罗棋布，约占中国现存古戏台的70%，中国现存金元时期戏台皆位于此。
-
-近日，记者走访散落民间的古戏台，探寻赓续不绝的戏曲文脉。
-
-走进临汾市魏村，牛王庙戏台古朴苍劲。
-
-中国戏曲梅花奖获得者梁静饰演的精卫戎装明艳，只见她一手高抬挽住长长雉翎，一手稳稳提握花枪，旋停亮相刹那，英武飒爽，高亢的蒲腔撞上老木梁，回声在柱间盘旋。
-
-“每次站上古戏台，都心生敬畏。
-
-”梁静说，几百年前，先辈就在这方戏台吟唱演绎、传承戏曲，“这种古今相望、时空对话的感觉触动人心。
+内容来源：经济日报 文案/设计：景远 策划：刘江 校对：石兰 审核：张厚为 来源：中国经济报
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 19:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 18:54 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 18:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 19:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 19:16 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 19:08 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 18:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 19:16 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 19:17 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 19:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 18:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 19:09 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 19:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 19:01 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 19:13 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:14 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 19:15 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 19:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 19:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 19:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 19:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 19:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 19:09 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [叠纸](https://www.blog.kurohicncr.top/Article/details/673262484263.shtml)
-- 2026-06-29 19:16 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/5588854169.shtml)
-- 2026-06-29 18:49 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/67668321503.shtml)
-- 2026-06-29 18:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/124355449254.shtml)
-- 2026-06-29 18:55 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/207857001911.shtml)
-- 2026-06-29 18:59 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/433910.shtml)
-- 2026-06-29 19:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/653081.shtml)
-- 2026-06-29 18:49 - [天道](http://www.share.kurohicncr.top/Article/details/314628270637.shtml)
-- 2026-06-29 19:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/328183.shtml)
-- 2026-06-29 18:51 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/905136.shtml)
-- 2026-06-29 19:13 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/919099529.shtml)
-- 2026-06-29 18:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/542379.shtml)
-- 2026-06-29 18:49 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/76624198.shtml)
-- 2026-06-29 19:07 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/248218751125.shtml)
-- 2026-06-29 18:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/228602386382.shtml)
+- 2026-06-29 18:57 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/9834797.shtml)
+- 2026-06-29 19:08 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/30753605.shtml)
+- 2026-06-29 18:56 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/12107058.shtml)
+- 2026-06-29 19:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/875647.shtml)
+- 2026-06-29 19:19 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/835163836.shtml)
+- 2026-06-29 19:12 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/113842539.shtml)
+- 2026-06-29 18:58 - [沙丘](http://www.blog.kurohicncr.top/Article/details/2135796563.shtml)
+- 2026-06-29 18:54 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/94823863.shtml)
+- 2026-06-29 18:59 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/7052603272.shtml)
+- 2026-06-29 19:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/951979108298.shtml)
+- 2026-06-29 19:06 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/827005941550.shtml)
+- 2026-06-29 19:13 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/82929061.shtml)
+- 2026-06-29 19:03 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/64811.shtml)
+- 2026-06-29 19:16 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/83558.shtml)
+- 2026-06-29 19:18 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/5553205.shtml)

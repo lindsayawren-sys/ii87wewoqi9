@@ -1,58 +1,61 @@
-# 欧洲债市：政府债券下跌 通胀担忧升温
+# 中信建投期货：5月8日黑色系早报
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-随着油价飙升加剧通胀担忧，欧洲政府债券下跌。英债跑输，英国国内的政治危机推动超长期债券收益率升至近三十年来的最高水平。 德国10年期国债收益率一度飙升12个基点至3.16%，创2011年以来最高；德国、法国、英国和其他国家债市迈向自2月伊朗战争爆发以来最糟糕的一周。 对政治风险最为敏感的30年期英国国债收益率飙升20个基点至5.86%，创1998年以来新高；其迈向7月以来最糟糕
+钢材早报：市场分歧较重，期钢高位运行 市场信息： 1、 伊朗伊斯兰革命卫队海军 8 日凌晨表示，3 艘美军驱逐舰在遭到伊朗反舰弹道导弹、巡航导弹以及无人机打击后受损，迅速撤离霍尔木兹海峡附近海域。据美国福克斯新闻频道7日报道，美军当天对伊朗格什姆港和阿巴斯港发动空袭。据伊朗新闻电视台8日凌晨报道说，在经历数小时交火后，霍尔木兹海峡沿线伊朗岛屿及沿海城市局势已恢复正常。 2、 5
 
 ## 正文
 
-随着油价飙升加剧通胀担忧，欧洲政府债券下跌。
+钢材早报：市场分歧较重，期钢高位运行 市场信息： 1、 伊朗伊斯兰革命卫队海军 8 日凌晨表示，3 艘美军驱逐舰在遭到伊朗反舰弹道导弹、巡航导弹以及无人机打击后受损，迅速撤离霍尔木兹海峡附近海域。
 
-英债跑输，英国国内的政治危机推动超长期债券收益率升至近三十年来的最高水平。
+据美国福克斯新闻频道7日报道，美军当天对伊朗格什姆港和阿巴斯港发动空袭。
 
-德国10年期国债收益率一度飙升12个基点至3.16%，创2011年以来最高；德国、法国、英国和其他国家债市迈向自2月伊朗战争爆发以来最糟糕的一周。
+据伊朗新闻电视台8日凌晨报道说，在经历数小时交火后，霍尔木兹海峡沿线伊朗岛屿及沿海城市局势已恢复正常。
 
-对政治风险最为敏感的30年期英国国债收益率飙升20个基点至5.86%，创1998年以来新高；其迈向7月以来最糟糕的单日表现。
+2、 5月6日，宝武资源西非公司发布官方声明，宣布在几内亚政府相关监管部门的主持下，运营方宝赢矿山公司（BWCS）已于5月6日与工会达成协议，双方同意停止罢工，并恢复西芒杜铁矿1、2号区块生产。
 
-长期债券收益率升幅高于短债收益率，收益率曲线熊市趋陡。
+3、 截至5月6日，Mysteel样本内钢厂钢坯手持订单量200.7万吨，环比上月调研增加22.1万吨，增幅12.4%。
 
-与其他债券市场相比，英国国债受到的冲击更大，投资者担心首相基尔·斯塔默可能会被一位倾向于更宽松财政政策的继任者取代。
+其中，内贸接单91.7 万吨，环比增加24.2 万吨，占比46%，直接出口接单109万吨，环比减少2.1万吨，占比54%。
 
-市场： 德国10年期国债收益率上涨11个基点，报3.15%； 德国国债期货跌91点，报124.30； 意大利10年期国债收益率上涨15个基点，报3.92%； 意大利-德国国债利差扩大4个基点，报77个基点； 法国10年期国债收益率上涨13个基点，报3.80%； 10年期英国国债收益率上涨17个基点，报5.16%。
+4、 5 月7日，第三轮第六批中央生态环境保护督察全面启动。
 
-责任编辑：丁文武
+由7个中央生态环境保护督察组分别对7个省（区）及新疆生产建设兵团开展为期1个月的督察工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 18:58 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:16 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 19:13 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 19:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 19:15 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 19:09 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 18:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 18:57 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 19:05 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 19:00 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 19:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 19:03 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 19:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 19:07 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 19:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 19:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 19:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 19:21 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 19:00 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 19:18 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/469332728.shtml)
-- 2026-06-29 19:07 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/16277018.shtml)
-- 2026-06-29 18:51 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/94997612.shtml)
-- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/137143818.shtml)
-- 2026-06-29 19:07 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/75032404.shtml)
-- 2026-06-29 19:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/1736673280.shtml)
-- 2026-06-29 19:02 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/49021865864.shtml)
-- 2026-06-29 19:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/84648.shtml)
-- 2026-06-29 19:02 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/8602122.shtml)
-- 2026-06-29 18:50 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/29210589.shtml)
-- 2026-06-29 19:03 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/331182.shtml)
-- 2026-06-29 19:04 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/16982.shtml)
-- 2026-06-29 19:06 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/060926818.shtml)
-- 2026-06-29 19:07 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/9407811.shtml)
-- 2026-06-29 18:53 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/186573367.shtml)
+- 2026-06-29 19:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/1005901114.shtml)
+- 2026-06-29 19:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/696029.shtml)
+- 2026-06-29 19:15 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/28443383.shtml)
+- 2026-06-29 19:11 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/34914768.shtml)
+- 2026-06-29 18:58 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/751176963.shtml)
+- 2026-06-29 19:17 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/819358040.shtml)
+- 2026-06-29 19:10 - [逆天祖国人](http://www.share.minike.top/Article/details/694732.shtml)
+- 2026-06-29 19:14 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/36918569.shtml)
+- 2026-06-29 18:58 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/638679689.shtml)
+- 2026-06-29 19:17 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/120893875.shtml)
+- 2026-06-29 19:18 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/37546596179.shtml)
+- 2026-06-29 19:16 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/50891.shtml)
+- 2026-06-29 19:11 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/1329556105.shtml)
+- 2026-06-29 19:16 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/039248956.shtml)
+- 2026-06-29 19:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/00144026.shtml)

@@ -1,53 +1,56 @@
-# 多国留学生在长春沉浸式感受智造魅力
+# 广东拟将广州越秀区打造为养老金融高质量发展示范区
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 22:31 来源：中国新闻网 5月16日，吉林长春，多国留学生在研学参观活动中，沉浸式感受中国智能制造发展活力。 当天，他们先后走进吉林省仿生机器人创新中心、红旗文化展馆。在仿生机器人创新中心，近距离观摩各类前沿科创成果，直观感受中国高端机器人研发实力。走进红旗文化展馆，大家系统了解中国汽车工业传承发展与智能转型历程，真切体会中国制造向中国智造
+中新网广州5月7日电 (记者 许青青)广东省地方金融管理局联合省民政厅、省人社厅、省医保局、中国人民银行广东省分行、广东金融监管局、广东证监局及广州市政府，近日印发关于支持广州市越秀区建设广东省养老金融高质量发展示范的若干措施，系统部署十大重点任务，支持越秀区立足老城禀赋，以金融“暖色”绘就银发幸福底色。越秀区是广州老年人口最集中的区域之一，60岁以上常住人口占比近30%，已建
 
 ## 正文
 
-发布时间：2026年05月16日 22:31 来源：中国新闻网 5月16日，吉林长春，多国留学生在研学参观活动中，沉浸式感受中国智能制造发展活力。
+中新网广州5月7日电 (记者 许青青)广东省地方金融管理局联合省民政厅、省人社厅、省医保局、中国人民银行广东省分行、广东金融监管局、广东证监局及广州市政府，近日印发关于支持广州市越秀区建设广东省养老金融高质量发展示范的若干措施，系统部署十大重点任务，支持越秀区立足老城禀赋，以金融“暖色”绘就银发幸福底色。
 
-当天，他们先后走进吉林省仿生机器人创新中心、红旗文化展馆。
+越秀区是广州老年人口最集中的区域之一，60岁以上常住人口占比近30%，已建成以18条街道颐康中心、110个长者饭堂、22个社工服务站为主体的养老服务体系，老人们的需求非常旺盛，应用场景也十分丰富。
 
-在仿生机器人创新中心，近距离观摩各类前沿科创成果，直观感受中国高端机器人研发实力。
+同时，辖区内集聚了56家持牌金融机构、200余家地方金融组织，以及549家银发经济企业，产业规模突破500亿元。
 
-走进红旗文化展馆，大家系统了解中国汽车工业传承发展与智能转型历程，真切体会中国制造向中国智造跨越的硬核实力与独特魅力。
+在养老产品方面，越秀区已落地全省首个园区人才年金项目，辖区金融机构推出养老金融产品超350款，个人养老金开户超150万人、缴存金额近20亿元。
 
-(记者 张瑶 制作 乐小敏） 责任编辑：【李骏】
+在生活场景方面，建成全省首个养老金融社区服务站，举办58场“银发集市”服务5万人次，全区银行网点完成适老化改造。
+
+在支持养老企业方面，促成50多家机构与300多个项目对接，政府引导基金投资5个优质项目，撬动3.8亿元社会资本。
+
+《若干措施》明确，支持越秀区完善“15分钟社保便民服务圈”，推广“AI养老智能体”提供一站式服务；推动企业年金扩面提质，探索灵活就业群体“劳动储蓄”“消费养老”试点。
+
+鼓励保险机构提供居家养老保险保障，推动户籍老年人意外伤害保险及养老机构责任保险全覆盖。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 18:48 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 19:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 18:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 18:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 19:00 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:09 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 18:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 18:51 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 19:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 18:54 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 18:48 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 19:08 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 19:04 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 19:21 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 19:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 19:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 19:20 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 18:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 19:02 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 18:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 19:22 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 19:08 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/40734.shtml)
-- 2026-06-29 19:08 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/442437.shtml)
-- 2026-06-29 19:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/6102756246.shtml)
-- 2026-06-29 18:51 - [时光音乐会](http://www.blog.minike.top/Article/details/06230.shtml)
-- 2026-06-29 19:03 - [第一炉香](https://www.share.kurohicncr.top/Article/details/443855341629.shtml)
-- 2026-06-29 19:04 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/84896.shtml)
-- 2026-06-29 19:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/59230894.shtml)
-- 2026-06-29 18:52 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/7117113476.shtml)
-- 2026-06-29 18:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/54282119.shtml)
-- 2026-06-29 18:59 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/9887206751.shtml)
-- 2026-06-29 19:13 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/533941129069.shtml)
-- 2026-06-29 19:04 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/31985352.shtml)
-- 2026-06-29 19:17 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/018131007242.shtml)
-- 2026-06-29 18:48 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/816349564.shtml)
-- 2026-06-29 18:57 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/012661099177.shtml)
+- 2026-06-29 19:17 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/96150.shtml)
+- 2026-06-29 19:19 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/8144914621.shtml)
+- 2026-06-29 19:00 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/88192121.shtml)
+- 2026-06-29 18:57 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/33962.shtml)
+- 2026-06-29 19:23 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/779704224802.shtml)
+- 2026-06-29 19:10 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/105681960.shtml)
+- 2026-06-29 19:11 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/270824.shtml)
+- 2026-06-29 19:12 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/3105390200.shtml)
+- 2026-06-29 19:06 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/9402810.shtml)
+- 2026-06-29 19:12 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/38966901.shtml)
+- 2026-06-29 19:08 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/25064775.shtml)
+- 2026-06-29 19:04 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/181258847.shtml)
+- 2026-06-29 19:13 - [一生一世](http://www.share.kurohicncr.top/Article/details/633198709175.shtml)
+- 2026-06-29 19:05 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/11984.shtml)
+- 2026-06-29 19:19 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/830706772.shtml)

@@ -1,57 +1,52 @@
-# 山东梁山：多国客商选购“中国造”专用汽车
+# Harbour Energy一季度表现强劲，小幅上调产量展望
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！告诉你一个你所不知道的天坛天热了车里别放这些东西！已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示科幻走进现实！首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？电动化替代速度超预期，中国新
+英国北海最大的油气生产商之一Harbour Energy周四在公布强劲的一季度业绩后，收窄并小幅上调了全年产量预测。尽管中东战争导致能源价格和供应出现扰动，新收购的资产帮助公司实现了良好开局。 这家伦敦上市公司近年来持续拓展英国以外的业务，已进入挪威、阿根廷、墨西哥，并于近期扩展至美国墨西哥湾。伊朗战争推高油价后，高税收和政策不确定性削弱了英国本土的投资吸引力。 Harbour
 
 ## 正文
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
+英国北海最大的油气生产商之一Harbour Energy周四在公布强劲的一季度业绩后，收窄并小幅上调了全年产量预测。
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
+尽管中东战争导致能源价格和供应出现扰动，新收购的资产帮助公司实现了良好开局。
 
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
+这家伦敦上市公司近年来持续拓展英国以外的业务，已进入挪威、阿根廷、墨西哥，并于近期扩展至美国墨西哥湾。
 
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+伊朗战争推高油价后，高税收和政策不确定性削弱了英国本土的投资吸引力。
 
-专家提示科幻走进现实！
+Harbour Energy目前预计2026年日产量为48万至50万桶油当量，此前预期为47.5万至50万桶油当量。
 
-首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？
-
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
-
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 19:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 19:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 18:48 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 19:15 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 19:04 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 19:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 18:50 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 19:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 19:15 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 19:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 18:55 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 19:07 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 18:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 18:57 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 19:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 19:13 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 19:17 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 19:22 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 18:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 19:03 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/59171092.shtml)
-- 2026-06-29 18:52 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/606922265879.shtml)
-- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/85161664678.shtml)
-- 2026-06-29 19:17 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/7034108373.shtml)
-- 2026-06-29 19:09 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/383187964191.shtml)
-- 2026-06-29 18:54 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/2198625.shtml)
-- 2026-06-29 19:08 - [千与千寻](http://www.share.kurohicncr.top/Article/details/42729075.shtml)
-- 2026-06-29 19:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/42834.shtml)
-- 2026-06-29 18:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/28957800.shtml)
-- 2026-06-29 18:51 - [人形机器人](https://www.blog.minike.top/Article/details/45331.shtml)
-- 2026-06-29 18:55 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/401682092434.shtml)
-- 2026-06-29 19:02 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/927243295670.shtml)
-- 2026-06-29 19:14 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/004903609977.shtml)
-- 2026-06-29 19:05 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/707260695.shtml)
-- 2026-06-29 19:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/606024971.shtml)
+- 2026-06-29 19:03 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/065664822.shtml)
+- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/67139895523.shtml)
+- 2026-06-29 19:15 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/43813900.shtml)
+- 2026-06-29 19:00 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/30523122359.shtml)
+- 2026-06-29 19:00 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/93945044131.shtml)
+- 2026-06-29 19:21 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/7299327123.shtml)
+- 2026-06-29 19:13 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/549014121.shtml)
+- 2026-06-29 19:13 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/9776013207.shtml)
+- 2026-06-29 18:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/404616.shtml)
+- 2026-06-29 19:08 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/9244068.shtml)
+- 2026-06-29 19:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/2509056234.shtml)
+- 2026-06-29 19:03 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/04325703225.shtml)
+- 2026-06-29 18:56 - [一见倾心](https://www.blog.minike.top/Article/details/345062408.shtml)
+- 2026-06-29 19:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/4715272526.shtml)
+- 2026-06-29 19:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/228483866112.shtml)

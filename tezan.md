@@ -1,61 +1,59 @@
-# 多重因素叠加 4月美国生鲜食品价格全面走高
+# 大宗商品综述：油价小涨 金价走高 伦铜创10月初来最大单周涨幅
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-本周美国政府公布数据显示，4月美国食品杂货价格涨幅创下近四年单月新高，香肠、番茄、纸杯蛋糕等各类食品售价全面走高。 美国劳工统计局数据显示，新鲜蔬菜价格同比上涨11.5%，海鲜价格同比上涨6.2%。 多位分析师表示，此次食品涨价部分源于伊朗局势引发的历史性油价冲击，柴油成本随之攀升。柴油是食品供应链的核心能源，为货运卡车与远洋船舶提供动力，供货商燃油成本上涨后，成本顺着供应链层
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。黄金价格走高。伦铜期货大幅上涨，创自10月初以来最大单周涨幅。 原油：油价小幅上涨 海湾冲突威胁停火协议 油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。 全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。
 
 ## 正文
 
-本周美国政府公布数据显示，4月美国食品杂货价格涨幅创下近四年单月新高，香肠、番茄、纸杯蛋糕等各类食品售价全面走高。
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。
 
-美国劳工统计局数据显示，新鲜蔬菜价格同比上涨11.5%，海鲜价格同比上涨6.2%。
+黄金价格走高。
 
-多位分析师表示，此次食品涨价部分源于伊朗局势引发的历史性油价冲击，柴油成本随之攀升。
+伦铜期货大幅上涨，创自10月初以来最大单周涨幅。
 
-柴油是食品供应链的核心能源，为货运卡车与远洋船舶提供动力，供货商燃油成本上涨后，成本顺着供应链层层传导，最终推高商超食品售价。
+原油：油价小幅上涨 海湾冲突威胁停火协议 油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。
 
-分析师补充称，贸易关税以及极端天气导致的食材供应短缺，进一步抬高了部分食品价格，加重美国民众生活开支压力。
+全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。
 
-塔夫茨大学食品经济学家帕克・怀尔德表示：“能源市场一旦出现动荡，物价上涨最终都会传导至食品领域，眼下的情况正是如此。
+尽管美国官员表示期望伊朗将很快回应最新提议，但波斯湾再度爆发冲突仍令市场不安。
 
-” 伊朗局势紧张致使该国封锁霍尔木兹海峡，这条海上航运要道承担着全球约五分之一的石油运输量。
+市场关注点仍集中在自2月底战争爆发以来陷入瘫痪的霍尔木兹海峡航运。
 
-石油供应紧张直接推动柴油价格暴涨，美国汽车协会数据显示，目前柴油价格较去年同期高出六成，涨幅远超普通汽油。
+伊朗批评美国违反停火协议，据塔斯尼姆通讯社报道，伊朗准备制定有关霍尔木兹海峡“法律制度”的计划。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 19:11 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 19:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 19:15 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 19:17 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 18:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 18:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 18:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:11 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 19:17 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 19:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 19:14 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 18:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 19:07 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 19:12 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 19:09 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 19:02 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 19:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 19:20 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 19:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 18:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 19:12 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 19:23 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 19:23 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 19:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:07 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 19:19 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/33150698.shtml)
-- 2026-06-29 19:14 - [金刚川](http://www.share.minike.top/Article/details/179956109.shtml)
-- 2026-06-29 18:48 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/40000804.shtml)
-- 2026-06-29 18:56 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/518516.shtml)
-- 2026-06-29 19:05 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/97620.shtml)
-- 2026-06-29 19:12 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/2221278794.shtml)
-- 2026-06-29 19:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/295499762964.shtml)
-- 2026-06-29 18:52 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/460508.shtml)
-- 2026-06-29 19:11 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/105176137094.shtml)
-- 2026-06-29 18:59 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/03746624.shtml)
-- 2026-06-29 19:11 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/070823285.shtml)
-- 2026-06-29 19:17 - [沙丘](https://www.blog.kurohicncr.top/Article/details/272481.shtml)
-- 2026-06-29 18:49 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/769386.shtml)
-- 2026-06-29 18:48 - [NBA交易](http://www.blog.minike.top/Article/details/081765.shtml)
-- 2026-06-29 19:12 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/5186972885.shtml)
+- 2026-06-29 19:06 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/2569894.shtml)
+- 2026-06-29 19:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2911503.shtml)
+- 2026-06-29 19:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/58083732.shtml)
+- 2026-06-29 19:08 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/199524.shtml)
+- 2026-06-29 19:09 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/1871391.shtml)
+- 2026-06-29 19:08 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/419746.shtml)
+- 2026-06-29 19:08 - [周生如故](http://www.share.kurohicncr.top/Article/details/8793659727.shtml)
+- 2026-06-29 19:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/091372052386.shtml)
+- 2026-06-29 19:03 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/8353022123.shtml)
+- 2026-06-29 19:24 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/617379616285.shtml)
+- 2026-06-29 18:59 - [当我回母校教书](http://www.share.minike.top/Article/details/04270004233.shtml)
+- 2026-06-29 18:57 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/61458098928.shtml)
+- 2026-06-29 18:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/08493813.shtml)
+- 2026-06-29 18:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/02307064.shtml)
+- 2026-06-29 19:08 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/0670524290.shtml)

@@ -1,42 +1,47 @@
-# 前四个月，铁路发送旅客15.55亿人次
+# 璞泰来：公司长期扎根新能源电池功能性材料的生产和研发迭代
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-今年1-4月份，全国铁路发送旅客15.55亿人次、同比增长6.8%；全国铁路累计开行旅游列车1020列；全国铁路发送外籍旅客782.9万人次、同比增加33.9%……铁路客运呈现量质齐升的良好态势。
+证券日报网讯 5月7日，璞泰来在互动平台回答投资者提问时表示，公司长期扎根新能源电池功能性材料的生产和研发迭代，对生产工艺、产品性能与市场需求理解独到，研发并量产了用于超薄隔膜涂层的超细氧化铝、超细勃姆石、纤维状勃姆石等下一代陶瓷材料，丰富了公司的产品系列和下游应用场景。
 
 ## 正文
 
-今年1-4月份，全国铁路发送旅客15.55亿人次、同比增长6.8%；全国铁路累计开行旅游列车1020列；全国铁路发送外籍旅客782.9万人次、同比增加33.9%……铁路客运呈现量质齐升的良好态势。
+证券日报网讯 5月7日，璞泰来在互动平台回答投资者提问时表示，公司长期扎根新能源电池功能性材料的生产和研发迭代，对生产工艺、产品性能与市场需求理解独到，研发并量产了用于超薄隔膜涂层的超细氧化铝、超细勃姆石、纤维状勃姆石等下一代陶瓷材料，丰富了公司的产品系列和下游应用场景。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 18:56 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 18:49 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 18:48 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 18:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 18:52 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 18:54 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 18:52 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 19:05 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 18:56 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 19:00 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 19:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 19:05 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 19:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 19:20 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 18:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 19:07 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 19:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:21 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 19:06 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 18:54 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 19:12 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:01 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 19:06 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 19:11 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [逃狱兄弟](https://www.share.minike.top/Article/details/09132676780.shtml)
-- 2026-06-29 19:09 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/00840533280.shtml)
-- 2026-06-29 19:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/925319702458.shtml)
-- 2026-06-29 19:06 - [斛珠夫人](https://www.blog.minike.top/Article/details/76682993.shtml)
-- 2026-06-29 18:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/58131802980.shtml)
-- 2026-06-29 19:12 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/80550.shtml)
-- 2026-06-29 19:01 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/218896.shtml)
-- 2026-06-29 19:16 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/895464346.shtml)
-- 2026-06-29 18:58 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/464751.shtml)
-- 2026-06-29 18:59 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/130040519.shtml)
-- 2026-06-29 18:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/2811786.shtml)
-- 2026-06-29 18:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/937273771.shtml)
-- 2026-06-29 19:04 - [毒液2](https://www.blog.minike.top/Article/details/5408386533.shtml)
-- 2026-06-29 18:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/26999.shtml)
-- 2026-06-29 19:14 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/29403.shtml)
+- 2026-06-29 19:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/5706662061.shtml)
+- 2026-06-29 18:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/84261374.shtml)
+- 2026-06-29 19:05 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/228450595.shtml)
+- 2026-06-29 19:06 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/18051831870.shtml)
+- 2026-06-29 18:55 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/5356597.shtml)
+- 2026-06-29 19:22 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/68982552003.shtml)
+- 2026-06-29 19:14 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/71208552.shtml)
+- 2026-06-29 18:54 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/7550446.shtml)
+- 2026-06-29 19:02 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/3465545.shtml)
+- 2026-06-29 18:59 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/2606293.shtml)
+- 2026-06-29 19:21 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/27661180.shtml)
+- 2026-06-29 19:02 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/978137631190.shtml)
+- 2026-06-29 19:05 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/448962.shtml)
+- 2026-06-29 19:03 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/9700459178.shtml)
+- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/69175.shtml)

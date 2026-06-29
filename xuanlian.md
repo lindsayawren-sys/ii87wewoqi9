@@ -1,52 +1,59 @@
-# 大美边疆看我家丨云南水富：因水而盛的活力之城
+# Q4遭遇“至暗时刻”，白酒板块交出十年来最差年报
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 10:18 来源：中国新闻网 在云贵高原的壮阔怀抱中，云南省水富市如一颗璀璨明珠，傲然屹立于云川交界之地。水富港是云南省唯一能实现3000吨级船舶江海直达的长江干线港口，素有“万里长江第一港”之称。水富城，一座因水而盛、因港而强的活力之城，正以开放包容的胸怀、蓬勃向上的姿态，在时代浪潮中书写属于自己的恢弘篇章。(作者：黄明高） 责任编辑：【魏聪
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 随着2025年年报与2026年一季报披露收官，白酒行业过去一年的经营全貌浮出水面。2025年成为白酒行业近年来调整压力最为集中的一年，全年行业整体营收、利润均出现双位数下滑。进入2026年一季度，在春节旺季动销带动下，板块降幅大幅收窄，高端酒率先恢复正增长，行业底部信号渐明。 01 深度调整
 
 ## 正文
 
-发布时间：2026年05月15日 10:18 来源：中国新闻网 在云贵高原的壮阔怀抱中，云南省水富市如一颗璀璨明珠，傲然屹立于云川交界之地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-水富港是云南省唯一能实现3000吨级船舶江海直达的长江干线港口，素有“万里长江第一港”之称。
+来源：上市之家 随着2025年年报与2026年一季报披露收官，白酒行业过去一年的经营全貌浮出水面。
 
-水富城，一座因水而盛、因港而强的活力之城，正以开放包容的胸怀、蓬勃向上的姿态，在时代浪潮中书写属于自己的恢弘篇章。
+2025年成为白酒行业近年来调整压力最为集中的一年，全年行业整体营收、利润均出现双位数下滑。
 
-(作者：黄明高） 责任编辑：【魏聪聪】
+进入2026年一季度，在春节旺季动销带动下，板块降幅大幅收窄，高端酒率先恢复正增长，行业底部信号渐明。
+
+01 深度调整的一年，多项指标创新低 2025年，白酒板块整体承受了空前压力。
+
+据招商证券统计，2025年白酒行业营收约3618.5亿元，同比下滑18.2%；归母净利润约1263.7亿元，同比下滑24.2%。
+
+国金证券数据显示，2025年板块合计实现营收3584亿元，同比下滑18%。
+
+全年利润降幅普遍大于收入降幅，主要系产品结构下移叠加渠道费用支持力度加大所致。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 19:14 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 19:00 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 19:01 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 19:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 18:56 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 19:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 18:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 19:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 19:00 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 18:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 18:51 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 19:13 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 19:11 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 19:19 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 19:22 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 19:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 18:57 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 19:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 19:20 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 19:00 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 19:23 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 19:05 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 19:14 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 19:12 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:22 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 18:58 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [我和我的家乡](http://www.blog.minike.top/Article/details/38155.shtml)
-- 2026-06-29 19:09 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/9096216372.shtml)
-- 2026-06-29 18:55 - [扬名立万](http://www.share.minike.top/Article/details/582826228013.shtml)
-- 2026-06-29 18:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/33604437.shtml)
-- 2026-06-29 18:54 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/6989913513.shtml)
-- 2026-06-29 18:49 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/92395182.shtml)
-- 2026-06-29 19:08 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/07529222.shtml)
-- 2026-06-29 19:17 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/4340438.shtml)
-- 2026-06-29 18:56 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/32970702382.shtml)
-- 2026-06-29 19:14 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/39894.shtml)
-- 2026-06-29 18:48 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/07711162094.shtml)
-- 2026-06-29 19:04 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/97623.shtml)
-- 2026-06-29 19:07 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/95850439921.shtml)
-- 2026-06-29 18:57 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/9942114689.shtml)
-- 2026-06-29 19:08 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/88621317.shtml)
+- 2026-06-29 19:17 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/289517983.shtml)
+- 2026-06-29 18:55 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/265648454946.shtml)
+- 2026-06-29 19:17 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/954169114.shtml)
+- 2026-06-29 19:04 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/834474792.shtml)
+- 2026-06-29 19:11 - [金刚川](https://www.blog.minike.top/Article/details/23347.shtml)
+- 2026-06-29 18:58 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/89311136146.shtml)
+- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/1990800410.shtml)
+- 2026-06-29 19:03 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/2923184.shtml)
+- 2026-06-29 19:10 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/3260679636.shtml)
+- 2026-06-29 19:16 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/88274845127.shtml)
+- 2026-06-29 19:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/071062491629.shtml)
+- 2026-06-29 19:02 - [起风了](http://www.share.minike.top/Article/details/9987860170.shtml)
+- 2026-06-29 19:20 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/2204388311.shtml)
+- 2026-06-29 19:09 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/8949833.shtml)
+- 2026-06-29 19:10 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/097744.shtml)

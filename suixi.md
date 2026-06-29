@@ -1,48 +1,60 @@
-# IDT INT‘L拟斥资3330万元购买18部AI伺服器
+# 夹娃娃成瘾？香港拟修订《赌博条例》！
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-IDT INT‘L（00167）公布，于2026年5月14日，公司的间接全资附属浙江极元科技有限公司拟向上海如谷信息科技有限公司购买18部AI伺服器，代价3330万元。责任编辑：卢昱君
+近年来，弹珠机、夹娃娃机店铺逐渐遍布香港。这些有奖娱乐项目中不免含有博彩成分，或引发青少年成瘾等问题。香港特区政府近日建议通过修订《赌博条例》等进行规管，得到香港社会舆论支持。 综合港媒报道，根据《赌博条例》，在香港经营有奖娱乐游戏，必须申领“有奖娱乐游戏牌照”。香港高等法院2022年裁定普通夹娃娃机不符合《公众娱乐场所条例》中关于“娱乐”的定义，因此夹娃娃机店铺目前无需领取公
 
 ## 正文
 
-IDT INT‘L（00167）公布，于2026年5月14日，公司的间接全资附属浙江极元科技有限公司拟向上海如谷信息科技有限公司购买18部AI伺服器，代价3330万元。
+近年来，弹珠机、夹娃娃机店铺逐渐遍布香港。
 
-责任编辑：卢昱君
+这些有奖娱乐项目中不免含有博彩成分，或引发青少年成瘾等问题。
+
+香港特区政府近日建议通过修订《赌博条例》等进行规管，得到香港社会舆论支持。
+
+综合港媒报道，根据《赌博条例》，在香港经营有奖娱乐游戏，必须申领“有奖娱乐游戏牌照”。
+
+香港高等法院2022年裁定普通夹娃娃机不符合《公众娱乐场所条例》中关于“娱乐”的定义，因此夹娃娃机店铺目前无需领取公众娱乐场所牌照，也不受“有奖娱乐游戏牌照”规管。
+
+香港《大公报》报道，目前香港多地夹娃娃机店铺客流不多，只有一些连锁式经营的游戏场所有较多顾客；弹珠机门店则在各区商场越开越多，有雨后春笋之势。
+
+在学生放学时段弹珠机门店时常聚集不少穿着校服的年轻人。
+
+弹珠机每局设有随机赔率，弹珠落入指定坑洞即可获得积分卡，凭积分卡兑换动漫手办、游戏主机和新款手机等礼品。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 18:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 19:03 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 19:05 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 18:52 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 18:53 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 19:06 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 18:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 18:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 18:51 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 19:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 19:00 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 19:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 19:11 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 19:06 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:09 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 19:14 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:17 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:08 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 18:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 19:09 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 19:02 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 18:56 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 19:04 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 19:20 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 18:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 19:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [当我回母校教书](http://www.share.minike.top/Article/details/18648411.shtml)
-- 2026-06-29 19:04 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/4698067897.shtml)
-- 2026-06-29 19:17 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/947398886.shtml)
-- 2026-06-29 18:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/9406930057.shtml)
-- 2026-06-29 18:52 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/9187021262.shtml)
-- 2026-06-29 18:59 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/839490657.shtml)
-- 2026-06-29 18:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/72731.shtml)
-- 2026-06-29 19:13 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/89439.shtml)
-- 2026-06-29 19:17 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/25290969243.shtml)
-- 2026-06-29 18:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/8054080485.shtml)
-- 2026-06-29 18:51 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/9610837.shtml)
-- 2026-06-29 18:55 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/808494.shtml)
-- 2026-06-29 18:59 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/66712.shtml)
-- 2026-06-29 19:14 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/243703231554.shtml)
-- 2026-06-29 19:13 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/9112373662.shtml)
+- 2026-06-29 19:02 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/81764402590.shtml)
+- 2026-06-29 19:23 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/1228266.shtml)
+- 2026-06-29 19:09 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/586971913235.shtml)
+- 2026-06-29 19:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/856944.shtml)
+- 2026-06-29 19:01 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/1080293694.shtml)
+- 2026-06-29 19:04 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/520968867.shtml)
+- 2026-06-29 19:01 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/48329892.shtml)
+- 2026-06-29 19:14 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/106829342613.shtml)
+- 2026-06-29 19:10 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/57892975.shtml)
+- 2026-06-29 19:10 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/91198917788.shtml)
+- 2026-06-29 19:14 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/3668056032.shtml)
+- 2026-06-29 19:09 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/845379542929.shtml)
+- 2026-06-29 18:57 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/679578601965.shtml)
+- 2026-06-29 18:55 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/04273925.shtml)
+- 2026-06-29 18:55 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/5401139.shtml)

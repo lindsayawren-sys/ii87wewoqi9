@@ -1,59 +1,56 @@
-# 中山大学研制的可重复使用火箭实现低空飞行
+# 希迪智驾盘中涨超12% 近日与舍弗勒正式签署战略合作协议
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网广州5月15日电 (许青青 李建平)由中山大学航空航天学院吴志刚教授团队研制的“逸仙-3号”面对称可重复使用火箭，14日在广东省阳江市成功完成低空飞行试验。 当日下午，火箭在发射至预定高度后，完成悬停、机动调整，平稳垂直降落至目标区域。据了解，这是中国内地首枚高校主导研制的面对称可回收液体火箭。 “逸仙-3号”火箭起飞质量约1吨，高度4.5米，直径0.6米。火箭外形呈面对
+希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。 近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。 在政策、技术与场景三重驱动下，
 
 ## 正文
 
-中新网广州5月15日电 (许青青 李建平)由中山大学航空航天学院吴志刚教授团队研制的“逸仙-3号”面对称可重复使用火箭，14日在广东省阳江市成功完成低空飞行试验。
+希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。
 
-当日下午，火箭在发射至预定高度后，完成悬停、机动调整，平稳垂直降落至目标区域。
+近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。
 
-据了解，这是中国内地首枚高校主导研制的面对称可回收液体火箭。
+在政策、技术与场景三重驱动下，中国商用车产业正迎来“电动化+智能化”深度变革，矿用卡车、封闭园区物流等场景智能化需求持续攀升。
 
-“逸仙-3号”火箭起飞质量约1吨，高度4.5米，直径0.6米。
+希迪智驾联合创始人马潍博士表示，商用车电动化、智能化已是产业发展必然趋势与刚性需求。
 
-火箭外形呈面对称，相比传统的轴对称火箭，这种设计能在大气层内提供更好的升力和姿态稳定性，尤其适合垂直起降回收。
+依托成熟的自动驾驶全栈技术，以及矿区、口岸、园区等刚需场景的规模化商业化落地能力，希迪智驾将深度整合双方资源优势，持续为客户创造可感知、高实效的核心价值，全面助力商用车出行更安全、运营更高效、作业更可靠。
 
-“垂直起降是可重复使用火箭的核心技术，因为它决定了火箭能否安全回收并再次发射。
-
-但垂直起降对控制精度要求极高，火箭要在高速下落中多次点火、反推减速，在触地时达到近乎零速度和零偏差，涉及气动、制导、推力调节控制等多学科技术的综合运用，任何一个微小失误都可能导致失败。
-
-”该项目主要负责老师、中山大学航空航天学院副教授张亮介绍，在“逸仙-3号”试验中，火箭在低空飞行过程中成功完成了姿态稳定、悬停控制、减速调整及精准着陆等关键动作，证明了团队在火箭总体设计方面的能力和设计方案的工程可行性。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 18:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 19:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 19:11 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:01 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 19:10 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 19:12 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 19:11 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 18:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 19:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 19:08 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 19:03 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 19:06 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 19:07 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 19:07 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 18:56 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 19:01 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 19:22 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 19:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 19:11 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 19:07 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 19:16 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 19:01 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 19:13 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 19:04 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 18:56 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 18:59 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/65769.shtml)
-- 2026-06-29 18:58 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/5605783834.shtml)
-- 2026-06-29 19:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/016139573950.shtml)
-- 2026-06-29 19:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/1721415.shtml)
-- 2026-06-29 19:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/805603830.shtml)
-- 2026-06-29 19:16 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/42115360882.shtml)
-- 2026-06-29 18:59 - [一生一世](https://www.blog.kurohicncr.top/Article/details/32670439203.shtml)
-- 2026-06-29 18:56 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/71138704431.shtml)
-- 2026-06-29 19:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/58215516879.shtml)
-- 2026-06-29 18:52 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/564208.shtml)
-- 2026-06-29 18:52 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/83541.shtml)
-- 2026-06-29 19:06 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/37223210918.shtml)
-- 2026-06-29 18:59 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/878461967.shtml)
-- 2026-06-29 19:13 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/7531997723.shtml)
-- 2026-06-29 19:09 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/55462147985.shtml)
+- 2026-06-29 19:07 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/530626.shtml)
+- 2026-06-29 19:00 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/60104686.shtml)
+- 2026-06-29 19:01 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/18411325.shtml)
+- 2026-06-29 19:11 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/672567144.shtml)
+- 2026-06-29 19:01 - [小娘惹](https://www.share.minike.top/Article/details/57716381517.shtml)
+- 2026-06-29 19:07 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/829449.shtml)
+- 2026-06-29 19:07 - [毒液2](http://www.blog.kurohicncr.top/Article/details/3492500483.shtml)
+- 2026-06-29 19:08 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/39965223.shtml)
+- 2026-06-29 19:03 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/019405562149.shtml)
+- 2026-06-29 19:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/5328474233.shtml)
+- 2026-06-29 18:59 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/405346.shtml)
+- 2026-06-29 18:56 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/82146833092.shtml)
+- 2026-06-29 19:12 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/514371236.shtml)
+- 2026-06-29 19:14 - [AG 宫斗](http://www.blog.minike.top/Article/details/33853802.shtml)
+- 2026-06-29 19:03 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/9479286319.shtml)

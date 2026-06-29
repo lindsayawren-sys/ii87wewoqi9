@@ -1,59 +1,55 @@
-# 日本央行副行长呼吁对全球货币体系采取“整体性方法”
+# 学者解读“台独”双面人生存逻辑：所谓“保台”实质是“保官保财”
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-日本央行副总裁冰见野良三周六呼吁，在设计未来的全球货币体系时应采取“整体性方法”，不要将选择局限于央行数字货币和稳定币。 美国禁止发行央行数字货币（CBDC），并推动稳定币作为强化美元担任全球关键货币地位的手段；而欧洲则在推广数字欧元，以克服零售支付系统中的区域碎片化现象。 冰见野良三表示：“日本已为这两条道路做好了准备。”日本在推进央行数字货币试点项目的同时，也是率先出台稳定
+发布时间：2026年05月07日 20:35 来源：中国新闻网 5月6日，江西省上高县荣炭科技有限公司宣布，自4月7日起已解除“台独”顽固分子刘世芳亲属颜文群全部职务。北京联合大学台湾研究院教授朱松岭接受中新网“燕新台”工作室专访时表示，部分民进党政客长期构建一种“嘴上反中、私下挣钱”的“双轨”生存逻辑：一边煽动意识形态对立、收割岛内选票，一边又通过家族亲属在大陆经商，享受大陆
 
 ## 正文
 
-日本央行副总裁冰见野良三周六呼吁，在设计未来的全球货币体系时应采取“整体性方法”，不要将选择局限于央行数字货币和稳定币。
+发布时间：2026年05月07日 20:35 来源：中国新闻网 5月6日，江西省上高县荣炭科技有限公司宣布，自4月7日起已解除“台独”顽固分子刘世芳亲属颜文群全部职务。
 
-美国禁止发行央行数字货币（CBDC），并推动稳定币作为强化美元担任全球关键货币地位的手段；而欧洲则在推广数字欧元，以克服零售支付系统中的区域碎片化现象。
+北京联合大学台湾研究院教授朱松岭接受中新网“燕新台”工作室专访时表示，部分民进党政客长期构建一种“嘴上反中、私下挣钱”的“双轨”生存逻辑：一边煽动意识形态对立、收割岛内选票，一边又通过家族亲属在大陆经商，享受大陆经济红利。
 
-冰见野良三表示：“日本已为这两条道路做好了准备。
+朱松岭指出，大陆绝不允许任何形式“吃饭砸锅”的勾当，这种“政经两面派”的空间正在被封杀。
 
-”日本在推进央行数字货币试点项目的同时，也是率先出台稳定币立法的国家之一。
+“当前越来越多岛内民众开始看清，民进党所谓‘保台’，本质上就是‘保官保财’。
 
-但他指出，海外的发展态势表明，未来货币体系需要一个全面的设计，需综合考虑技术可行性、社会成本、用户便利性、金融稳定及货币政策等因素。
-
-冰见野良三在日本金融学会年会上发表演讲时表示：“未来货币体系的选择不仅限于央行数字货币和稳定币”，还有其他选项，例如引入代币化的银行存款以及在区块链上运行的央行储备。
-
-他补充道，日本央行已启动一项“沙盒项目”，旨在探索将其储备代币化并用于基于区块链的支付解决方案的技术可行性。
-
-责任编辑：于健 SF069
+”(策划/制作：燕新台 君言晚 明昭言 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 19:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 18:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 19:17 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 19:00 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 18:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 19:12 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 19:00 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 19:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 18:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 18:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 18:48 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 19:12 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 19:16 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 19:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 19:08 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 19:04 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 19:03 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 19:02 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:23 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 19:00 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 18:58 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 19:15 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 19:19 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 19:19 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 19:20 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 19:20 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/222620.shtml)
-- 2026-06-29 18:54 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/10760031.shtml)
-- 2026-06-29 19:05 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/4155247219.shtml)
-- 2026-06-29 19:08 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/574137196.shtml)
-- 2026-06-29 19:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/93739.shtml)
-- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/076519206.shtml)
-- 2026-06-29 19:01 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/987891136126.shtml)
-- 2026-06-29 19:17 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/74722.shtml)
-- 2026-06-29 18:59 - [起风了](http://www.share.kurohicncr.top/Article/details/92843343894.shtml)
-- 2026-06-29 19:08 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/2987215.shtml)
-- 2026-06-29 19:10 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/79307655.shtml)
-- 2026-06-29 19:12 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/0555897156.shtml)
-- 2026-06-29 18:57 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/9224633.shtml)
-- 2026-06-29 19:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/914653.shtml)
-- 2026-06-29 19:04 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/23949.shtml)
+- 2026-06-29 19:21 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/3389582.shtml)
+- 2026-06-29 19:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/222735468.shtml)
+- 2026-06-29 19:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/627461058.shtml)
+- 2026-06-29 19:10 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/810449234351.shtml)
+- 2026-06-29 19:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/10764606.shtml)
+- 2026-06-29 19:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/391090161.shtml)
+- 2026-06-29 19:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/7918899.shtml)
+- 2026-06-29 19:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/685672.shtml)
+- 2026-06-29 19:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/60115182.shtml)
+- 2026-06-29 19:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/931173.shtml)
+- 2026-06-29 19:01 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/67540.shtml)
+- 2026-06-29 18:55 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/9960771066.shtml)
+- 2026-06-29 19:17 - [千与千寻](http://www.share.minike.top/Article/details/99731.shtml)
+- 2026-06-29 19:14 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/2384406879.shtml)
+- 2026-06-29 19:01 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/9806940.shtml)

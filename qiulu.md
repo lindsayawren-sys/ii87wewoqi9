@@ -1,61 +1,60 @@
-# 2025年川渝两地博物馆共接待观众超1.51亿人次
+# 境外茶商安徽觅合作
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网成都5月15日电 (记者 岳依桐)“5·18国际博物馆日”将至，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会15日联合发布《2025年度川渝博物馆事业发展报告》(下称《报告》)。 《报告》显示，截至2025年底，川渝两地在全国博物馆年报系统填报的博物馆(纪念馆)达605家，馆藏资源总量达745.16万件(套)，全年共接待观众超1.51亿人次，举办展览37
+中新网合肥5月9日电 (江婉琪)“徽茶在海外很受欢迎，我们希望在这里找到更多合作机会。”来自斯里兰卡的茶商崔月8日在接受采访时说。 第十八届安徽国际茶产业博览会(下称“安徽茶博会”)在此间开幕。来自法国、尼泊尔、越南等国家和地区的15家境外茶企参展。 来自台湾的茶商张小惠已连续4年参加安徽茶博会。“徽茶很有特点，每年来都会与安徽朋友互赠茶样，两岸茶商可以携手合作，共同传承茶文化
 
 ## 正文
 
-中新网成都5月15日电 (记者 岳依桐)“5·18国际博物馆日”将至，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会15日联合发布《2025年度川渝博物馆事业发展报告》(下称《报告》)。
+中新网合肥5月9日电 (江婉琪)“徽茶在海外很受欢迎，我们希望在这里找到更多合作机会。
 
-《报告》显示，截至2025年底，川渝两地在全国博物馆年报系统填报的博物馆(纪念馆)达605家，馆藏资源总量达745.16万件(套)，全年共接待观众超1.51亿人次，举办展览3754个，开展社会教育活动58110场次，文创收入超5亿元。
+”来自斯里兰卡的茶商崔月8日在接受采访时说。
 
-四川方面，全省备案博物馆(纪念馆)总数达459家，免费开放比例达88.96%。
+第十八届安徽国际茶产业博览会(下称“安徽茶博会”)在此间开幕。
 
-全省备案博物馆(纪念馆)藏品总数达627.30万件(套)。
+来自法国、尼泊尔、越南等国家和地区的15家境外茶企参展。
 
-全省183个县(市、区)实现“一县一馆”全覆盖。
+来自台湾的茶商张小惠已连续4年参加安徽茶博会。
 
-全年共举办展览2692个，常设展览1308个，临时展览1384个。
+“徽茶很有特点，每年来都会与安徽朋友互赠茶样，两岸茶商可以携手合作，共同传承茶文化。
 
-其中临时展览包含线上展览710个、入境展览20个、出境展览32个。
+”她说。
 
-四川全省博物馆全年累计接待观众10634.4万人次，同比增长23.54%。
+祁门红茶是世界三大高香红茶之一，也是中国十大名茶中唯一的红茶。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 19:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 19:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 18:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 18:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 18:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:10 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 19:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 18:56 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 18:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 18:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 19:16 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 18:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 18:48 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 18:56 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 19:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 19:16 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 19:13 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 19:11 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 19:10 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 19:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 19:11 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 19:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 19:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 18:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 19:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 19:15 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 19:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/1641785117.shtml)
-- 2026-06-29 18:59 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/27218.shtml)
-- 2026-06-29 18:53 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/785482.shtml)
-- 2026-06-29 18:56 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/01282331.shtml)
-- 2026-06-29 19:01 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/990371991.shtml)
-- 2026-06-29 19:11 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/02560.shtml)
-- 2026-06-29 19:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/494576885177.shtml)
-- 2026-06-29 19:13 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/7705531586.shtml)
-- 2026-06-29 18:52 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/99679386078.shtml)
-- 2026-06-29 19:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/587422.shtml)
-- 2026-06-29 18:51 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/698502.shtml)
-- 2026-06-29 19:03 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/7830569.shtml)
-- 2026-06-29 19:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/011197975402.shtml)
-- 2026-06-29 18:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/52960040647.shtml)
-- 2026-06-29 18:56 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/541009479.shtml)
+- 2026-06-29 19:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/550208.shtml)
+- 2026-06-29 18:59 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/38385229386.shtml)
+- 2026-06-29 19:21 - [美人鱼](http://www.blog.minike.top/Article/details/484608192.shtml)
+- 2026-06-29 19:20 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/42535736.shtml)
+- 2026-06-29 19:05 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/31580.shtml)
+- 2026-06-29 19:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/840912710.shtml)
+- 2026-06-29 19:06 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/2361033197.shtml)
+- 2026-06-29 19:03 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/167227.shtml)
+- 2026-06-29 19:10 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/49845516247.shtml)
+- 2026-06-29 19:17 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/7272465.shtml)
+- 2026-06-29 19:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/643618.shtml)
+- 2026-06-29 19:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/131297.shtml)
+- 2026-06-29 19:01 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/959443.shtml)
+- 2026-06-29 19:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/3548859229.shtml)
+- 2026-06-29 18:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/490154622553.shtml)

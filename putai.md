@@ -1,60 +1,59 @@
-# 515投资者保护|累计5000场活动、覆盖超百万人次！光大证券投教活动荣获2026年度投教项目优秀实践奖
+# 博茨瓦纳前总统费斯图斯·莫哈埃去世
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。光大证券凭借“以党建为引领，践行金融为民”投教活动，荣获2026年度“投教项目优秀实践奖”。 为深入贯彻金融工作的政治性和人民性，光大证券立足所能，多措并举推动投教建设走深走实，引导树立长期主义理念，切实保护金融消费者合法权益。 党建引领，践行金融为民
+中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。政府同时宣布全国哀悼三天。 莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。 莫哈埃因积极应对艾滋病问题而广受赞誉。在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问
 
 ## 正文
 
-专题：515投资者保护！
+中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+政府同时宣布全国哀悼三天。
 
-光大证券凭借“以党建为引领，践行金融为民”投教活动，荣获2026年度“投教项目优秀实践奖”。
+莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。
 
-为深入贯彻金融工作的政治性和人民性，光大证券立足所能，多措并举推动投教建设走深走实，引导树立长期主义理念，切实保护金融消费者合法权益。
+莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。
 
-党建引领，践行金融为民。
+莫哈埃因积极应对艾滋病问题而广受赞誉。
 
-公司创新实践“党建+投教”新模式，依托党建联建平台开展普惠金融活动，引导从业人员践行诚实稳健、担当作为，将金融为民理念落到实处。
+在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问题，并推动实施了非洲大陆最全面的抗艾项目之一。
 
-多措并举，丰富普惠活动。
+莫哈埃于1939年8月21日出生于博茨瓦纳中部城镇塞罗韦(Serowe)。
 
-联合外滩、陆家嘴、江宁、豫园等党群服务中心开展金融知识科普与防非反诈宣传，实现金融服务与党群服务深度融合。
+他曾赴英国求学，并在博茨瓦纳于1966年独立后不久进入公务员系统工作。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 19:00 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 18:55 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 19:13 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 18:58 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 19:00 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 18:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 19:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 18:48 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:16 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 19:12 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 18:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 19:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 18:57 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 19:20 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 18:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 19:22 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 19:17 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 19:05 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 19:04 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 19:22 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 18:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 19:13 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 19:16 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 19:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 19:15 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/5912981939.shtml)
-- 2026-06-29 19:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/373716822.shtml)
-- 2026-06-29 18:50 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/939687189.shtml)
-- 2026-06-29 19:14 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/861552.shtml)
-- 2026-06-29 18:57 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/486031.shtml)
-- 2026-06-29 18:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/98915134.shtml)
-- 2026-06-29 18:53 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/502457284.shtml)
-- 2026-06-29 19:07 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/108450996689.shtml)
-- 2026-06-29 19:02 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/62902203.shtml)
-- 2026-06-29 19:04 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/41257.shtml)
-- 2026-06-29 19:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/82836916.shtml)
-- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/3046756341.shtml)
-- 2026-06-29 19:01 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/888528170352.shtml)
-- 2026-06-29 19:11 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/3048399.shtml)
-- 2026-06-29 18:48 - [美人鱼](https://www.share.kurohicncr.top/Article/details/83201751226.shtml)
+- 2026-06-29 19:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/367077521926.shtml)
+- 2026-06-29 19:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/32153.shtml)
+- 2026-06-29 18:57 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/291496.shtml)
+- 2026-06-29 19:22 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/947628720.shtml)
+- 2026-06-29 19:09 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/49372628.shtml)
+- 2026-06-29 19:00 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/170079717547.shtml)
+- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/61116260467.shtml)
+- 2026-06-29 19:03 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/9983437407.shtml)
+- 2026-06-29 18:57 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/7740266.shtml)
+- 2026-06-29 19:13 - [天道](http://www.blog.minike.top/Article/details/34172081.shtml)
+- 2026-06-29 19:04 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/6221473.shtml)
+- 2026-06-29 18:57 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/5732099835.shtml)
+- 2026-06-29 18:59 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/6418448158.shtml)
+- 2026-06-29 19:16 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/484174476.shtml)
+- 2026-06-29 19:14 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/725502260176.shtml)

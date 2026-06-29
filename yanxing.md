@@ -1,60 +1,56 @@
-# 日本央行警示：投资基金活动暗藏金融体系风险
+# 张艺谋监制王菲献唱主题曲 《主角》定档
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-日本央行理事神山一成周五在央行官网发布的演讲稿中表示，投资基金在风险资本供给中扮演重要角色，但也可能对一国金融体系构成潜在风险。 神山一成称，尽管非银行金融中介仅占日本金融总资产的 30%，低于全球 50% 的平均水平，但海外对冲基金、私募股权基金在日本的布局规模仍在持续扩大。 他补充道，近年来私募股权基金在日本企业重组、并购交易中发挥的作用愈发凸显。 这场演讲于周四在一场研讨
+中新网北京5月7日电 (记者 高凯)5月7日，电视剧《主角》正式官宣将于5月10日登陆CCTV-1黄金档，并发布由王菲献唱的同名主题曲MV和群像海报。 该剧由中央电视台、贰零壹陆影视、腾讯视频、西安电影制片厂、西安兆麦影视出品，张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓
 
 ## 正文
 
-日本央行理事神山一成周五在央行官网发布的演讲稿中表示，投资基金在风险资本供给中扮演重要角色，但也可能对一国金融体系构成潜在风险。
+中新网北京5月7日电 (记者 高凯)5月7日，电视剧《主角》正式官宣将于5月10日登陆CCTV-1黄金档，并发布由王菲献唱的同名主题曲MV和群像海报。
 
-神山一成称，尽管非银行金融中介仅占日本金融总资产的 30%，低于全球 50% 的平均水平，但海外对冲基金、私募股权基金在日本的布局规模仍在持续扩大。
+该剧由中央电视台、贰零壹陆影视、腾讯视频、西安电影制片厂、西安兆麦影视出品，张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓晨领衔主演。
 
-他补充道，近年来私募股权基金在日本企业重组、并购交易中发挥的作用愈发凸显。
+《主角》以秦腔名伶忆秦娥近半个世纪的艺术人生为脉络，串联起几代秦腔人的坚守与沉浮。
 
-这场演讲于周四在一场研讨会上发表。
+作为国家广播电视总局重点指导项目，陕西省重大文化精品扶持项目，《主角》采用人物传记和年代叙事融合交织的叙事手法，将忆秦娥等人的命运和秦腔兴衰、时代变迁回环嵌套，意在形成“深而不闷，真而不苦”的表达效果，力求让严肃文学温暖落地，令年代叙事兼具张力与温度。
 
-神山一成指出，非银行金融中介虽通过提供风险资本助力经济增长，却也可能给整个金融体系带来潜在风险。
+在剧中，张嘉益饰演的胡三元，是忆秦娥的舅舅与秦腔引路人，身为剧团“西北鼓王”，以鼓点托举后辈，以赤诚守护戏曲火种。
 
-他表示：“全球对冲基金若出现资本流向突变，可能加剧债市与股市的价格波动。
+刘浩存饰演的忆秦娥，从放羊娃蜕变为秦腔名伶，性格木讷坚韧、隐忍倔强，在磨砺中完成由“舞台主角”到“人生主角”的蜕变。
 
-” 神山一成还提到，随着日本金融机构加大对海外投资基金的放贷力度，外部冲击存在瞬间传导至日本国内市场的风险。
+秦海璐饰演的花彩香是剧团当家花旦，即便从艺术云端跌落人间，依旧不改对秦腔的赤诚热爱。
 
-他强调：“随着非银行金融中介全球化业务不断扩张，各国央行与跨境监管机构之间的协作正变得愈发重要。
+王晓晨饰演的米兰，在时代浪潮中做出不同人生选择，与花彩香形成鲜明对照。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 19:03 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 18:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 19:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 19:06 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 19:13 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 19:17 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 19:14 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:03 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 19:13 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 18:48 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 19:02 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:08 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 19:16 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 18:54 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 19:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 18:54 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:11 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 19:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 19:12 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 19:22 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 19:01 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/0096749834.shtml)
-- 2026-06-29 18:50 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/3287396.shtml)
-- 2026-06-29 19:13 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/8270689348.shtml)
-- 2026-06-29 19:04 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/1126672664.shtml)
-- 2026-06-29 18:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/087707.shtml)
-- 2026-06-29 19:11 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/759325.shtml)
-- 2026-06-29 19:14 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/071611427.shtml)
-- 2026-06-29 18:48 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/185418563434.shtml)
-- 2026-06-29 19:16 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/7892438.shtml)
-- 2026-06-29 19:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/4072552731.shtml)
-- 2026-06-29 19:06 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/43821314929.shtml)
-- 2026-06-29 19:07 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/1907978849.shtml)
-- 2026-06-29 19:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/13842333755.shtml)
-- 2026-06-29 19:14 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/611983.shtml)
-- 2026-06-29 19:14 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/113390628878.shtml)
+- 2026-06-29 19:21 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/23151.shtml)
+- 2026-06-29 19:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/229171044827.shtml)
+- 2026-06-29 19:05 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/990018109108.shtml)
+- 2026-06-29 19:05 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/27494307.shtml)
+- 2026-06-29 19:20 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/34551.shtml)
+- 2026-06-29 19:10 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/515104.shtml)
+- 2026-06-29 19:22 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/465822735593.shtml)
+- 2026-06-29 19:21 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/33344.shtml)
+- 2026-06-29 19:12 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/04101.shtml)
+- 2026-06-29 19:09 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/918912676826.shtml)
+- 2026-06-29 18:59 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/8778576199.shtml)
+- 2026-06-29 18:54 - [当我回母校教书](http://www.blog.minike.top/Article/details/5892530.shtml)
+- 2026-06-29 19:09 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/7114970598.shtml)
+- 2026-06-29 18:56 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/86390.shtml)
+- 2026-06-29 19:04 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/664601549849.shtml)

@@ -1,58 +1,58 @@
-# 中方：愿同纽埃新一届政府拓展交流合作
+# 为何树之间也会遵守“社交距离”？它们又是如何做到的？
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。中方对此有何评论？对中纽关系有何期待？ 郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台
+网友：好有边界感的树！这种神奇现象，只要抬头就能看到...... 你是否看到过这样的景象？ 站在茂密的树林下仰望天空，却发现头顶的树冠并不是紧密地连成一片，而是树与树之间自然地存在着曲曲折折的缝隙，像许多蜿蜒交叉的小径，显得很有边界感，如果称内向的人为“i人”，这些树显然就是“i树”了。这一独特的现象，叫做“树冠羞避”。 不少人都此感到好奇：所有树之间都会发生“羞避”吗？为什么
 
 ## 正文
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。
+网友：好有边界感的树！
 
-有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。
+这种神奇现象，只要抬头就能看到...... 你是否看到过这样的景象？
 
-中方对此有何评论？
+站在茂密的树林下仰望天空，却发现头顶的树冠并不是紧密地连成一片，而是树与树之间自然地存在着曲曲折折的缝隙，像许多蜿蜒交叉的小径，显得很有边界感，如果称内向的人为“i人”，这些树显然就是“i树”了。
 
-对中纽关系有何期待？
+这一独特的现象，叫做“树冠羞避”。
 
-郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。
+不少人都此感到好奇：所有树之间都会发生“羞避”吗？
 
-中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台阶，更好惠及两国人民。
+为什么不会说话和活动的树还要彼此遵守“社交距离”？
 
-(完)
+所有树都会发生“树冠羞避”吗？
+
+可能有人会问：“我怎么没有看到过‘树冠羞避’呢？
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 18:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 19:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 19:03 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 18:57 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 18:53 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 19:13 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 19:07 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 19:04 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 19:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 19:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 19:03 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 19:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 18:54 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 19:14 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 18:58 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 18:55 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 18:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 19:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 19:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 19:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 19:19 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/088714264349.shtml)
-- 2026-06-29 19:17 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/31143.shtml)
-- 2026-06-29 19:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/29186841.shtml)
-- 2026-06-29 19:14 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/9753169.shtml)
-- 2026-06-29 19:05 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/416562.shtml)
-- 2026-06-29 19:11 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/405043425204.shtml)
-- 2026-06-29 18:55 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/854128.shtml)
-- 2026-06-29 19:02 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/63180865.shtml)
-- 2026-06-29 18:50 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/23841656846.shtml)
-- 2026-06-29 19:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/90818.shtml)
-- 2026-06-29 19:11 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/61822229.shtml)
-- 2026-06-29 18:52 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/537922.shtml)
-- 2026-06-29 18:49 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/662292838.shtml)
-- 2026-06-29 19:17 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/832688162062.shtml)
-- 2026-06-29 18:58 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/69921677028.shtml)
+- 2026-06-29 19:15 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/2511112061.shtml)
+- 2026-06-29 18:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/23656.shtml)
+- 2026-06-29 18:55 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/3044974.shtml)
+- 2026-06-29 18:56 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/838601936937.shtml)
+- 2026-06-29 19:10 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/096413.shtml)
+- 2026-06-29 18:54 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/61126404896.shtml)
+- 2026-06-29 18:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/858052348.shtml)
+- 2026-06-29 19:00 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/480867.shtml)
+- 2026-06-29 19:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/447411.shtml)
+- 2026-06-29 19:00 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/76582060721.shtml)
+- 2026-06-29 19:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/780429608844.shtml)
+- 2026-06-29 19:02 - [逃狱兄弟](https://www.blog.minike.top/Article/details/54785.shtml)
+- 2026-06-29 19:07 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/18557.shtml)
+- 2026-06-29 19:07 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/010015559672.shtml)
+- 2026-06-29 18:57 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/97140441.shtml)

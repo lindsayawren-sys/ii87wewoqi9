@@ -1,56 +1,56 @@
-# 《中国经营报》社启动“再走长征路·见证新时代”重大主题报道
+# 受权发布丨中共中央办公厅 国务院办公厅印发《美丽中国建设成效考核办法》
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中国社会科学网讯 5月15日，《中国经营报》社“再走长征路·见证新时代”重大主题报道启动仪式在江西省赣州市于都县举行。 中国社会科学院工业经济研究所所长陈彦斌表示，长征沿线不仅是红色精神的“富矿”，也是观察中国区域经济发展、乡村振兴、产业升级的绝佳样本。此次重大主题报道活动将财经媒体的专业视角与红色主题报道的传播规律有机结合，是“智库+媒体”服务国家战略的一次创新实践。希望采访
+新华社北京5月7日电 近日，中共中央办公厅、国务院办公厅印发《美丽中国建设成效考核办法》，并发出通知，要求各地区各部门认真遵照执行。 《美丽中国建设成效考核办法》全文如下。 美丽中国建设成效考核办法 (2026年3月19日中共中央政治局常委会会议审议批准 2026年4月25日中共中央办公厅、国务院办公厅发布)第一条 为了全面推进美丽中国建设，推动绿色低碳发展，实现生态环境质量全
 
 ## 正文
 
-中国社会科学网讯 5月15日，《中国经营报》社“再走长征路·见证新时代”重大主题报道启动仪式在江西省赣州市于都县举行。
+新华社北京5月7日电 近日，中共中央办公厅、国务院办公厅印发《美丽中国建设成效考核办法》，并发出通知，要求各地区各部门认真遵照执行。
 
-中国社会科学院工业经济研究所所长陈彦斌表示，长征沿线不仅是红色精神的“富矿”，也是观察中国区域经济发展、乡村振兴、产业升级的绝佳样本。
+《美丽中国建设成效考核办法》全文如下。
 
-此次重大主题报道活动将财经媒体的专业视角与红色主题报道的传播规律有机结合，是“智库+媒体”服务国家战略的一次创新实践。
+美丽中国建设成效考核办法 (2026年3月19日中共中央政治局常委会会议审议批准 2026年4月25日中共中央办公厅、国务院办公厅发布)第一条 为了全面推进美丽中国建设，推动绿色低碳发展，实现生态环境质量全面改善、根本好转，生态环境保护水平同基本实现社会主义现代化目标相适应，根据《中共中央、国务院关于全面推进美丽中国建设的意见》和有关规定，制定本办法。
 
-希望采访团记者从产业视角切入，关注长征沿线的基础设施改善、特色产业培育、营商环境优化等议题，用数据和案例说话，推出一批有学术含量、有政策价值的研究型报道。
+第二条 本办法适用于对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核。
 
-中国行业报协会会长张超文表示，此次重大主题报道活动规模大、跨度广、内容实、意义深，希望《中国经营报》社举全员之力、汇众人之智，科学谋划、系统推进、多元传播，推出一系列有温度、有深度、有厚度、有力量的优秀新闻作品；同时紧扣时代主线，立足长征沿线各地经济发展、乡村振兴、产业升级、民生改善、生态保护等重点领域，全方位、多角度展现老区换新颜、区域大发展、人民生活节节高的崭新风貌和发展成就。
+第三条 在党中央集中统一领导下，考核工作由中央生态环境保护督察工作领导小组牵头组织，由中央生态环境保护督察工作领导小组办公室、中央组织部会同有关部门开展。
 
-《中国经营报》由中国社会科学院主管，中国社会科学院工业经济研究所主办。
+第四条 考核工作应当坚持注重实绩、激励担当，推动树立和践行正确政绩观，提高对党中央生态文明建设决策部署的执行力；坚持目标导向、问题导向，针对人民群众反映强烈的突出生态环境问题，持续深入打好污染防治攻坚战，围绕美丽中国建设目标任务设置关键性、引领性考核指标，狠抓重点领域和关键环节；坚持依规依法、群众认可，严格依照有关党内法规、生态环境法典等法律要求，规范考核方式和程序，做到精准科学、客观公正，注重减轻基层负担，充分发挥社会监督作用；坚持考用结合、以考促干，强化考核结果运用，以考核促进生态环境质量改善和相关工作落实，压实生态环境保护责任。
 
-此次重大主题报道采访范围将覆盖中央红军长征途经的11个省(自治区)、160余个县(区)。
+第五条 对各省(自治区、直辖市)党委和政府美丽中国建设成效的考核，主要包括： (一)美丽中国建设责任落实情况。
 
-采访团分为5个分队，将沿着革命先辈足迹，从福建、江西出发，经湖南、广东、广西，走过贵州、云南、四川，翻越雪山、穿过草地，最终抵达甘肃、宁夏、陕西，用双脚丈量长征历程，用镜头记录时代变迁，用笔触书写沿线地区的发展实践。
+考核省(自治区、直辖市)党委和政府落实党政同责、一岗双责，研究部署和督促落实美丽中国建设和生态环境保护工作，压实生态环境保护责任，推进中央生态环境保护督察整改等情况。
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:56 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 18:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 18:59 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 18:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 18:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 18:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 19:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 19:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 19:00 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 18:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 19:11 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 19:21 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 19:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 19:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 19:12 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 19:08 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 18:56 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 19:22 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 18:55 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [女心理师](https://www.blog.minike.top/Article/details/43137665.shtml)
-- 2026-06-29 19:13 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/09613243507.shtml)
-- 2026-06-29 19:16 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/02870738.shtml)
-- 2026-06-29 19:15 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/895657738.shtml)
-- 2026-06-29 19:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/77123900.shtml)
-- 2026-06-29 18:49 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/46952480.shtml)
-- 2026-06-29 19:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/84199276437.shtml)
-- 2026-06-29 19:02 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/295791.shtml)
-- 2026-06-29 19:08 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/42668001143.shtml)
-- 2026-06-29 18:53 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/9799674.shtml)
-- 2026-06-29 19:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3318557465.shtml)
-- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/52725967.shtml)
-- 2026-06-29 18:55 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/646714003.shtml)
-- 2026-06-29 19:11 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/10948.shtml)
-- 2026-06-29 18:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/9016705.shtml)
+- 2026-06-29 19:22 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/4207607794.shtml)
+- 2026-06-29 18:56 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/566695.shtml)
+- 2026-06-29 19:19 - [逃狱兄弟](https://www.blog.minike.top/Article/details/647751045212.shtml)
+- 2026-06-29 19:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/92176.shtml)
+- 2026-06-29 19:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/95622632.shtml)
+- 2026-06-29 19:04 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/6670872.shtml)
+- 2026-06-29 19:12 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/094392.shtml)
+- 2026-06-29 19:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/9478044.shtml)
+- 2026-06-29 19:16 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/26754584.shtml)
+- 2026-06-29 19:12 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/31177.shtml)
+- 2026-06-29 19:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/3245390307.shtml)
+- 2026-06-29 19:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/3483017874.shtml)
+- 2026-06-29 19:16 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/5445740696.shtml)
+- 2026-06-29 19:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/6394617.shtml)
+- 2026-06-29 18:56 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/76707174.shtml)

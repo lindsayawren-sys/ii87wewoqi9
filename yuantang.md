@@ -1,57 +1,55 @@
-# 国家统计局：6月和11月将开展人口固定样本跟访调查
+# 中国同江水运口岸开通至俄罗斯明水期客货运输
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-记者从国家统计局了解到，今年，国家统计局将在全国范围内开展两次人口固定样本跟访调查，两次调查的标准时点分别为6月1日零时和11月1日零时。 调查的主要内容包括：调查对象的姓名、性别等基本信息，以及受教育程度、迁移流动情况、工作状况、婚姻状况、生育和死亡情况、儿童生活状况等。调查员将入户开展调查工作，调查结果将有助于加强人口动态监测，服务人口高质量发展。 什么是人口固定样本跟访调
+中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。 8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。此次从同江出境的“龙渡004”
 
 ## 正文
 
-记者从国家统计局了解到，今年，国家统计局将在全国范围内开展两次人口固定样本跟访调查，两次调查的标准时点分别为6月1日零时和11月1日零时。
+中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。
 
-调查的主要内容包括：调查对象的姓名、性别等基本信息，以及受教育程度、迁移流动情况、工作状况、婚姻状况、生育和死亡情况、儿童生活状况等。
+8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。
 
-调查员将入户开展调查工作，调查结果将有助于加强人口动态监测，服务人口高质量发展。
+此次从同江出境的“龙渡004”滚装船最多可搭载130名旅客，载重量可达390吨。
 
-什么是人口固定样本跟访调查？
+同江口岸是黑龙江省对俄罗斯唯一的水路、公路、铁路“三路并进”国际口岸，可以实现一年四季通关。
 
-什么是人口固定样本跟访调查？
+同江水运口岸东部作业区与俄罗斯下列宁斯阔耶口岸仅一江之隔，水上最近距离1公里，年过客能力达50万人次，年过货能力达60万吨。
 
-它和普通人有什么关系？
-
-一起来了解。
-
-人口固定样本跟访调查，顾名思义，这项调查的“调查对象”每年都是基本保持不变的。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 19:04 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 19:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 19:01 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 19:06 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 18:54 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 19:14 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 18:48 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 19:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 19:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 18:51 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:02 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 19:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 19:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 19:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 19:15 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 19:09 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:01 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 19:19 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 19:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 18:55 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 18:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 19:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6155563345.shtml)
-- 2026-06-29 19:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/518228.shtml)
-- 2026-06-29 19:06 - [第一炉香](http://www.share.minike.top/Article/details/6091939.shtml)
-- 2026-06-29 18:50 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/091653111.shtml)
-- 2026-06-29 18:57 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/119886.shtml)
-- 2026-06-29 19:03 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/460832323.shtml)
-- 2026-06-29 19:08 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/573733447.shtml)
-- 2026-06-29 19:05 - [逃狱兄弟](https://www.blog.minike.top/Article/details/49193833088.shtml)
-- 2026-06-29 19:04 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/14627451.shtml)
-- 2026-06-29 18:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/17049.shtml)
-- 2026-06-29 18:57 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/9939476546.shtml)
-- 2026-06-29 19:09 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/12355.shtml)
-- 2026-06-29 19:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/8859830286.shtml)
-- 2026-06-29 19:14 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/048868899271.shtml)
-- 2026-06-29 19:06 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/762544485731.shtml)
+- 2026-06-29 19:02 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/526301937210.shtml)
+- 2026-06-29 19:05 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/7784397041.shtml)
+- 2026-06-29 19:12 - [中国战机大片上新](http://www.blog.minike.top/Article/details/36349306162.shtml)
+- 2026-06-29 19:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/632797309921.shtml)
+- 2026-06-29 19:11 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/39867293.shtml)
+- 2026-06-29 19:10 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/4316247.shtml)
+- 2026-06-29 18:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0498384376.shtml)
+- 2026-06-29 19:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/584983.shtml)
+- 2026-06-29 19:14 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/321071.shtml)
+- 2026-06-29 19:06 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/036222234501.shtml)
+- 2026-06-29 19:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/493617727130.shtml)
+- 2026-06-29 19:16 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/712044449425.shtml)
+- 2026-06-29 18:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/1127332.shtml)
+- 2026-06-29 19:13 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/256481332419.shtml)
+- 2026-06-29 18:56 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/171235216.shtml)

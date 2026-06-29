@@ -1,61 +1,59 @@
-# 报告前瞻中国生物医药发展前景：为国内外企业开辟新机遇
+# 海辰储能重庆基地成为全球首座储能电池“灯塔工厂”
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-中新网北京5月14日电 (记者 张素)“以药品审批和测试为重点的政策使中国能够建立一个强大的生态系统，并定位为研发中心。”近日发布的一份报告称。 这份名为《2026年中国生命科学行业概览及未来展望》的报告称，未来中国会进一步巩固自身地位，特别是在速度、规模和政策协调等优势领域，包括创新制药管线、临床试验、细胞和基因治疗以及新一代医疗器械等。 报告认为，中国作为全球研发中心的地位
+5月8日消息，近日，世界经济论坛（WEF）公布了2026年新晋全球“灯塔工厂”名单，海辰储能重庆基地成功入选，成为全球首座储能电池“灯塔工厂”。该基地同时也是全球首款千安时长时储能专用电池量产工厂。 “灯塔工厂”由世界经济论坛与麦肯锡咨询公司于2018年共同发起评选，旨在从全球范围内甄选在第四次工业革命中具备领先示范意义的智能制造标杆。评选围绕生产力、可持续发展等维度展开，代表
 
 ## 正文
 
-中新网北京5月14日电 (记者 张素)“以药品审批和测试为重点的政策使中国能够建立一个强大的生态系统，并定位为研发中心。
+5月8日消息，近日，世界经济论坛（WEF）公布了2026年新晋全球“灯塔工厂”名单，海辰储能重庆基地成功入选，成为全球首座储能电池“灯塔工厂”。
 
-”近日发布的一份报告称。
+该基地同时也是全球首款千安时长时储能专用电池量产工厂。
 
-这份名为《2026年中国生命科学行业概览及未来展望》的报告称，未来中国会进一步巩固自身地位，特别是在速度、规模和政策协调等优势领域，包括创新制药管线、临床试验、细胞和基因治疗以及新一代医疗器械等。
+“灯塔工厂”由世界经济论坛与麦肯锡咨询公司于2018年共同发起评选，旨在从全球范围内甄选在第四次工业革命中具备领先示范意义的智能制造标杆。
 
-报告认为，中国作为全球研发中心的地位依托于持续增长的创新产出、快速扩展的临床研究能力、加速审批机制以及对先进药物和医疗器械的强化政策扶持。
+评选围绕生产力、可持续发展等维度展开，代表着全球工业数字化与智能化的最高水平。
 
-这一趋势凸显了中国创新生态系统的规模效应与成熟度跃升，为国内外企业开辟了新机遇。
+截至目前，全球共有灯塔工厂224座，而储能电池领域此前从未有工厂入选。
 
-“随着生物医药产业被确立‘新兴支柱产业’，市场预期全链条政策支持将迎来系统性强化。
+海辰储能重庆基地以近零缺陷制造、系统性降本增效、全流程智能化运营三大维度入手，全面推进数字化与智能化升级，持续探索精益生产与极限制造，实现了优品率、产能、设备综合效率等大幅提升。
 
-”毕马威中国客户及业务发展主管合伙人江立勤说，这一政策升级预计将持续覆盖研发、资本、审批、生产、应用、支付等关键环节，形成多维度的产业支持体系，强力释放产业链创新动能。
+目前，重庆基地已建成全球首条长时储能专用电池产线。
 
-报告展示了人工智能和机器人技术如何从研发、生产到管理实现全链条覆盖。
+2025年6月，∞Cell 1175Ah 长时储能电池实现量产下线；10 月搭载该电池的 ∞Power 6.25MWh 4h长时储能系统开启全球交付；12 月该系统作为储能行业唯一代表，入选中国制造“十四五”成就展。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 19:03 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:13 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 19:07 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 18:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 19:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 19:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 19:08 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 19:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 18:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 19:12 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 18:48 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 19:06 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 19:04 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 19:06 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 19:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 19:07 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 18:54 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 18:58 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 19:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 19:21 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 19:17 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 19:01 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 19:03 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 19:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 19:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [《贺子珍》](http://www.blog.minike.top/Article/details/958555.shtml)
-- 2026-06-29 19:06 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/7407654710.shtml)
-- 2026-06-29 19:09 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/35116978.shtml)
-- 2026-06-29 19:15 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/631944967631.shtml)
-- 2026-06-29 18:52 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/51437636.shtml)
-- 2026-06-29 19:14 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/510976148.shtml)
-- 2026-06-29 19:11 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/847898937.shtml)
-- 2026-06-29 19:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/29955706044.shtml)
-- 2026-06-29 19:07 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/227790512.shtml)
-- 2026-06-29 19:04 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/67991336020.shtml)
-- 2026-06-29 19:05 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/90778.shtml)
-- 2026-06-29 19:02 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/875830717611.shtml)
-- 2026-06-29 18:59 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/3622876.shtml)
-- 2026-06-29 19:13 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/3781522694.shtml)
-- 2026-06-29 19:08 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/940715543.shtml)
+- 2026-06-29 19:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/0399471900.shtml)
+- 2026-06-29 19:00 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/24652936153.shtml)
+- 2026-06-29 19:12 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/125711117366.shtml)
+- 2026-06-29 19:18 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/3850163.shtml)
+- 2026-06-29 19:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/0904471.shtml)
+- 2026-06-29 19:09 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/83405.shtml)
+- 2026-06-29 19:21 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/1474034.shtml)
+- 2026-06-29 19:18 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.minike.top/Article/details/11622467401.shtml)
+- 2026-06-29 19:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/104140.shtml)
+- 2026-06-29 19:22 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/36513.shtml)
+- 2026-06-29 19:17 - [美人鱼](https://www.blog.minike.top/Article/details/2204352413.shtml)
+- 2026-06-29 19:21 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/602303320202.shtml)
+- 2026-06-29 19:02 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/28506773.shtml)
+- 2026-06-29 18:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/14029977357.shtml)
+- 2026-06-29 19:11 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/39557205.shtml)

@@ -1,46 +1,46 @@
-# AV CONCEPT HOLD于5月15日斥资436.11万港元回购392.8万股
+# 越秀地产前4个月累计合同销售金额约257.11亿元
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-AV CONCEPT HOLD（00595）发布公告，该公司于2026年5月15日斥资436.11万港元回购392.8万股股份，每股回购价格为1.08-1.15港元。责任编辑：卢昱君
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。 2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合
 
 ## 正文
 
-AV CONCEPT HOLD（00595）发布公告，该公司于2026年5月15日斥资436.11万港元回购392.8万股股份，每股回购价格为1.08-1.15港元。
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。
+
+2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合同销售面积约为 88.43万平方米，同比下降约4.3%。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 18:50 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 19:07 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 19:00 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 18:48 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 19:07 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 18:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 19:09 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 18:58 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 19:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 19:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 19:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 19:16 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 18:58 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 19:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 18:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 19:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 19:13 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 19:22 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 18:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 19:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/53580.shtml)
-- 2026-06-29 19:03 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/109954523934.shtml)
-- 2026-06-29 19:03 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/020684706.shtml)
-- 2026-06-29 18:52 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/582171824.shtml)
-- 2026-06-29 18:51 - [我和我的家乡](http://www.blog.minike.top/Article/details/71765728685.shtml)
-- 2026-06-29 19:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/964123.shtml)
-- 2026-06-29 18:56 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/046037883459.shtml)
-- 2026-06-29 19:16 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/800492.shtml)
-- 2026-06-29 18:50 - [爱很美味](https://www.share.kurohicncr.top/Article/details/30174940044.shtml)
-- 2026-06-29 18:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/23162847.shtml)
-- 2026-06-29 18:58 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8685720.shtml)
-- 2026-06-29 18:51 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/096707838.shtml)
-- 2026-06-29 18:50 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/600101294.shtml)
-- 2026-06-29 18:49 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/9430721.shtml)
-- 2026-06-29 19:05 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/523478034542.shtml)
+- 2026-06-29 19:18 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/28529503342.shtml)
+- 2026-06-29 18:58 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/19438601.shtml)
+- 2026-06-29 18:54 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/2730908.shtml)
+- 2026-06-29 18:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/1725943.shtml)
+- 2026-06-29 19:06 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/6879557906.shtml)
+- 2026-06-29 19:22 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/85410121013.shtml)
+- 2026-06-29 19:00 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/79429.shtml)
+- 2026-06-29 19:09 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/6446596686.shtml)
+- 2026-06-29 19:19 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/65115.shtml)
+- 2026-06-29 19:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/2834980941.shtml)
+- 2026-06-29 19:22 - [存储三巨头被告了](https://www.share.minike.top/Article/details/8249401191.shtml)
+- 2026-06-29 19:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/0637218112.shtml)
+- 2026-06-29 19:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/2645254.shtml)
+- 2026-06-29 19:20 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/38876607188.shtml)
+- 2026-06-29 19:03 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/440561829625.shtml)

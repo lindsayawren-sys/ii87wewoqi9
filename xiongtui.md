@@ -1,61 +1,49 @@
-# 7年少了700万！保险代理人“大缩水”，有公司已不足10人
+# 苏宁易购宣布进军海外市场
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。 据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。 业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模
+新浪科技讯 5月8日下午消息，今日，苏宁易购召开“2026苏宁易购618电商启动暨出海战略发布会”，宣布进军海外市场。依托供应链、数智化与物流等核心领域的能力积累，苏宁易购将打造“一站式出海平台”，为中国商家提供“拎包出海”的全链路解决方案。 据介绍，通过整合“供货平台”、“零售赋能平台”、“服务履约平台”三大核心平台能力，苏宁易购将海外渠道搭建、协同运营、合规备案、仓储物流与
 
 ## 正文
 
-来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。
+新浪科技讯 5月8日下午消息，今日，苏宁易购召开“2026苏宁易购618电商启动暨出海战略发布会”，宣布进军海外市场。
 
-据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。
+依托供应链、数智化与物流等核心领域的能力积累，苏宁易购将打造“一站式出海平台”，为中国商家提供“拎包出海”的全链路解决方案。
 
-对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。
+据介绍，通过整合“供货平台”、“零售赋能平台”、“服务履约平台”三大核心平台能力，苏宁易购将海外渠道搭建、协同运营、合规备案、仓储物流与本地售后等复杂性工作整合为标准化服务，让商家能够根据自身发展阶段，灵活选择从“轻量化试水”到“规模化深耕”的合作模式。
 
-业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模式已经无以为继，在行业高质量转型过程中，对代理人渠道的改革，重点体现在重新定位、重建模式和重塑能力。
-
-中国人寿、太保寿险个险人力增加 整体看，头部人身险公司占据八成以上的人力，剩下50家中小险企分食不到18%的市场空间。
-
-据各家公司2026年一季度偿付能力报告，中国人寿64.5万人独占三成份额，平安人寿33.3万、泰康人寿27.6万、太保寿险19万、太平人寿18.3万、新华保险12.9万。
-
-六家合计约175.5万个险营销员，占总量八成以上。
-
-与2025年末相比，中国人寿、太保寿险的个险营销员数量等在一季度出现净增长。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 19:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 18:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 19:05 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:11 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 19:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 19:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 18:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 18:48 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 19:03 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 18:58 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 19:10 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 19:16 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 19:03 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 19:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 19:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 18:54 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 19:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 19:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 19:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:02 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 19:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/95598575089.shtml)
-- 2026-06-29 18:55 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/2191981967.shtml)
-- 2026-06-29 18:50 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/0279096486.shtml)
-- 2026-06-29 18:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/8390804222.shtml)
-- 2026-06-29 19:08 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/56141478.shtml)
-- 2026-06-29 18:48 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/0326676.shtml)
-- 2026-06-29 18:52 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/270375.shtml)
-- 2026-06-29 19:03 - [我和我的家乡](http://www.share.minike.top/Article/details/148931.shtml)
-- 2026-06-29 18:49 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/72783.shtml)
-- 2026-06-29 19:06 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/600513338147.shtml)
-- 2026-06-29 19:06 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/6604177.shtml)
-- 2026-06-29 19:01 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/138326723684.shtml)
-- 2026-06-29 18:57 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/479401.shtml)
-- 2026-06-29 18:50 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/658503741.shtml)
-- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/506284.shtml)
+- 2026-06-29 19:02 - [毒液2](http://www.share.kurohicncr.top/Article/details/8895365.shtml)
+- 2026-06-29 19:11 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/191205.shtml)
+- 2026-06-29 19:03 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/63818748150.shtml)
+- 2026-06-29 19:05 - [急先锋](http://www.share.minike.top/Article/details/92979789.shtml)
+- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/689363940.shtml)
+- 2026-06-29 19:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/01695666.shtml)
+- 2026-06-29 18:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/88592473854.shtml)
+- 2026-06-29 19:09 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/14327.shtml)
+- 2026-06-29 19:22 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/614233.shtml)
+- 2026-06-29 19:18 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/00124206.shtml)
+- 2026-06-29 19:13 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/8688871.shtml)
+- 2026-06-29 19:07 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/52955202577.shtml)
+- 2026-06-29 19:17 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/965132226680.shtml)
+- 2026-06-29 19:04 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/5958698.shtml)
+- 2026-06-29 19:05 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/5479257.shtml)

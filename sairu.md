@@ -1,57 +1,58 @@
-# 净利增长555.24%！揭秘A股“超节点”超级赛道，这5家公司已翻倍
+# 日本释放无上限护日元信号，同时维系对美密切沟通
 
-> 更新时间：2026-06-29 19:18:03 UTC+8
+> 更新时间：2026-06-29 19:24:03 UTC+8
 
 ## 摘要
 
-文丨李壮 编辑丨承承 “超节点”算力集群为人工智能应用快速落地提供了重要支撑，同时相关龙头公司业绩也水涨船高。 伴随2025年年报和2026年一季度财报季落幕，以超节点（SuperNode）为代表的国产算力产业链业绩表现突出。其中，上游核心器件环节率先实现全面高速增长，而中游整机集成环节的盈利能力也正在被重塑。 财报数据显示，超节点产业链的利润增长趋势已初步成形。一方面，寒武纪
+日本最高外汇官员周四表态，日本干预汇市的频次不受任何限制，且与美方保持每日沟通，进一步强化东京捍卫疲软日元的决心。 财务省国际事务副总裁三村厚发表此番言论之际，美国财长斯科特・贝森特将于下周到访东京；日元走势、潜在汇市干预及日本央行加息路径随之成为市场焦点。投资者正研判：日本能否独自托举日元，还是需要美方配合支持。 贝森特预计将与日本财务大臣片山皋月磋商日元行情。鉴于其过往表态
 
 ## 正文
 
-文丨李壮 编辑丨承承 “超节点”算力集群为人工智能应用快速落地提供了重要支撑，同时相关龙头公司业绩也水涨船高。
+日本最高外汇官员周四表态，日本干预汇市的频次不受任何限制，且与美方保持每日沟通，进一步强化东京捍卫疲软日元的决心。
 
-伴随2025年年报和2026年一季度财报季落幕，以超节点（SuperNode）为代表的国产算力产业链业绩表现突出。
+财务省国际事务副总裁三村厚发表此番言论之际，美国财长斯科特・贝森特将于下周到访东京；日元走势、潜在汇市干预及日本央行加息路径随之成为市场焦点。
 
-其中，上游核心器件环节率先实现全面高速增长，而中游整机集成环节的盈利能力也正在被重塑。
+投资者正研判：日本能否独自托举日元，还是需要美方配合支持。
 
-财报数据显示，超节点产业链的利润增长趋势已初步成形。
+贝森特预计将与日本财务大臣片山皋月磋商日元行情。
 
-一方面，寒武纪等上游芯片及光互联厂商凭借极高的技术壁垒，实现了业绩翻倍增长；另一方面，紫光股份、工业富联、华勤技术等整机集成商凭借全栈交付优势，在今年一季度也展现出强劲的利润提升加速态势。
+鉴于其过往表态倾向于更快加息，市场高度警惕贝森特对日元走势、日本央行货币政策的任何发言。
 
-特别是华勤技术前瞻布局的超节点产品已开启小批量发货，预计全年将贡献超百亿元收入。
+分析师表示，中东地缘冲突带来的通胀风险，上月暴露了日本央行内部的鹰派分歧；即便央行本次维持政策不变，市场对6 月加息的预期仍在升温。
 
-随着万卡乃至十万卡智算集群的升级迭代，超节点产业链正迎来从核心部件到系统集成的多元化发展机遇。
+三村厚未直接评论贝森特访日行程，但称日美监管层保持日常沟通，美方充分理解日本的立场与行动。
 
-“超节点”概念业绩井喷 2025年以来，国产人工智能（AI）基础设施建设进入‌系统化、规模化与自主可控并重‌的新阶段。
+他向记者表示：“我们的关注点始终全方位不变”，并强调当前汇市仍存在明显投机行为。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 18:57 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 19:08 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 18:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 19:09 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 18:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 19:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 19:03 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 19:11 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 19:00 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 19:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 19:15 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 19:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 19:04 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 19:04 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 18:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 19:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:15 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 18:58 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 19:18 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:57 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 19:18 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/868174.shtml)
-- 2026-06-29 18:51 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/3820595599.shtml)
-- 2026-06-29 18:57 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/65866.shtml)
-- 2026-06-29 19:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/580104.shtml)
-- 2026-06-29 18:52 - [当我回母校教书](http://www.blog.minike.top/Article/details/57878.shtml)
-- 2026-06-29 19:16 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/8981154.shtml)
-- 2026-06-29 19:05 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/8778212.shtml)
-- 2026-06-29 18:57 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/1895213.shtml)
-- 2026-06-29 19:14 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/4238490255.shtml)
-- 2026-06-29 19:04 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/582254.shtml)
-- 2026-06-29 19:14 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/58520797643.shtml)
-- 2026-06-29 18:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/428304.shtml)
-- 2026-06-29 19:06 - [这一刀 会很帅](https://www.share.minike.top/Article/details/751085625.shtml)
-- 2026-06-29 19:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/05475242.shtml)
-- 2026-06-29 19:09 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/518722684558.shtml)
+- 2026-06-29 18:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/98876.shtml)
+- 2026-06-29 19:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/624768942519.shtml)
+- 2026-06-29 18:56 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/2850994.shtml)
+- 2026-06-29 18:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/4144553932.shtml)
+- 2026-06-29 19:23 - [V8](https://www.blog.kurohicncr.top/Article/details/637360091.shtml)
+- 2026-06-29 18:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/5873274350.shtml)
+- 2026-06-29 19:23 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/71067628913.shtml)
+- 2026-06-29 18:55 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/946545.shtml)
+- 2026-06-29 18:59 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/668590.shtml)
+- 2026-06-29 19:23 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/40399.shtml)
+- 2026-06-29 19:00 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/3726352.shtml)
+- 2026-06-29 19:00 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/540846044932.shtml)
+- 2026-06-29 18:55 - [V8](http://www.blog.kurohicncr.top/Article/details/1673978275.shtml)
+- 2026-06-29 18:59 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/59227188689.shtml)
+- 2026-06-29 18:56 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/431521.shtml)
