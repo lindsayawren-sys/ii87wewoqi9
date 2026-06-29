@@ -1,42 +1,49 @@
-# 【习声回响】做好盐碱地特色农业这篇大文章
+# 商务部等5部门调整《向特定国家（地区）出口易制毒化学品管理目录》
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 08:47 来源：央广网 责任编辑：【杜晓姣】
+中新网5月22日电 据商务部网站消息，为进一步做好易制毒化学品出口管理工作，根据《向特定国家(地区)出口易制毒化学品暂行管理规定》，商务部、公安部、应急管理部、海关总署和国家药监局决定对《向特定国家(地区)出口易制毒化学品管理目录》进行调整，新增1-叔丁氧羰基-4-氧-3-哌啶甲酸甲酯等3个品种至附件1第一部分。现将调整后的《向特定国家(地区)出口易制毒化学品管理目录》予以公布
 
 ## 正文
 
-发布时间：2026年06月15日 08:47 来源：央广网 责任编辑：【杜晓姣】
+中新网5月22日电 据商务部网站消息，为进一步做好易制毒化学品出口管理工作，根据《向特定国家(地区)出口易制毒化学品暂行管理规定》，商务部、公安部、应急管理部、海关总署和国家药监局决定对《向特定国家(地区)出口易制毒化学品管理目录》进行调整，新增1-叔丁氧羰基-4-氧-3-哌啶甲酸甲酯等3个品种至附件1第一部分。
+
+现将调整后的《向特定国家(地区)出口易制毒化学品管理目录》予以公布。
+
+自本公告发布之日起，向美国、墨西哥、加拿大出口附件1第一部分所列化学品的，向缅甸、老挝、阿富汗出口附件1第二部分所列化学品的，应按照《向特定国家(地区)出口易制毒化学品暂行管理规定》申请许可，向其他国家(地区)出口无需申请许可。
+
+附件：1.向特定国家(地区)出口易制毒化学品管理目录.pdf 2.特定国家(地区)目录.pdf
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 07:13 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 07:38 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 07:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 07:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 07:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 07:16 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 07:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 07:31 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 07:23 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 07:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 07:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 07:21 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 07:39 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 07:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 07:22 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 07:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 07:32 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 07:29 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 07:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 07:24 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/009382496181.shtml)
-- 2026-06-30 07:15 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/8852406332.shtml)
-- 2026-06-30 07:25 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/48973197.shtml)
-- 2026-06-30 07:36 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/518544830386.shtml)
-- 2026-06-30 07:15 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/7984533555.shtml)
-- 2026-06-30 07:14 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/106022.shtml)
-- 2026-06-30 07:31 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/29530996.shtml)
-- 2026-06-30 07:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/834048259.shtml)
-- 2026-06-30 07:19 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/96897935926.shtml)
-- 2026-06-30 07:32 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/25109411067.shtml)
-- 2026-06-30 07:19 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/04472.shtml)
-- 2026-06-30 07:21 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/457274.shtml)
-- 2026-06-30 07:37 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/159989411327.shtml)
-- 2026-06-30 07:33 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/305483381970.shtml)
-- 2026-06-30 07:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/52975749725.shtml)
+- 2026-06-30 07:31 - [第一炉香](https://www.blog.minike.top/Article/details/251559976836.shtml)
+- 2026-06-30 07:44 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/128222974.shtml)
+- 2026-06-30 07:40 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/493094726.shtml)
+- 2026-06-30 07:21 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/971271350512.shtml)
+- 2026-06-30 07:31 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/932697632465.shtml)
+- 2026-06-30 07:35 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/31965.shtml)
+- 2026-06-30 07:33 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/48683070.shtml)
+- 2026-06-30 07:45 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/60738.shtml)
+- 2026-06-30 07:44 - [日本淘汰](https://www.share.minike.top/Article/details/23969811.shtml)
+- 2026-06-30 07:35 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/057327264.shtml)
+- 2026-06-30 07:28 - [千香](https://www.blog.minike.top/Article/details/261058314.shtml)
+- 2026-06-30 07:45 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/297730567792.shtml)
+- 2026-06-30 07:46 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/605238.shtml)
+- 2026-06-30 07:39 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/37784.shtml)
+- 2026-06-30 07:33 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/0356035675.shtml)

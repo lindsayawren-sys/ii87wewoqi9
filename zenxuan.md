@@ -1,56 +1,59 @@
-# 为更多技能人才铺展“星光大道”
+# 李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头雅戈尔走出困局？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-原标题：马上评｜为更多技能人才铺展“星光大道” 在AI突飞猛进、高等教育愈发普及的今天，或许很多人会疑惑：当人工智能越来越聪明，人的手艺还有没有价值？现在的孩子选择职业教育，会有前途吗？100天后将于上海举办的一项全球顶尖赛事，将给出肯定答案。 国务院新闻办12日召开新闻发布会，介绍第48届世界技能大赛筹备情况。世界技能大赛(下简称“世赛”)是最高层级的世界性职业技能赛事，被誉
+新京报记者 刘欢 编辑 唐峥 校对 赵琳 原标题：《李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头走出困局？》 雅戈尔正式换帅！中国男装龙头企业雅戈尔时尚股份有限公司（以下简称“雅戈尔”）近日召开股东大会，全票通过李寒穷担任公司董事长、总裁、法定代表人。这意味着，自公司创立之初便掌舵近半个世纪的创始人、75岁的李如成，正式退居二线。雅戈尔这家市值约300亿元的服装巨头，在成立
 
 ## 正文
 
-原标题：马上评｜为更多技能人才铺展“星光大道” 在AI突飞猛进、高等教育愈发普及的今天，或许很多人会疑惑：当人工智能越来越聪明，人的手艺还有没有价值？
+新京报记者 刘欢 编辑 唐峥 校对 赵琳 原标题：《李寒穷正式接棒雅戈尔，能否带领47年老牌服装巨头走出困局？
 
-现在的孩子选择职业教育，会有前途吗？
+》 雅戈尔正式换帅！
 
-100天后将于上海举办的一项全球顶尖赛事，将给出肯定答案。
+中国男装龙头企业雅戈尔时尚股份有限公司（以下简称“雅戈尔”）近日召开股东大会，全票通过李寒穷担任公司董事长、总裁、法定代表人。
 
-国务院新闻办12日召开新闻发布会，介绍第48届世界技能大赛筹备情况。
+这意味着，自公司创立之初便掌舵近半个世纪的创始人、75岁的李如成，正式退居二线。
 
-世界技能大赛(下简称“世赛”)是最高层级的世界性职业技能赛事，被誉为“世界技能奥林匹克”，每两年举办一届。
+雅戈尔这家市值约300亿元的服装巨头，在成立47年后，正式进入了“李寒穷时代”。
 
-今年9月22日，这项世界技能盛会将来到中国上海。
+值得关注的是，从业绩来看，雅戈尔2025年实现营业收入115.82亿元，同比下降18.37%；归母净利润24.47亿元，同比下降11.57%，而雅戈尔的归母净利润已连续5年下滑。
 
-在为期5天的比赛中，预计有70多个国家和地区、超过1400名选手将齐聚一堂，参与64个项目的角逐，有望创下比赛项目数、新增项目数、参赛国家和地区数、参赛选手数“四个之最”。
+李寒穷能否带领雅戈尔走出困局，成为市场关注的焦点。
 
-“技能改变世界、技能照亮前程”。
+李寒穷正式接棒雅戈尔 5月21日，雅戈尔公告称，股东大会选举李寒穷、徐鹏、刘新宇、杨珂、陈育雄等人为非独立董事；选举邱妘、王朝晖、尹小龙为独立董事。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 07:26 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 07:18 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 07:32 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:19 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 07:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 07:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:13 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 07:40 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 07:41 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 07:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 07:46 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 07:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 07:33 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 07:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 07:19 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:21 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 07:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 07:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 07:36 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 07:30 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 07:25 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [《贺子珍》](https://www.share.minike.top/Article/details/1322235.shtml)
-- 2026-06-30 07:41 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/47324.shtml)
-- 2026-06-30 07:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/83803350.shtml)
-- 2026-06-30 07:15 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/53434.shtml)
-- 2026-06-30 07:19 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/11134212.shtml)
-- 2026-06-30 07:16 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/44132609556.shtml)
-- 2026-06-30 07:26 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/532454707920.shtml)
-- 2026-06-30 07:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/31314.shtml)
-- 2026-06-30 07:14 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/2856625205.shtml)
-- 2026-06-30 07:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/345571686.shtml)
-- 2026-06-30 07:17 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/48817.shtml)
-- 2026-06-30 07:14 - [感动全网的699分女生想报考清华](https://www.blog.kurohicncr.top/Article/details/68844559.shtml)
-- 2026-06-30 07:36 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/565170343222.shtml)
-- 2026-06-30 07:40 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/1146624.shtml)
-- 2026-06-30 07:13 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/4189046.shtml)
+- 2026-06-30 07:26 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/230540780.shtml)
+- 2026-06-30 07:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/05132.shtml)
+- 2026-06-30 07:25 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/0171625944.shtml)
+- 2026-06-30 07:35 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/011305885412.shtml)
+- 2026-06-30 07:33 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/21057.shtml)
+- 2026-06-30 07:36 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/0840452632.shtml)
+- 2026-06-30 07:47 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/78248.shtml)
+- 2026-06-30 07:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/327562930.shtml)
+- 2026-06-30 07:37 - [我和我的家乡](http://www.share.minike.top/Article/details/258955430604.shtml)
+- 2026-06-30 07:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/8073439.shtml)
+- 2026-06-30 07:41 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/2758699656.shtml)
+- 2026-06-30 07:36 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/473342.shtml)
+- 2026-06-30 07:27 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/286386453.shtml)
+- 2026-06-30 07:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/79711.shtml)
+- 2026-06-30 07:38 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/594348.shtml)

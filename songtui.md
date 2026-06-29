@@ -1,45 +1,56 @@
-# 周锡玮：台湾人就是堂堂正正的中国人
+# 巴基斯坦总理夏巴兹抵达北京
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，第十八届海峡论坛·第九届两岸基层治理论坛在福建厦门举办，台湾旺旺集团副董事长周锡玮接受采访时表示，台湾人就是堂堂正正的中国人，这是事实，赖清德妄图抹去这一事实是民族罪人。(记者 李思源 路梅 制作 方敏） 责任编辑：【李季】
+新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。此前，夏巴兹已赴浙江省参访。 夏巴兹于5月23日至26日对中国进行正式访问。访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。夏巴兹还将出席庆祝中巴建交75周年招待会。 外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。中方期待双方以此访为契机，赓续传统友谊，深化
 
 ## 正文
 
-发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，第十八届海峡论坛·第九届两岸基层治理论坛在福建厦门举办，台湾旺旺集团副董事长周锡玮接受采访时表示，台湾人就是堂堂正正的中国人，这是事实，赖清德妄图抹去这一事实是民族罪人。
+新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。
 
-(记者 李思源 路梅 制作 方敏） 责任编辑：【李季】
+此前，夏巴兹已赴浙江省参访。
+
+夏巴兹于5月23日至26日对中国进行正式访问。
+
+访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。
+
+夏巴兹还将出席庆祝中巴建交75周年招待会。
+
+外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。
+
+中方期待双方以此访为契机，赓续传统友谊，深化全方位合作，共同谱写构建新时代更加紧密的中巴命运共同体新篇章。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 07:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 07:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 07:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 07:25 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 07:34 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 07:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 07:16 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 07:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 07:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 07:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 07:26 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 07:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 07:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 07:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 07:41 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 07:42 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 07:35 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 07:47 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/826711655592.shtml)
-- 2026-06-30 07:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/92152353.shtml)
-- 2026-06-30 07:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/277620402734.shtml)
-- 2026-06-30 07:20 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/230354813528.shtml)
-- 2026-06-30 07:25 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/05128.shtml)
-- 2026-06-30 07:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/77768120.shtml)
-- 2026-06-30 07:39 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/0525193614.shtml)
-- 2026-06-30 07:41 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/743202.shtml)
-- 2026-06-30 07:19 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/655510559406.shtml)
-- 2026-06-30 07:12 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/76881672311.shtml)
-- 2026-06-30 07:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/801757895706.shtml)
-- 2026-06-30 07:40 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/35882.shtml)
-- 2026-06-30 07:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/090246659.shtml)
-- 2026-06-30 07:39 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/8683614307.shtml)
-- 2026-06-30 07:41 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/59210892375.shtml)
+- 2026-06-30 07:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/22717537813.shtml)
+- 2026-06-30 07:25 - [斛珠夫人](https://www.share.minike.top/Article/details/186983080.shtml)
+- 2026-06-30 07:24 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/047012.shtml)
+- 2026-06-30 07:46 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/404915.shtml)
+- 2026-06-30 07:32 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/428019.shtml)
+- 2026-06-30 07:37 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/417885976.shtml)
+- 2026-06-30 07:30 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/8464471632.shtml)
+- 2026-06-30 07:35 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/297730158085.shtml)
+- 2026-06-30 07:30 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/512483941464.shtml)
+- 2026-06-30 07:22 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/9898424.shtml)
+- 2026-06-30 07:47 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/2757973.shtml)
+- 2026-06-30 07:30 - [世界杯](http://www.blog.kurohicncr.top/Article/details/61480.shtml)
+- 2026-06-30 07:22 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.minike.top/Article/details/946852240.shtml)
+- 2026-06-30 07:27 - [斗破苍穹](https://www.share.minike.top/Article/details/49589661975.shtml)
+- 2026-06-30 07:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/586676038362.shtml)

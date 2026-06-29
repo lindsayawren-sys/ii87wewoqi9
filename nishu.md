@@ -1,61 +1,60 @@
-# 日本拟改编航空自卫队 范围扩至宇宙
+# 这个产出全球三分之一塑料玩具的地区加速转型升级
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-原标题：日本拟改编航空自卫队 范围扩至宇宙 日本方面14日消息称，日本政府计划于2026年度内将航空自卫队改编为“航空宇宙自卫队”，进一步将日本“安全保障”范围向外延伸，此举引发日本舆论对于军事扩张的强烈担忧。 据悉，相关法案目前正在国会审议中，如果最终通过，将是日本自1954年成立陆上、海上和航空自卫队以来，自卫队名称首次发生变化。日本政府此举意在将“宇宙”正式定位为自卫队作
+中新网深圳5月24日电 (记者 程景伟)第二十二届中国(深圳)国际文化产业博览交易会23日举办汕头市澄海区玩具产业专场推介会。记者从会上了解到，近年来，汕头澄海玩具产业跑出了转型升级的“加速度”。 目前，汕头澄海玩具创意产业年产值超500亿元，产出全国一半、全球三分之一的塑料玩具，“中国玩具礼品之都”持续蝶变出彩。 推介会现场，汕头澄海玩具骨干企业展示了“文化+科技”双轮驱动的
 
 ## 正文
 
-原标题：日本拟改编航空自卫队 范围扩至宇宙 日本方面14日消息称，日本政府计划于2026年度内将航空自卫队改编为“航空宇宙自卫队”，进一步将日本“安全保障”范围向外延伸，此举引发日本舆论对于军事扩张的强烈担忧。
+中新网深圳5月24日电 (记者 程景伟)第二十二届中国(深圳)国际文化产业博览交易会23日举办汕头市澄海区玩具产业专场推介会。
 
-据悉，相关法案目前正在国会审议中，如果最终通过，将是日本自1954年成立陆上、海上和航空自卫队以来，自卫队名称首次发生变化。
+记者从会上了解到，近年来，汕头澄海玩具产业跑出了转型升级的“加速度”。
 
-日本政府此举意在将“宇宙”正式定位为自卫队作战领域之一。
+目前，汕头澄海玩具创意产业年产值超500亿元，产出全国一半、全球三分之一的塑料玩具，“中国玩具礼品之都”持续蝶变出彩。
 
-此前，日本自卫队已组建专门负责太空行动的部队，并逐步扩编。
+推介会现场，汕头澄海玩具骨干企业展示了“文化+科技”双轮驱动的硬核实力。
 
-该部队始于2020年成立的“宇宙作战队”，当时仅有约20人规模。
+“文化是根，创新是魂。
 
-“宇宙作战队”2022年改编为“宇宙作战群”，2026年3月进一步扩编为“宇宙作战团”，人员规模增至670人。
+我们打造多元化、高品质的积木产品矩阵，今年开始还结合IP文化内容，不断开发丰富的场景玩具。
 
-预计在2026财年，该部队将升格为“宇宙作战集团”，人员规模将增至约880人。
+”广东森宝文化实业有限公司商务总监蚁银瑶说。
 
-相关动向持续引发日本舆论担忧。
+澄海玩具产品在AI赛道上呈现不同的特点。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 07:34 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 07:37 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 07:35 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 07:23 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 07:13 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 07:16 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 07:40 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 07:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 07:33 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 07:15 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 07:22 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 07:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 07:36 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 07:38 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 07:33 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:40 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 07:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:38 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 07:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 07:39 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 07:40 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 07:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 07:35 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 07:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 07:38 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 07:21 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 07:23 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/027664.shtml)
-- 2026-06-30 07:29 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/3866363530.shtml)
-- 2026-06-30 07:26 - [一见倾心](https://www.share.kurohicncr.top/Article/details/5634226.shtml)
-- 2026-06-30 07:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/48070415.shtml)
-- 2026-06-30 07:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/0898272.shtml)
-- 2026-06-30 07:33 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/50996708.shtml)
-- 2026-06-30 07:35 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/08107166977.shtml)
-- 2026-06-30 07:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/214623.shtml)
-- 2026-06-30 07:24 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/1183746993.shtml)
-- 2026-06-30 07:40 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/9347798.shtml)
-- 2026-06-30 07:24 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/6504555742.shtml)
-- 2026-06-30 07:23 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/154814.shtml)
-- 2026-06-30 07:17 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/11839.shtml)
-- 2026-06-30 07:20 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/77940.shtml)
-- 2026-06-30 07:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/783525.shtml)
+- 2026-06-30 07:36 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/503023362.shtml)
+- 2026-06-30 07:35 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/176684.shtml)
+- 2026-06-30 07:47 - [周生如故](http://www.blog.minike.top/Article/details/8966849027.shtml)
+- 2026-06-30 07:24 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/858630861603.shtml)
+- 2026-06-30 07:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/894904979260.shtml)
+- 2026-06-30 07:41 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/861035165960.shtml)
+- 2026-06-30 07:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/90688185733.shtml)
+- 2026-06-30 07:44 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/943502261748.shtml)
+- 2026-06-30 07:25 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/80463.shtml)
+- 2026-06-30 07:18 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/28923573301.shtml)
+- 2026-06-30 07:36 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/12547845.shtml)
+- 2026-06-30 07:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/47457.shtml)
+- 2026-06-30 07:29 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/92378.shtml)
+- 2026-06-30 07:24 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/741739.shtml)
+- 2026-06-30 07:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/4968655.shtml)

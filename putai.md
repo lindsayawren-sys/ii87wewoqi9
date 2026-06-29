@@ -1,59 +1,51 @@
-# 津上机床中国午前涨超17% 津上走心机订单有望受益于液冷需求高增
+# 外交部：中国倡议召开联合国安理会高级别会议
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-津上机床中国（01651）午前涨超17%，截至发稿，股价上涨17.26%，现报61.50港元，成交额7450.09万港元。 英伟达新一代Vera Rubin机架级系统成为市场关注焦点。随着单机柜功率密度持续攀升，液冷正从AI服务器的“可选配置”加速演变为“必选配置”。申万宏源指出，AI算力建设带动液冷服务器需求高增，冷板、UQD 快插接头、分水器等精密结构件，拉动钻攻机、立加、
+5月22日，外交部发言人郭嘉昆主持例行记者会。总台央视记者问，发言人能否介绍举办联合国安理会高级别会议的设想，王毅外长希望推动会议发出什么信息？ 郭嘉昆表示，作为联合国安理会5月轮值主席，中国倡议召开的此次安理会高级别会议，将聚焦联合国宪章的时代价值、遵守和践行宪章宗旨和原则、加强联合国及其安理会权威与效能等国际社会普遍关心的问题。会议由王毅外长主持，向联合国全体会员国开放，多
 
 ## 正文
 
-津上机床中国（01651）午前涨超17%，截至发稿，股价上涨17.26%，现报61.50港元，成交额7450.09万港元。
+5月22日，外交部发言人郭嘉昆主持例行记者会。
 
-英伟达新一代Vera Rubin机架级系统成为市场关注焦点。
+总台央视记者问，发言人能否介绍举办联合国安理会高级别会议的设想，王毅外长希望推动会议发出什么信息？
 
-随着单机柜功率密度持续攀升，液冷正从AI服务器的“可选配置”加速演变为“必选配置”。
+郭嘉昆表示，作为联合国安理会5月轮值主席，中国倡议召开的此次安理会高级别会议，将聚焦联合国宪章的时代价值、遵守和践行宪章宗旨和原则、加强联合国及其安理会权威与效能等国际社会普遍关心的问题。
 
-申万宏源指出，AI算力建设带动液冷服务器需求高增，冷板、UQD 快插接头、分水器等精密结构件，拉动钻攻机、立加、走心机、车铣复合等机型需求，且液冷产业链上游零部件具备高毛利率特征。
+会议由王毅外长主持，向联合国全体会员国开放，多国外长及高级别代表已确认出席。
 
-该行指出，津上机床中国核心产品包括走心机（自动车床）、刀塔车床、加工中心、磨床等四大品类，应用于汽车、3C等下游。
-
-作为液冷接头的重要生产设备，津上走心机订单受益于液冷需求高增，将为公司贡献重要增量。
-
-责任编辑：卢昱君
+(总台央视记者 申杨 朱若梦)
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:17 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 07:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 07:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 07:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 07:14 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 07:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 07:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 07:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 07:27 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 07:24 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 07:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 07:31 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 07:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 07:30 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 07:40 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 07:45 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 07:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 07:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 07:46 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 07:20 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 07:27 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 07:22 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 07:36 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 07:41 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 07:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/0575032368.shtml)
-- 2026-06-30 07:13 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/04939.shtml)
-- 2026-06-30 07:30 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/07287361999.shtml)
-- 2026-06-30 07:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/4175657132.shtml)
-- 2026-06-30 07:20 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/8952064004.shtml)
-- 2026-06-30 07:28 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/17974366.shtml)
-- 2026-06-30 07:14 - [美人鱼](https://www.share.minike.top/Article/details/51005.shtml)
-- 2026-06-30 07:41 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/9208447.shtml)
-- 2026-06-30 07:36 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/1590657.shtml)
-- 2026-06-30 07:23 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/2515135.shtml)
-- 2026-06-30 07:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/28307555847.shtml)
-- 2026-06-30 07:19 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/817186.shtml)
-- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/73122183528.shtml)
-- 2026-06-30 07:24 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/41527.shtml)
-- 2026-06-30 07:19 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/3657279067.shtml)
+- 2026-06-30 07:31 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/3937347.shtml)
+- 2026-06-30 07:34 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/1768157581.shtml)
+- 2026-06-30 07:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/7181773.shtml)
+- 2026-06-30 07:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/57280439757.shtml)
+- 2026-06-30 07:19 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/173206342769.shtml)
+- 2026-06-30 07:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/1789147053.shtml)
+- 2026-06-30 07:44 - [女心理师](http://www.share.minike.top/Article/details/407861.shtml)
+- 2026-06-30 07:26 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/044657353780.shtml)
+- 2026-06-30 07:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/9678784549.shtml)
+- 2026-06-30 07:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/01361319.shtml)
+- 2026-06-30 07:37 - [日本进球](https://www.share.kurohicncr.top/Article/details/7349823158.shtml)
+- 2026-06-30 07:34 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/10113357780.shtml)
+- 2026-06-30 07:42 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/8749780347.shtml)
+- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/01464.shtml)
+- 2026-06-30 07:43 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/2577836667.shtml)

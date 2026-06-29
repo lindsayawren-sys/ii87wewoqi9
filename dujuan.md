@@ -1,46 +1,60 @@
-# 俄一架战略轰炸机在伊尔库茨克地区坠毁
+# 国内首家商业火箭公司再现IPO信号，估值近111亿元，武汉国资入局
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-新华社快讯：据俄罗斯媒体15日报道，俄国防部说一架战略轰炸机在俄伊尔库茨克地区坠毁。
+记者丨凌晨 编辑丨郑世凤 张明艳 一则招聘启事，将航天科工火箭技术有限公司（下称：航天科工火箭）的资本化进程再次推至台前。 近日，航天科工火箭在其官方微信公众号发布“行政中干岗位”招聘启事，其中包括财务副总监一职。 招聘信息显示，该岗位职责包括建立符合上市规范的财务制度和治理架构，牵头上市辅导财务专项工作，配合中介机构完成IPO财务核查与辅导验收等方面。 值得注意的是，岗位要求
 
 ## 正文
 
-新华社快讯：据俄罗斯媒体15日报道，俄国防部说一架战略轰炸机在俄伊尔库茨克地区坠毁。
+记者丨凌晨 编辑丨郑世凤 张明艳 一则招聘启事，将航天科工火箭技术有限公司（下称：航天科工火箭）的资本化进程再次推至台前。
+
+近日，航天科工火箭在其官方微信公众号发布“行政中干岗位”招聘启事，其中包括财务副总监一职。
+
+招聘信息显示，该岗位职责包括建立符合上市规范的财务制度和治理架构，牵头上市辅导财务专项工作，配合中介机构完成IPO财务核查与辅导验收等方面。
+
+值得注意的是，岗位要求还明确提到，应聘者需具备参与IPO财务规范、内控建设、账务整改、税务合规及辅导验收等全流程经验。
+
+这意味着，这一岗位并非普通财务管理职位，而是与上市前财务规范、内控整改和辅导验收高度相关。
+
+被称为“国内首家采用商业模式开展研发应用的火箭公司”，航天科工火箭早已进入资本市场视野。
+
+从拟赴科创板的早期预期，到入选地方上市后备企业，再到今年股权转让和IPO财务岗招聘，其上市预期正重新升温。
+
+但IPO叙事之外，公司的控制权变化、股权结构调整及盈利能力如何仍待市场检验。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 07:37 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 07:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 07:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 07:41 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:14 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 07:23 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 07:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 07:32 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 07:20 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 07:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 07:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:38 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 07:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 07:29 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 07:19 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 07:35 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 07:29 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 07:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 07:46 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:20 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 07:37 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 07:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 07:19 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/55138948228.shtml)
-- 2026-06-30 07:30 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/53036491.shtml)
-- 2026-06-30 07:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/5690237.shtml)
-- 2026-06-30 07:23 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/373552.shtml)
-- 2026-06-30 07:15 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/973690196.shtml)
-- 2026-06-30 07:37 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/9146302.shtml)
-- 2026-06-30 07:17 - [扫黑风暴](http://www.share.minike.top/Article/details/829833161.shtml)
-- 2026-06-30 07:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/627774.shtml)
-- 2026-06-30 07:31 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/30286066.shtml)
-- 2026-06-30 07:20 - [刘念回应](http://www.share.minike.top/Article/details/739610227967.shtml)
-- 2026-06-30 07:37 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/37092666.shtml)
-- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/85056.shtml)
-- 2026-06-30 07:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/6257119314.shtml)
-- 2026-06-30 07:38 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/483830675045.shtml)
-- 2026-06-30 07:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/38670.shtml)
+- 2026-06-30 07:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/431657478650.shtml)
+- 2026-06-30 07:36 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/47790.shtml)
+- 2026-06-30 07:34 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/9658128.shtml)
+- 2026-06-30 07:19 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/17230567165.shtml)
+- 2026-06-30 07:27 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/324853636183.shtml)
+- 2026-06-30 07:43 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/02433.shtml)
+- 2026-06-30 07:27 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/481698.shtml)
+- 2026-06-30 07:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/124533563364.shtml)
+- 2026-06-30 07:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/79034241.shtml)
+- 2026-06-30 07:24 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/5286952.shtml)
+- 2026-06-30 07:45 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/100215444.shtml)
+- 2026-06-30 07:42 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/9393977.shtml)
+- 2026-06-30 07:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/734331787505.shtml)
+- 2026-06-30 07:22 - [巴拉圭进球](https://www.blog.minike.top/Article/details/3324213.shtml)
+- 2026-06-30 07:23 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/12882158484.shtml)

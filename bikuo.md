@@ -1,58 +1,60 @@
-# 中方谈美伊达成和平协议：望相关各方坚持和平选择
+# 2026泰国购物节暨正大榴莲节在广西南宁启动
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 曾玥)中国外交部发言人林剑15日主持例行记者会。 有记者提问：美国总统特朗普批评以色列总理内塔尼亚胡试图破坏美伊谈判进程。他说，尽管内塔尼亚胡反对，但与伊朗的协议已经达成，“现在和平已经实现”。中方对此有何评论？ 林剑表示，中方希望美伊如期签署第一阶段谅解备忘录，也希望相关各方坚持和平选择，通过对话谈判解决问题。中方将继续秉持习近平主席四点主张精
+【东盟专线】2026泰国购物节暨正大榴莲节在广西南宁启动 中新社南宁5月23日电 (俞靖 黄艳梅)2026泰国购物节23日晚在广西南宁启动，主办方引进上百种泰国商品入驻本地商超，并同步开启榴莲节活动。 本次活动由泰国驻南宁总领事馆商务处携手多家企业举办，为期半个月。榴莲、山竹等泰国原产高品质水果以及泰国香米、泰式休闲小吃、冬阴功泡面等特色泰国食品亮相活动现场。 此外，活动还邀泰
 
 ## 正文
 
-中新网北京6月15日电 (记者 曾玥)中国外交部发言人林剑15日主持例行记者会。
+【东盟专线】2026泰国购物节暨正大榴莲节在广西南宁启动 中新社南宁5月23日电 (俞靖 黄艳梅)2026泰国购物节23日晚在广西南宁启动，主办方引进上百种泰国商品入驻本地商超，并同步开启榴莲节活动。
 
-有记者提问：美国总统特朗普批评以色列总理内塔尼亚胡试图破坏美伊谈判进程。
+本次活动由泰国驻南宁总领事馆商务处携手多家企业举办，为期半个月。
 
-他说，尽管内塔尼亚胡反对，但与伊朗的协议已经达成，“现在和平已经实现”。
+榴莲、山竹等泰国原产高品质水果以及泰国香米、泰式休闲小吃、冬阴功泡面等特色泰国食品亮相活动现场。
 
-中方对此有何评论？
+此外，活动还邀泰国餐厅厨师现场制作泰国料理，专业技师带来泰式古法按摩，还有泰拳专业选手对决表演。
 
-林剑表示，中方希望美伊如期签署第一阶段谅解备忘录，也希望相关各方坚持和平选择，通过对话谈判解决问题。
+泰国驻南宁总领事馆商务领事尼迪·巴通翁表示，本次活动旨在提升泰国商品品牌口碑与影响力，掀起选购泰国商品的消费热潮，尤其是受中国消费者青睐的榴莲、椰子等，深化双边贸易往来，加强泰中经贸合作。
 
-中方将继续秉持习近平主席四点主张精神，为早日恢复中东海湾地区的和平安宁发挥积极作用。
+此次活动的合作方之一正大集团广西区负责人表示，该集团深耕泰中两地，是推动双边贸易往来的跨国企业。
+
+本次活动汇聚泰国优质榴莲产品，搭配特色泰式风情展演，希望以果为媒，助力更多泰国特色商品进入中国市场，持续搭建好服务泰中跨境消费与农业合作、实现互通共赢的平台。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 07:15 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 07:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 07:26 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 07:22 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 07:34 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 07:17 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 07:22 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 07:32 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 07:22 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 07:23 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 07:19 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 07:36 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 07:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 07:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 07:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 07:31 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 07:44 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 07:44 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 07:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 07:22 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:35 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 07:38 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 07:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 07:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 07:41 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/3253951924.shtml)
-- 2026-06-30 07:36 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/11000900520.shtml)
-- 2026-06-30 07:29 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/412873961.shtml)
-- 2026-06-30 07:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/35311410.shtml)
-- 2026-06-30 07:27 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/0221812419.shtml)
-- 2026-06-30 07:32 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/33245420561.shtml)
-- 2026-06-30 07:19 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/294812417217.shtml)
-- 2026-06-30 07:38 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/57102.shtml)
-- 2026-06-30 07:25 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/0609983388.shtml)
-- 2026-06-30 07:28 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/6512300998.shtml)
-- 2026-06-30 07:18 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/481501730.shtml)
-- 2026-06-30 07:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/07360984302.shtml)
-- 2026-06-30 07:21 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/1916493.shtml)
-- 2026-06-30 07:30 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/934424.shtml)
-- 2026-06-30 07:26 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/601436016.shtml)
+- 2026-06-30 07:35 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/7769699.shtml)
+- 2026-06-30 07:25 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/977030986178.shtml)
+- 2026-06-30 07:38 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/20822869.shtml)
+- 2026-06-30 07:45 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/301732743.shtml)
+- 2026-06-30 07:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/905032726918.shtml)
+- 2026-06-30 07:36 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/9710982174.shtml)
+- 2026-06-30 07:22 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/46822.shtml)
+- 2026-06-30 07:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/944357052.shtml)
+- 2026-06-30 07:27 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/0349296.shtml)
+- 2026-06-30 07:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/81519447129.shtml)
+- 2026-06-30 07:34 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/22356498647.shtml)
+- 2026-06-30 07:44 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/230154.shtml)
+- 2026-06-30 07:46 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/529537902.shtml)
+- 2026-06-30 07:34 - [沙丘](https://www.share.kurohicncr.top/Article/details/36727.shtml)
+- 2026-06-30 07:34 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/379742.shtml)

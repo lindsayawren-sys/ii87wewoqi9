@@ -1,57 +1,59 @@
-# 国防部：捍卫国家主权和海洋权益 两岸同胞义不容辞
+# 第一观察·瞬间｜光影记录中俄友谊故事
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。 有记者问，据报道，日菲单方面宣布启动位中国台湾岛以东“海域划界谈判”，中国海警在相关海域开展执法行动，台湾防务部门称这是“挑衅行为”和“认知作战”。请问对此有何评论？ 陈曦表示，台湾是中国的一部分，中国在台湾岛以东海域拥有专属经济区和大陆架，中国海警开展执法巡查行动，正当必要
+5月20日，新华社记者的镜头定格下这样一个瞬间—— 国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。 时空长廊中的璀璨光影，讲述着新时代中俄友谊的精彩故事。 在新华社、塔斯社记者拍摄的26张照片前，中俄元首驻足仔细观看，愉快忆及两国近年来友好交往合作的历程。 步入图片展现场，首先映入眼帘的，是这张拍摄于整整12年前的照片。 2
 
 ## 正文
 
-中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。
+5月20日，新华社记者的镜头定格下这样一个瞬间—— 国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。
 
-有记者问，据报道，日菲单方面宣布启动位中国台湾岛以东“海域划界谈判”，中国海警在相关海域开展执法行动，台湾防务部门称这是“挑衅行为”和“认知作战”。
+时空长廊中的璀璨光影，讲述着新时代中俄友谊的精彩故事。
 
-请问对此有何评论？
+在新华社、塔斯社记者拍摄的26张照片前，中俄元首驻足仔细观看，愉快忆及两国近年来友好交往合作的历程。
 
-陈曦表示，台湾是中国的一部分，中国在台湾岛以东海域拥有专属经济区和大陆架，中国海警开展执法巡查行动，正当必要、不容侵扰。
+步入图片展现场，首先映入眼帘的，是这张拍摄于整整12年前的照片。
 
-两岸同属一个中国，共同捍卫国家主权和海洋权益是两岸同胞义不容辞的责任。
+2014年5月20日，上海西郊会议中心广场，习近平主席为普京总统举行欢迎仪式。
 
-民进党当局不仅消极应对，还颠倒黑白、倒行逆施，丧失民族立场，这种数典忘祖的行径令人唾弃。
+两国元首微笑着并肩前行。
+
+光影长卷，是中俄两国元首密切交往的珍贵见证—— 从上海到乌法，从莫斯科到北京，从双边会晤到多边会议，有见面相聚，也有视频连线……一张张图片记录着两位领导人一次次并肩前行、一次次双手紧握、一次次亲切交流，生动呈现老朋友之间的深厚友谊。
+
+“这些年，我们进行了多次会面，每一次交流都坦诚深入、富有成果。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 07:29 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 07:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 07:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 07:38 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 07:32 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 07:31 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 07:30 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 07:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 07:41 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 07:17 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 07:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 07:22 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 07:31 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 07:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 07:31 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 07:26 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 07:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 07:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 07:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 07:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 07:26 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 07:22 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 07:41 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 07:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/932167871.shtml)
-- 2026-06-30 07:32 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/83206171350.shtml)
-- 2026-06-30 07:12 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/83960.shtml)
-- 2026-06-30 07:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/83763970.shtml)
-- 2026-06-30 07:41 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/724151472.shtml)
-- 2026-06-30 07:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/1243973.shtml)
-- 2026-06-30 07:28 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/969192487311.shtml)
-- 2026-06-30 07:39 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/867935574207.shtml)
-- 2026-06-30 07:36 - [明星大侦探第四季](https://www.share.minike.top/Article/details/312027986.shtml)
-- 2026-06-30 07:34 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/52903887059.shtml)
-- 2026-06-30 07:35 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/7116777207.shtml)
-- 2026-06-30 07:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/508459808582.shtml)
-- 2026-06-30 07:20 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/8404549189.shtml)
-- 2026-06-30 07:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/94614.shtml)
-- 2026-06-30 07:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/58156277.shtml)
+- 2026-06-30 07:30 - [巴拉圭率先破门](https://www.share.kurohicncr.top/Article/details/037981176.shtml)
+- 2026-06-30 07:40 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/543247080.shtml)
+- 2026-06-30 07:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/89420.shtml)
+- 2026-06-30 07:37 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/8214180.shtml)
+- 2026-06-30 07:31 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/4736606064.shtml)
+- 2026-06-30 07:46 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/470416715.shtml)
+- 2026-06-30 07:40 - [明星大侦探第一季](http://www.share.minike.top/Article/details/5575075.shtml)
+- 2026-06-30 07:42 - [85花告别古偶](http://www.share.minike.top/Article/details/118057349.shtml)
+- 2026-06-30 07:40 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/149670569850.shtml)
+- 2026-06-30 07:20 - [德国 传控](https://www.share.minike.top/Article/details/518964.shtml)
+- 2026-06-30 07:44 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/30426.shtml)
+- 2026-06-30 07:22 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0367718095.shtml)
+- 2026-06-30 07:34 - [刘念回应](https://www.share.kurohicncr.top/Article/details/153009081728.shtml)
+- 2026-06-30 07:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/26703.shtml)
+- 2026-06-30 07:37 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/231434208.shtml)

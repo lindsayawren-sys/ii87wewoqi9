@@ -1,57 +1,57 @@
-# 【纯苯苯乙烯半年报】大去库后的行情怎么走
+# 成都“榴莲自由”背后：跨境班列重构内陆生鲜贸易版图
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-紫金天风期货 纯苯观点小结 二季度，前期主线在于供应短缺，推动纯苯港口库存连续下滑，从30万吨跌至当前13.1万吨，随着价格上涨，下游利润受到压缩，导致下游开工率下滑，进而形成了负反馈。 展望未来，最大的事件是和平协议在本周五签订，海峡有望打开。供应上，纯苯检修量按计划来看，预计未来逐步下滑，另一方面，从重整利润来看，外采石脑油进行生产的利润较好，裂解利润表现也不差，生产上具备
+中新社成都5月23日电 (单鹏)成都一家超市内，泰国金枕榴莲堆成金色小山。市民王惠挑了一个六斤重的A级果，“去年同样的果要两三百元(人民币，下同)，今年只要一百多元，实现‘榴莲自由’了。” 成都陆港新通道国际贸易有限公司总经理邓奔表示，今年5月，成都市场A级金枕榴莲零售价约25元/斤，较去年同期下降近30%；在批发端，36斤装的A级榴莲整箱批发价仅800元左右。凭借亲民价格，成
 
 ## 正文
 
-紫金天风期货 纯苯观点小结 二季度，前期主线在于供应短缺，推动纯苯港口库存连续下滑，从30万吨跌至当前13.1万吨，随着价格上涨，下游利润受到压缩，导致下游开工率下滑，进而形成了负反馈。
+中新社成都5月23日电 (单鹏)成都一家超市内，泰国金枕榴莲堆成金色小山。
 
-展望未来，最大的事件是和平协议在本周五签订，海峡有望打开。
+市民王惠挑了一个六斤重的A级果，“去年同样的果要两三百元(人民币，下同)，今年只要一百多元，实现‘榴莲自由’了。
 
-供应上，纯苯检修量按计划来看，预计未来逐步下滑，另一方面，从重整利润来看，外采石脑油进行生产的利润较好，裂解利润表现也不差，生产上具备经济动力。
+” 成都陆港新通道国际贸易有限公司总经理邓奔表示，今年5月，成都市场A级金枕榴莲零售价约25元/斤，较去年同期下降近30%；在批发端，36斤装的A级榴莲整箱批发价仅800元左右。
 
-同时，海峡打开后，中东的油品将顺利流向亚洲，远月预计不会有原料短缺。
+凭借亲民价格，成都已然跻身全国榴莲售价最低的城市行列。
 
-因此，供应上纯苯预计会增加。
+今年成都榴莲降价，一方面得益于泰国主产区丰收，市场供给充足；另一方面，成都跨境铁路通道的升级，有效解决了传统运输时效慢、损耗高、供货不稳的问题。
 
-进口上，随着海峡的开放，预计进口可能逐步增加。
+泰国雨季过后，近来每日均有数十柜新鲜榴莲运抵成都。
 
-需求方面，当前下游需求表现较差，随着纯苯供应的增加，需求预计同步修复，但恢复力度有待考量。
+成都国际铁路港投资发展有限公司市场部专员岳菲介绍，成都国际铁路港已打通成熟稳定的中老泰铁路专线冷链运输链路。
 
-今年纯苯产能增速要快于下游，总体来说，纯苯在未来是有累库的可能。
+泰国榴莲从果园采摘、工厂分级装箱后可直接从泰国林查班搭乘铁路冷链专列，经中老铁路、澜湄快线，仅需5天到达成都。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:31 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 07:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 07:40 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 07:38 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 07:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 07:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 07:25 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 07:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 07:26 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 07:36 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 07:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 07:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 07:43 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 07:38 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 07:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 07:18 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 07:37 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 07:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 07:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 07:35 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/35689983362.shtml)
-- 2026-06-30 07:20 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/0854685086.shtml)
-- 2026-06-30 07:36 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/2350499640.shtml)
-- 2026-06-30 07:23 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/5117829.shtml)
-- 2026-06-30 07:20 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/66765901.shtml)
-- 2026-06-30 07:17 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/5399129.shtml)
-- 2026-06-30 07:23 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/103336.shtml)
-- 2026-06-30 07:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/89990064.shtml)
-- 2026-06-30 07:25 - [美股](https://www.blog.kurohicncr.top/Article/details/9411312470.shtml)
-- 2026-06-30 07:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/30700888507.shtml)
-- 2026-06-30 07:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8970333.shtml)
-- 2026-06-30 07:26 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/06826.shtml)
-- 2026-06-30 07:16 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/09562784.shtml)
-- 2026-06-30 07:30 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/217788224.shtml)
-- 2026-06-30 07:20 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/2663179840.shtml)
+- 2026-06-30 07:46 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/288446.shtml)
+- 2026-06-30 07:46 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/82403.shtml)
+- 2026-06-30 07:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/0764562142.shtml)
+- 2026-06-30 07:33 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/28805173883.shtml)
+- 2026-06-30 07:20 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/622525.shtml)
+- 2026-06-30 07:37 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/30232.shtml)
+- 2026-06-30 07:42 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/206685316.shtml)
+- 2026-06-30 07:43 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/710144656972.shtml)
+- 2026-06-30 07:35 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/402638861.shtml)
+- 2026-06-30 07:34 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/838232766.shtml)
+- 2026-06-30 07:22 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/0954412642.shtml)
+- 2026-06-30 07:39 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/72084191363.shtml)
+- 2026-06-30 07:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/94680.shtml)
+- 2026-06-30 07:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/04017202950.shtml)
+- 2026-06-30 07:41 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/99867251464.shtml)

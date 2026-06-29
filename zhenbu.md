@@ -1,60 +1,59 @@
-# 申万菱信的神操作：重金挖来百亿基金经理，一年亏掉30%！员工怒曝被迫买基，贾成东黯然离职
+# 银川海关“关企零距离”活动精准惠企 助力宁夏外贸提质增效
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-2025年6月，申万菱信行业精选混合基金高调发行，作为申万菱信从招商基金重金挖来的“百亿基金经理”贾成东加盟后的首只作品，首发募集规模达到了12.19亿元。 彼时市场不会想到，这只被公司寄予厚望的产品，会演变成一场从员工到基民都深陷其中的投资泥潭，并在一年后，以贾成东黯然清仓离职、任职亏损近30%的结局收场。 员工怒曝被迫买基，成立两月跌超8% 回顾2025年8月，一位申万宏源
+中新网银川5月24日电 (记者 李佩珊)记者24日从银川海关获悉，该关近期举办“关企零距离——助企惠企暖心服务活动”，联动多方主体精准对接企业诉求，推动惠企政策直达快享、落地见效，切实破解外贸企业经营发展中的痛点难点，持续优化区域营商环境，全力助推宁夏外贸高质量发展。 本次活动汇聚银川海关、中国农业银行宁夏分行、银川贸促会等多方力量，现场专题解读AEO企业配套扶持政策，开展政企
 
 ## 正文
 
-2025年6月，申万菱信行业精选混合基金高调发行，作为申万菱信从招商基金重金挖来的“百亿基金经理”贾成东加盟后的首只作品，首发募集规模达到了12.19亿元。
+中新网银川5月24日电 (记者 李佩珊)记者24日从银川海关获悉，该关近期举办“关企零距离——助企惠企暖心服务活动”，联动多方主体精准对接企业诉求，推动惠企政策直达快享、落地见效，切实破解外贸企业经营发展中的痛点难点，持续优化区域营商环境，全力助推宁夏外贸高质量发展。
 
-彼时市场不会想到，这只被公司寄予厚望的产品，会演变成一场从员工到基民都深陷其中的投资泥潭，并在一年后，以贾成东黯然清仓离职、任职亏损近30%的结局收场。
+本次活动汇聚银川海关、中国农业银行宁夏分行、银川贸促会等多方力量，现场专题解读AEO企业配套扶持政策，开展政企面对面交流答疑，全区70余家外贸企业近百名代表参会。
 
-员工怒曝被迫买基，成立两月跌超8% 回顾2025年8月，一位申万宏源证券基层员工在网上爆料，称自己在集团领导出面站台派任务的要求下，认购了贾成东掌舵的申万菱信行业精选混合。
+AEO即经认证经营者制度，是国际贸易领域公认的“绿色通行证”。
 
-“虽然这些年被迫买公司的任务产品几乎都亏钱，但是基于对高分红思路的认可，还是掏钱买了。
+目前，中国已与32个经济体、58个国家和地区达成AEO互认合作。
 
-”这位爆料人写道。
+自2026年4月1日新修订的《中华人民共和国海关注册登记和备案企业信用管理办法》落地后，AEO企业优化为高级认证企业、认证企业两级标准，政策正向激励作用进一步凸显。
 
-然而，随后基金的操作让该爆料人大感不满。
+宁夏现有AEO企业21家，仅占全自治区进出口企业总数的2.9%，却贡献了16%的进出口贸易额，标杆示范作用十分突出。
 
-据其描述，申万菱信行业精选混合成立不到三天，便将六成仓位高位押注新消费板块；随后，新消费板块回调，基金经理砍仓割肉，转而追高银行股。
+凭借AEO认证资质，宁夏外贸企业收获实打实的发展红利。
 
-更令其感到困惑的是，基金运作两个月来净值每周都在下跌，与公司宣传时的高股息方向完全不符。
+共享装备股份有限公司相关负责人介绍，企业获评高级认证企业后，通关时长压缩四成，每年可节省超百万元仓储物流成本，出口规模稳步提升。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 07:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 07:20 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 07:17 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 07:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 07:33 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 07:37 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 07:15 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 07:30 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 07:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 07:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 07:32 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:29 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 07:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 07:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 07:18 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 07:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:35 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 07:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 07:35 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 07:19 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 07:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 07:19 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 07:24 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 07:43 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 07:46 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/0437978.shtml)
-- 2026-06-30 07:31 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/65121456153.shtml)
-- 2026-06-30 07:37 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/64395525.shtml)
-- 2026-06-30 07:22 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/929302546.shtml)
-- 2026-06-30 07:17 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/988726927.shtml)
-- 2026-06-30 07:36 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/333192520.shtml)
-- 2026-06-30 07:34 - [小娘惹](https://www.share.kurohicncr.top/Article/details/4207709.shtml)
-- 2026-06-30 07:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/6933306701.shtml)
-- 2026-06-30 07:13 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/5352322.shtml)
-- 2026-06-30 07:27 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/1537591.shtml)
-- 2026-06-30 07:12 - [世界杯](http://www.share.minike.top/Article/details/69432.shtml)
-- 2026-06-30 07:28 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/53102440.shtml)
-- 2026-06-30 07:34 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/46399.shtml)
-- 2026-06-30 07:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/6882075186.shtml)
-- 2026-06-30 07:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/97350932.shtml)
+- 2026-06-30 07:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/1971139047.shtml)
+- 2026-06-30 07:46 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/620294968.shtml)
+- 2026-06-30 07:33 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/2962155770.shtml)
+- 2026-06-30 07:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/7619747.shtml)
+- 2026-06-30 07:46 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/54328.shtml)
+- 2026-06-30 07:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/62279941890.shtml)
+- 2026-06-30 07:45 - [媒体：手机测评该挤挤水分了](https://www.share.minike.top/Article/details/82798596755.shtml)
+- 2026-06-30 07:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/7872728.shtml)
+- 2026-06-30 07:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/72339677349.shtml)
+- 2026-06-30 07:19 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/4972681.shtml)
+- 2026-06-30 07:37 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/75382558.shtml)
+- 2026-06-30 07:47 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/9214620.shtml)
+- 2026-06-30 07:24 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/917000.shtml)
+- 2026-06-30 07:22 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/333705.shtml)
+- 2026-06-30 07:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/9789275289.shtml)

@@ -1,59 +1,60 @@
-# 2026内蒙古乌兰牧骑“一专多能”比赛：多彩技艺展绝活
+# 中国人寿集团迎新党委委员：“75后”太平养老总经理王干履新
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网锡林郭勒6月15日电 (记者 奥蓝)表演者上一刻还穿着戏服唱京剧，10余秒之后就换上蒙古袍拉起马头琴，一曲毕，又精神抖擞地跳起了蒙古舞…… 15日，2026年(内蒙古)全区乌兰牧骑“一专多能”比赛在锡林郭勒盟拉开帷幕。未来3天，来自内蒙古12个盟市及自治区直属乌兰牧骑的54支参赛队伍共90名选手将同台竞技，一决高下。 本次比赛旨在全面检验和展示新时代乌兰牧骑队员的综合艺术
+蓝鲸新闻5月22日讯（记者 石雨）中国人寿保险（集团）公司领导班子新增一员，记者注意到，在中国人寿集团官网的集团领导信息中，新增党委委员王干的相关介绍。 1975年出生的王干，管理学硕士学位，曾任中国太平保险集团有限责任公司人力资源部（党委组织部）总经理（部长），中央纪委国家监委驻中国太平保险集团有限责任公司纪检监察组副组长，中国太平保险集团有限责任公司国际部总经理，太平投资控
 
 ## 正文
 
-中新网锡林郭勒6月15日电 (记者 奥蓝)表演者上一刻还穿着戏服唱京剧，10余秒之后就换上蒙古袍拉起马头琴，一曲毕，又精神抖擞地跳起了蒙古舞…… 15日，2026年(内蒙古)全区乌兰牧骑“一专多能”比赛在锡林郭勒盟拉开帷幕。
+蓝鲸新闻5月22日讯（记者 石雨）中国人寿保险（集团）公司领导班子新增一员，记者注意到，在中国人寿集团官网的集团领导信息中，新增党委委员王干的相关介绍。
 
-未来3天，来自内蒙古12个盟市及自治区直属乌兰牧骑的54支参赛队伍共90名选手将同台竞技，一决高下。
+1975年出生的王干，管理学硕士学位，曾任中国太平保险集团有限责任公司人力资源部（党委组织部）总经理（部长），中央纪委国家监委驻中国太平保险集团有限责任公司纪检监察组副组长，中国太平保险集团有限责任公司国际部总经理，太平投资控股有限公司党委委员、副总经理等职。
 
-本次比赛旨在全面检验和展示新时代乌兰牧骑队员的综合艺术素养，推动乌兰牧骑事业高质量发展。
+2023年8月至2023年10月期间，王干以太平养老临时负责人身份代行总经理职权，2023年10月起出任太平养老总经理，2026年4月起兼任太平养老首席合规官，主持党委、总经理室全面工作，分管人力资源部（党委组织部、党群工作部）、投资业务部，负责合规工作。
 
-比赛过程中，参赛选手将充分展现“一专多能”的独特风采，每位选手需连续展示3项综合技能，包括1项主专业特长和两项跨领域的多能技艺，涵盖舞蹈、声乐、器乐、曲艺等多种艺术形式，全面考验综合艺术能力。
+在新增王干信息的同时，记者注意到，中国人寿党委委员、副总裁、首席风险官杨丽平的简历已从领导名单中撤下。
 
-本次比赛邀请7名艺术领域专家组成专业评审团，从专业功底、艺术表现力、舞台感染力、创新创意及综合素养等维度进行综合评分。
+1965年出生的杨丽平，至今已达退休年龄。
 
-比赛现场打分、现场亮分，并委托公证处对评审全过程进行现场监督公证。
+其毕业于中国政法大学，于监管系统履职多年，曾任原银保监会首席检查官，银行监管三部、二部、国有控股大型商业银行监管部主任。
 
-“我觉得，我们不仅是演员，更是基层文化的宣传者，所以我们要用多样的技能来高效地完成演出任务，同时为百姓们送去文化精神食粮。
+2021年3月起任中国人寿集团党委委员，后又任副总裁、首席风险官。
 
-”兴安盟突泉县乌兰牧骑队员高佳欣花1个多月备赛，在舞台上既要酝酿情绪哭着表演情景剧，又要笑意盈盈地转起花手帕。
+目前，王干为中国人寿集团领导班子中最为年轻的一员。
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 07:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 07:30 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 07:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 07:25 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 07:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 07:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 07:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 07:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 07:28 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 07:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 07:22 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 07:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 07:20 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:27 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 07:28 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 07:30 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 07:32 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 07:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 07:23 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 07:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 07:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 07:28 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 07:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 07:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/99088.shtml)
-- 2026-06-30 07:32 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/80966.shtml)
-- 2026-06-30 07:37 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/7886407467.shtml)
-- 2026-06-30 07:30 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/239596437.shtml)
-- 2026-06-30 07:28 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/997165303690.shtml)
-- 2026-06-30 07:15 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/577376977.shtml)
-- 2026-06-30 07:21 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/8735168541.shtml)
-- 2026-06-30 07:24 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/8913272593.shtml)
-- 2026-06-30 07:22 - [沉睡花园](https://www.blog.minike.top/Article/details/087100.shtml)
-- 2026-06-30 07:38 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/012893249358.shtml)
-- 2026-06-30 07:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/98162211139.shtml)
-- 2026-06-30 07:27 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/8905116561.shtml)
-- 2026-06-30 07:24 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/3113869.shtml)
-- 2026-06-30 07:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/191972131.shtml)
-- 2026-06-30 07:17 - [我们的少年时代2](http://www.blog.minike.top/Article/details/801930733204.shtml)
+- 2026-06-30 07:31 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/5391638.shtml)
+- 2026-06-30 07:27 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/58720716.shtml)
+- 2026-06-30 07:28 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/39297628.shtml)
+- 2026-06-30 07:43 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/41274193134.shtml)
+- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/934263824396.shtml)
+- 2026-06-30 07:26 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/799379765357.shtml)
+- 2026-06-30 07:43 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/3018489793.shtml)
+- 2026-06-30 07:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/28684.shtml)
+- 2026-06-30 07:41 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/96086.shtml)
+- 2026-06-30 07:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/45189.shtml)
+- 2026-06-30 07:28 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/59494516.shtml)
+- 2026-06-30 07:26 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/526609197154.shtml)
+- 2026-06-30 07:31 - [急先锋](https://www.share.minike.top/Article/details/987984615.shtml)
+- 2026-06-30 07:19 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/095077.shtml)
+- 2026-06-30 07:37 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/108043032103.shtml)

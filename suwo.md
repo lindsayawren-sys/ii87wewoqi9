@@ -1,61 +1,58 @@
-# 山西千年壁画，启示何在？
+# 我国已经“无脊灰”，为什么还要打疫苗？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。 现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？如何挑战传统历史叙事？ 王志俊：最具代表
+脊髓灰质炎(以下简称脊灰)，俗称“小儿麻痹症”，是由脊灰病毒感染引起的急性肠道传染病。该疾病的主要危害是会导致不可逆的肢体麻痹，尤其对儿童健康构成严重威胁。这里需强调的是，脊灰属于疫苗可预防疾病，规范接种脊灰疫苗是预防该病最有效的手段。我国已于2000年成功阻断了本土脊灰野病毒的传播，并被认证为无脊灰国家，但这一成果需要持续巩固。结合全球脊灰防控现状及我国的防控要求，普通人在日
 
 ## 正文
 
-中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。
+脊髓灰质炎(以下简称脊灰)，俗称“小儿麻痹症”，是由脊灰病毒感染引起的急性肠道传染病。
 
-从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。
+该疾病的主要危害是会导致不可逆的肢体麻痹，尤其对儿童健康构成严重威胁。
 
-近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。
+这里需强调的是，脊灰属于疫苗可预防疾病，规范接种脊灰疫苗是预防该病最有效的手段。
 
-现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？
+我国已于2000年成功阻断了本土脊灰野病毒的传播，并被认证为无脊灰国家，但这一成果需要持续巩固。
 
-如何挑战传统历史叙事？
+结合全球脊灰防控现状及我国的防控要求，普通人在日常生活中可从以下几方面做好防护，既能守护自身和家人的健康，也能为全球脊灰根除事业贡献一份力量： 一、规范疫苗接种： 构建最有效的免疫屏障 预防接种是构建公众健康防线，筑牢群体免疫屏障的重要支撑，在维护公共卫生安全、促进健康公平方面发挥着不可替代的作用。
 
-王志俊：最具代表性的场景，当属山西忻州九原岗北朝壁画墓的墓道壁画。
+接种脊灰疫苗是所有人预防脊灰、守护自身健康最经济、最有效的手段。
 
-西壁是气势恢宏的《狩猎图》：骑士策马奔腾，弯弓射猎，队伍中可见深目高鼻的中亚人形象与身着鲜卑服饰者共同驰骋，充满草原“尚武”精神。
+1.按程序完成全程接种，筑牢基础免疫：我国国家免疫规划中的脊灰疫苗目前主要包括脊灰灭活疫苗(IPV)和二价脊灰减毒活疫苗(bOPV)。
 
-然而，仅一壁之隔的北壁，却绘有一座结构严谨、斗拱清晰的汉式庑殿顶门楼，代表着中原高度的礼制建筑成就。
+我国目前实行“2剂IPV+2剂bOPV”的标准免疫程序，儿童需在2月龄、3月龄、4月龄和4周岁这四个关键节点按时接种，家长需牢记接种时间，确保孩子“不缺针、不漏剂”，才能形成完整的免疫保护。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 07:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 07:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 07:15 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 07:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 07:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 07:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:32 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 07:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 07:25 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 07:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 07:23 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 07:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 07:32 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 07:21 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 07:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 07:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 07:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 07:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 07:26 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 07:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 07:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 07:25 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 07:39 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 07:44 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 07:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/60701502346.shtml)
-- 2026-06-30 07:22 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/381929.shtml)
-- 2026-06-30 07:20 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/684905269901.shtml)
-- 2026-06-30 07:23 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/262007576159.shtml)
-- 2026-06-30 07:24 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/618389503.shtml)
-- 2026-06-30 07:29 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/96548054.shtml)
-- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/728725.shtml)
-- 2026-06-30 07:27 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/031171559742.shtml)
-- 2026-06-30 07:41 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/696894560426.shtml)
-- 2026-06-30 07:36 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/24902.shtml)
-- 2026-06-30 07:39 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/6980845091.shtml)
-- 2026-06-30 07:30 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/32927070.shtml)
-- 2026-06-30 07:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/7406181264.shtml)
-- 2026-06-30 07:31 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/130192.shtml)
-- 2026-06-30 07:26 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/27102.shtml)
+- 2026-06-30 07:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/04719676818.shtml)
+- 2026-06-30 07:20 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/013190620.shtml)
+- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/67494.shtml)
+- 2026-06-30 07:22 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/175810738780.shtml)
+- 2026-06-30 07:28 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.kurohicncr.top/Article/details/52829.shtml)
+- 2026-06-30 07:27 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/334965024583.shtml)
+- 2026-06-30 07:25 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/06714559668.shtml)
+- 2026-06-30 07:34 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/12866009.shtml)
+- 2026-06-30 07:40 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/63600941543.shtml)
+- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/85886.shtml)
+- 2026-06-30 07:43 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/49637.shtml)
+- 2026-06-30 07:23 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/2983928915.shtml)
+- 2026-06-30 07:44 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/89805195.shtml)
+- 2026-06-30 07:36 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/19120919.shtml)
+- 2026-06-30 07:37 - [森保一 保守](https://www.blog.minike.top/Article/details/63458410253.shtml)

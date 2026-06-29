@@ -1,44 +1,50 @@
-# 九大重点行业启动节能降碳改造攻坚行动
+# 中国与巴布亚新几内亚签署协定 提升经济伙伴关系
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
+记者从商务部了解到，5月21日，中国与巴布亚新几内亚签署《提升经济伙伴关系框架协定》并发表联合声明。 根据《框架协定》，双方同意围绕具体议题开展灵活务实的谈判，商签制度性安排，进一步扩大双边贸易，并支持巴布亚新几内亚吸引投资，加快实现工业化和农业现代化，深度参与全球产业链供应链合作。双方将尽快启动后续模块谈判，以期达成互利共赢成果。(央视新闻客户端)
 
 ## 正文
 
-发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
+记者从商务部了解到，5月21日，中国与巴布亚新几内亚签署《提升经济伙伴关系框架协定》并发表联合声明。
+
+根据《框架协定》，双方同意围绕具体议题开展灵活务实的谈判，商签制度性安排，进一步扩大双边贸易，并支持巴布亚新几内亚吸引投资，加快实现工业化和农业现代化，深度参与全球产业链供应链合作。
+
+双方将尽快启动后续模块谈判，以期达成互利共赢成果。
+
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 07:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 07:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 07:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 07:27 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 07:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 07:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 07:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 07:15 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 07:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 07:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 07:46 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 07:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 07:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 07:33 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 07:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 07:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:18 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 07:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 07:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 07:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/59111606.shtml)
-- 2026-06-30 07:40 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/9672561832.shtml)
-- 2026-06-30 07:39 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/6124182.shtml)
-- 2026-06-30 07:29 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/4800877932.shtml)
-- 2026-06-30 07:13 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/0362926.shtml)
-- 2026-06-30 07:30 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/218502.shtml)
-- 2026-06-30 07:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/227829271.shtml)
-- 2026-06-30 07:17 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/1762483.shtml)
-- 2026-06-30 07:15 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/947228485766.shtml)
-- 2026-06-30 07:14 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/550968.shtml)
-- 2026-06-30 07:21 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/53785.shtml)
-- 2026-06-30 07:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/3944257677.shtml)
-- 2026-06-30 07:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/644110398179.shtml)
-- 2026-06-30 07:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/739603.shtml)
-- 2026-06-30 07:24 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/472622482910.shtml)
+- 2026-06-30 07:47 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/099550934313.shtml)
+- 2026-06-30 07:27 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/66973601793.shtml)
+- 2026-06-30 07:46 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/317597030258.shtml)
+- 2026-06-30 07:20 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/09440799680.shtml)
+- 2026-06-30 07:46 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/41199435186.shtml)
+- 2026-06-30 07:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/18512200998.shtml)
+- 2026-06-30 07:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/93453192.shtml)
+- 2026-06-30 07:41 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/941136.shtml)
+- 2026-06-30 07:37 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/54005560681.shtml)
+- 2026-06-30 07:19 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/95636423296.shtml)
+- 2026-06-30 07:22 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/02002503.shtml)
+- 2026-06-30 07:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/51117561.shtml)
+- 2026-06-30 07:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/70783.shtml)
+- 2026-06-30 07:26 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/751500120397.shtml)
+- 2026-06-30 07:26 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/786783.shtml)

@@ -1,61 +1,56 @@
-# 市场监管总局电子证照核验试点剑指“幽灵外卖”
+# 四川成都：公园里长出“巨蛋” “智能气膜球场”将建成投用
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 近期，市场监管总局对7家电商平台“幽灵外卖”系列案作出行政处罚。2026年6月16日，市场监管总局召开2026年二季度例行新闻发布会，总局新闻发言人王秋苹介绍，针对无证假门店乱象，5月在上海启动电子证照核验试点，严查线上虚假门店。 “这项试点是市场监管总局以数字化手段破解监管难题的一项重要创新。” 王秋苹介绍，它主要针对的就是
+“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？最
 
 ## 正文
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 近期，市场监管总局对7家电商平台“幽灵外卖”系列案作出行政处罚。
+“手搓经济”火热，AI真的让创业变容易了吗？
 
-2026年6月16日，市场监管总局召开2026年二季度例行新闻发布会，总局新闻发言人王秋苹介绍，针对无证假门店乱象，5月在上海启动电子证照核验试点，严查线上虚假门店。
+618大战，为何先从手机降价开始？
 
-“这项试点是市场监管总局以数字化手段破解监管难题的一项重要创新。
+埃及胡夫金字塔如何抗震？
 
-” 王秋苹介绍，它主要针对的就是“幽灵外卖”等乱象，一些不法商户利用伪造、套用证照或虚构经营地址等手段违法入网，而部分平台审核把关不严，导致网上出现“假证照、假地址、假门店”。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-以“幽灵外卖”为例，他们弄虚作假，查无实体，给食品安全带来极大风险隐患，严重扰乱市场秩序。
+你的股票和黄金，后市怎么走？
 
-王秋苹介绍，试点工作的核心，正是依托全国统一、权威可信的电子营业执照系统，推动入驻资质审核全流程数字化闭环管理。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-电子营业执照在其中扮演了“信任基石”和“技术抓手”的关键角色。
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
 
-具体体现在三个“真”上：一是有效核验“真人”，从源头杜绝冒用。
+最高法案例“划重点”黄金，再跌也不能买了？
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 07:17 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 07:24 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:35 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 07:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 07:34 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 07:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 07:31 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 07:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 07:29 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 07:14 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 07:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:14 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 07:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:27 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 07:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 07:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 07:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 07:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 07:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 07:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 07:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 07:42 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 07:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/5377271.shtml)
-- 2026-06-30 07:20 - [三星投资计划](http://www.share.minike.top/Article/details/76153.shtml)
-- 2026-06-30 07:38 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/971965696.shtml)
-- 2026-06-30 07:40 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/98666976630.shtml)
-- 2026-06-30 07:17 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/6152463.shtml)
-- 2026-06-30 07:40 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/777073605.shtml)
-- 2026-06-30 07:39 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/27689473.shtml)
-- 2026-06-30 07:33 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/578882093.shtml)
-- 2026-06-30 07:24 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/769765917127.shtml)
-- 2026-06-30 07:15 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/936462938.shtml)
-- 2026-06-30 07:17 - [世界杯](http://www.share.minike.top/Article/details/277607.shtml)
-- 2026-06-30 07:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/43860198904.shtml)
-- 2026-06-30 07:20 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/93246647.shtml)
-- 2026-06-30 07:14 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/588873.shtml)
-- 2026-06-30 07:16 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/3044547665.shtml)
+- 2026-06-30 07:27 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/79820205005.shtml)
+- 2026-06-30 07:36 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/63703904862.shtml)
+- 2026-06-30 07:35 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/072075.shtml)
+- 2026-06-30 07:43 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/78903330.shtml)
+- 2026-06-30 07:20 - [美人鱼](https://www.blog.minike.top/Article/details/681926199.shtml)
+- 2026-06-30 07:42 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/51267380809.shtml)
+- 2026-06-30 07:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/24332.shtml)
+- 2026-06-30 07:41 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/94257037107.shtml)
+- 2026-06-30 07:24 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/932684690822.shtml)
+- 2026-06-30 07:41 - [德国 传控](http://www.share.kurohicncr.top/Article/details/945395.shtml)
+- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/12983837804.shtml)
+- 2026-06-30 07:34 - [内马尔替补](https://www.blog.minike.top/Article/details/89527.shtml)
+- 2026-06-30 07:30 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/439733.shtml)
+- 2026-06-30 07:34 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/28599650599.shtml)
+- 2026-06-30 07:42 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/9900375.shtml)

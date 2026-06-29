@@ -1,45 +1,57 @@
-# 上海：苏州河城市龙舟邀请赛举行
+# 院士专家齐聚广州南沙共商打造“钢筋铁骨”
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
+中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。 据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。 开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。殷瑞钰在贺信中高度肯定了本
 
 ## 正文
 
-发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
+中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。
+
+大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。
+
+据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。
+
+开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。
+
+殷瑞钰在贺信中高度肯定了本次大会的重要意义，强调要以科技创新引领钢铁行业高端化、绿色化、智能化发展，将冶金流程学理念融入低碳实践，统筹推进氢冶金、电炉短流程等多元低碳路径探索。
+
+本次大会邀请多位院士、行业专家及企业代表作主会场特邀报告，报告内容涵盖工业化后期先进钢铁材料发展、人工智能加速酸性电解水催化剂研发、钢铁行业形势分析与低碳进展、湛江钢铁绿色低碳发展实践、冶金智能化技术创新等多个热点领域，既有前沿理论探索，又有工程实践总结，为参会人员带来了一场精彩纷呈的学术与产业盛宴。
+
+大会现场，《氢基竖炉—电炉紧凑型钢铁流程冶金》新书发布，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌，二者将进一步推动低碳冶金技术成果传播与落地，凝聚起先进金属材料全行业的智慧与力量，为行业高质量发展注入新动能。
+
+会议期间，与会嘉宾围绕低碳冶金技术创新、先进金属材料应用、产学研用协同攻关等主题发表见解。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:30 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 07:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 07:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 07:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 07:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 07:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 07:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 07:30 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 07:21 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 07:38 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 07:41 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 07:20 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 07:32 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 07:43 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 07:24 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 07:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 07:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 07:40 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 07:26 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 07:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 07:25 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/65514931.shtml)
-- 2026-06-30 07:36 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/90502.shtml)
-- 2026-06-30 07:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/23366115931.shtml)
-- 2026-06-30 07:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/283050.shtml)
-- 2026-06-30 07:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/914840717217.shtml)
-- 2026-06-30 07:38 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/24143183.shtml)
-- 2026-06-30 07:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/7978020.shtml)
-- 2026-06-30 07:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/83637489.shtml)
-- 2026-06-30 07:32 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/0495315.shtml)
-- 2026-06-30 07:12 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/819984784027.shtml)
-- 2026-06-30 07:30 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7856990.shtml)
-- 2026-06-30 07:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/50578505674.shtml)
-- 2026-06-30 07:12 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/806457698276.shtml)
-- 2026-06-30 07:24 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/0558561224.shtml)
-- 2026-06-30 07:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7906243.shtml)
+- 2026-06-30 07:46 - [巴西2比1日本](http://www.share.minike.top/Article/details/2556394.shtml)
+- 2026-06-30 07:24 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/60340330.shtml)
+- 2026-06-30 07:27 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/884119313.shtml)
+- 2026-06-30 07:28 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/0166200963.shtml)
+- 2026-06-30 07:23 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/710083.shtml)
+- 2026-06-30 07:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/01931033.shtml)
+- 2026-06-30 07:35 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/3843221.shtml)
+- 2026-06-30 07:37 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/53521.shtml)
+- 2026-06-30 07:46 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/35754674.shtml)
+- 2026-06-30 07:35 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/342080993668.shtml)
+- 2026-06-30 07:19 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/082105.shtml)
+- 2026-06-30 07:19 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/433913090823.shtml)
+- 2026-06-30 07:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/37490510750.shtml)
+- 2026-06-30 07:19 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/14432989.shtml)
+- 2026-06-30 07:37 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/715560262735.shtml)

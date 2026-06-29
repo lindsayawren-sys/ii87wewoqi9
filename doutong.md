@@ -1,56 +1,60 @@
-# 印度5月份商品贸易逆差降至282.1亿美元
+# 文博会观察：首设APEC经济体展区 共拓文化贸易新蓝海
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-印度政府15日公布的官方数据显示，受全球高能源价格推动石油产品出口增长影响，印度5月份商品贸易逆差小幅收窄至282.1亿美元。该数据略低于此前市场普遍预期。 数据显示，印度5月份商品出口额由上月的435.6亿美元升至452亿美元；商品进口额由上月的71.94亿美元（此前曾创下六个月新高）升至734.1亿美元。尽管印度的整体进口成本维持高位，但石油出口的增长部分抵消了进口额的上升
+中新社深圳5月23日电 (记者 张璐)在正于深圳举办的第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)上，亚太经合组织(APEC)经济体展区人流如织，富有地域特色的文创产品令人目不暇接。 本届文博会首次设立APEC经济体展区，聚焦亚太地区文化旅游发展成果，集中展示特色商品、非遗文创、地域美食等内容，打造亚太地区文化交流合作新窗口。 马来西亚展台负责人、中国马来西亚
 
 ## 正文
 
-印度政府15日公布的官方数据显示，受全球高能源价格推动石油产品出口增长影响，印度5月份商品贸易逆差小幅收窄至282.1亿美元。
+中新社深圳5月23日电 (记者 张璐)在正于深圳举办的第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)上，亚太经合组织(APEC)经济体展区人流如织，富有地域特色的文创产品令人目不暇接。
 
-该数据略低于此前市场普遍预期。
+本届文博会首次设立APEC经济体展区，聚焦亚太地区文化旅游发展成果，集中展示特色商品、非遗文创、地域美食等内容，打造亚太地区文化交流合作新窗口。
 
-数据显示，印度5月份商品出口额由上月的435.6亿美元升至452亿美元；商品进口额由上月的71.94亿美元（此前曾创下六个月新高）升至734.1亿美元。
+马来西亚展台负责人、中国马来西亚商会广东办事处行政经理叶瑞燕接受中新社采访时说：“这次带来了锡制摆件、非遗手工艺品等马来西亚特色产品，受到观众的青睐。
 
-尽管印度的整体进口成本维持高位，但石油出口的增长部分抵消了进口额的上升，使当月商品贸易逆差额低于路透社此前调查中经济学家预期的287.2亿美元，也低于上月修正后的283.8亿美元。
+” 叶瑞燕表示，希望通过文博会让更多海内外观众了解马来西亚的文化产品。
 
-在服务贸易方面，印度政府估算，5月份服务出口额为367.6亿美元，服务进口额为190.6亿美元。
+文博会不仅能向观众推介马来西亚的特色产品，还能借此机会与有意开拓马来西亚市场的参展商和采购商建立联系，为马中两国搭建交流合作的桥梁。
 
-两项相抵，当月服务贸易顺差额约为177亿美元。
+印度尼西亚展商、印尼第四代华裔黄阳鸿带来了叁岩酱、巴迪克蜡染工艺品等特色产品。
 
-责任编辑：龙运翔
+“巴迪克是印尼的古法蜡染技艺，被视为印度尼西亚民族身份的象征。
+
+2009年，巴迪克被联合国教科文组织列入人类非物质文化遗产代表作名录。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 07:37 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 07:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 07:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:29 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 07:36 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 07:24 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 07:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 07:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 07:31 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 07:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 07:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 07:18 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 07:25 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 07:45 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 07:22 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 07:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 07:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 07:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 07:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 07:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 07:41 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 07:29 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 07:36 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 07:40 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/216061.shtml)
-- 2026-06-30 07:38 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/047431867.shtml)
-- 2026-06-30 07:23 - [《贺子珍》](http://www.blog.minike.top/Article/details/32926559.shtml)
-- 2026-06-30 07:31 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/659474888.shtml)
-- 2026-06-30 07:37 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/52042537.shtml)
-- 2026-06-30 07:32 - [日本进球](http://www.blog.kurohicncr.top/Article/details/90927395.shtml)
-- 2026-06-30 07:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/48973.shtml)
-- 2026-06-30 07:34 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/746189733.shtml)
-- 2026-06-30 07:25 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/157640788.shtml)
-- 2026-06-30 07:38 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/081819276714.shtml)
-- 2026-06-30 07:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/8852766599.shtml)
-- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/9155228516.shtml)
-- 2026-06-30 07:25 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/3903685028.shtml)
-- 2026-06-30 07:14 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/17865.shtml)
-- 2026-06-30 07:26 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/7459383.shtml)
+- 2026-06-30 07:39 - [毒液2](https://www.blog.minike.top/Article/details/15837642461.shtml)
+- 2026-06-30 07:26 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/548817.shtml)
+- 2026-06-30 07:44 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/983472097.shtml)
+- 2026-06-30 07:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/618823.shtml)
+- 2026-06-30 07:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/329635.shtml)
+- 2026-06-30 07:22 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/1883341442.shtml)
+- 2026-06-30 07:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/33775715.shtml)
+- 2026-06-30 07:29 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/94897407886.shtml)
+- 2026-06-30 07:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/567707597667.shtml)
+- 2026-06-30 07:31 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/414653971647.shtml)
+- 2026-06-30 07:37 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/876179798803.shtml)
+- 2026-06-30 07:39 - [日本淘汰](http://www.blog.minike.top/Article/details/76422134.shtml)
+- 2026-06-30 07:32 - [天道](http://www.share.kurohicncr.top/Article/details/835795.shtml)
+- 2026-06-30 07:45 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1532189368.shtml)
+- 2026-06-30 07:30 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/678517.shtml)

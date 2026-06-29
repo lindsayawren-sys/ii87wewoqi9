@@ -1,59 +1,56 @@
-# 沃伦参议员致信特朗普，质询政府是否计划上调社保法定退休年龄
+# 算力告急，Anthropic拟租用微软Maia芯片缓解AI芯荒
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。 周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。 沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推
+由于旗下大模型Claude及AI编程工具Claude Code需求激增，Anthropic正面临严峻的算力短缺。为寻求新的供应渠道，该公司正与微软谈判，计划租用其自主研发的Maia 200 AI芯片服务器。 这一合作若能达成，将标志着微软的自研芯片业务迎来其最具分量的外部客户，有望打破其在专用AI芯片供应上落后于谷歌和亚马逊的竞争劣势。目前，Anthropic已与AWS和谷歌达
 
 ## 正文
 
-核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。
+由于旗下大模型Claude及AI编程工具Claude Code需求激增，Anthropic正面临严峻的算力短缺。
 
-周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。
+为寻求新的供应渠道，该公司正与微软谈判，计划租用其自主研发的Maia 200 AI芯片服务器。
 
-报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。
+这一合作若能达成，将标志着微软的自研芯片业务迎来其最具分量的外部客户，有望打破其在专用AI芯片供应上落后于谷歌和亚马逊的竞争劣势。
 
-沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推动社保私有化或是削减养老金福利。
+目前，Anthropic已与AWS和谷歌达成类似协议，采用其自研芯片。
 
-如今部分国会共和党议员提出，上调退休年龄、对养老金实施收入核查是解决社保资金缺口的‘良方’。
+Anthropic首席执行官Dario Amodei在本月初已公开表示公司在算力方面遇到困难。
 
-” 多位专家表示，调整社保领取年龄门槛，本质等同于削减退休人员福利。
+此前，为解燃眉之急，Anthropic甚至已与SpaceX达成协议，租用其Colossus 1超级计算机的全部算力。
 
-白宫暂未就沃伦的信函对外作出回应。
+微软于今年1月发布了第二代Maia 200芯片。
 
-上周有媒体问及本届政府社保改革规划，包括是否考虑上调退休年龄时，白宫发言人莉兹・休斯顿通过邮件表态：“特朗普总统将始终维护并强化社保体系。
+据CEO萨提亚·纳德拉介绍，与现有芯片相比，Maia 200每美元可实现的Token处理效率提升了超过30%。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 07:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 07:36 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 07:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 07:13 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 07:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 07:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 07:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 07:17 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 07:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 07:36 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 07:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 07:12 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 07:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 07:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:29 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:21 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 07:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 07:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 07:42 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 07:41 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 07:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:34 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:41 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/8100569.shtml)
-- 2026-06-30 07:30 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/706977312791.shtml)
-- 2026-06-30 07:37 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/1032484592.shtml)
-- 2026-06-30 07:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/49760.shtml)
-- 2026-06-30 07:41 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/205583467.shtml)
-- 2026-06-30 07:18 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/786510812648.shtml)
-- 2026-06-30 07:32 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/959291.shtml)
-- 2026-06-30 07:22 - [森保一 保守](http://www.blog.minike.top/Article/details/091121018355.shtml)
-- 2026-06-30 07:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/063255.shtml)
-- 2026-06-30 07:28 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/94225871.shtml)
-- 2026-06-30 07:18 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/07220187.shtml)
-- 2026-06-30 07:16 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/7865549.shtml)
-- 2026-06-30 07:29 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/98740081666.shtml)
-- 2026-06-30 07:18 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/17827534255.shtml)
-- 2026-06-30 07:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/691790.shtml)
+- 2026-06-30 07:32 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/1516159.shtml)
+- 2026-06-30 07:40 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/3645610.shtml)
+- 2026-06-30 07:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/34305802916.shtml)
+- 2026-06-30 07:37 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/805558.shtml)
+- 2026-06-30 07:39 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/37987.shtml)
+- 2026-06-30 07:40 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/0394657729.shtml)
+- 2026-06-30 07:29 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/709816141751.shtml)
+- 2026-06-30 07:21 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/0733202.shtml)
+- 2026-06-30 07:35 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/008355059093.shtml)
+- 2026-06-30 07:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/498383113963.shtml)
+- 2026-06-30 07:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/394824749.shtml)
+- 2026-06-30 07:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/948835619565.shtml)
+- 2026-06-30 07:38 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/5669476.shtml)
+- 2026-06-30 07:38 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/008947.shtml)
+- 2026-06-30 07:41 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/2660923.shtml)

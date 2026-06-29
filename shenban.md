@@ -1,60 +1,59 @@
-# 红筹回A再添一员，映恩生物冲刺科创板，“H+A”双平台布局加码创新研发
+# 国产算力芯片，重磅利好！规模最大港股通信息技术ETF华宝（159131）涨超3%，联想集团飙涨逾14%
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月12日，作为国内ADC（抗体偶联药物）领域的全球领跑者，映恩生物科创板IPO申请获上交所受理，拟募资41亿元用于新药研发项目。 这家注册于开曼群岛的红筹企业于2025年4月15日登陆港交所主板（股票代码：9606.HK），吸引BioNTech、富国基金、易方达基金等15家海内外知名机构担任基石投资者，国
+5月22日早盘，港股硬科技强势领跑全市场，联想集团、滴普科技、联想控股、天岳先进等5股涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）开盘冲高逾3%，实时成交额1.39亿元。 消息面上，盘中传来一则国产芯片重磅利好。5月22日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，人工智能领域核心技术和应用需求都呈现快速增长态势，我们
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月22日早盘，港股硬科技强势领跑全市场，联想集团、滴普科技、联想控股、天岳先进等5股涨超10%。
 
-6月12日，作为国内ADC（抗体偶联药物）领域的全球领跑者，映恩生物科创板IPO申请获上交所受理，拟募资41亿元用于新药研发项目。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）开盘冲高逾3%，实时成交额1.39亿元。
 
-这家注册于开曼群岛的红筹企业于2025年4月15日登陆港交所主板（股票代码：9606.HK），吸引BioNTech、富国基金、易方达基金等15家海内外知名机构担任基石投资者，国际配售超额认购倍数亮眼，成为近年来港股18A板块备受关注的生物医药IPO。
+消息面上，盘中传来一则国产芯片重磅利好。
 
-此番冲刺科创板，是继华润新能源登陆深市主板、百济神州登陆科创板之后，优质红筹企业回归境内资本市场的又一典型案例，也是生物医药领域践行国家战略、激活创新动能的重要实践。
+5月22日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，人工智能领域核心技术和应用需求都呈现快速增长态势，我们始终坚持系统布局、分业施策、开放共享、安全可控，推动人工智能与经济社会各行业各领域广泛深度融合，指导国产大模型加大力度适配国产算力芯片，在保持快速发展的同时，确保自主可控、向善发展、行稳致远，让全体人民共享人工智能发展成果，这也是我国人工智能发展的一大突出特征。
 
-制度红利打通红筹回归通道 映恩生物的回A之路，深度契合我国资本市场对外开放与包容性提升的改革导向。
+国金证券表示，从AI产业链多家公司业绩超预期，谷歌TPU快速迭代，Anthropic营收爆发式增长，台积电用于AI芯片的先进制程加速扩产、CSP大厂长协抢锁存储产能及GPU租赁价格上涨的情况来看，AI短期、中期的需求都非常强劲。
 
-2018年以来，监管层明确允许符合条件的红筹企业通过IPO、存托凭证（CDR）等方式登陆A股，重点吸纳生物医药、高端装备制造等高新技术产业和战略新兴产业企业。
+看好AI覆铜板/PCB及核心算力硬件、半导体设备等。
 
-招股书显示，映恩生物适用《科创板上市规则》《国务院办公厅转发证监会关于开展创新企业境内发行股票或存托凭证试点若干意见的通知》以及《红筹企业境内上市相关安排》等文件中规定的已在境外上市的红筹企业，拥有自主研发、国际领先技术，科技创新能力较强，在同行业竞争中处于相对优势地位。
+自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅24.68%，同期恒生科技、港股通科技的涨幅分别为1.68%、0.69%，锐度和弹性显著领先。
 
-依托政策红利，映恩生物稳步推进回归进程：2025年10月，公司董事会决议启动科创板上市计划；2025年11月，完成上海证监局辅导备案，中信证券担任辅导机构；2026年4月，股东大会审议通过回A相关议案；2026年6月10日发布科创板上市通过上海监管局辅导验收公告；2026年6月12日，科创板IPO获上交所受理。
+支持T+0交易！
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 07:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 07:15 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 07:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 07:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 07:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 07:15 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 07:32 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 07:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 07:39 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 07:25 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 07:21 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 07:26 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 07:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 07:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 07:33 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 07:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 07:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 07:21 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 07:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 07:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 07:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 07:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:29 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 07:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/39396066317.shtml)
-- 2026-06-30 07:20 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2884994.shtml)
-- 2026-06-30 07:41 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/98553.shtml)
-- 2026-06-30 07:23 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/39002.shtml)
-- 2026-06-30 07:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/1470548.shtml)
-- 2026-06-30 07:33 - [一见倾心](http://www.share.kurohicncr.top/Article/details/4595574.shtml)
-- 2026-06-30 07:27 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/553069.shtml)
-- 2026-06-30 07:12 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/208920.shtml)
-- 2026-06-30 07:18 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/0707407.shtml)
-- 2026-06-30 07:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/08278060.shtml)
-- 2026-06-30 07:34 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/4221067802.shtml)
-- 2026-06-30 07:27 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/409654.shtml)
-- 2026-06-30 07:21 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/29329.shtml)
-- 2026-06-30 07:20 - [沙丘](https://www.blog.kurohicncr.top/Article/details/641395.shtml)
-- 2026-06-30 07:19 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/961127135705.shtml)
+- 2026-06-30 07:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2449426.shtml)
+- 2026-06-30 07:20 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/00143537.shtml)
+- 2026-06-30 07:28 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/8194868454.shtml)
+- 2026-06-30 07:36 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/894055246.shtml)
+- 2026-06-30 07:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/9178097554.shtml)
+- 2026-06-30 07:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/58618.shtml)
+- 2026-06-30 07:46 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/1478378.shtml)
+- 2026-06-30 07:23 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/55868923134.shtml)
+- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/820826866510.shtml)
+- 2026-06-30 07:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/116831.shtml)
+- 2026-06-30 07:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/1396776264.shtml)
+- 2026-06-30 07:43 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/56978673.shtml)
+- 2026-06-30 07:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/62367129.shtml)
+- 2026-06-30 07:24 - [日本进球](http://www.blog.kurohicncr.top/Article/details/1937611742.shtml)
+- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/136505484.shtml)

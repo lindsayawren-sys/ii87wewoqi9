@@ -1,58 +1,49 @@
-# Anthropic与特朗普官员寻求达成协议 恢复对其强大模型的访问权限
+# 开盘|国内期货主力合约跌多涨少，合成橡胶跌超3%
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-据报道，Anthropic 公司与特朗普政府官员之间的谈判周一仍在继续，但未能就解决安全担忧达成协议，这些担忧促使白宫限制对该人工智能公司最新模型的访问，双方都迫切希望找到解决方案。 上周五，在特朗普政府表示外国政府、企业及许多个人被禁止访问Fable 5模型后，Anthropic 为遵守新规关闭了所有用户的访问权限。该公司对同样受限制的更强模型 Mythos 5 也采取了相同
+2026年5月22日，早盘开盘，国内期货主力合约跌多涨少，合成橡胶跌超3%，焦煤跌近3%，多晶硅、棕榈油、瓶片跌超2%。涨幅方面，集运欧线涨超4%，生猪涨超1%。 责任编辑：赵思远
 
 ## 正文
 
-据报道，Anthropic 公司与特朗普政府官员之间的谈判周一仍在继续，但未能就解决安全担忧达成协议，这些担忧促使白宫限制对该人工智能公司最新模型的访问，双方都迫切希望找到解决方案。
+2026年5月22日，早盘开盘，国内期货主力合约跌多涨少，合成橡胶跌超3%，焦煤跌近3%，多晶硅、棕榈油、瓶片跌超2%。
 
-上周五，在特朗普政府表示外国政府、企业及许多个人被禁止访问Fable 5模型后，Anthropic 为遵守新规关闭了所有用户的访问权限。
+涨幅方面，集运欧线涨超4%，生猪涨超1%。
 
-该公司对同样受限制的更强模型 Mythos 5 也采取了相同措施。
-
-据知情人士透露，周一关于 Fable 的最新谈判由美国商务部和美国国家网络总监肖恩·凯恩克罗斯主导，Anthropic 的高级技术人员也参与了讨论。
-
-“自政府首次接触以来，我们已与其举行了多次线上会议。
-
-双方正迅速推进以解决此事，”Anthropic 一位发言人在公司自上周五以来的首次公开评论中表示，“这是我们持续与政府合作、共同保护美国关键基础设施并维持美国在网络防御领域领先地位的一部分。
-
-”据知情人士透露，一些政府官员表示，该决议应包含Anthropic方面承认其在推出Fable以及与白宫沟通方面本可做得更好的内容，知情人士透露。
-
-Anthropic周五表示，其所获悉的安全漏洞看似较为简单，并称在发布该模型发布前已与政府进行了广泛合作。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 07:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 07:21 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 07:14 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 07:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 07:15 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 07:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:38 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 07:17 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 07:29 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 07:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 07:36 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 07:47 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 07:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 07:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 07:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 07:26 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 07:29 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 07:34 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 07:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 07:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 07:40 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 07:42 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 07:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/26546.shtml)
-- 2026-06-30 07:26 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/414133.shtml)
-- 2026-06-30 07:16 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/69039.shtml)
-- 2026-06-30 07:35 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/19912283.shtml)
-- 2026-06-30 07:29 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/1709009.shtml)
-- 2026-06-30 07:31 - [沙丘](http://www.share.kurohicncr.top/Article/details/012181748247.shtml)
-- 2026-06-30 07:13 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/331664024979.shtml)
-- 2026-06-30 07:24 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/8129507276.shtml)
-- 2026-06-30 07:21 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/86956035.shtml)
-- 2026-06-30 07:39 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/0556360635.shtml)
-- 2026-06-30 07:26 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/407194997.shtml)
-- 2026-06-30 07:12 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/2743111194.shtml)
-- 2026-06-30 07:34 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/761928960.shtml)
-- 2026-06-30 07:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/2441556292.shtml)
-- 2026-06-30 07:35 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/4811210476.shtml)
+- 2026-06-30 07:19 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/162880593.shtml)
+- 2026-06-30 07:38 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/20086.shtml)
+- 2026-06-30 07:28 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/6083412.shtml)
+- 2026-06-30 07:27 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/55976874980.shtml)
+- 2026-06-30 07:28 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/60660590.shtml)
+- 2026-06-30 07:41 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/449118935349.shtml)
+- 2026-06-30 07:33 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/34066.shtml)
+- 2026-06-30 07:43 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7308801.shtml)
+- 2026-06-30 07:29 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/925393001471.shtml)
+- 2026-06-30 07:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/000585034.shtml)
+- 2026-06-30 07:19 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/94382574902.shtml)
+- 2026-06-30 07:39 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/205317.shtml)
+- 2026-06-30 07:30 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9766453341.shtml)
+- 2026-06-30 07:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/628570432.shtml)
+- 2026-06-30 07:27 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/07029344.shtml)

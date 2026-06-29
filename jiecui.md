@@ -1,58 +1,60 @@
-# 【纸浆半年报】熊市继续探底
+# 行云科技借算力租赁局引爆股价？实控人王维不诚信是否埋公司治理暗雷
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-大地期货研究院 观点小结 下半年全球或继续维持熊市格局，国内过剩压力高于海外浆厂。 今年虽无大型项目投产，但全球主要需求区上半年也都没有正增长，美伊冲突爆发进一步限制了需求预期，浆厂通过减产压开工来缓解累库压力，从结果看比较成功。 国内累库程度明显高于海外，今年国产替代的量级足够补充下游的刚需增幅，不需要进口放量增加供应，同时国内针叶的高港库矛盾难以解决，下半年国产浆也还有部分
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：行云科技通过改名、算力订单、股权激励等一系列组合拳下，公司今年股价暴涨近五倍。然而，在公司破产重整后主业或仍在泥潭，其巨额算力订单是否具备可行性或有待观察。此外，实控人王维不诚信是否可能给公司“拖累”？行云科技的公司治理质量或有待观察。 近期，三重叙事引爆算力租赁市场。 其
 
 ## 正文
 
-大地期货研究院 观点小结 下半年全球或继续维持熊市格局，国内过剩压力高于海外浆厂。
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：行云科技通过改名、算力订单、股权激励等一系列组合拳下，公司今年股价暴涨近五倍。
 
-今年虽无大型项目投产，但全球主要需求区上半年也都没有正增长，美伊冲突爆发进一步限制了需求预期，浆厂通过减产压开工来缓解累库压力，从结果看比较成功。
+然而，在公司破产重整后主业或仍在泥潭，其巨额算力订单是否具备可行性或有待观察。
 
-国内累库程度明显高于海外，今年国产替代的量级足够补充下游的刚需增幅，不需要进口放量增加供应，同时国内针叶的高港库矛盾难以解决，下半年国产浆也还有部分投产项目。
+此外，实控人王维不诚信是否可能给公司“拖累”？
 
-整体判断，下半年的全球平衡改善，从需求端还看不到确定性机会，还是要等待浆厂在亏损压力下出清产能。
+行云科技的公司治理质量或有待观察。
 
-盘面交易思路： 底部估值：海外浆厂边际成本线已破，下方关注仓单价值，在阔叶浆的强支撑前提下，按仓单结构加权平均算出盘面底部或在4600元/吨附近。
+近期，三重叙事引爆算力租赁市场。
 
-交易节奏：三季度维持熊市探底逻辑，09合约逐渐向仓单实际价值定价，震荡偏空看待，8月关注金九银十旺季题材，四季度若进入底部震荡局面，再考虑做多性价比。
+其一，供需失衡下的涨价预期。
 
-价差思路：1．针阔分化进一步刺激价差走缩，阔叶正套尚未结束，同时低价布针等针叶现货也可考虑正套。
+国家数据局数据显示，截至2026年3月，我国日均Token调用量已突破140万亿，较两年前增长超千倍。
 
-2．月差方面，近月月差关注反套机会，跨年月差关注新老货品牌价差收窄带来的正套机会，但要注意估值风报比。
+与此同时，高端GPU供应链持续紧张，相关芯片交付周期延长至6-7个月，导致算力租赁价格大幅上涨，供需格局呈现显著的卖方市场特征。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:30 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:41 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 07:31 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 07:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 07:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 07:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 07:15 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 07:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 07:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 07:18 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 07:38 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:35 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 07:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:29 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 07:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 07:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 07:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 07:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 07:39 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 07:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 07:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 07:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 07:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/39830280.shtml)
-- 2026-06-30 07:21 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/23810703.shtml)
-- 2026-06-30 07:15 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/097338.shtml)
-- 2026-06-30 07:16 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/1974055.shtml)
-- 2026-06-30 07:38 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/8260862.shtml)
-- 2026-06-30 07:22 - [我和我的家乡](https://www.share.minike.top/Article/details/78216685.shtml)
-- 2026-06-30 07:39 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/38261714658.shtml)
-- 2026-06-30 07:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/09727.shtml)
-- 2026-06-30 07:28 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/238981508802.shtml)
-- 2026-06-30 07:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/82787637.shtml)
-- 2026-06-30 07:17 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/7243349.shtml)
-- 2026-06-30 07:21 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/78700427118.shtml)
-- 2026-06-30 07:22 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/34552.shtml)
-- 2026-06-30 07:32 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/09957125870.shtml)
-- 2026-06-30 07:33 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/0861746286.shtml)
+- 2026-06-30 07:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/1412098.shtml)
+- 2026-06-30 07:36 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/9617460999.shtml)
+- 2026-06-30 07:31 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/63794.shtml)
+- 2026-06-30 07:45 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/13115.shtml)
+- 2026-06-30 07:33 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/560540622756.shtml)
+- 2026-06-30 07:46 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/363780.shtml)
+- 2026-06-30 07:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/487196365.shtml)
+- 2026-06-30 07:26 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/236433.shtml)
+- 2026-06-30 07:47 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/283760.shtml)
+- 2026-06-30 07:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/65312229894.shtml)
+- 2026-06-30 07:19 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/253400583.shtml)
+- 2026-06-30 07:19 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/90241993306.shtml)
+- 2026-06-30 07:24 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/14869.shtml)
+- 2026-06-30 07:28 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/482083833.shtml)
+- 2026-06-30 07:37 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/7359078.shtml)

@@ -1,57 +1,56 @@
-# IMF总裁：能源供应恢复需要时间 仍对中东战争的影响“高度警惕”
+# 亚太工商界伙伴关系对话会暨2026苏州全球招商大会举行
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-国际货币基金组织（IMF）表示，尽管美国和伊朗宣布达成协议重新开放霍尔木兹海峡，但能源供应恢复需要时间，因此该组织仍对中东战争给全球经济带来的影响保持“高度警惕”。 国际货币基金组织总裁格奥尔基耶娃在周一发表的一篇博客文章中写道：“全球经济迄今经受住了冲击，这令人安心。但不能自满。”她表示，“大宗商品价格、通胀及通胀预期，以及金融状况都受到了影响”，但“尚未达到显示全球经济放缓
+中新网苏州5月22日电(记者 钟升)APEC第三十二届贸易部长会议即将在苏州召开之际，亚太工商界伙伴关系对话会暨2026苏州全球招商大会21日在金鸡湖国际会议中心举行，聚焦“构建互利共赢的亚太工商界伙伴关系”主题，共享创新发展新机遇，共绘经贸合作新蓝图。商务部国际贸易谈判代表兼副部长李成钢说，当前，亚太和全球经贸体系正面临深刻改变，挑战和机遇并存。上个月，世界银行发布的地区经济
 
 ## 正文
 
-国际货币基金组织（IMF）表示，尽管美国和伊朗宣布达成协议重新开放霍尔木兹海峡，但能源供应恢复需要时间，因此该组织仍对中东战争给全球经济带来的影响保持“高度警惕”。
+中新网苏州5月22日电(记者 钟升)APEC第三十二届贸易部长会议即将在苏州召开之际，亚太工商界伙伴关系对话会暨2026苏州全球招商大会21日在金鸡湖国际会议中心举行，聚焦“构建互利共赢的亚太工商界伙伴关系”主题，共享创新发展新机遇，共绘经贸合作新蓝图。
 
-国际货币基金组织总裁格奥尔基耶娃在周一发表的一篇博客文章中写道：“全球经济迄今经受住了冲击，这令人安心。
+商务部国际贸易谈判代表兼副部长李成钢说，当前，亚太和全球经贸体系正面临深刻改变，挑战和机遇并存。
 
-但不能自满。
+上个月，世界银行发布的地区经济报告指出，人工智能等高科技产业正面临新的发展机遇。
 
-”她表示，“大宗商品价格、通胀及通胀预期，以及金融状况都受到了影响”，但“尚未达到显示全球经济放缓的程度”。
+一直以来，全球工商界深耕中国市场，实现了互利共赢。
 
-在美国和以色列三个多月前联手袭击伊朗引发战争之后，美国和伊朗称已达成一项临时和平协议，将重新开放霍尔木兹海峡。
+李成钢表示，中国市场潜力大，开放水平不断提高，技术创新发展快，将长期成为全球企业投资兴业的沃土。
 
-该协议的完整细节尚不清楚。
+APEC贸易部长会议即将在苏州召开，期待各方围绕推进区域经济一体化、支持多边贸易体制、加强数字合作和发展绿色经济等议题开展深入讨论。
 
-格奥尔基耶娃表示，对全球经济而言，过去几个月能源短缺造成的影响，得到了技术进步的缓冲。
+他希望工商界代表充分发挥各自影响力，发出理性声音，采取切实行动，尊重市场规律，维护市场规则，携手维护多边贸易体制、全球产业链供应链稳定和开放合作的国际环境，共同书写亚太和全球繁荣发展的新篇章。
 
-她特别提到，对人工智能和数据中心的投资发挥了作用。
+江苏省委常委、苏州市委书记范波在主旨推介中说，苏州正突出“高科技创新和高质量发展”“历史文化传承”两个重点，奋力推进“十五五”发展各项任务。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 07:22 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 07:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 07:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 07:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:16 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 07:39 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 07:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 07:24 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 07:16 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 07:34 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 07:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 07:28 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 07:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 07:20 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 07:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 07:20 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 07:21 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 07:44 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 07:38 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 07:28 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/3532775.shtml)
-- 2026-06-30 07:32 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/874679.shtml)
-- 2026-06-30 07:30 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/29719.shtml)
-- 2026-06-30 07:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/2970441153.shtml)
-- 2026-06-30 07:31 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/58515229.shtml)
-- 2026-06-30 07:27 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/736973950887.shtml)
-- 2026-06-30 07:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/61439928.shtml)
-- 2026-06-30 07:12 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/07829294933.shtml)
-- 2026-06-30 07:28 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/0625009.shtml)
-- 2026-06-30 07:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/49330678.shtml)
-- 2026-06-30 07:15 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/189319704208.shtml)
-- 2026-06-30 07:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/5215703832.shtml)
-- 2026-06-30 07:31 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/1592208.shtml)
-- 2026-06-30 07:21 - [送你一朵小红花](http://www.blog.minike.top/Article/details/112726.shtml)
-- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/10295056.shtml)
+- 2026-06-30 07:38 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/911859489416.shtml)
+- 2026-06-30 07:24 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/90841.shtml)
+- 2026-06-30 07:32 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/305456.shtml)
+- 2026-06-30 07:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/9748678.shtml)
+- 2026-06-30 07:31 - [极限挑战第一季](http://www.blog.minike.top/Article/details/504066878376.shtml)
+- 2026-06-30 07:25 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/10805948.shtml)
+- 2026-06-30 07:43 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/254082882.shtml)
+- 2026-06-30 07:21 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/13652425775.shtml)
+- 2026-06-30 07:26 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/77171993087.shtml)
+- 2026-06-30 07:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/756865.shtml)
+- 2026-06-30 07:18 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/268486.shtml)
+- 2026-06-30 07:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/44417.shtml)
+- 2026-06-30 07:22 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/96539726.shtml)
+- 2026-06-30 07:32 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/31125.shtml)
+- 2026-06-30 07:20 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/24624.shtml)

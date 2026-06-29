@@ -1,60 +1,51 @@
-# 湖南“红背包”行动走进侗乡苗寨 夯实地质灾害群测群防体系
+# 以人为本、智能向善 《人工智能应用伦理安全指引1.0》发布
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月15日电(周昌琪)湖南省自然资源厅15日透露，第十届湖南省地质灾害防治宣传“红背包”行动于9日至12日先后在怀化市会同县、湘西土家族苗族自治州泸溪县实施。此次活动紧扣武陵山区临坡建房等地质灾害防控痛点，采用“流动宣传—定点科普—入校培训”三维一体科普体系，让地质灾害防治知识进村寨、入校园。两场活动累计覆盖群众、师生1400余人次。 活动期间，搭载科普设备的“红背包
+5月19日，在2026年中国网络文明大会人工智能赋能网络文明建设分论坛上，全国网络安全标准化技术委员会(以下简称“网安标委”)发布了《人工智能应用伦理安全指引1.0》(以下简称《指引》)。 为进一步引导人工智能应用坚持以人为本、智能向善，推动人工智能应用相关方正确认识和妥善应对应用活动中的伦理安全影响，促进人工智能应用在规范有序、安全可控的轨道上健康发展，《指引》给出了人工智能
 
 ## 正文
 
-中新网长沙6月15日电(周昌琪)湖南省自然资源厅15日透露，第十届湖南省地质灾害防治宣传“红背包”行动于9日至12日先后在怀化市会同县、湘西土家族苗族自治州泸溪县实施。
+5月19日，在2026年中国网络文明大会人工智能赋能网络文明建设分论坛上，全国网络安全标准化技术委员会(以下简称“网安标委”)发布了《人工智能应用伦理安全指引1.0》(以下简称《指引》)。
 
-此次活动紧扣武陵山区临坡建房等地质灾害防控痛点，采用“流动宣传—定点科普—入校培训”三维一体科普体系，让地质灾害防治知识进村寨、入校园。
+为进一步引导人工智能应用坚持以人为本、智能向善，推动人工智能应用相关方正确认识和妥善应对应用活动中的伦理安全影响，促进人工智能应用在规范有序、安全可控的轨道上健康发展，《指引》给出了人工智能应用伦理安全理念与原则，明确了人工智能应用开发、服务提供和应用使用等安全指引。
 
-两场活动累计覆盖群众、师生1400余人次。
+网安标委秘书处相关负责同志表示，《指引》的发布，正是对引导人工智能应用尊重人的主体地位、维护公平正义、保障合法权益、促进社会信任，推动人工智能技术始终朝着有益、安全、公平方向发展这一时代课题的积极回应，体现了人工智能治理坚持积极稳妥、开放包容、协同共治的实践导向，也体现了网络文明建设对人工智能时代技术向善、价值引领和秩序塑造的主动回应。
 
-活动期间，搭载科普设备的“红背包”流动宣传车深入村寨腹地，滚动播放“住上不住下、住前不住后”等朗朗上口的安全口诀，以及《挪床行动》情景剧、地质灾害防治花鼓戏等本土化科普视频，让专业内容听得懂、记得住、用得上。
-
-由地质专家与志愿者组成“移动宣讲队”分片包干，走进村寨广场、便民服务点等设置流动咨询台，面对面答疑解惑、手把手发放资料。
-
-同时，工作人员聚焦重点人群，主动上门为独居老人、临坡建房户、切坡修路农户自查实操教学，从屋后排水沟清理到山体裂缝识别，从简易监测方法到日常巡查要点，点对点补短板、实打实强能力，切实打通基层防灾科普“最后一米”。
-
-依托乡镇赶集日人流高峰，会同县金子岩侗族苗族乡与泸溪县部分乡镇同步搭建“红背包”科普铺，通过图文展板讲原理、实景模拟练反应、有奖答题激兴趣、互动体验促理解四类标准化互动形式，系统普及降雨预警、边坡滑移避让、山洪逃生等地质灾害核心避险技能，在轻松氛围中提升山区群众安全素养与应急本领。
-
-“红背包”进校园活动在会同县王家坪明德学校和泸溪县两所乡镇中小学同步推进。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 07:16 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 07:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 07:21 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 07:38 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 07:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 07:40 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 07:34 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 07:25 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 07:25 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 07:41 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 07:23 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 07:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 07:17 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 07:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 07:22 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 07:38 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 07:21 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 07:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 07:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 07:45 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 07:27 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 07:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 07:19 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 07:26 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 07:24 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 07:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/71435.shtml)
-- 2026-06-30 07:34 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/80073512486.shtml)
-- 2026-06-30 07:16 - [女子遭下药退赔偿拟追刑责](https://www.share.kurohicncr.top/Article/details/70301579960.shtml)
-- 2026-06-30 07:32 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/9240731.shtml)
-- 2026-06-30 07:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/62219483086.shtml)
-- 2026-06-30 07:28 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/431304567.shtml)
-- 2026-06-30 07:12 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/906509882765.shtml)
-- 2026-06-30 07:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/60639655206.shtml)
-- 2026-06-30 07:16 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/3215064.shtml)
-- 2026-06-30 07:12 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/09780417.shtml)
-- 2026-06-30 07:38 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/206136274.shtml)
-- 2026-06-30 07:41 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/127425.shtml)
-- 2026-06-30 07:38 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/10994871.shtml)
-- 2026-06-30 07:18 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/395359.shtml)
-- 2026-06-30 07:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/34156300672.shtml)
+- 2026-06-30 07:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/8144058.shtml)
+- 2026-06-30 07:32 - [日本淘汰](http://www.share.minike.top/Article/details/498888.shtml)
+- 2026-06-30 07:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/56983.shtml)
+- 2026-06-30 07:44 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/500515833850.shtml)
+- 2026-06-30 07:26 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/247444091193.shtml)
+- 2026-06-30 07:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/8603657254.shtml)
+- 2026-06-30 07:46 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/072517994.shtml)
+- 2026-06-30 07:22 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/36120207.shtml)
+- 2026-06-30 07:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/5488993.shtml)
+- 2026-06-30 07:37 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/593867765083.shtml)
+- 2026-06-30 07:39 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/5109823057.shtml)
+- 2026-06-30 07:46 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/8445799.shtml)
+- 2026-06-30 07:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/0886668906.shtml)
+- 2026-06-30 07:40 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/718111814.shtml)
+- 2026-06-30 07:18 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/06563870291.shtml)

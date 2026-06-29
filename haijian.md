@@ -1,58 +1,58 @@
-# 千里科技2倍溢价收购关联方资不抵债标的 关联交易额预计超200亿涨幅超80%
+# 乳企年报|7家乳制品公司陷入亏损 海融科技、三元股份、光明乳业净利率下滑最严重
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。 近日，千里科技高溢价收购关联资产引发关注。 公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波
+出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，乳企陷入营收、净利润双下滑的困境。 去年19 家上市乳制品公司中仅 8 家实现营收正增长，超半数企业营收同比下滑。9家公司净利润同比下滑，占比也接近一半。 从细分领域来看，不同公司之间分化巨大，10家以液体乳为主营业务的公司中
 
 ## 正文
 
-核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。
+出品：新浪财经上市公司研究院 作者：郝显 2025 年，国内乳制品行业进入进入深度调整期，终端消费疲弱、常温液态奶市场持续收缩，价格战频发，在多重压力下，乳企陷入营收、净利润双下滑的困境。
 
-此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。
+去年19 家上市乳制品公司中仅 8 家实现营收正增长，超半数企业营收同比下滑。
 
-近日，千里科技高溢价收购关联资产引发关注。
+9家公司净利润同比下滑，占比也接近一半。
 
-公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波市融感科技有限公司（下简称融感科技）100%股权。
+从细分领域来看，不同公司之间分化巨大，10家以液体乳为主营业务的公司中有6家收入下滑，不管是阳光乳业这种在低温领域占据优势的大型乳企，还是天润乳业、三元乳业这类区域乳企都未能幸免。
 
-本次交易对方之一的芜湖旷沄人工智能产业投资基金（有限合伙）系公司副董事长鲍毅先生的关联企业，本次交易构成关联交易。
+从净利润来看，甚至有7家乳企陷入亏损。
 
-溢价2倍收购标的净资产为负 无业绩承诺 据公告显示，此次收购标的融感科技是国内专注于毫米波雷达及融合感知技术的车规级技术企业，聚焦于智能驾驶感知层核心硬件的研发、生产与销售，致力于为L2+及以上级别智能驾驶系统提供高性能、高可靠的感知解决方案。
+低温鲜奶、奶酪、奶油、炼乳、奶粉是乳制品行业为数不多仍保持增长的细分领域，与此形成对比的是，植脂末及乳饮品公司收入则在下滑。
 
-融感科技依托核心研发团队在雷达射频设计、信号处理、多传感器融合算法领域的多年技术沉淀，打造了兼具探测精度、恶劣环境适应性与成本优势的4D成像毫米波雷达产品，已实现多家主流主机厂的定点验证与小批量交付，同时构建了完善的车规级质量管控体系与量产供应链，具备较强的技术壁垒与市场拓展潜力。
+从整体来看，行业马太效应持续加剧，市场份额、利润持续向全国性龙头集中，中小企业的生存空间被持续挤压。
 
-公司控股子公司千里智驾是公司智能驾驶业务板块的核心企业，为进一步构建覆盖L2至L4级别的全栈式智能驾驶解决方案，践行“软硬一体、全栈交付”的战略部署，巩固其在智能驾驶产业的核心竞争力，千里智驾拟收购专注于毫米波雷达及融合感知技术的车规级技术企业融感科技100%股权，交易价格为2590.80万元。
+行业龙头伊利股份去年实现了营收、净利双增长。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 07:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 07:39 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 07:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 07:16 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 07:22 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 07:38 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 07:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 07:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 07:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 07:41 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 07:34 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 07:26 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 07:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 07:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:37 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 07:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 07:30 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 07:38 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 07:30 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 07:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 07:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 07:23 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 07:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/9255784.shtml)
-- 2026-06-30 07:20 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/047023181.shtml)
-- 2026-06-30 07:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/410921713.shtml)
-- 2026-06-30 07:30 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/926248025396.shtml)
-- 2026-06-30 07:16 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/76997.shtml)
-- 2026-06-30 07:24 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/9984101902.shtml)
-- 2026-06-30 07:13 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/001567116134.shtml)
-- 2026-06-30 07:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/852671724.shtml)
-- 2026-06-30 07:18 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/25071918.shtml)
-- 2026-06-30 07:15 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/587781.shtml)
-- 2026-06-30 07:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/57266902581.shtml)
-- 2026-06-30 07:16 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/9631482559.shtml)
-- 2026-06-30 07:38 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/67010542.shtml)
-- 2026-06-30 07:21 - [起风了](http://www.share.minike.top/Article/details/257955155.shtml)
-- 2026-06-30 07:18 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/2165871.shtml)
+- 2026-06-30 07:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/18581975.shtml)
+- 2026-06-30 07:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/345931.shtml)
+- 2026-06-30 07:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/53749.shtml)
+- 2026-06-30 07:40 - [我和我的家乡](https://www.share.minike.top/Article/details/436769283821.shtml)
+- 2026-06-30 07:19 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/772911742430.shtml)
+- 2026-06-30 07:33 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/35387352079.shtml)
+- 2026-06-30 07:29 - [天道](http://www.share.minike.top/Article/details/3283357960.shtml)
+- 2026-06-30 07:19 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/023106601.shtml)
+- 2026-06-30 07:40 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/257918628.shtml)
+- 2026-06-30 07:19 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/97141305214.shtml)
+- 2026-06-30 07:29 - [小娘惹](http://www.share.kurohicncr.top/Article/details/064737.shtml)
+- 2026-06-30 07:43 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/455755215.shtml)
+- 2026-06-30 07:26 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/61247483342.shtml)
+- 2026-06-30 07:42 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/94760.shtml)
+- 2026-06-30 07:21 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/2600539780.shtml)

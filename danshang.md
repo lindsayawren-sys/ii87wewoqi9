@@ -1,57 +1,58 @@
-# 甘肃宕昌：红韵满城翠满川 《娥嫚》一曲汇宾朋
+# 80亿元巨额索赔！*ST闻泰对抗荷兰干预，国内起诉能否 “抢回” 安世半导体？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月16日电 (高文)清晨六时许，哈达铺红军长征纪念馆前的广场上，64岁的马秀兰正带着姐妹们排练《娥嫚》广场舞。红扇绿裙，随旋律翻飞。围观游客纷纷举起手机。“以前跳广场舞是锻炼，现在咱跳的是宕昌的名片。”马秀兰笑着说。 甘肃省陇南市宕昌县，这座甘肃南部的小城，一城红色记忆，满目绿水青山，一段羌藏爱情传说，正汇成八方宾朋的奔赴。 马秀兰身后的哈达铺，是红军长征途中的“加
+每经记者|陈晴 每经编辑|黄胜 一家中国公司，因海外子公司控制权被“架空”，转身在国内法院将子公司和外籍高管告上法庭，索赔80亿元——这不是电影情节，而是近日发生在*ST闻泰身上的真实事件。 2026年5月22日，*ST闻泰（600745.SH，股价16.20元，市值201.64亿元）公告称，公司已向广东省东莞市中级人民法院提起诉讼，被告包括安世半导体等三家公司和三名外籍高管。
 
 ## 正文
 
-中新网兰州6月16日电 (高文)清晨六时许，哈达铺红军长征纪念馆前的广场上，64岁的马秀兰正带着姐妹们排练《娥嫚》广场舞。
+每经记者|陈晴 每经编辑|黄胜 一家中国公司，因海外子公司控制权被“架空”，转身在国内法院将子公司和外籍高管告上法庭，索赔80亿元——这不是电影情节，而是近日发生在*ST闻泰身上的真实事件。
 
-红扇绿裙，随旋律翻飞。
+2026年5月22日，*ST闻泰（600745.SH，股价16.20元，市值201.64亿元）公告称，公司已向广东省东莞市中级人民法院提起诉讼，被告包括安世半导体等三家公司和三名外籍高管。
 
-围观游客纷纷举起手机。
+公司认为，这些人在荷兰政府的干预下，联手将自己“踢出”了对安世半导体的管理，严重侵害了公司权益。
 
-“以前跳广场舞是锻炼，现在咱跳的是宕昌的名片。
+法院已受理此案，但尚未开庭。
 
-”马秀兰笑着说。
+这场官司背后，是*ST闻泰近一年来的艰难处境：2025年公司亏损超80亿元，股票被实施退市风险警示，股价一度连续11个交易日跌停。
 
-甘肃省陇南市宕昌县，这座甘肃南部的小城，一城红色记忆，满目绿水青山，一段羌藏爱情传说，正汇成八方宾朋的奔赴。
+那么，这场诉讼能成为公司的转折点吗？
 
-马秀兰身后的哈达铺，是红军长征途中的“加油站”。
+法律人士指出，中国法院对此类案件拥有管辖权，被告若不出庭可缺席判决；但由于中荷两国缺乏司法互认条约，判决能否在荷兰获得实际执行，仍存在较大不确定性。
 
-1935年9月，中央红军在此休整补给，作出“到陕北去”的重大决策。
+*ST闻泰的主营业务涵盖半导体和产品集成两大板块。
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 07:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 07:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 07:32 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 07:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 07:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 07:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 07:15 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 07:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 07:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 07:23 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 07:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 07:18 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 07:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 07:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 07:20 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 07:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 07:21 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 07:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 07:26 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 07:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 07:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/46372733419.shtml)
-- 2026-06-30 07:33 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/487411508.shtml)
-- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1275444907.shtml)
-- 2026-06-30 07:24 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/389663.shtml)
-- 2026-06-30 07:16 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/4252671647.shtml)
-- 2026-06-30 07:19 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/78594.shtml)
-- 2026-06-30 07:13 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/575841253842.shtml)
-- 2026-06-30 07:14 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/0904416066.shtml)
-- 2026-06-30 07:17 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/343006.shtml)
-- 2026-06-30 07:14 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/28720.shtml)
-- 2026-06-30 07:15 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/588408411.shtml)
-- 2026-06-30 07:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/98390.shtml)
-- 2026-06-30 07:26 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/8994147.shtml)
-- 2026-06-30 07:31 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/47827.shtml)
-- 2026-06-30 07:13 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/22656.shtml)
+- 2026-06-30 07:44 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/65685.shtml)
+- 2026-06-30 07:39 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/59022.shtml)
+- 2026-06-30 07:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/74992025.shtml)
+- 2026-06-30 07:19 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/792156473.shtml)
+- 2026-06-30 07:21 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/9574503.shtml)
+- 2026-06-30 07:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/86128138050.shtml)
+- 2026-06-30 07:18 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/64537573.shtml)
+- 2026-06-30 07:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/77336.shtml)
+- 2026-06-30 07:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/03413748985.shtml)
+- 2026-06-30 07:28 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/24252256052.shtml)
+- 2026-06-30 07:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/21495.shtml)
+- 2026-06-30 07:41 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/835229453555.shtml)
+- 2026-06-30 07:33 - [日本16强魔咒](https://www.share.minike.top/Article/details/42369698.shtml)
+- 2026-06-30 07:18 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/7680381193.shtml)
+- 2026-06-30 07:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/0504082.shtml)

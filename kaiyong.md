@@ -1,54 +1,61 @@
-# 近闻·习近平党建思想，意义重大
+# 山西沁源煤矿瓦斯爆炸事故伤者救治情况如何？最新进展
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-在中国共产党成立105周年之际，6月15日召开的全国党建工作座谈会，对学习贯彻习近平党建思想作出工作部署。 办好中国的事情，关键在党。 百余年风雨征程、淬火成钢，中国共产党始终把党的建设作为一项伟大工程来推进，领导人民取得了革命、建设、改革的伟大胜利，开创了中国特色社会主义新时代，领航民族复兴伟业从“不可逆转”到“势不可挡”。 时代孕育思想，思想指引航程。党的十八大以来，以习近
+据央视新闻消息，5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 目前，事故救援工作仍在紧张进行中，伤者已被送至医院救治，具体情况如何？ 获救人员均已送到医院救治 总台记者 张说地：沁源县人民医院是沁源煤矿瓦斯爆炸事故伤者救治的现场之一，医院单独开辟了病区进行伤者的收治工作。目前，救治工作正在进行当中。 记者从现场救
 
 ## 正文
 
-在中国共产党成立105周年之际，6月15日召开的全国党建工作座谈会，对学习贯彻习近平党建思想作出工作部署。
+据央视新闻消息，5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-办好中国的事情，关键在党。
+目前，事故救援工作仍在紧张进行中，伤者已被送至医院救治，具体情况如何？
 
-百余年风雨征程、淬火成钢，中国共产党始终把党的建设作为一项伟大工程来推进，领导人民取得了革命、建设、改革的伟大胜利，开创了中国特色社会主义新时代，领航民族复兴伟业从“不可逆转”到“势不可挡”。
+获救人员均已送到医院救治 总台记者 张说地：沁源县人民医院是沁源煤矿瓦斯爆炸事故伤者救治的现场之一，医院单独开辟了病区进行伤者的收治工作。
 
-时代孕育思想，思想指引航程。
+目前，救治工作正在进行当中。
 
-党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
+记者从现场救援指挥部了解到，目前升井的伤者均被送到了医院进行救治。
 
-习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
+沁源县人民医院目前收治的病人共27人，其中1人重症26人轻伤。
 
-策划：杜尚泽 薛原 制作：李建广 林渊 编辑：左潇 田兴洲 校检：闫俏秀
+为每名伤者制定有针对性的治疗方案 参与救治的医生介绍，从今天凌晨开始，伤者陆续被送到了这个医院进行救治，部分伤者经检查无事后就自行回家了。
+
+目前，医院针对留院的伤者的病情不同，采取了一患一策的针对性治疗。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 07:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 07:16 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 07:16 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 07:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 07:17 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:23 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 07:30 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 07:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 07:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 07:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 07:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 07:39 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 07:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 07:26 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 07:41 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 07:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 07:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 07:25 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 07:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 07:46 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 07:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 07:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 07:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 07:20 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/6344658.shtml)
-- 2026-06-30 07:12 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/25473285940.shtml)
-- 2026-06-30 07:29 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/41422741.shtml)
-- 2026-06-30 07:38 - [日本淘汰](https://www.blog.minike.top/Article/details/871265071590.shtml)
-- 2026-06-30 07:38 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/608661.shtml)
-- 2026-06-30 07:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/38501921.shtml)
-- 2026-06-30 07:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7128431030.shtml)
-- 2026-06-30 07:34 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/12538666.shtml)
-- 2026-06-30 07:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/928477.shtml)
-- 2026-06-30 07:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/7582189663.shtml)
-- 2026-06-30 07:37 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/4604755.shtml)
-- 2026-06-30 07:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/0932755.shtml)
-- 2026-06-30 07:23 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/901012584884.shtml)
-- 2026-06-30 07:29 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/1350668.shtml)
-- 2026-06-30 07:32 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/513195958.shtml)
+- 2026-06-30 07:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/254683930.shtml)
+- 2026-06-30 07:32 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/2782482059.shtml)
+- 2026-06-30 07:29 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/81697516888.shtml)
+- 2026-06-30 07:39 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/7433334.shtml)
+- 2026-06-30 07:31 - [日本反击率先破门](https://www.share.minike.top/Article/details/685242094.shtml)
+- 2026-06-30 07:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/41410082.shtml)
+- 2026-06-30 07:46 - [金牌调解](https://www.blog.minike.top/Article/details/328293678.shtml)
+- 2026-06-30 07:44 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/22896.shtml)
+- 2026-06-30 07:36 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/66188095.shtml)
+- 2026-06-30 07:43 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/954268.shtml)
+- 2026-06-30 07:44 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/2595941.shtml)
+- 2026-06-30 07:41 - [啊啊啊](http://www.blog.minike.top/Article/details/096449.shtml)
+- 2026-06-30 07:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/10072.shtml)
+- 2026-06-30 07:45 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/984639776.shtml)
+- 2026-06-30 07:31 - [点球大战](http://www.blog.minike.top/Article/details/790960671.shtml)

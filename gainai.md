@@ -1,58 +1,56 @@
-# 2026年全国竞走大奖赛（第3站）收官 陕西队获4金1银1铜
+# 尾盘：三大指数本周均有望录得涨幅
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。 本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。最终斩获4金1银1铜的优异成绩。运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带
+北京时间5月23日凌晨，美股周五尾盘维持涨势，三大指数本周均有望录得涨幅。投资者正在密切关注美伊谈判进展。美国总统特朗普主持凯文沃什宣誓就任美联储主席的仪式。 道指涨416.16点，涨幅为0.83%，报50701.82点；纳指涨113.33点，涨幅为0.43%，报26406.43点；标普500指数涨43.27点，涨幅为0.58%，报7488.99点。 本周迄今，标普500指数上
 
 ## 正文
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。
+北京时间5月23日凌晨，美股周五尾盘维持涨势，三大指数本周均有望录得涨幅。
 
-本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。
+投资者正在密切关注美伊谈判进展。
 
-最终斩获4金1银1铜的优异成绩。
+美国总统特朗普主持凯文沃什宣誓就任美联储主席的仪式。
 
-运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带新、传帮带的梯队建设与良好精神风貌。
+道指涨416.16点，涨幅为0.83%，报50701.82点；纳指涨113.33点，涨幅为0.43%，报26406.43点；标普500指数涨43.27点，涨幅为0.58%，报7488.99点。
 
-在6月13日首个比赛日，男女半程马拉松竞走项目率先开赛。
+本周迄今，标普500指数上涨约1%，有望录得连续第八周收涨。
 
-陕西省选手杨宇喆强势后程发力、表现亮眼，以1小时27分55秒的成绩摘得男子半程马拉松竞走桂冠，这也是他职业生涯首个大赛冠军。
+这将是自2023年末结束的九周连涨以来最长的周度连涨纪录。
 
-女子方面，已获得名古屋亚运会参赛资格的陕西选手杨柳静，轻松摘得女子半程马拉松竞走项目金牌。
+道指本周已上涨1.5%，有望实现四周内第三次周度收涨。
 
-作为队内主力，在恢复周期短、备战时间紧张的情况下，她依然随队参赛、全力以赴。
+纳斯达克综合指数上涨0.3%，有望在过去八周中第七次周度上涨。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 07:17 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 07:15 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 07:30 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 07:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 07:19 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 07:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 07:39 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 07:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 07:29 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 07:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 07:39 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 07:35 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 07:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 07:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 07:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 07:31 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:45 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 07:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 07:30 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 07:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/505912104642.shtml)
-- 2026-06-30 07:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/987046.shtml)
-- 2026-06-30 07:15 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/0159988.shtml)
-- 2026-06-30 07:37 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/755678597269.shtml)
-- 2026-06-30 07:12 - [千与千寻](https://www.share.kurohicncr.top/Article/details/790563677.shtml)
-- 2026-06-30 07:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/576793.shtml)
-- 2026-06-30 07:20 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/06678.shtml)
-- 2026-06-30 07:32 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/19757.shtml)
-- 2026-06-30 07:20 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/185338423487.shtml)
-- 2026-06-30 07:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/06348065.shtml)
-- 2026-06-30 07:13 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/413840041.shtml)
-- 2026-06-30 07:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/297848942399.shtml)
-- 2026-06-30 07:14 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/963811876911.shtml)
-- 2026-06-30 07:25 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/1413284.shtml)
-- 2026-06-30 07:40 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/5370164650.shtml)
+- 2026-06-30 07:38 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/564600.shtml)
+- 2026-06-30 07:44 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/77997506650.shtml)
+- 2026-06-30 07:25 - [巴西扳平比分](http://www.share.minike.top/Article/details/13845.shtml)
+- 2026-06-30 07:27 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/40391149.shtml)
+- 2026-06-30 07:40 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/860060.shtml)
+- 2026-06-30 07:32 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/72552183.shtml)
+- 2026-06-30 07:45 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/139896386889.shtml)
+- 2026-06-30 07:20 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/02812.shtml)
+- 2026-06-30 07:38 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/288788806073.shtml)
+- 2026-06-30 07:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/7293553758.shtml)
+- 2026-06-30 07:20 - [明星大侦探第一季](https://www.share.minike.top/Article/details/23637755.shtml)
+- 2026-06-30 07:20 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/55132.shtml)
+- 2026-06-30 07:46 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/684754679.shtml)
+- 2026-06-30 07:34 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/6934845.shtml)
+- 2026-06-30 07:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/143954390.shtml)

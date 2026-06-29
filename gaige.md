@@ -1,60 +1,50 @@
-# 曼彻斯特至北京航线十周年：赋能中英经贸人文往来
+# 重庆市永川区暴雨致3人死亡 17人失联
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网曼彻斯特6月15日电 (记者 欧阳开宇)海航曼彻斯特至北京航线开通10周年庆典15日在曼彻斯特举行。中国驻曼彻斯特总领事唐锐、新海南航空安全总监刘永德、曼彻斯特机场企业事务总监申瑞、中国驻伦敦旅游办事处主任张力等参加。 唐锐总领事表示，10年来，曼彻斯特至北京航线安全运营，助力中国同北英格兰地区人文交流和务实合作。今年初，斯塔默首相成功访华，中方实施了对英相关免签政策。希
+发布时间：2026年05月24日 19:28 来源：中国新闻网 截至5月24日14时30分，重庆市永川区暴雨致3人死亡，17人失联。 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川区茶山竹海街道，凌晨2时至4时最大雨量达到296.6毫米、最大小时雨量103.6毫米，导致永川区茶山竹海街道、中山路街道、双石镇散点多发事件。 目前，救
 
 ## 正文
 
-中新网曼彻斯特6月15日电 (记者 欧阳开宇)海航曼彻斯特至北京航线开通10周年庆典15日在曼彻斯特举行。
+发布时间：2026年05月24日 19:28 来源：中国新闻网 截至5月24日14时30分，重庆市永川区暴雨致3人死亡，17人失联。
 
-中国驻曼彻斯特总领事唐锐、新海南航空安全总监刘永德、曼彻斯特机场企业事务总监申瑞、中国驻伦敦旅游办事处主任张力等参加。
+5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川区茶山竹海街道，凌晨2时至4时最大雨量达到296.6毫米、最大小时雨量103.6毫米，导致永川区茶山竹海街道、中山路街道、双石镇散点多发事件。
 
-唐锐总领事表示，10年来，曼彻斯特至北京航线安全运营，助力中国同北英格兰地区人文交流和务实合作。
+目前，救援处置工作正在全力开展。
 
-今年初，斯塔默首相成功访华，中方实施了对英相关免签政策。
-
-希望新海南航空继续为中英合作添砖加瓦。
-
-阿里等英方代表肯定航线为促进两国人员往来、促进本地经贸发展所做贡献，期待双方开通更多航班。
-
-据介绍，曼彻斯特至北京航线是联结中国华北地区与英国北部的重要空中纽带，通航十年来保持稳定常态化运营。
-
-依托北京国际航空枢纽优势，该航线可高效接驳国内各大城市，同时便捷中转通达中国香港及日韩、泰国等多个亚太热门出行目的地，已然成为大曼彻斯特乃至英国中部地区往返亚太区域的重要空中通道。
+(记者 肖江川） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 07:18 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 07:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 07:28 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 07:36 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 07:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 07:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:23 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 07:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 07:27 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 07:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 07:20 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 07:22 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 07:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 07:47 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 07:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 07:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 07:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 07:34 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 07:25 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 07:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 07:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 07:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 07:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 07:44 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/538676626.shtml)
-- 2026-06-30 07:31 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/9098855876.shtml)
-- 2026-06-30 07:14 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/03041.shtml)
-- 2026-06-30 07:13 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/24094.shtml)
-- 2026-06-30 07:36 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/90625.shtml)
-- 2026-06-30 07:32 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/6421965.shtml)
-- 2026-06-30 07:41 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/40931460721.shtml)
-- 2026-06-30 07:21 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/49958048921.shtml)
-- 2026-06-30 07:37 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/92350643.shtml)
-- 2026-06-30 07:14 - [美股](https://www.blog.kurohicncr.top/Article/details/2937895.shtml)
-- 2026-06-30 07:16 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/13311503.shtml)
-- 2026-06-30 07:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/98465.shtml)
-- 2026-06-30 07:14 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/4550807.shtml)
-- 2026-06-30 07:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/00990790707.shtml)
-- 2026-06-30 07:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/519226652696.shtml)
+- 2026-06-30 07:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/48679.shtml)
+- 2026-06-30 07:27 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/69537.shtml)
+- 2026-06-30 07:47 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/576379005320.shtml)
+- 2026-06-30 07:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/61689.shtml)
+- 2026-06-30 07:23 - [小娘惹](http://www.share.minike.top/Article/details/525964.shtml)
+- 2026-06-30 07:27 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/736972.shtml)
+- 2026-06-30 07:30 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/51611061512.shtml)
+- 2026-06-30 07:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/57267169.shtml)
+- 2026-06-30 07:25 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/4817621158.shtml)
+- 2026-06-30 07:44 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/89304256117.shtml)
+- 2026-06-30 07:30 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/339745919917.shtml)
+- 2026-06-30 07:21 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/237589553596.shtml)
+- 2026-06-30 07:35 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/49709.shtml)
+- 2026-06-30 07:32 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/8502719329.shtml)
+- 2026-06-30 07:22 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/36453400967.shtml)

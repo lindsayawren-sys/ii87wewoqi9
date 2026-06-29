@@ -1,61 +1,57 @@
-# 英伟达入局华尔街AI融资热潮
+# 吉利德Hepcludex获FDA批准用于慢性丁型肝炎 填补治疗空白
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-英伟达计划在债券市场募资至少 200 亿美元。这家 AI 芯片巨头由此成为又一家借力华尔街、为自身一手催生的 AI 繁荣浪潮融资的企业。 英伟达本次分 7 档发行债券，期限跨度 2 年至 30 年。这将是英伟达自 2021 年以来首次发行公司债券。 本次发债并非企业陷入资金困境的信号，英伟达本身现金流充沛。但这笔融资交易直观反映出 AI 基础设施建设规模已经达到空前高度。即便是
+吉利德科学公司5月22日宣布，美国食品药品监督管理局已批准Hepcludex注射液，用于治疗无肝硬化或伴有代偿性肝硬化的成人慢性丁型肝炎病毒感染。Hepcludex是美国首个获批用于慢性HDV感染的疗法。 HDV是一种仅发生于乙型肝炎病毒感染者中的严重肝病，可迅速导致肝纤维化、肝癌、肝衰竭甚至死亡。FDA药物评价与研究中心传染病办公室代理主任Wendy Carter表示，此次批
 
 ## 正文
 
-英伟达计划在债券市场募资至少 200 亿美元。
+吉利德科学公司5月22日宣布，美国食品药品监督管理局已批准Hepcludex注射液，用于治疗无肝硬化或伴有代偿性肝硬化的成人慢性丁型肝炎病毒感染。
 
-这家 AI 芯片巨头由此成为又一家借力华尔街、为自身一手催生的 AI 繁荣浪潮融资的企业。
+Hepcludex是美国首个获批用于慢性HDV感染的疗法。
 
-英伟达本次分 7 档发行债券，期限跨度 2 年至 30 年。
+HDV是一种仅发生于乙型肝炎病毒感染者中的严重肝病，可迅速导致肝纤维化、肝癌、肝衰竭甚至死亡。
 
-这将是英伟达自 2021 年以来首次发行公司债券。
+FDA药物评价与研究中心传染病办公室代理主任Wendy Carter表示，此次批准填补了慢性HDV感染患者的治疗空白，为这一此前无FDA批准疗法的患者群体带来了新希望。
 
-本次发债并非企业陷入资金困境的信号，英伟达本身现金流充沛。
+Hepcludex的获批基于III期MYR301试验数据。
 
-但这笔融资交易直观反映出 AI 基础设施建设规模已经达到空前高度。
+该试验将患者随机分配至立即接受Hepcludex 8.5 mg每日一次治疗组或延迟治疗组。
 
-即便是行业最大受益者，也纷纷借助资本市场（即通过股票、债券融资的市场），保障自身资金调度的灵活空间。
+在第48周时，Hepcludex组的综合应答率为48%，而延迟治疗组仅为2%。
 
-英伟达筹划发债之际，Alphabet（股票代码 GOOG/GOOGL）刚公布 800 亿美元股票增发计划，股权市场同样显现巨额融资需求。
+Hepcludex组HDV RNA不可检测率为20%，延迟治疗组为0%。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 07:33 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 07:30 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 07:41 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 07:35 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 07:14 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 07:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 07:40 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 07:31 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 07:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 07:19 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 07:27 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 07:39 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 07:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 07:30 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 07:22 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 07:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 07:38 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 07:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 07:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 07:44 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 07:35 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 07:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 07:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:19 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/22508.shtml)
-- 2026-06-30 07:25 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/89686933.shtml)
-- 2026-06-30 07:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/1215155.shtml)
-- 2026-06-30 07:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/02706087.shtml)
-- 2026-06-30 07:28 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/249178006.shtml)
-- 2026-06-30 07:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/8802808.shtml)
-- 2026-06-30 07:24 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8345087.shtml)
-- 2026-06-30 07:30 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/733973624101.shtml)
-- 2026-06-30 07:13 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/5868560.shtml)
-- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/91368537.shtml)
-- 2026-06-30 07:12 - [巴西扳平比分](http://www.share.minike.top/Article/details/0525241093.shtml)
-- 2026-06-30 07:15 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/514157.shtml)
-- 2026-06-30 07:16 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/4959656899.shtml)
-- 2026-06-30 07:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/780208.shtml)
-- 2026-06-30 07:33 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/61640270.shtml)
+- 2026-06-30 07:45 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/25939537810.shtml)
+- 2026-06-30 07:33 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/115679274.shtml)
+- 2026-06-30 07:41 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/77026713.shtml)
+- 2026-06-30 07:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/50293.shtml)
+- 2026-06-30 07:32 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/122543.shtml)
+- 2026-06-30 07:25 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/57260358648.shtml)
+- 2026-06-30 07:23 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/3096978.shtml)
+- 2026-06-30 07:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/197695767.shtml)
+- 2026-06-30 07:22 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/3902427.shtml)
+- 2026-06-30 07:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/93936885.shtml)
+- 2026-06-30 07:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/5778797.shtml)
+- 2026-06-30 07:23 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9906620.shtml)
+- 2026-06-30 07:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/787118578824.shtml)
+- 2026-06-30 07:28 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/1514440930.shtml)
+- 2026-06-30 07:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/42239.shtml)

@@ -1,60 +1,61 @@
-# 光大期货：6月16日农产品日报
+# 2026“北京电影之夜”在戛纳举办 推动中国电影走向世界
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
+中新网北京5月22日电(记者 徐婧)北京国际电影节组委会日前在戛纳国际电影节期间举办“2026年北京电影之夜——北京国际电影节戛纳推介会”。这是北影节每年一度在戛纳举办的海外推广活动，推介优秀华语影片与青年创投项目，深化中外电影交流合作。 当晚，来自世界各地的电影节代表、电影机构负责人、制片人、导演、演员及国际媒体等齐聚一堂。现场播放的宣传短片浓缩第十六届北影节的精彩瞬间：20
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
+中新网北京5月22日电(记者 徐婧)北京国际电影节组委会日前在戛纳国际电影节期间举办“2026年北京电影之夜——北京国际电影节戛纳推介会”。
 
-NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
+这是北影节每年一度在戛纳举办的海外推广活动，推介优秀华语影片与青年创投项目，深化中外电影交流合作。
 
-美豆油库存低于预期。
+当晚，来自世界各地的电影节代表、电影机构负责人、制片人、导演、演员及国际媒体等齐聚一堂。
 
-美豆出口检验符合预期，美豆优良率略改善。
+现场播放的宣传短片浓缩第十六届北影节的精彩瞬间：200余场活动、100余个国家和地区的影人与媒体参与、1826部影片竞逐“天坛奖”……映照出北影节的国际影响力与专业水准。
 
-机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
+中外嘉宾一同回顾了北京国际电影节自2011年创办以来的成长之路。
 
-国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
+秉持“共享资源、共赢未来”的宗旨和“天人合一，美美与共”的电影理念，北影节如今已成为连接中国与世界电影的重要纽带。
 
-现货市场成交清淡，同样观望为主。
+戛纳电影节代表朱利安·雷杰应邀上台致辞。
 
-钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
+他表示，中国电影与戛纳导演双周单元有着悠久的渊源，许多中国电影导演都是通过这一单元被世界所发现的。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 07:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 07:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 07:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 07:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 07:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 07:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:37 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 07:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 07:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 07:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 07:34 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 07:39 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 07:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 07:25 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 07:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 07:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 07:32 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 07:40 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 07:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 07:28 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 07:27 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 07:22 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 07:26 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 07:38 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 07:38 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/626078150.shtml)
-- 2026-06-30 07:30 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/375760.shtml)
-- 2026-06-30 07:39 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/22826845.shtml)
-- 2026-06-30 07:25 - [媒体：手机测评该挤挤水分了](https://www.share.minike.top/Article/details/82249.shtml)
-- 2026-06-30 07:36 - [巴西扳平比分](https://www.blog.minike.top/Article/details/56601233.shtml)
-- 2026-06-30 07:16 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/986638.shtml)
-- 2026-06-30 07:16 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/26401528367.shtml)
-- 2026-06-30 07:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/14672.shtml)
-- 2026-06-30 07:21 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/5863895367.shtml)
-- 2026-06-30 07:28 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/99721336420.shtml)
-- 2026-06-30 07:13 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/57960.shtml)
-- 2026-06-30 07:19 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/16993105.shtml)
-- 2026-06-30 07:29 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/968416538.shtml)
-- 2026-06-30 07:27 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/85636906571.shtml)
-- 2026-06-30 07:35 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/5840479.shtml)
+- 2026-06-30 07:28 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/771362736788.shtml)
+- 2026-06-30 07:26 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/2917700747.shtml)
+- 2026-06-30 07:38 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/6428504.shtml)
+- 2026-06-30 07:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/93350.shtml)
+- 2026-06-30 07:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/166928.shtml)
+- 2026-06-30 07:36 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/14271641.shtml)
+- 2026-06-30 07:24 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/593859433209.shtml)
+- 2026-06-30 07:39 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/869816.shtml)
+- 2026-06-30 07:38 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/8046062989.shtml)
+- 2026-06-30 07:26 - [美人鱼](http://www.share.kurohicncr.top/Article/details/611333288.shtml)
+- 2026-06-30 07:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/568701.shtml)
+- 2026-06-30 07:19 - [点菜也要教吗](https://www.blog.minike.top/Article/details/46346524031.shtml)
+- 2026-06-30 07:32 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/38384813.shtml)
+- 2026-06-30 07:43 - [周生如故](http://www.share.minike.top/Article/details/3916312352.shtml)
+- 2026-06-30 07:23 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/430926.shtml)

@@ -1,57 +1,59 @@
-# 中方：将同各成员国一道将上合组织打造成共同发展繁荣的可靠依托
+# 广东举行高技能人才专题招聘活动 释放超1.5万个岗位
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。 有记者提问：今天是上海合作组织成立25周年。中方如何评价上合组织发展成就？中方为组织发展作出哪些突出贡献？ 林剑：2001年6月15日，上海合作组织成立。经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。25年来，上合组织成员国始终秉持“上海精神”，
+中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。 此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。 据统计，现场吸引超1.1万人次求职者入场，初
 
 ## 正文
 
-中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。
+中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。
 
-有记者提问：今天是上海合作组织成立25周年。
+此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。
 
-中方如何评价上合组织发展成就？
+据统计，现场吸引超1.1万人次求职者入场，初步达成就业意向2500多人次，人才供需对接精准度高、落地成效显著。
 
-中方为组织发展作出哪些突出贡献？
+招聘会特设“先进制造业”与“现代服务业”两大专区。
 
-林剑：2001年6月15日，上海合作组织成立。
+小鹏集团、海天机械等制造业龙头企业与京东、中移铁通等服务企业同台揽才，西门子更是联合50家生态企业组团推出千余个岗位。
 
-经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。
+电驱试验技师、机器人试制技师、智慧家庭工程师、AI设计师……岗位遍布新能源、智能制造、工业机器人、智能运维等新赛道。
 
-25年来，上合组织成员国始终秉持“上海精神”，坚持团结协作，不断深化政治、安全、经济、人文领域合作，打造和巩固本地区安全屏障、合作桥梁、友好纽带，成功探索出一条新型区域合作的道路，树立了新型国际关系典范。
+在制造业与服务业加速融合的趋势下，企业不再满足于招聘掌握单一技能的人才，而是急需兼具设备操作、系统管理、客户服务的技能复合型人才。
 
-中国将上合组织视作周边外交优先方向。
+招聘会上，企业岗位设置呈现出明显的“两业融合”特征，从单纯的制造端向数字营销、智能运维、新零售等现代服务业延伸，精准匹配产业链与价值链的深度融合需求。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 07:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 07:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 07:27 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 07:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 07:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 07:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 07:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 07:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 07:14 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 07:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 07:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 07:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 07:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 07:47 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 07:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 07:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 07:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 07:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 07:35 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 07:18 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 07:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 07:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/84348.shtml)
-- 2026-06-30 07:37 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/60203.shtml)
-- 2026-06-30 07:33 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/07209709.shtml)
-- 2026-06-30 07:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/13091747.shtml)
-- 2026-06-30 07:37 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/586169667549.shtml)
-- 2026-06-30 07:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/4314837522.shtml)
-- 2026-06-30 07:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/25759422864.shtml)
-- 2026-06-30 07:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/2021910.shtml)
-- 2026-06-30 07:22 - [一见倾心](https://www.share.kurohicncr.top/Article/details/888095.shtml)
-- 2026-06-30 07:17 - [急先锋](http://www.blog.minike.top/Article/details/584568562.shtml)
-- 2026-06-30 07:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/930604.shtml)
-- 2026-06-30 07:28 - [巴西绝杀日本](https://www.share.minike.top/Article/details/1591269833.shtml)
-- 2026-06-30 07:33 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/868689237.shtml)
-- 2026-06-30 07:31 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/571337.shtml)
-- 2026-06-30 07:19 - [董卿父亲报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/760700590962.shtml)
+- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/74017907164.shtml)
+- 2026-06-30 07:41 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/0106406.shtml)
+- 2026-06-30 07:23 - [巴西2比1日本](https://www.share.minike.top/Article/details/8510516053.shtml)
+- 2026-06-30 07:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/23099419820.shtml)
+- 2026-06-30 07:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/45689546.shtml)
+- 2026-06-30 07:34 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/377690.shtml)
+- 2026-06-30 07:41 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/16778.shtml)
+- 2026-06-30 07:24 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/78376722229.shtml)
+- 2026-06-30 07:35 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/95821.shtml)
+- 2026-06-30 07:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/814101048793.shtml)
+- 2026-06-30 07:28 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/80839.shtml)
+- 2026-06-30 07:47 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/2016336.shtml)
+- 2026-06-30 07:23 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/134566.shtml)
+- 2026-06-30 07:47 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/11697756426.shtml)
+- 2026-06-30 07:33 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/4766783.shtml)

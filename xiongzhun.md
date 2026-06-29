@@ -1,59 +1,59 @@
-# 以无我之心做事，以有我之姿尽责
+# 文博会观察：微短剧赛道备受关注
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-原标题：人民论坛实评 | 以无我之心做事，以有我之姿尽责 一张蓝图抓到底，不仅需科学决策，也要思想境界。什么样的思想境界？就是要有 " 功成不必在我 " 的胸襟。这是一种有宽阔胸怀的建功立业思想，实际上是大我和小我的关系，长远利益、根本利益和个人抱负、个人利益的关系。 习近平总书记强调，要 " 以功成不必在我、功成必定有我的精神境界，心无旁骛推进中国式现代化 "。把握好 " 功
+中新社广州5月22日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，轻量化、高传播、高适配的微短剧赛道备受关注。 深耕本土文化、打磨优质内容，是影视行业出海根基。珠影制片公司党总支副书记叶天明表示，如今的市场印证了“内容为王”的行业铁律，“只要用心打磨精品、深耕优质内容，观众就会认可，这也为本土影视创作注入了强大信心”。 放眼影视出海新机遇，叶天明
 
 ## 正文
 
-原标题：人民论坛实评 | 以无我之心做事，以有我之姿尽责 一张蓝图抓到底，不仅需科学决策，也要思想境界。
+中新社广州5月22日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，轻量化、高传播、高适配的微短剧赛道备受关注。
 
-什么样的思想境界？
+深耕本土文化、打磨优质内容，是影视行业出海根基。
 
-就是要有 " 功成不必在我 " 的胸襟。
+珠影制片公司党总支副书记叶天明表示，如今的市场印证了“内容为王”的行业铁律，“只要用心打磨精品、深耕优质内容，观众就会认可，这也为本土影视创作注入了强大信心”。
 
-这是一种有宽阔胸怀的建功立业思想，实际上是大我和小我的关系，长远利益、根本利益和个人抱负、个人利益的关系。
+放眼影视出海新机遇，叶天明认为，中国国产短剧出海已初见成效，未来仍需锚定文化内核。
 
-习近平总书记强调，要 " 以功成不必在我、功成必定有我的精神境界，心无旁骛推进中国式现代化 "。
+中华优秀传统文化蕴含巨大传播潜力，影视创作应深挖传统文化底蕴，打造兼具中国特色与全球共鸣的文化产品。
 
-把握好 " 功成不必在我 " 与 " 功成必定有我 " 的辩证统一，是树立和践行正确政绩观的题中之义，也是党员干部干事创业须答好的考题。
+三七互娱集团副总裁郭平表示，未来文化产业竞争，将聚焦技术效率、成本优势与规模化供给能力。
 
-政贵有恒，治须有常。
+AI赋能降本增效、实现规模化生产，人类主导创意审美与文化价值创作，技术不能凌驾于内容价值观与文化底线之上，内容也不会排斥技术带来的效率与创新空间。
 
-党员干部干事创业，要树立和践行正确政绩观，有功成不必在我的精神境界、功成必定有我的历史担当，既做显功，也做潜功。
+中央财经大学中国互联网经济研究院副院长欧阳日辉建议，中国微短剧行业需深化海外本地化运营，贴合当地文化语境，加强海外产业合作，参与行业标准制定，持续提升中国文化产业全球话语权。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 07:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 07:21 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 07:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 07:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 07:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 07:31 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 07:25 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 07:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 07:29 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 07:17 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:38 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 07:22 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 07:31 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 07:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 07:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 07:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 07:25 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:21 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 07:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 07:39 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 07:22 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 07:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 07:39 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 07:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/38546574480.shtml)
-- 2026-06-30 07:15 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/081710.shtml)
-- 2026-06-30 07:31 - [第一炉香](https://www.share.kurohicncr.top/Article/details/2011208.shtml)
-- 2026-06-30 07:34 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/483576348541.shtml)
-- 2026-06-30 07:13 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/639734402722.shtml)
-- 2026-06-30 07:28 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/9980876389.shtml)
-- 2026-06-30 07:19 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/112613912863.shtml)
-- 2026-06-30 07:25 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/049277.shtml)
-- 2026-06-30 07:31 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/4324600920.shtml)
-- 2026-06-30 07:22 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/64745359732.shtml)
-- 2026-06-30 07:28 - [女心理师](https://www.share.kurohicncr.top/Article/details/3187815544.shtml)
-- 2026-06-30 07:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/0917365994.shtml)
-- 2026-06-30 07:20 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/35369339.shtml)
-- 2026-06-30 07:36 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/384711446.shtml)
-- 2026-06-30 07:13 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/659000559.shtml)
+- 2026-06-30 07:34 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/060180.shtml)
+- 2026-06-30 07:47 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/338262748867.shtml)
+- 2026-06-30 07:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/816527379020.shtml)
+- 2026-06-30 07:19 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/463606913.shtml)
+- 2026-06-30 07:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/028759.shtml)
+- 2026-06-30 07:47 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.minike.top/Article/details/0248686.shtml)
+- 2026-06-30 07:28 - [巴拉圭率先破门](http://www.share.minike.top/Article/details/431453408.shtml)
+- 2026-06-30 07:45 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/0553458.shtml)
+- 2026-06-30 07:37 - [绘画区你赢了](http://www.share.minike.top/Article/details/3853924.shtml)
+- 2026-06-30 07:19 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/1668678.shtml)
+- 2026-06-30 07:38 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/95022497.shtml)
+- 2026-06-30 07:25 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/7091828543.shtml)
+- 2026-06-30 07:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/85183125642.shtml)
+- 2026-06-30 07:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/6844974.shtml)
+- 2026-06-30 07:36 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/677279.shtml)

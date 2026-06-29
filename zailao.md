@@ -1,61 +1,50 @@
-# 韩国AI初创公司Upstage合并AI模型、门户网站和代理服务
+# 上海银行行长施红敏：构建六大战略布局，分阶段推进战略部署
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-韩国人工智能初创公司Upstage周二表示，计划整合其AI模型、代理服务和门户平台，成立一家名为Upstage Company的新高，以增强产品和服务，并触达更广泛的用户群体。 Upstage首席执行官金成勋（Kim Sung-hoon）在今年早些时候收购了门户服务Daum和AI代理平台Timely AI的运营商AXZ后，公布了成立Upstage Company的计划。此举旨在
+5月22日金融一线消息，上海银行今日举行2025年度股东会。上海银行行长施红敏在谈及未来三至五年发展计划时表示，该行已完成“十五五”规划制定，未来将深刻把握金融工作的政治性、人民性，围绕服务实体经济、金融“五篇大文章”，助力上海“五个中心”建设，聚焦重点领域培育特色核心竞争力。 施红敏表示，上海银行将构建由六大战略布局引领的发展格局，包括以“早小硬”为特色的全生命周期科技金融服
 
 ## 正文
 
-韩国人工智能初创公司Upstage周二表示，计划整合其AI模型、代理服务和门户平台，成立一家名为Upstage Company的新高，以增强产品和服务，并触达更广泛的用户群体。
+5月22日金融一线消息，上海银行今日举行2025年度股东会。
 
-Upstage首席执行官金成勋（Kim Sung-hoon）在今年早些时候收购了门户服务Daum和AI代理平台Timely AI的运营商AXZ后，公布了成立Upstage Company的计划。
+上海银行行长施红敏在谈及未来三至五年发展计划时表示，该行已完成“十五五”规划制定，未来将深刻把握金融工作的政治性、人民性，围绕服务实体经济、金融“五篇大文章”，助力上海“五个中心”建设，聚焦重点领域培育特色核心竞争力。
 
-此举旨在拓展公司的产品组合。
+施红敏表示，上海银行将构建由六大战略布局引领的发展格局，包括以“早小硬”为特色的全生命周期科技金融服务体系、以小微金融为特色的普惠金融体系、以最佳客户体验为目标的交易银行体系、以撮合交易为引擎的投资银行体系、以财富管理和消费金融为驱动的零售金融体系，以及以服务社会民生为特色的养老金融体系。
 
-“Upstage Company的成立标志着我们在整合强大的AI模型、AI代理和广泛应用的平台方面迈出了意义重大的第一步，”金成勋在首尔举行的新闻发布会上表示。
+他进一步表示，为实现上述目标，上海银行将分阶段推进战略部署：用三年左右时间，到2028年实现结构调整目标，并构建与六大战略布局相匹配的组织架构、人才队伍、产业生态渠道及配套机制等体系；用五年左右时间，到2030年实现打造特色、形成优势的目标，持续完善经营体系，推动特色和竞争力转化为发展机遇。
 
-“我们的目标是超越企业级AI，开启人人都能使用AI的时代。
-
-” 他表示，包括美国和日本在内的全球已有超过200家公司采用了Upstage的AI模型，并补充道，今年上半年新签合同的总额已经超过了公司去年全年的销售额。
-
-Upstage近期获得了 7300 亿韩元（约合 4.822 亿美元）的融资，其中包括来自韩国政府支持的国家增长基金的 1000 亿韩元。
-
-根据新战略，Timely AI 将整合由多种语言模型（包括 Solar）驱动的、以工作为中心的 AI 代理，打造统一的用户体验；同时，门户网站 Daum 也将通过整合 Upstage 的 AI 技术，转型为 AI 驱动的平台。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 07:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 07:22 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 07:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 07:39 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 07:37 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 07:19 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 07:30 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 07:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 07:28 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 07:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 07:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 07:18 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:40 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 07:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 07:18 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 07:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 07:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 07:38 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 07:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 07:27 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 07:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 07:20 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 07:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/4888511676.shtml)
-- 2026-06-30 07:28 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/46360568891.shtml)
-- 2026-06-30 07:37 - [毒液2](http://www.blog.kurohicncr.top/Article/details/922292080815.shtml)
-- 2026-06-30 07:25 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/513611.shtml)
-- 2026-06-30 07:32 - [日本淘汰](https://www.share.minike.top/Article/details/744785645579.shtml)
-- 2026-06-30 07:12 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/03763369626.shtml)
-- 2026-06-30 07:40 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/73126.shtml)
-- 2026-06-30 07:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/3561479.shtml)
-- 2026-06-30 07:26 - [巴西2比1日本](http://www.share.minike.top/Article/details/4323399.shtml)
-- 2026-06-30 07:36 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/036886935555.shtml)
-- 2026-06-30 07:17 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/267209011.shtml)
-- 2026-06-30 07:20 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/993981633318.shtml)
-- 2026-06-30 07:12 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7608656288.shtml)
-- 2026-06-30 07:13 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/569625.shtml)
-- 2026-06-30 07:35 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/7093274.shtml)
+- 2026-06-30 07:26 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/723903.shtml)
+- 2026-06-30 07:35 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/57506.shtml)
+- 2026-06-30 07:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/0340882219.shtml)
+- 2026-06-30 07:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/38766814090.shtml)
+- 2026-06-30 07:36 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/20514387.shtml)
+- 2026-06-30 07:39 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/155182.shtml)
+- 2026-06-30 07:29 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/059358535.shtml)
+- 2026-06-30 07:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/97471.shtml)
+- 2026-06-30 07:41 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/65437.shtml)
+- 2026-06-30 07:42 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/112347368.shtml)
+- 2026-06-30 07:31 - [一生一世](https://www.blog.kurohicncr.top/Article/details/1822159.shtml)
+- 2026-06-30 07:41 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/584141203.shtml)
+- 2026-06-30 07:21 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/84866.shtml)
+- 2026-06-30 07:34 - [85花告别古偶](https://www.share.minike.top/Article/details/24766371904.shtml)
+- 2026-06-30 07:44 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/5996934.shtml)

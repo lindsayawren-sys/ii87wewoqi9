@@ -1,59 +1,60 @@
-# 如果和平真的来临 油价怎么走？
+# 教授眼里的黎家盈：工作谨慎 关心同事
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-来源：宏观与商品 摘要 结合当前市场基本面与地缘局势，油价短期跌幅已经基本到位，当前价格处于本轮震荡区间下沿，下行空间极度有限。不过市场仍需持续警惕以色列军事行动反复、美伊协议履约分歧、区域局部冲突再起等突发波折，这类地缘变量将随时引发油价短期波动。从中长期年度维度来看，在供需再平衡、库存缓慢修复、地缘风险溢价常态化的背景下，如果和平能够就此持续，未来一年内国际油价将维持75-
+发布时间：2026年05月23日 11:12 来源：中国新闻网 5月23日，中国载人航天工程办公室公布，神舟二十三号载人飞行任务的航天员乘组中，将有一名来自香港的女性航天员黎家盈。 黎家盈博士时期的导师接受记者采访介绍，黎家盈很有责任心、工作细心谨慎、关心同事，在团队出席国际会议时，常常是黎家盈为老师和同学们准备出国所需物品，并提醒大家做好准备。(记者 温孟馨) 【同期】香港大
 
 ## 正文
 
-来源：宏观与商品 摘要 结合当前市场基本面与地缘局势，油价短期跌幅已经基本到位，当前价格处于本轮震荡区间下沿，下行空间极度有限。
+发布时间：2026年05月23日 11:12 来源：中国新闻网 5月23日，中国载人航天工程办公室公布，神舟二十三号载人飞行任务的航天员乘组中，将有一名来自香港的女性航天员黎家盈。
 
-不过市场仍需持续警惕以色列军事行动反复、美伊协议履约分歧、区域局部冲突再起等突发波折，这类地缘变量将随时引发油价短期波动。
+黎家盈博士时期的导师接受记者采访介绍，黎家盈很有责任心、工作细心谨慎、关心同事，在团队出席国际会议时，常常是黎家盈为老师和同学们准备出国所需物品，并提醒大家做好准备。
 
-从中长期年度维度来看，在供需再平衡、库存缓慢修复、地缘风险溢价常态化的背景下，如果和平能够就此持续，未来一年内国际油价将维持75-85美元/桶的中枢震荡区间，难出现单边大涨或大跌行情。
+(记者 温孟馨) 【同期】香港大学工程学院计算与数据科学学院名誉副教授 黎家盈博士时期导师 邹锦沛 当年她开始参与我们团队做研究之后，我们团队主要做网络犯罪和取证，她就对执法部门的工作产生了兴趣。
 
-风险提示：1、地缘政治变化；2、市场有效需求不足；3、相关政策落地力度不及预期。
+然后就和我们讨论过，毕业后怎么样。
 
-2026年6月15日，美国与伊朗正式敲定双边谅解备忘录完整文本，长达3个多月的中东战争迎来转机，双方确认将在近期完成最终正式签署，标志着美伊紧张局势迎来实质性缓和。
+最后她自己决定参与香港的警务工作。
 
-一、美伊达成阶段性协议 本次备忘录包含14项核心条款。
+她是一个，第一，有责任心的学生，第二，做事情很小心，第三，她和其他团队成员合作，关系非常好。
 
-军事层面，双方承诺在中东所有战线、含黎巴嫩战场立即实施永久性全面停火，美国同步暂缓所有针对伊朗的军事打击计划，彻底终止区域高强度军事对抗。
+比如我们当年做一些证据分析，见到大量数据，家盈当年也不会觉得烦，会耐心慢慢做数据分析。
 
-经济与能源层面，美国将在备忘录签署后30天内，全面解除对伊朗的海上封锁、港口贸易限制及航运制裁，暂停针对伊朗原油、石化产品的出口销售禁令，同时有序解冻伊朗海外被冻结资产，恢复伊朗石油贸易合法收入渠道。
+很多时候我们去一些国际会议，比如我们都去过美国、南非等地方出席会议，很多时候家盈都帮我们准备东西。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 07:27 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 07:15 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:27 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 07:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:22 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 07:21 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 07:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 07:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 07:24 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 07:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 07:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 07:18 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 07:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 07:40 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 07:25 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 07:28 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 07:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 07:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 07:32 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 07:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 07:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 07:38 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 07:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 07:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/869243.shtml)
-- 2026-06-30 07:29 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/788192.shtml)
-- 2026-06-30 07:12 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/056465433.shtml)
-- 2026-06-30 07:30 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/470293982094.shtml)
-- 2026-06-30 07:38 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/6224520.shtml)
-- 2026-06-30 07:22 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/8103748887.shtml)
-- 2026-06-30 07:22 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/0521125.shtml)
-- 2026-06-30 07:26 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/9497315.shtml)
-- 2026-06-30 07:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/218761.shtml)
-- 2026-06-30 07:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/95973889116.shtml)
-- 2026-06-30 07:28 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/33604566014.shtml)
-- 2026-06-30 07:35 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/990930509389.shtml)
-- 2026-06-30 07:38 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/19044874.shtml)
-- 2026-06-30 07:27 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/62378904.shtml)
-- 2026-06-30 07:33 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/351913358.shtml)
+- 2026-06-30 07:47 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/81289.shtml)
+- 2026-06-30 07:27 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/183330506.shtml)
+- 2026-06-30 07:43 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/2761507.shtml)
+- 2026-06-30 07:41 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/91920843.shtml)
+- 2026-06-30 07:26 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/1563847.shtml)
+- 2026-06-30 07:20 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/102614297744.shtml)
+- 2026-06-30 07:46 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/39290.shtml)
+- 2026-06-30 07:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/628124896526.shtml)
+- 2026-06-30 07:33 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/6896669961.shtml)
+- 2026-06-30 07:46 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/175488325.shtml)
+- 2026-06-30 07:44 - [巴拉圭率先破门](http://www.blog.minike.top/Article/details/93822.shtml)
+- 2026-06-30 07:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/971217.shtml)
+- 2026-06-30 07:25 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/509819814205.shtml)
+- 2026-06-30 07:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/422102.shtml)
+- 2026-06-30 07:19 - [世界杯](https://www.share.minike.top/Article/details/215961185059.shtml)

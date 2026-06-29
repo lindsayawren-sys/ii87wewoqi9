@@ -1,60 +1,52 @@
-# 一餐热饭里的社区新事：“AI大厨”炒出“家常味”
+# 山西省调集7支队伍共755人全力开展通洲集团留神峪煤矿瓦斯爆炸事故救援
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。 80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。” 未来食
+新华社太原5月23日电 山西省长治市沁源县应急管理局通报称，山西通洲集团留神峪煤矿瓦斯爆炸事故发生后，山西省委、省政府高度重视，调集救援、医疗7支队伍755人，全力开展应急救援、医疗救治、现场处置工作。截至5月23日14时，事故已造成82人死亡，9人失联，送医救治123人(其中，危重2人，重症2人)，回家33人。企业实际控制人、负责人已被依法采取控制措施。(完)
 
 ## 正文
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。
+新华社太原5月23日电 山西省长治市沁源县应急管理局通报称，山西通洲集团留神峪煤矿瓦斯爆炸事故发生后，山西省委、省政府高度重视，调集救援、医疗7支队伍755人，全力开展应急救援、医疗救治、现场处置工作。
 
-80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。
+截至5月23日14时，事故已造成82人死亡，9人失联，送医救治123人(其中，危重2人，重症2人)，回家33人。
 
-过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。
+企业实际控制人、负责人已被依法采取控制措施。
 
-如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。
-
-” 未来食堂里，没有传统后厨此起彼伏的炒菜声，也闻不到浓重油烟。
-
-几台智能设备正在运转，不一会儿，热气腾腾的鱼香肉丝、清炒土豆丝、西芹花菜等家常菜准备就绪，只需扫一扫取餐码便可拿取。
-
-对于不少居民而言，一顿热饭看似小事，却关系着日常生活的幸福感。
-
-据悉，该食堂所在的申沁社区成立于2025年，随着辖区内新小区交付，社区人口快速增长，其中既有老年居民，也有不少年轻家庭和新就业群体。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 07:24 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 07:28 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 07:14 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 07:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 07:30 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 07:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 07:24 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 07:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 07:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 07:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 07:12 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 07:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 07:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 07:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 07:34 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 07:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 07:42 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 07:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 07:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 07:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 07:21 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 07:34 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 07:20 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 07:34 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:28 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 07:43 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/8813739.shtml)
-- 2026-06-30 07:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/2510961818.shtml)
-- 2026-06-30 07:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/5050220066.shtml)
-- 2026-06-30 07:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/33675504936.shtml)
-- 2026-06-30 07:31 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/98595359274.shtml)
-- 2026-06-30 07:40 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/86296047705.shtml)
-- 2026-06-30 07:25 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/396989685.shtml)
-- 2026-06-30 07:35 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/21171867.shtml)
-- 2026-06-30 07:20 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/6702941469.shtml)
-- 2026-06-30 07:40 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/675295.shtml)
-- 2026-06-30 07:27 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/51167.shtml)
-- 2026-06-30 07:34 - [日本 高位逼抢](http://www.share.minike.top/Article/details/38550102.shtml)
-- 2026-06-30 07:18 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/0393416.shtml)
-- 2026-06-30 07:36 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/79772402672.shtml)
-- 2026-06-30 07:31 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/57799970799.shtml)
+- 2026-06-30 07:27 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/381147045537.shtml)
+- 2026-06-30 07:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/8642375428.shtml)
+- 2026-06-30 07:46 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/91753.shtml)
+- 2026-06-30 07:24 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/24534418766.shtml)
+- 2026-06-30 07:36 - [巴西vs日本](https://www.share.minike.top/Article/details/075952520.shtml)
+- 2026-06-30 07:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/991953092.shtml)
+- 2026-06-30 07:45 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/6850353713.shtml)
+- 2026-06-30 07:47 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/910316.shtml)
+- 2026-06-30 07:46 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/9265475298.shtml)
+- 2026-06-30 07:44 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/530990.shtml)
+- 2026-06-30 07:38 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/404128.shtml)
+- 2026-06-30 07:18 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/613388.shtml)
+- 2026-06-30 07:31 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/6911313.shtml)
+- 2026-06-30 07:30 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/00680201634.shtml)
+- 2026-06-30 07:43 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/61683270381.shtml)

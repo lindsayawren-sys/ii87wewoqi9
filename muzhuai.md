@@ -1,58 +1,56 @@
-# 公安部网安局公布10起网络谣言违法犯罪典型案例
+# 李寒穷“接棒”雅戈尔，李如成留下多少家底？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。 这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。 在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。经查，网传信息均为虚构，属地公安机关已对
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。 尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。 5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。与
 
 ## 正文
 
-新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。
+来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。
 
-在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。
+尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。
 
-经查，网传信息均为虚构，属地公安机关已对张某作出行政处罚。
+而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。
 
-在付某、邓某某、黄某某等6人虚构事实案中，6人为安徽宿州当地驾校培训行业从业人员，为博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发“安徽宿州2026年驾考新增项目”等谣言扩散，干扰驾校正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
+5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。
 
-对这类散布网络谣言违法犯罪行为，全国公安网安部门将持续加大打击整治力度，全力维护清朗网络空间与社会秩序。
+与很多海外求学归来“空降”的“富二代”不同，李寒穷的接班路，是从基层干起，一步一个脚印“熬”出来的。
 
-网警提示，广大网民要恪守网络言行底线，坚持不信谣、不传谣、不造谣，切勿为博取流量虚构事实，共同维护清朗有序的网络环境。
+如今，49岁的李寒穷正在主导品牌年轻化，努力逆转品牌老化的固有印象。
+
+75岁的李如成也宣告“功成身退”，给闺女留下一个“服装+零售+投资”的商业帝国，包括银泰百货、宁波银行、中信证券等核心资产。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 07:22 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 07:12 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 07:18 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 07:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 07:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 07:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 07:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 07:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 07:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 07:29 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 07:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 07:44 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 07:31 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 07:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 07:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 07:44 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 07:25 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 07:37 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/64649.shtml)
-- 2026-06-30 07:29 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/549239370.shtml)
-- 2026-06-30 07:20 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/3371893.shtml)
-- 2026-06-30 07:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/827227.shtml)
-- 2026-06-30 07:23 - [金刚川](https://www.blog.kurohicncr.top/Article/details/1812661961.shtml)
-- 2026-06-30 07:23 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/46933400973.shtml)
-- 2026-06-30 07:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/42295587.shtml)
-- 2026-06-30 07:34 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/504839212693.shtml)
-- 2026-06-30 07:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/54999067.shtml)
-- 2026-06-30 07:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/5710697.shtml)
-- 2026-06-30 07:27 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/55421525325.shtml)
-- 2026-06-30 07:29 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/92537.shtml)
-- 2026-06-30 07:26 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/591566766.shtml)
-- 2026-06-30 07:12 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/155633277.shtml)
-- 2026-06-30 07:19 - [田中碧失误](http://www.blog.minike.top/Article/details/90647933.shtml)
+- 2026-06-30 07:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/95240812941.shtml)
+- 2026-06-30 07:40 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/06486099069.shtml)
+- 2026-06-30 07:28 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/1786770926.shtml)
+- 2026-06-30 07:19 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/2828584429.shtml)
+- 2026-06-30 07:41 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/37461831841.shtml)
+- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/47826522015.shtml)
+- 2026-06-30 07:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/5341723.shtml)
+- 2026-06-30 07:40 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/1503365847.shtml)
+- 2026-06-30 07:26 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/785682704.shtml)
+- 2026-06-30 07:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/426246.shtml)
+- 2026-06-30 07:29 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/472543518562.shtml)
+- 2026-06-30 07:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/49967804.shtml)
+- 2026-06-30 07:32 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/55069671.shtml)
+- 2026-06-30 07:34 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/965429.shtml)
+- 2026-06-30 07:33 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/079875372541.shtml)

@@ -1,57 +1,50 @@
-# 长江有色：供需矛盾难解叠加宏观偏空 16日碳酸锂或跌
+# 伊朗方面表示：巴基斯坦陆军参谋长的德黑兰之行延续“同一外交进程”
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 一、 盘面表现 广期所碳酸锂主力合约（LC_ZL）在2026年6月16日早盘延续弱势震荡格局，空头力量占据明显主导。截至09：04：10，主力合约最新报 173460，较前一交易日结算价大幅下跌 1740，跌幅高达 0.99%。盘面上卖压沉重，买盘承接力度相对有限。 二、 资金与供需信号 • 资金流向：今日合约呈现明显的增仓下行态势，持仓量增加 1740 手至
+伊朗官方通讯社援引伊朗外交部发言人Esmail Baghaei的话报道称，伊朗仍未接近与美国达成协议，巴基斯坦陆军参谋长穆尼尔在德黑兰的会晤并不是为了显示协议即将达成。 Baghaei表示，“谈判重点是结束战争”，而不是核问题。 “卡塔尔代表团正在与伊朗外交部磋商，但巴基斯坦方面仍是主要调解方，”他表示。责任编辑：何云
 
 ## 正文
 
-长江有色金属网 一、 盘面表现 广期所碳酸锂主力合约（LC_ZL）在2026年6月16日早盘延续弱势震荡格局，空头力量占据明显主导。
+伊朗官方通讯社援引伊朗外交部发言人Esmail Baghaei的话报道称，伊朗仍未接近与美国达成协议，巴基斯坦陆军参谋长穆尼尔在德黑兰的会晤并不是为了显示协议即将达成。
 
-截至09：04：10，主力合约最新报 173460，较前一交易日结算价大幅下跌 1740，跌幅高达 0.99%。
+Baghaei表示，“谈判重点是结束战争”，而不是核问题。
 
-盘面上卖压沉重，买盘承接力度相对有限。
+“卡塔尔代表团正在与伊朗外交部磋商，但巴基斯坦方面仍是主要调解方，”他表示。
 
-二、 资金与供需信号 • 资金流向：今日合约呈现明显的增仓下行态势，持仓量增加 1740 手至 7630 手。
-
-这表明在当前价格区间，空头资金主动打压意愿强烈，且有新的空头资金入场布局，市场情绪偏向悲观。
-
-• 成交与博弈：成交量为 6318 手，交投活跃度尚可。
-
-从买卖盘挂单来看，卖方在 173500 上方堆积了较多抛压，而买方主要依托 173000 整数关口进行防守，多空双方在当前价格区间分歧较大。
-
-三、 基本面结合 今日盘面走弱主要受宏观情绪偏弱及基本面供需矛盾压制。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 07:17 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 07:23 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:12 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 07:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 07:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 07:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 07:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 07:38 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 07:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 07:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 07:22 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 07:32 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 07:27 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 07:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 07:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 07:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 07:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 07:29 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 07:18 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 07:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/2839731.shtml)
-- 2026-06-30 07:18 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/7425185.shtml)
-- 2026-06-30 07:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/773867.shtml)
-- 2026-06-30 07:35 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/63965603.shtml)
-- 2026-06-30 07:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/76013146900.shtml)
-- 2026-06-30 07:39 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/907293.shtml)
-- 2026-06-30 07:20 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/429365.shtml)
-- 2026-06-30 07:28 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/078684697.shtml)
-- 2026-06-30 07:21 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/16512328.shtml)
-- 2026-06-30 07:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/406918.shtml)
-- 2026-06-30 07:40 - [《共患难》](https://www.share.minike.top/Article/details/359037507040.shtml)
-- 2026-06-30 07:34 - [啊啊啊](https://www.share.minike.top/Article/details/80117803.shtml)
-- 2026-06-30 07:29 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/55872822846.shtml)
-- 2026-06-30 07:38 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/89890972.shtml)
-- 2026-06-30 07:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/78149234109.shtml)
+- 2026-06-30 07:46 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/0295348.shtml)
+- 2026-06-30 07:22 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4530054877.shtml)
+- 2026-06-30 07:23 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/912052544655.shtml)
+- 2026-06-30 07:35 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/240306.shtml)
+- 2026-06-30 07:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/3400688108.shtml)
+- 2026-06-30 07:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/719156.shtml)
+- 2026-06-30 07:26 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/827531.shtml)
+- 2026-06-30 07:46 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/1675598.shtml)
+- 2026-06-30 07:31 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/626487.shtml)
+- 2026-06-30 07:32 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/517444783.shtml)
+- 2026-06-30 07:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/372223683639.shtml)
+- 2026-06-30 07:31 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/048058886755.shtml)
+- 2026-06-30 07:18 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/87895450059.shtml)
+- 2026-06-30 07:43 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/29429.shtml)
+- 2026-06-30 07:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/39320.shtml)

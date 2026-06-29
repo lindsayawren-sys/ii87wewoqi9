@@ -1,56 +1,46 @@
-# 上海迪士尼开幕十周年 ，华特迪士尼CEO戴明哲：上迪已成公司最引以为傲的成就之一
+# 山西留神峪煤矿瓦斯爆炸事故发布会：事故已致82人遇难 2人失联
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日消息，今日上海迪士尼度假区庆祝开幕十周年。华特迪士尼公司首席执行官戴明哲（Josh D’Amaro）表示：“自开幕伊始，我们便坚信能够打造前所未有的独特体验，让迪士尼故事讲述与中国文化以全新方式深度融合。在迎接超过一亿人次游客之后的今天，上海迪士尼度假区已成为华特迪士尼公司最引以为傲的成就之一。值
+今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。 会上介绍，截至目前，煤矿瓦斯爆炸事故已致82人遇难，2人失联，128人受伤。 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。
 
-6月15日消息，今日上海迪士尼度假区庆祝开幕十周年。
+会上介绍，截至目前，煤矿瓦斯爆炸事故已致82人遇难，2人失联，128人受伤。
 
-华特迪士尼公司首席执行官戴明哲（Josh D’Amaro）表示：“自开幕伊始，我们便坚信能够打造前所未有的独特体验，让迪士尼故事讲述与中国文化以全新方式深度融合。
-
-在迎接超过一亿人次游客之后的今天，上海迪士尼度假区已成为华特迪士尼公司最引以为傲的成就之一。
-
-值此度假区盛大开幕十周年之际，我们回顾过往、展望未来，最令我满怀期待的是，一切才刚刚开始。
-
-” 上海申迪（集团）有限公司董事长管韬萍表示：“过去十年，上海迪士尼度假区走过了一段深耕本地市场、共同创造快乐的合作之旅，一段文化交融、文明互鉴的探索之旅，一段带动区域、联动产业的发展之旅。
-
-诚挚感谢合作伙伴华特迪士尼公司，以及所有为项目创意设计和开发运营付出辛勤汗水与智慧的广大建设者和筑梦者。
-
-站在新十年的新起点上，申迪集团将持续深化拓展与华特迪士尼公司的合作，依托上海迪士尼度假区的成功，持续将上海国际旅游度假区打造为世界级多日旅游目的地，加快度假区‘多日经济’业态布局，构建更具活力和竞争力的‘文旅+’产业生态体系。
+5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 07:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 07:39 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 07:35 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 07:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 07:39 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 07:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 07:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 07:22 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 07:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 07:36 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 07:43 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 07:36 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 07:39 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 07:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 07:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 07:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:30 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/956105796003.shtml)
-- 2026-06-30 07:29 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/9142674.shtml)
-- 2026-06-30 07:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/79909066215.shtml)
-- 2026-06-30 07:18 - [巴拉圭点球大战淘汰德国进16强](https://www.share.kurohicncr.top/Article/details/3189515804.shtml)
-- 2026-06-30 07:33 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/412170.shtml)
-- 2026-06-30 07:36 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/478500.shtml)
-- 2026-06-30 07:12 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/977871595.shtml)
-- 2026-06-30 07:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/2603118.shtml)
-- 2026-06-30 07:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/091194041.shtml)
-- 2026-06-30 07:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/777329381.shtml)
-- 2026-06-30 07:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/0712728014.shtml)
-- 2026-06-30 07:39 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/57871993.shtml)
-- 2026-06-30 07:20 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/0804406.shtml)
-- 2026-06-30 07:16 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/12271718348.shtml)
-- 2026-06-30 07:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/14627934.shtml)
+- 2026-06-30 07:39 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6429242.shtml)
+- 2026-06-30 07:20 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/41634582882.shtml)
+- 2026-06-30 07:47 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/972692173.shtml)
+- 2026-06-30 07:34 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/82832.shtml)
+- 2026-06-30 07:26 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/556217.shtml)
+- 2026-06-30 07:37 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/42027759.shtml)
+- 2026-06-30 07:22 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/093690.shtml)
+- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/1205885943.shtml)
+- 2026-06-30 07:46 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/756256319315.shtml)
+- 2026-06-30 07:29 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/76905714656.shtml)
+- 2026-06-30 07:22 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/786795.shtml)
+- 2026-06-30 07:43 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/362568941.shtml)
+- 2026-06-30 07:30 - [点菜也要教吗](https://www.blog.minike.top/Article/details/337131141065.shtml)
+- 2026-06-30 07:35 - [世界杯](http://www.share.kurohicncr.top/Article/details/0322963.shtml)
+- 2026-06-30 07:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/66393966.shtml)

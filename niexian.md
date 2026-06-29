@@ -1,60 +1,56 @@
-# 吴清点名的公募基金三大顽疾，这些基金都“中招”了
+# ATFX走进菲律宾圣拉萨尔大学:举办风险轮盘专题讲座
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-来源：金观社 在近期一次基调鲜明的讲话中，中国证监会主席吴清直指公募基金行业三大顽疾——“赛道赌押”“风格漂移”“高位发行”，并警告“坚决遏制回到赚快钱的老路”。 对此，金观社从整个基金市场观察，发现部分基金是“赛道赌押”“风格漂移”“高位发行”的典型。 比如，德邦稳盈增长以“稳盈”为名，实则90%仓位押注AI赛道，百亿申购涌入后单季亏损超21亿元，基金管理人被责令整改。 方正
+专题：ATFX外汇专栏投稿 5月22日，ATFX动态：变幻莫测的市场中，风险从何而来，又从何而去一直都是不少新人投资者所考虑的核心问题。菲律宾巴科洛德的圣拉萨尔大学（niversity of St． La Salle）中坐着一群对金融市场渴望了解的管理会计专业的大学生。而对于还未出社会的大学生来说，“金融投资”四个字，大概率停留在新闻标题里——要么是“某人一夜暴富”的传奇，要么
 
 ## 正文
 
-来源：金观社 在近期一次基调鲜明的讲话中，中国证监会主席吴清直指公募基金行业三大顽疾——“赛道赌押”“风格漂移”“高位发行”，并警告“坚决遏制回到赚快钱的老路”。
+专题：ATFX外汇专栏投稿 5月22日，ATFX动态：变幻莫测的市场中，风险从何而来，又从何而去一直都是不少新人投资者所考虑的核心问题。
 
-对此，金观社从整个基金市场观察，发现部分基金是“赛道赌押”“风格漂移”“高位发行”的典型。
+菲律宾巴科洛德的圣拉萨尔大学（niversity of St． La Salle）中坐着一群对金融市场渴望了解的管理会计专业的大学生。
 
-比如，德邦稳盈增长以“稳盈”为名，实则90%仓位押注AI赛道，百亿申购涌入后单季亏损超21亿元，基金管理人被责令整改。
+而对于还未出社会的大学生来说，“金融投资”四个字，大概率停留在新闻标题里——要么是“某人一夜暴富”的传奇，要么是“又有人错了”的警示。
 
-方正富邦信泓从228万元迷你基金起步，孤注一掷人形机器人赛道，一年暴涨99%后规模飙至近10亿，随后暴跌22%，机构持有始终为零。
+至于金融市场是什么、风险到底怎么管理，多数人说不上来，也没人认真跟他们讲过。
 
-财通资管消费精选白纸黑字承诺投资消费行业，前十大重仓股却无一只消费成分股，换手率高达1333%，彻底沦为“科技基”。
+ATFX图▲ 直到ATFX的到来，我们把一场名为“风险轮盘：聪明交易，从理解风险开始”的专题讲座，搬进了这所大学的教室。
 
-财通福鑫定开混合近一年收益近500%，却因封闭期场内溢价逼近30%，密集发布13份风险提示仍难挡投机热潮。
+本次讲座由ATFX市场分析师Gab Santos担任主讲嘉宾，课程内容涵盖包括金融市场基础介绍与运作机制、市场的核心概念与交易逻辑、风险管理意识的重要性与实际应用，以及行业的职业发展路径与机会。
 
-话音未落，中国证券投资基金业协会于6月12日发布《主题投资风格管理指引》，加上此前已施行的《业绩比较基准指引》，监管层正以“讲话定调+基准约束+风格管理+绩效考核”的制度闭环。
+ATFX图▲ 一场不教“怎么收益”的研讨会 ATFX市场分析师Gab Santos并没有上来就讲K线、讲指标、讲策略，而是抛出问题：“你们觉得，做投资最难的是什么？
 
-推动行业回归“受人之托、代客理财”的本源。
+” 坐下的与会者的回答众说纷纭，有人认为是选择，也有人说是方向的判断，还有人半开玩笑的说到可能是运气的问题。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:28 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 07:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 07:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 07:22 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 07:34 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 07:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 07:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 07:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 07:23 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 07:27 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 07:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 07:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 07:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 07:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 07:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 07:28 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 07:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 07:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 07:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 07:33 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 07:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/254524.shtml)
-- 2026-06-30 07:14 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/017690046898.shtml)
-- 2026-06-30 07:40 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/38287895.shtml)
-- 2026-06-30 07:24 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/2114034.shtml)
-- 2026-06-30 07:37 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/183602248.shtml)
-- 2026-06-30 07:30 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/5296250907.shtml)
-- 2026-06-30 07:24 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/5087779.shtml)
-- 2026-06-30 07:14 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/6331507189.shtml)
-- 2026-06-30 07:21 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/95997920343.shtml)
-- 2026-06-30 07:31 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/465685764273.shtml)
-- 2026-06-30 07:33 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/5663332964.shtml)
-- 2026-06-30 07:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/873729557530.shtml)
-- 2026-06-30 07:15 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/133169.shtml)
-- 2026-06-30 07:33 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/1517814.shtml)
-- 2026-06-30 07:17 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/45583256501.shtml)
+- 2026-06-30 07:37 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/249765878962.shtml)
+- 2026-06-30 07:32 - [第一炉香](http://www.share.kurohicncr.top/Article/details/98786363159.shtml)
+- 2026-06-30 07:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/30616.shtml)
+- 2026-06-30 07:23 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/69774403.shtml)
+- 2026-06-30 07:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/460035574766.shtml)
+- 2026-06-30 07:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/51275868.shtml)
+- 2026-06-30 07:33 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/8015406.shtml)
+- 2026-06-30 07:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/7046917.shtml)
+- 2026-06-30 07:30 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/8552675980.shtml)
+- 2026-06-30 07:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/70184919.shtml)
+- 2026-06-30 07:20 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/23662.shtml)
+- 2026-06-30 07:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/315147484711.shtml)
+- 2026-06-30 07:45 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/78744.shtml)
+- 2026-06-30 07:45 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/00958595.shtml)
+- 2026-06-30 07:39 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/9103628689.shtml)

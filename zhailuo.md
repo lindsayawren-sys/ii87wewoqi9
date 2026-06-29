@@ -1,59 +1,61 @@
-# “投资中国”德国企业圆桌会在杜塞尔多夫举行
+# 中信证券人均创利115万，真正的效率之王却另有其人
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网柏林6月15日电 杜塞尔多夫消息：“投资中国”德国企业圆桌会近日在杜塞尔多夫举行。中国商务部副部长兼国际贸易谈判副代表凌激主持，中国驻杜塞尔多夫总领事余勇出席并致辞。拜耳、宝马、大众、汉高、缆普、欧绿保、默克、敦豪以及德中经济联合会、德国中小企业联合会等近40家企业和商协会代表参会。中国银行作金融服务推介，山西省商务厅、湖南省驻德招商代表作投资推介。凌激表示，中德互为重要
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！行家券业 券业行家，事实说话。 欢迎留言，如果认同，请传播正能量。 业 已落幕的2025年财报季，一组数据把金融圈的效率天梯暴露得明明白白。 中信证券，券业“一哥”，归母净利润300.76亿元，员工26，823人，人均创利115.6万元。这个数字放在任何传统行业都堪称顶尖。但把它放进金融圈内部，连前三都挤不
 
 ## 正文
 
-中新网柏林6月15日电 杜塞尔多夫消息：“投资中国”德国企业圆桌会近日在杜塞尔多夫举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国商务部副部长兼国际贸易谈判副代表凌激主持，中国驻杜塞尔多夫总领事余勇出席并致辞。
+行家券业 券业行家，事实说话。
 
-拜耳、宝马、大众、汉高、缆普、欧绿保、默克、敦豪以及德中经济联合会、德国中小企业联合会等近40家企业和商协会代表参会。
+欢迎留言，如果认同，请传播正能量。
 
-中国银行作金融服务推介，山西省商务厅、湖南省驻德招商代表作投资推介。
+业 已落幕的2025年财报季，一组数据把金融圈的效率天梯暴露得明明白白。
 
-凌激表示，中德互为重要贸易投资伙伴，两国拥有深厚的合作基础和广泛的共同利益。
+中信证券，券业“一哥”，归母净利润300.76亿元，员工26，823人，人均创利115.6万元。
 
-“十五五”期间，中国将继续坚定不移推进高水平对外开放，以完备的产业体系、活跃的创新生态和高素质的人才供给，为包括德企在内的外资企业在华发展提供新动能。
+这个数字放在任何传统行业都堪称顶尖。
 
-希望德企坚定对华投资信心，以实际行动维护中德、中欧经贸关系稳定发展。
+但把它放进金融圈内部，连前三都挤不进去——东方财富6，403名员工，人均创利188.73万元；兴证全球基金仅401人，净利润15.9亿元，人均高达396.51万元，平均每人每天为公司赚进近2.7万元。
 
-与会企业和商协会代表表示，中国是德企最重要的战略市场和创新策源地之一，中德企业相向而行、相互成就的局面来之不易，深化合作需要搭建桥梁，而不是制造壁垒。
+当舆论还在为“券商人均年薪81万”吵得不可开交时，一个更冷酷也更诚实的指标早已浮出水面：人均创利。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 07:20 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 07:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:41 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 07:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 07:28 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 07:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 07:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 07:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 07:26 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 07:34 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 07:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 07:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 07:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 07:22 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 07:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 07:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 07:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 07:18 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 07:37 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 07:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 07:22 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 07:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 07:23 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 07:37 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 07:20 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 07:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [金刚川](http://www.share.kurohicncr.top/Article/details/2425173.shtml)
-- 2026-06-30 07:12 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/392338892.shtml)
-- 2026-06-30 07:24 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/663926786.shtml)
-- 2026-06-30 07:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0280443430.shtml)
-- 2026-06-30 07:12 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/77343365644.shtml)
-- 2026-06-30 07:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/7278820.shtml)
-- 2026-06-30 07:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/94881.shtml)
-- 2026-06-30 07:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/038216072398.shtml)
-- 2026-06-30 07:24 - [点球大战](https://www.blog.kurohicncr.top/Article/details/32031.shtml)
-- 2026-06-30 07:32 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/2465370.shtml)
-- 2026-06-30 07:40 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/2622183939.shtml)
-- 2026-06-30 07:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/0166343998.shtml)
-- 2026-06-30 07:23 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/26109.shtml)
-- 2026-06-30 07:32 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/40134136612.shtml)
-- 2026-06-30 07:20 - [内马尔替补](http://www.blog.minike.top/Article/details/584381.shtml)
+- 2026-06-30 07:29 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/966973317.shtml)
+- 2026-06-30 07:45 - [送你一朵小红花](http://www.blog.minike.top/Article/details/1711870014.shtml)
+- 2026-06-30 07:28 - [美人鱼](https://www.blog.minike.top/Article/details/713041.shtml)
+- 2026-06-30 07:45 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/01102810632.shtml)
+- 2026-06-30 07:21 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/7149686.shtml)
+- 2026-06-30 07:36 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/95616.shtml)
+- 2026-06-30 07:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/0058986.shtml)
+- 2026-06-30 07:19 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/536711988824.shtml)
+- 2026-06-30 07:43 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/890346.shtml)
+- 2026-06-30 07:34 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/44589.shtml)
+- 2026-06-30 07:42 - [内马尔替补](https://www.share.minike.top/Article/details/73308937.shtml)
+- 2026-06-30 07:44 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/245251086.shtml)
+- 2026-06-30 07:21 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/126692726.shtml)
+- 2026-06-30 07:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/97914114959.shtml)
+- 2026-06-30 07:37 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/78213260136.shtml)

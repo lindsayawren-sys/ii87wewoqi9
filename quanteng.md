@@ -1,60 +1,60 @@
-# 网购竟能借假退货“薅”现金“羊毛”，保险还能扛住吗
+# 龙宇股份虽退市仍可索赔，已有投资者顺利获赔
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。 《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。 每经记者获得的截图显示，一位消费者对在某购物平台购买的已签
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师近日再次收到一批胜诉判决，此前也有部分投资者顺利获赔。（刘鹏律师专栏） 针对龙宇股份的索赔区间为于2020年4月28日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损的即符合要求。（*ST龙宇维权入口） 投资者可获赔的范围为根据相关法律法规信息披露义务人在证券交易市场承担民
 
 ## 正文
 
-每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师近日再次收到一批胜诉判决，此前也有部分投资者顺利获赔。
 
-”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。
+（刘鹏律师专栏） 针对龙宇股份的索赔区间为于2020年4月28日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损的即符合要求。
 
-《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。
+（*ST龙宇维权入口） 投资者可获赔的范围为根据相关法律法规信息披露义务人在证券交易市场承担民事赔偿责任的范围，以原告因虚假陈述而实际发生的损失为限。
 
-不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。
+原告实际损失包括：投资差额损失、投资差额损失部分的佣金和印花税。
 
-每经记者获得的截图显示，一位消费者对在某购物平台购买的已签收商品申请退货后，弹出了协商留用商品可以获得退款补贴的选择框，该服务由某保险公司提供。
+回溯本案，经查明，涉嫌违法的事实如下： 一是2019-2022年虚构贸易链条进行虚假贸易，致四年年报虚假记载，累计虚增营收超145亿元； 二是实控人徐某2021年6月起控制13家关联公司，2022-2024年通过关联交易形成非经营性资金占用，年末余额从3.33亿元增至8.82亿元，相关关联交易及资金占用未按规定披露。
 
-此类保险产品的设计初衷是什么？
+值得注意的是该公司已被上交所终止上市，但不影响投资者维权事宜。
 
-目前承保盈利情况如何？
+此次胜诉是针对公司此前收到的《行政监管措施决定书》。
 
-对于通过协商留用获得现金的“薅羊毛”行为，业内如何看待？
+值得注意的是，该公司收到的行政监管措施决定的内容与行政处罚内容一致。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 07:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 07:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 07:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 07:27 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 07:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 07:35 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:37 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 07:39 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 07:30 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 07:40 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 07:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 07:14 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 07:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 07:31 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 07:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 07:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 07:31 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 07:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 07:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 07:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 07:41 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 07:43 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 07:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 07:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:38 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 07:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/0194156252.shtml)
-- 2026-06-30 07:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/8176778997.shtml)
-- 2026-06-30 07:12 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/03553582455.shtml)
-- 2026-06-30 07:29 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/052752644786.shtml)
-- 2026-06-30 07:14 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/6190621.shtml)
-- 2026-06-30 07:27 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/877429.shtml)
-- 2026-06-30 07:23 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/12744874.shtml)
-- 2026-06-30 07:28 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/90296182498.shtml)
-- 2026-06-30 07:23 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/940575512.shtml)
-- 2026-06-30 07:12 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/06838401.shtml)
-- 2026-06-30 07:19 - [扫黑风暴](https://www.share.minike.top/Article/details/86551.shtml)
-- 2026-06-30 07:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/66261.shtml)
-- 2026-06-30 07:37 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/94336129643.shtml)
-- 2026-06-30 07:25 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/23061930689.shtml)
-- 2026-06-30 07:13 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/6252441.shtml)
+- 2026-06-30 07:36 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/01807.shtml)
+- 2026-06-30 07:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/14737854443.shtml)
+- 2026-06-30 07:46 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/94128698.shtml)
+- 2026-06-30 07:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/2772072.shtml)
+- 2026-06-30 07:40 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/681923.shtml)
+- 2026-06-30 07:19 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/01460283087.shtml)
+- 2026-06-30 07:42 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/94440.shtml)
+- 2026-06-30 07:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/0524599.shtml)
+- 2026-06-30 07:28 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/27010018530.shtml)
+- 2026-06-30 07:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/48294489.shtml)
+- 2026-06-30 07:32 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6995839710.shtml)
+- 2026-06-30 07:39 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/9965055704.shtml)
+- 2026-06-30 07:36 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/111769153734.shtml)
+- 2026-06-30 07:40 - [恋与深空回应争议](http://www.share.minike.top/Article/details/264973.shtml)
+- 2026-06-30 07:33 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/017508.shtml)

@@ -1,60 +1,55 @@
-# 敏昂莱再访华：读懂中缅“胞波”情谊的密码
+# 2025年以来中国警方立破坏野生动植物资源刑事案件3.7万起
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-原标题：【中国网评】敏昂莱再访华：读懂中缅“胞波”情谊的密码 中国网评论员 乐水 应国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。这是他今年4月当选总统后的首次访华。去年秋季，敏昂莱曾以缅甸代总统身份来华出席2025年上海合作组织峰会和纪念中国人民抗日战争暨世界反法西斯战争胜利80周年活动。不到一年时间，他两度踏上中国土地，如此频密的高层互动，不仅凸
+中新社北京5月22日电 (记者 郭超凯)5月22日是国际生物多样性日。记者从中国公安部获悉，2025年以来，全国公安机关共立破坏野生动植物资源刑事案件3.7万起，公安部对吉林敦化徐某阔等人盗伐林木案等59起案件进行挂牌督办。工作中，公安机关紧盯野生动植物主要分布区、花鸟市场等重点区域、重点部位，主动开展网上巡查，广泛开展线索摸排，及时发现可疑线索，快速实施精准、深度打击；坚持全
 
 ## 正文
 
-原标题：【中国网评】敏昂莱再访华：读懂中缅“胞波”情谊的密码 中国网评论员 乐水 应国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。
+中新社北京5月22日电 (记者 郭超凯)5月22日是国际生物多样性日。
 
-这是他今年4月当选总统后的首次访华。
+记者从中国公安部获悉，2025年以来，全国公安机关共立破坏野生动植物资源刑事案件3.7万起，公安部对吉林敦化徐某阔等人盗伐林木案等59起案件进行挂牌督办。
 
-去年秋季，敏昂莱曾以缅甸代总统身份来华出席2025年上海合作组织峰会和纪念中国人民抗日战争暨世界反法西斯战争胜利80周年活动。
+工作中，公安机关紧盯野生动植物主要分布区、花鸟市场等重点区域、重点部位，主动开展网上巡查，广泛开展线索摸排，及时发现可疑线索，快速实施精准、深度打击；坚持全链条打击，多次发起跨区域集群打击行动，查获、解救一大批涉案野生动物，彻底斩断了一批破坏生物多样性的犯罪链条；积极参与国际刑警组织系列专项执法行动，依法严厉打击跨国涉野生动植物资源犯罪，有力彰显大国担当。
 
-不到一年时间，他两度踏上中国土地，如此频密的高层互动，不仅凸显了缅方对发展中缅关系的高度重视，也预示着两国间历久弥新的“胞波情谊”将在新的时代背景下再续新篇。
+公安部22日还公布5起典型案例，分别是辽宁锦州朱某东等人危害珍贵、濒危野生动物案，吉林敦化徐某阔等人盗伐林木案，山东潍坊张某会等人非法狩猎案，湖北襄阳王某林等人危害珍贵、濒危野生动物案，湖南郴州何某南等人非法捕捞水产品案。
 
-“胞波”一词系缅语“兄弟”之音译。
+公安部环境资源和食品药品犯罪侦查局负责人表示，公安机关将会同相关部门深入开展“平安原野—2026”、打击整治利用无人机“坠箭”非法狩猎违法犯罪等专项行动，对各类破坏野生动植物资源犯罪出重拳、亮利剑。
 
-中缅这份手足之情有着深厚的历史积淀。
-
-两国山水相连，边界线绵延两千多公里，民间友好往来自古代骡马古道便从未中断。
-
-特别是在第二次世界大战期间，中缅同为世界反法西斯战争东方战场的重要组成部分。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 07:14 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 07:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 07:13 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 07:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 07:40 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 07:24 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 07:22 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 07:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 07:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 07:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 07:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 07:29 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 07:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 07:25 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 07:37 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 07:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 07:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 07:22 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 07:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 07:34 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 07:24 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:38 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:21 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 07:21 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 07:18 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/886672481.shtml)
-- 2026-06-30 07:36 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/050244.shtml)
-- 2026-06-30 07:21 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/088316.shtml)
-- 2026-06-30 07:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/52889.shtml)
-- 2026-06-30 07:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/12099.shtml)
-- 2026-06-30 07:39 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/50476536562.shtml)
-- 2026-06-30 07:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/113495066.shtml)
-- 2026-06-30 07:27 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/90064.shtml)
-- 2026-06-30 07:17 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/49108848768.shtml)
-- 2026-06-30 07:24 - [扫黑风暴](https://www.share.minike.top/Article/details/9754079.shtml)
-- 2026-06-30 07:37 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/806698.shtml)
-- 2026-06-30 07:21 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/540276.shtml)
-- 2026-06-30 07:15 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/403717297569.shtml)
-- 2026-06-30 07:26 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/84971197.shtml)
-- 2026-06-30 07:38 - [我们的少年时代2](http://www.share.minike.top/Article/details/667656337443.shtml)
+- 2026-06-30 07:23 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/5469193014.shtml)
+- 2026-06-30 07:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/217871231373.shtml)
+- 2026-06-30 07:32 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/439585272.shtml)
+- 2026-06-30 07:38 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/914475852.shtml)
+- 2026-06-30 07:31 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/420617584.shtml)
+- 2026-06-30 07:31 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/53994882.shtml)
+- 2026-06-30 07:47 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/399701379.shtml)
+- 2026-06-30 07:46 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/82778144.shtml)
+- 2026-06-30 07:35 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/0614832.shtml)
+- 2026-06-30 07:38 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/7228605.shtml)
+- 2026-06-30 07:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/638478792880.shtml)
+- 2026-06-30 07:41 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/20435162.shtml)
+- 2026-06-30 07:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/20352828588.shtml)
+- 2026-06-30 07:19 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/3672762559.shtml)
+- 2026-06-30 07:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/1987804.shtml)

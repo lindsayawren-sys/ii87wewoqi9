@@ -1,61 +1,56 @@
-# 战争停火之际伊朗队飞抵美国 将迎世界杯首战
+# U17男足亚洲杯中国队2比3惜败日本队获亚军
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-出征本届世界杯的伊朗国家足球队周日首次抵达美国，降落在洛杉矶国际机场，并在当天召开新闻发布会，同一天美伊两国宣布达成和平协议。 伊朗队从墨西哥蒂华纳短途飞抵美国。球队早些时候离开驻地，当地球迷在热烈氛围中为其送行。伊朗队周一将在洛杉矶体育场迎来对阵新西兰的首场比赛。 “能代表伟大、自豪且强大的伊朗出战，我感到非常高兴，”伊朗队主帅加莱诺埃（Amir Ghalenoei）在球场新
+中新社北京5月23日电 当地时间22日在沙特阿拉伯吉达进行的2026亚足联U17男足亚洲杯决赛上，中国队在落后三球的情况下连扳两球，最终以2比3惜败日本队，获得本届赛事亚军。 中国队曾在1992年和2004年两次闯入U17男足亚洲杯决赛，均成功夺冠。这是中国队时隔22年再度进入该项赛事决赛，决赛对手为日本队，在此前的小组赛阶段，中国队以1比2负于日本队。 决赛中再度相遇，两支队
 
 ## 正文
 
-出征本届世界杯的伊朗国家足球队周日首次抵达美国，降落在洛杉矶国际机场，并在当天召开新闻发布会，同一天美伊两国宣布达成和平协议。
+中新社北京5月23日电 当地时间22日在沙特阿拉伯吉达进行的2026亚足联U17男足亚洲杯决赛上，中国队在落后三球的情况下连扳两球，最终以2比3惜败日本队，获得本届赛事亚军。
 
-伊朗队从墨西哥蒂华纳短途飞抵美国。
+中国队曾在1992年和2004年两次闯入U17男足亚洲杯决赛，均成功夺冠。
 
-球队早些时候离开驻地，当地球迷在热烈氛围中为其送行。
+这是中国队时隔22年再度进入该项赛事决赛，决赛对手为日本队，在此前的小组赛阶段，中国队以1比2负于日本队。
 
-伊朗队周一将在洛杉矶体育场迎来对阵新西兰的首场比赛。
+决赛中再度相遇，两支队伍阵容均发生变化，但依然是日本队率先占据上风，上半场便取得三球领先。
 
-“能代表伟大、自豪且强大的伊朗出战，我感到非常高兴，”伊朗队主帅加莱诺埃（Amir Ghalenoei）在球场新闻发布会上通过翻译表示。
+易边再战，中国队换人调整，发动强势反击。
 
-“我希望足球能带来欢乐与享受，并拉近不同国家和文化之间的距离。
+第48分钟，帅惟浩横传送出助攻，万项禁区内得球后挑射破门，中国队扳回一球。
 
-” 伊朗队与新西兰队的G组比赛，将在美伊战争及双方新宣布的和平协议背景下进行，为这场较量增添了紧张氛围。
+中国队前场不断施压收到成效，第79分钟，日本队球员解围时踢倒赵松源，赵松源主罚点球命中，双方分差缩小至一球。
 
-这两支国家队从未在世界杯上交手。
+补时阶段中国队持续在对方禁区内制造险情，赵松源头球攻门险些扳平比分。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 07:18 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 07:19 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 07:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 07:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 07:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 07:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 07:17 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 07:31 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 07:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 07:16 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 07:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 07:26 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 07:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 07:24 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 07:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 07:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 07:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 07:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 07:18 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:38 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 07:44 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 07:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 07:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/10048.shtml)
-- 2026-06-30 07:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/270188299.shtml)
-- 2026-06-30 07:27 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/045515353.shtml)
-- 2026-06-30 07:29 - [第一炉香](https://www.blog.minike.top/Article/details/28079.shtml)
-- 2026-06-30 07:23 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/1808367115.shtml)
-- 2026-06-30 07:40 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/6316642.shtml)
-- 2026-06-30 07:35 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/738071703.shtml)
-- 2026-06-30 07:36 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/042672.shtml)
-- 2026-06-30 07:16 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/55780541857.shtml)
-- 2026-06-30 07:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/711237385.shtml)
-- 2026-06-30 07:27 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/88540.shtml)
-- 2026-06-30 07:31 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/479595.shtml)
-- 2026-06-30 07:40 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/969864708.shtml)
-- 2026-06-30 07:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/7247961475.shtml)
-- 2026-06-30 07:29 - [急先锋](https://www.share.minike.top/Article/details/020817307869.shtml)
+- 2026-06-30 07:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/839020313.shtml)
+- 2026-06-30 07:36 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/96858.shtml)
+- 2026-06-30 07:45 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/23597.shtml)
+- 2026-06-30 07:37 - [金刚川](https://www.blog.minike.top/Article/details/240531749.shtml)
+- 2026-06-30 07:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/337923.shtml)
+- 2026-06-30 07:23 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/1302135.shtml)
+- 2026-06-30 07:25 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/21893562.shtml)
+- 2026-06-30 07:35 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/488233938819.shtml)
+- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/86077782.shtml)
+- 2026-06-30 07:26 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/65954322168.shtml)
+- 2026-06-30 07:40 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/43069.shtml)
+- 2026-06-30 07:31 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/5161242.shtml)
+- 2026-06-30 07:25 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/181570694253.shtml)
+- 2026-06-30 07:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/101787.shtml)
+- 2026-06-30 07:27 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/3852222469.shtml)

@@ -1,56 +1,57 @@
-# 湖北鄂州机场高速二期工程正式交工验收
+# ST葫芦娃及相关责任人因财务造假拟被罚2150万元
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月15日电 (王翔 王可 周鑫)由湖北交投集团投资建设的鄂州机场高速公路二期工程14日完成交工验收，作为湖北省“十四五”综合交通重点项目、武鄂黄黄一体化规划7条快速路之一，该省级标杆智慧高速全线贯通，成为串联区域发展、服务花湖机场公空联运的“黄金走廊”。 项目起于鄂城区泽林镇陈桥村，衔接机场高速一期，并通过陈桥枢纽互通连通武黄高速，终点抵达梁子湖区太和镇谢埠村，对接
+5月21日，儿童药龙头ST葫芦娃（维权）（605199.SH）公告称，公司及相关责任人收到中国证监会海南监管局（简称“海南证监局”）的《行政处罚事先告知书》，拟对公司及相关责任人给予警告，并处以合计2150万元的罚款。海南证监局调查认定，ST葫芦娃部分销售业务提前确认收入，部分销售业务存在通过虚增药品价格虚增营业收入，未准确计提配送费、仓储费、运输费等，导致公司2023年年度报
 
 ## 正文
 
-中新网武汉6月15日电 (王翔 王可 周鑫)由湖北交投集团投资建设的鄂州机场高速公路二期工程14日完成交工验收，作为湖北省“十四五”综合交通重点项目、武鄂黄黄一体化规划7条快速路之一，该省级标杆智慧高速全线贯通，成为串联区域发展、服务花湖机场公空联运的“黄金走廊”。
+5月21日，儿童药龙头ST葫芦娃（维权）（605199.SH）公告称，公司及相关责任人收到中国证监会海南监管局（简称“海南证监局”）的《行政处罚事先告知书》，拟对公司及相关责任人给予警告，并处以合计2150万元的罚款。
 
-项目起于鄂城区泽林镇陈桥村，衔接机场高速一期，并通过陈桥枢纽互通连通武黄高速，终点抵达梁子湖区太和镇谢埠村，对接武汉都市圈环线高速江夏至梁子湖段。
+海南证监局调查认定，ST葫芦娃部分销售业务提前确认收入，部分销售业务存在通过虚增药品价格虚增营业收入，未准确计提配送费、仓储费、运输费等，导致公司2023年年度报告及2024年半年度报告存在虚假记载。
 
-主线全长36.452公里，按120公里/小时双向六车道标准建设，全线建有40座桥梁、7处互通立交、12座分离式立交、2座隧道，配套48道通道、65道涵洞、3座天桥、1处服务区及4处匝道收费站；同步建设总长3.037公里的太和东互通连接线，按二级公路标准打造，设计时速40公里，路网体系完善、通行能力强劲。
+具体而言，2023年年度报告虚增营业收入1.10亿元，占当期披露营业收入的5.77%；虚增利润总额8958.03万元，占当期披露利润总额的66.11%。
 
-该线路全线布设光栅阵列传感光缆，联动雷达、视频设备，构建全域数字化感知系统，可实时捕捉车辆轨迹、监测路面状态。
+2024年半年度报告虚减营业收入4260.10万元，占当期披露营业收入的5.03%；虚减利润总额2766.11万元，占当期披露利润总额的29.35%。
 
-依托“触觉+视觉+探测”多重感知能力，搭配智慧服务区、雾区诱导、车道级精准调度等功能，打造安全、数字、智慧、服务四位一体通行体系，可充分保障货运车辆高效通行，最大化释放花湖机场公空联运效能。
+海南证监局拟对ST葫芦娃给予警告，并处以700万元罚款；对时任董事长、总经理及实际控制人刘景萍给予警告，并处以1050万元罚款；对时任董事、财务总监、副总经理于汇给予警告，并处以250万元罚款；对时任董事会秘书王清涛给予警告，并处以150万元罚款。
 
-道路通车后，大冶至花湖机场车程由1小时缩短至20分钟，鄂州花湖机场到武汉光谷的通行时间也大幅压缩，物流成本显著降低。
+告知书同时指出，刘景萍组织、指使了提前确认收入及虚增药品价格行为，并为造假提供资金。
 
-通道无缝衔接黄石临空经济区与花湖机场，打破地域阻隔，既便利民众日常出行，也为沿线商户、村民带来增收机遇。
+此次虚假记载行为未触及重大违法强制退市情形。
 
-鄂州机场高速二期的建成，将进一步优化全省高速路网布局，夯实武鄂黄黄国际综合交通物流枢纽地位，强化鄂州、武汉航空双枢纽联动。
+财务造假被查出的同时，ST葫芦娃的经营基本面正呈现加速下滑趋势。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 07:29 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 07:14 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 07:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 07:41 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 07:15 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 07:24 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 07:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 07:18 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 07:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 07:23 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 07:29 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 07:26 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 07:23 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 07:21 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 07:18 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 07:37 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 07:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 07:20 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 07:25 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:20 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/222364841594.shtml)
-- 2026-06-30 07:21 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/862713.shtml)
-- 2026-06-30 07:37 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/18257628194.shtml)
-- 2026-06-30 07:41 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/07737309938.shtml)
-- 2026-06-30 07:14 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/5716959998.shtml)
-- 2026-06-30 07:26 - [周生如故](https://www.blog.minike.top/Article/details/10819.shtml)
-- 2026-06-30 07:23 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/57045797.shtml)
-- 2026-06-30 07:18 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/49919457054.shtml)
-- 2026-06-30 07:12 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/628986.shtml)
-- 2026-06-30 07:17 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/2029564.shtml)
-- 2026-06-30 07:23 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/931067636692.shtml)
-- 2026-06-30 07:22 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/186973.shtml)
-- 2026-06-30 07:38 - [一生一世](http://www.share.kurohicncr.top/Article/details/90771996685.shtml)
-- 2026-06-30 07:34 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/042309.shtml)
-- 2026-06-30 07:19 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/050421.shtml)
+- 2026-06-30 07:47 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/626554.shtml)
+- 2026-06-30 07:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/4845989.shtml)
+- 2026-06-30 07:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/6833652476.shtml)
+- 2026-06-30 07:21 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/504078.shtml)
+- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/527791509.shtml)
+- 2026-06-30 07:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/731136820.shtml)
+- 2026-06-30 07:28 - [周生如故](https://www.share.minike.top/Article/details/620288.shtml)
+- 2026-06-30 07:32 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/7067657946.shtml)
+- 2026-06-30 07:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/390348163.shtml)
+- 2026-06-30 07:22 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/51545.shtml)
+- 2026-06-30 07:38 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/605478830716.shtml)
+- 2026-06-30 07:47 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4413901320.shtml)
+- 2026-06-30 07:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/874655141187.shtml)
+- 2026-06-30 07:44 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/034118.shtml)
+- 2026-06-30 07:23 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/589214304.shtml)

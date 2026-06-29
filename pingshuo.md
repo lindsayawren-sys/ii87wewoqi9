@@ -1,57 +1,58 @@
-# 承销商行使绿鞋超额配售权，SpaceX IPO募资总额达857亿美元
+# 青海绿电交易累计超200亿千瓦时
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 核心要点 承销商行使 “绿鞋” 超额配售权后，SpaceX 本次 IPO 募资总额升至 857 亿美元。 本次超额配售规模，超过史上绝大多数科技企业 IPO 的募资体量。 本次发行定价为每股 135 美元。 SpaceX 公司于周一发布公告称，本次里程碑式首次公开发行的承销商已正式行使股份超额配售权，本次 I
+中新社西宁5月24日电 (李隽 谢莉蓉)中国国家电网青海省电力公司(以下简称“国网青海电力”)24日消息，截至今年5月中旬，青海绿电交易规模达200.9亿千瓦时，相当于减排二氧化碳超1500万吨，其中省间交易电量占比超九成。 作为水、风、光等清洁能源资源富集区，青海省着力构建清洁低碳、安全高效的能源体系，建设清洁能源产业高地。 青海在中国率先实现新能源装机和发电量占比“双主体”
 
 ## 正文
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 核心要点 承销商行使 “绿鞋” 超额配售权后，SpaceX 本次 IPO 募资总额升至 857 亿美元。
+中新社西宁5月24日电 (李隽 谢莉蓉)中国国家电网青海省电力公司(以下简称“国网青海电力”)24日消息，截至今年5月中旬，青海绿电交易规模达200.9亿千瓦时，相当于减排二氧化碳超1500万吨，其中省间交易电量占比超九成。
 
-本次超额配售规模，超过史上绝大多数科技企业 IPO 的募资体量。
+作为水、风、光等清洁能源资源富集区，青海省着力构建清洁低碳、安全高效的能源体系，建设清洁能源产业高地。
 
-本次发行定价为每股 135 美元。
+青海在中国率先实现新能源装机和发电量占比“双主体”，截至2026年4月底，该省电力总装机达8527.8万千瓦，其中清洁能源装机占比93.3%，新能源装机占比74.1%。
 
-SpaceX 公司于周一发布公告称，本次里程碑式首次公开发行的承销商已正式行使股份超额配售权，本次 IPO 募资总规模达到 857 亿美元。
+2022年7月，青海开展首笔绿电市场交易，8家新能源发电企业与2家用户成交电量6000万千瓦时。
 
-这家由埃隆・马斯克创立、同时布局航天与人工智能业务的企业，在周四完成基础发行时募资 750 亿美元。
+此后青海绿电交易量逐年快速增长，由2022年的5.33亿千瓦时增至2025年的98.95亿千瓦时。
 
-本次 IPO 承销团包含高盛、摩根士丹利等机构，承销商拥有额外认购 8330 万股的超额配售权利。
+绿电外送至北京、上海、浙江、福建等23个省区市。
 
-业内俗称 “绿鞋机制” 的超额配售操作，本次配售规模远超史上绝大多数科技 IPO 项目。
+2025年9月，青海电力交易中心完成中国西北地区首笔绿电挂牌交易。
 
-通常在股价上行时，承销商会选择行使该项权利。
+国网青海电力依托青海省智慧双碳大数据中心，首创“以电算碳”模型，联合金融机构推出“绿电贷”优惠利率贷款，破解企业融资难题。
 
 ## 相关推荐
 
-- 2026-06-30 07:32 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 07:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 07:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 07:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 07:14 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:34 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 07:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 07:19 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 07:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 07:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 07:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 07:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 07:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:43 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 07:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 07:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:44 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 07:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 07:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 07:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 07:30 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:41 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/84913020864.shtml)
-- 2026-06-30 07:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/67268793.shtml)
-- 2026-06-30 07:33 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/7996094589.shtml)
-- 2026-06-30 07:16 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/548586801.shtml)
-- 2026-06-30 07:38 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/20097364.shtml)
-- 2026-06-30 07:25 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/646440561334.shtml)
-- 2026-06-30 07:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/29802.shtml)
-- 2026-06-30 07:14 - [苗族银饰](https://www.share.minike.top/Article/details/2054399664.shtml)
-- 2026-06-30 07:31 - [锐评T1零封KC](https://www.share.minike.top/Article/details/51323923.shtml)
-- 2026-06-30 07:21 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/82404007005.shtml)
-- 2026-06-30 07:21 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/96478.shtml)
-- 2026-06-30 07:12 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/9832739692.shtml)
-- 2026-06-30 07:41 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/16284.shtml)
-- 2026-06-30 07:12 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/94866006.shtml)
-- 2026-06-30 07:14 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/18199784.shtml)
+- 2026-06-30 07:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/35597059.shtml)
+- 2026-06-30 07:22 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/3187426755.shtml)
+- 2026-06-30 07:45 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/242129260026.shtml)
+- 2026-06-30 07:36 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/5046852.shtml)
+- 2026-06-30 07:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/54916.shtml)
+- 2026-06-30 07:47 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/00473.shtml)
+- 2026-06-30 07:41 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/24005580.shtml)
+- 2026-06-30 07:26 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/457447098554.shtml)
+- 2026-06-30 07:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/6896408.shtml)
+- 2026-06-30 07:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/94123647.shtml)
+- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/459845704456.shtml)
+- 2026-06-30 07:26 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/7037462.shtml)
+- 2026-06-30 07:43 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/74589729110.shtml)
+- 2026-06-30 07:45 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/49531.shtml)
+- 2026-06-30 07:39 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/33235644769.shtml)

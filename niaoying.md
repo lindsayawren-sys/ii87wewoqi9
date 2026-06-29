@@ -1,59 +1,60 @@
-# 山姆被约谈背后，超市食品安全问题该去哪里投诉
+# 川崎重工携手英伟达等企业 加速人工智能与机器人技术融合
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-2026年6月15日，国家市场监管总局约谈沃尔玛中国总部负责人的消息登上微博热搜第一，引发广泛关注。约谈原因直指山姆会员商店长期集中爆发的各类食品安全问题——从门店货架上活蛆爬行的视频在社交平台疯传，到三文鱼标签中产地信息模糊误导消费者，再到冻肉冒充冷鲜肉销售、部分商品农残和重金属检测超标，以及线上极速达频道频繁配送临期商品，这家以高端品质和严格选品闻名的仓储会员制超市，正在经
+日本川崎重工业公司22日宣布，已在美国加利福尼亚州圣何塞市设立全新研发中心，并将与英伟达、微软等科技企业展开深度合作。此举旨在通过人工智能（AI）技术赋能机器人产业，加速具身智能（Physical AI）在多领域的商业化应用。受相关合作消息提振，川崎重工当日股价收涨4.5%。 根据合作规划，川崎重工将率先以医疗保健领域为切入点，与英伟达共同开发整合人工智能与机器人技术的商业项目
 
 ## 正文
 
-2026年6月15日，国家市场监管总局约谈沃尔玛中国总部负责人的消息登上微博热搜第一，引发广泛关注。
+日本川崎重工业公司22日宣布，已在美国加利福尼亚州圣何塞市设立全新研发中心，并将与英伟达、微软等科技企业展开深度合作。
 
-约谈原因直指山姆会员商店长期集中爆发的各类食品安全问题——从门店货架上活蛆爬行的视频在社交平台疯传，到三文鱼标签中产地信息模糊误导消费者，再到冻肉冒充冷鲜肉销售、部分商品农残和重金属检测超标，以及线上极速达频道频繁配送临期商品，这家以高端品质和严格选品闻名的仓储会员制超市，正在经历一场深刻的信任危机。
+此举旨在通过人工智能（AI）技术赋能机器人产业，加速具身智能（Physical AI）在多领域的商业化应用。
 
-山姆收取每年260元至680元不等的会员费，消费者愿意为这笔费用买单，本质上是在为品质安全投票。
+受相关合作消息提振，川崎重工当日股价收涨4.5%。
 
-但接连不断的食安问题让大量会员感到被辜负，不少人在社交平台表达了不打算续卡的想法。
+根据合作规划，川崎重工将率先以医疗保健领域为切入点，与英伟达共同开发整合人工智能与机器人技术的商业项目。
 
-实际上，超市食品安全投诉并非新鲜话题。
+其产品管线涵盖手术辅助机器人、餐饮与药品配送机器人，以及特种攀爬机器人等多种创新设备。
 
-从大型连锁超市到社区生鲜店，过期食品仍在货架、散装食品无标签标识、熟食区卫生不达标、进口商品中文标签缺失等问题，在各地消费者投诉 【下载黑猫投诉客户端】中屡见不鲜。
+此外，川崎重工还将依托圣何塞研发中心，与微软、ADI>亚德诺半导体（Analog Devices）及日本富士通等企业协同发力，共同推进具身智能产品的市场化部署。
 
-那么在遇到这类问题时，消费者到底该去哪里投诉？
+针对新一代机器人的发展愿景，英伟达首席执行官黄仁勋指出，人工智能的下一个前沿领域是让机器理解物理世界，并在人类周围安全地移动与工作。
 
-提到消费投诉，12315是大多数人最先想到的入口。
+他强调，双方正在为新一代智能机器奠定基础。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 07:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 07:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 07:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 07:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 07:13 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 07:36 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 07:24 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:38 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 07:41 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 07:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 07:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 07:43 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 07:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 07:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 07:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 07:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 07:28 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 07:44 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 07:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 07:23 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:33 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 07:42 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 07:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [苗族银饰](http://www.blog.minike.top/Article/details/47337.shtml)
-- 2026-06-30 07:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/35902681327.shtml)
-- 2026-06-30 07:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/716979.shtml)
-- 2026-06-30 07:18 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/26640.shtml)
-- 2026-06-30 07:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/02118468.shtml)
-- 2026-06-30 07:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/56226886.shtml)
-- 2026-06-30 07:20 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/21896924.shtml)
-- 2026-06-30 07:29 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/54783.shtml)
-- 2026-06-30 07:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/013176737.shtml)
-- 2026-06-30 07:33 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/204373163.shtml)
-- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7867137.shtml)
-- 2026-06-30 07:37 - [一见倾心](http://www.share.kurohicncr.top/Article/details/4928377757.shtml)
-- 2026-06-30 07:29 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/237240419.shtml)
-- 2026-06-30 07:34 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/434400088.shtml)
-- 2026-06-30 07:18 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/0848079100.shtml)
+- 2026-06-30 07:47 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/0312525.shtml)
+- 2026-06-30 07:37 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/827164.shtml)
+- 2026-06-30 07:36 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/7278681.shtml)
+- 2026-06-30 07:45 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/0665944133.shtml)
+- 2026-06-30 07:38 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/26824860800.shtml)
+- 2026-06-30 07:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/89368.shtml)
+- 2026-06-30 07:36 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/340116547063.shtml)
+- 2026-06-30 07:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/1763693.shtml)
+- 2026-06-30 07:38 - [点球大战](http://www.blog.kurohicncr.top/Article/details/05395950.shtml)
+- 2026-06-30 07:29 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/6544451.shtml)
+- 2026-06-30 07:18 - [日本反击率先破门](http://www.blog.minike.top/Article/details/5598727453.shtml)
+- 2026-06-30 07:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/067259.shtml)
+- 2026-06-30 07:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/424064806793.shtml)
+- 2026-06-30 07:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/74709601.shtml)
+- 2026-06-30 07:29 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/37222954.shtml)

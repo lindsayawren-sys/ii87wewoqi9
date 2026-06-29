@@ -1,58 +1,46 @@
-# （乡村行·看振兴）山西灵丘革新豆角种植方式 错峰上市盘活田间效益
+# 事发时井下画面公布 记者探访山西留神峪煤矿调度中心
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。 初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀
+发布时间：2026年05月23日 15:40 来源：央视新闻客户端 责任编辑：【李骏】
 
 ## 正文
 
-中新网大同6月15日电 题：山西灵丘革新豆角种植方式 错峰上市盘活田间效益 作者 刘小红 张志华 山西大同灵丘县优化农业种植结构，革新传统露天豆角种植模式，引入设施大棚种植技术。
-
-通过大棚控温种植、错峰错季上市的方式，规避自然天气影响与集中上市低价难题，有效提升豆角种植产值，激活特色种植产业增收潜力。
-
-初夏时节，灵丘县柳科乡柳科蔬菜园区划分两类豆角种植区域，设施大棚内部豆角藤蔓攀附棚架生长，露天地块豆角幼苗生长进度滞后。
-
-近年来，柳科乡调整种植结构，大力发展露天豆角种植，效益明显高于传统粮食作物。
-
-据了解，露天种植模式受自然条件制约，旱涝、冰雹等气象灾害干扰作物收成。
-
-露天豆角采收时间集中，上市时段重合，市场售价偏低，农户收入受到限制。
-
-今年，当地在园区建设了5座蔬菜大棚，总占地20亩，开展大棚豆角种植试验。
-
-柳科乡蔬菜园区大棚豆角种植负责人崔树明介绍，大棚可调控内部温度，农户提前开展播种作业，延后采收时间，错开露天豆角集中上市周期，稳定产品市场售价。
+发布时间：2026年05月23日 15:40 来源：央视新闻客户端 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 07:27 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 07:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 07:20 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 07:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 07:30 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 07:24 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 07:19 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 07:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 07:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 07:23 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:12 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 07:26 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 07:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 07:44 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 07:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 07:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 07:29 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 07:39 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 07:19 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 07:44 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 07:28 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 07:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 07:25 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 07:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/9585805593.shtml)
-- 2026-06-30 07:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/12110740.shtml)
-- 2026-06-30 07:36 - [美股](https://www.blog.minike.top/Article/details/432238026306.shtml)
-- 2026-06-30 07:39 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/3997826473.shtml)
-- 2026-06-30 07:26 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/388802484459.shtml)
-- 2026-06-30 07:24 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/4262896369.shtml)
-- 2026-06-30 07:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/105579444.shtml)
-- 2026-06-30 07:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/09686670808.shtml)
-- 2026-06-30 07:17 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/54465992.shtml)
-- 2026-06-30 07:25 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/39088617.shtml)
-- 2026-06-30 07:25 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/27350.shtml)
-- 2026-06-30 07:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/76737880291.shtml)
-- 2026-06-30 07:36 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/38708.shtml)
-- 2026-06-30 07:28 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/559789.shtml)
-- 2026-06-30 07:40 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/955407896976.shtml)
+- 2026-06-30 07:19 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/531242772076.shtml)
+- 2026-06-30 07:24 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/32340.shtml)
+- 2026-06-30 07:39 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/7818717.shtml)
+- 2026-06-30 07:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/01619.shtml)
+- 2026-06-30 07:25 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/222415.shtml)
+- 2026-06-30 07:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/01920702.shtml)
+- 2026-06-30 07:45 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/42354886621.shtml)
+- 2026-06-30 07:39 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/3297485.shtml)
+- 2026-06-30 07:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/92626.shtml)
+- 2026-06-30 07:47 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/53340463.shtml)
+- 2026-06-30 07:26 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.kurohicncr.top/Article/details/720998519122.shtml)
+- 2026-06-30 07:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/8317014.shtml)
+- 2026-06-30 07:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/227539.shtml)
+- 2026-06-30 07:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/8935060007.shtml)
+- 2026-06-30 07:29 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/1683440617.shtml)

@@ -1,45 +1,54 @@
-# 德国发力航空航天 欧洲防务或将迎来变局
+# 从每斤50元跌到15元！“水果之王”榴莲为何突然便宜了？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 08:55 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月22日 10:42 来源：国是直通车 最近不少网友发现，榴莲的价格越来越便宜了。以前动辄四五十块一斤的进口榴莲，现在很多地方只要20元左右，有的批发市场甚至跌到15块以下。榴莲为什么突然便宜了？后续还会涨价吗？ 责任编辑：【罗攀】
 
 ## 正文
 
-发布时间：2026年06月16日 08:55 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月22日 10:42 来源：国是直通车 最近不少网友发现，榴莲的价格越来越便宜了。
+
+以前动辄四五十块一斤的进口榴莲，现在很多地方只要20元左右，有的批发市场甚至跌到15块以下。
+
+榴莲为什么突然便宜了？
+
+后续还会涨价吗？
+
+责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 07:39 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 07:26 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 07:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 07:18 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 07:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 07:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 07:41 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:28 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 07:15 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 07:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 07:35 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 07:29 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 07:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 07:39 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 07:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 07:20 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 07:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:21 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 07:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 07:30 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 07:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:40 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 07:40 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 07:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [美人鱼](https://www.share.minike.top/Article/details/0327266087.shtml)
-- 2026-06-30 07:18 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/776257.shtml)
-- 2026-06-30 07:39 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/5551375394.shtml)
-- 2026-06-30 07:39 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/1832530562.shtml)
-- 2026-06-30 07:24 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/67737682481.shtml)
-- 2026-06-30 07:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/25211874.shtml)
-- 2026-06-30 07:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/1114376062.shtml)
-- 2026-06-30 07:23 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/6643372282.shtml)
-- 2026-06-30 07:41 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/4140965.shtml)
-- 2026-06-30 07:31 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/8638926.shtml)
-- 2026-06-30 07:32 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/44934944.shtml)
-- 2026-06-30 07:21 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/692055.shtml)
-- 2026-06-30 07:27 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/78037808453.shtml)
-- 2026-06-30 07:34 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/27073.shtml)
-- 2026-06-30 07:41 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/52919847704.shtml)
+- 2026-06-30 07:26 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/23098.shtml)
+- 2026-06-30 07:46 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/531667.shtml)
+- 2026-06-30 07:36 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/01687000667.shtml)
+- 2026-06-30 07:37 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/323055.shtml)
+- 2026-06-30 07:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/0028877.shtml)
+- 2026-06-30 07:33 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/040764721916.shtml)
+- 2026-06-30 07:38 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/7275924.shtml)
+- 2026-06-30 07:30 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/424844.shtml)
+- 2026-06-30 07:46 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/1551962.shtml)
+- 2026-06-30 07:31 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/92939.shtml)
+- 2026-06-30 07:26 - [斛珠夫人](https://www.blog.minike.top/Article/details/49744.shtml)
+- 2026-06-30 07:39 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/6897316.shtml)
+- 2026-06-30 07:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/562779834.shtml)
+- 2026-06-30 07:40 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/02608.shtml)
+- 2026-06-30 07:20 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/444733977.shtml)

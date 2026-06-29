@@ -1,57 +1,60 @@
-# 中国驻东京旅游办事处参加“2026石川中国节”
+# 水利部滚动会商部署暴雨洪水防御工作
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。 活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。为增强互动、拉近与当地民众的距离，展台还设置了
+中新网5月24日电 据“中国水利”微信公众号消息，据预报，5月24日至27日，受冷暖空气共同影响，西南东部北部、西北东部、华北中部南部、黄淮大部、江淮、江南北部西部等地将有一次强降雨过程，以大到暴雨为主，局地将有暴雨到大暴雨。受其影响，长江干流及汉江、清江等支流，洞庭湖水系澧水沅江，黄河山陕区间窟野河、无定河，淮河干流及沙颍河、洪汝河、史灌河、淠河等支流，海河南系卫河上游，太湖
 
 ## 正文
 
-中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。
+中新网5月24日电 据“中国水利”微信公众号消息，据预报，5月24日至27日，受冷暖空气共同影响，西南东部北部、西北东部、华北中部南部、黄淮大部、江淮、江南北部西部等地将有一次强降雨过程，以大到暴雨为主，局地将有暴雨到大暴雨。
 
-活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。
+受其影响，长江干流及汉江、清江等支流，洞庭湖水系澧水沅江，黄河山陕区间窟野河、无定河，淮河干流及沙颍河、洪汝河、史灌河、淠河等支流，海河南系卫河上游，太湖及周边河网区、钱塘江上游等河流将出现涨水过程，暴雨区内中小河流可能发生超警洪水。
 
-一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。
+5月24日，水利部组织会商，滚动安排部署防御工作，要求有关水利部门树牢底线思维、极限思维，落实落细各项防御措施，确保人民生命财产安全。
 
-为增强互动、拉近与当地民众的距离，展台还设置了以熊猫周边为奖品的趣味抽奖，吸引男女老少纷纷排队一试身手。
+一是加强监测预报预警，及时发送预警信息，做到延长预见期和提高精准度有效统一。
 
-工作人员细致地向当地日本民众介绍赴华旅游30天免签政策及最新的文旅相关资讯，耐心解答每一位咨询者的疑问。
+二是高度重视强降雨落区与前期高度重叠、土壤趋于饱和的不利情况，滚动调整预警阈值和产汇流系数。
 
-整个活动期间，展台前始终人头攒动，体现出当地民众对“中国之旅”的向往与热情。
+三是针对近期强降雨多发生在夜间的特点，强化夜间预警信息发布和“叫应”，确保预警信息直达一线。
 
-“中国节”系列品牌活动自2017年起在日本举办，是一项知名度高、影响力广泛的中日文化交流活动，旨在“向日本民众介绍中国，增进两国人民的相互理解及友好交流”。
+四是及时提请有关地方人民政府强化人员转移措施，加大组织力度，确保“谁组织、转移谁、何时转、转何处、不擅返”五个关键环节各项措施落实落地。
 
-此次活动首次走进石川县，缘于2024年日本能登半岛地震期间，不少中国企业与在日华侨华人向当地给予支援，使双方的交流与合作关系由此不断深化。
+五是聚焦中小水库、病险水库、薄弱堤段、险工险段，针对性强化安全度汛措施。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 07:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 07:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 07:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 07:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 07:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 07:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 07:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 07:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 07:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 07:45 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 07:23 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 07:29 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 07:30 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 07:46 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 07:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 07:30 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 07:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 07:27 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 07:26 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 07:18 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 07:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/44962072655.shtml)
-- 2026-06-30 07:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/631721433723.shtml)
-- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/963708.shtml)
-- 2026-06-30 07:24 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/0088363280.shtml)
-- 2026-06-30 07:23 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/847424857226.shtml)
-- 2026-06-30 07:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/93125.shtml)
-- 2026-06-30 07:18 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/14141.shtml)
-- 2026-06-30 07:34 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/7408989375.shtml)
-- 2026-06-30 07:23 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/006873.shtml)
-- 2026-06-30 07:22 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/8501643.shtml)
-- 2026-06-30 07:20 - [人类...完蛋了...](http://www.share.minike.top/Article/details/81696.shtml)
-- 2026-06-30 07:24 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/009347511.shtml)
-- 2026-06-30 07:19 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/686230.shtml)
-- 2026-06-30 07:30 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/923842314760.shtml)
-- 2026-06-30 07:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/69907898547.shtml)
+- 2026-06-30 07:37 - [起风了](https://www.blog.kurohicncr.top/Article/details/97727909.shtml)
+- 2026-06-30 07:40 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/522701666256.shtml)
+- 2026-06-30 07:44 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/969891682856.shtml)
+- 2026-06-30 07:47 - [小娘惹](http://www.share.kurohicncr.top/Article/details/702279731.shtml)
+- 2026-06-30 07:33 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/3503887682.shtml)
+- 2026-06-30 07:20 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/119526528.shtml)
+- 2026-06-30 07:27 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/3177072.shtml)
+- 2026-06-30 07:25 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/09365063.shtml)
+- 2026-06-30 07:36 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/25716.shtml)
+- 2026-06-30 07:21 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/73847909321.shtml)
+- 2026-06-30 07:46 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/50485.shtml)
+- 2026-06-30 07:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/911850944.shtml)
+- 2026-06-30 07:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/12530775343.shtml)
+- 2026-06-30 07:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/29648648722.shtml)
+- 2026-06-30 07:45 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/986262878.shtml)

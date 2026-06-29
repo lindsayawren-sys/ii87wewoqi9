@@ -1,58 +1,60 @@
-# 2026北京CBD论坛年会开幕 推动全球商务区发展规则制定
+# 专业服务赋能经济发展 德勤中国副主席吴卫军谈“重庆机遇”
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 陈杭)15日，2026北京CBD论坛年会开幕，将持续三天。本届论坛以“开放新质：世界变局与中国开局”为年度主题，包含1场开幕式暨跨国公司大会、6大特色板块、4场旗舰活动以及N场系列活动。 多家高质量企业落地 年会期间，线上海外综合服务平台上线发布、线下全球化赋能中心揭牌。 线上海外综合服务平台主要是建设集成化、综合化、数智化的北京市朝阳区“走出去
+中新网重庆5月22日电 (记者 钟旖)22日正在重庆举行的第八届中国西部国际投资贸易洽谈会(下称“西洽会”)上，德勤中国发布《2025中国西部外商投资信心指数报告》。德勤中国副主席吴卫军接受中新网记者专访时表示，专业服务机构是推动经济高质量发展的关键力量，德勤将持续以全球网络与专业能力，助力西部开放、产业升级与新质生产力培育。 德勤中国研究显示，中国西部地区的引资逻辑正从过去的
 
 ## 正文
 
-中新网北京6月15日电 (记者 陈杭)15日，2026北京CBD论坛年会开幕，将持续三天。
+中新网重庆5月22日电 (记者 钟旖)22日正在重庆举行的第八届中国西部国际投资贸易洽谈会(下称“西洽会”)上，德勤中国发布《2025中国西部外商投资信心指数报告》。
 
-本届论坛以“开放新质：世界变局与中国开局”为年度主题，包含1场开幕式暨跨国公司大会、6大特色板块、4场旗舰活动以及N场系列活动。
+德勤中国副主席吴卫军接受中新网记者专访时表示，专业服务机构是推动经济高质量发展的关键力量，德勤将持续以全球网络与专业能力，助力西部开放、产业升级与新质生产力培育。
 
-多家高质量企业落地 年会期间，线上海外综合服务平台上线发布、线下全球化赋能中心揭牌。
+德勤中国研究显示，中国西部地区的引资逻辑正从过去的成本导向，转向供应链提质、绿色赋能、新质生产力赛道布局。
 
-线上海外综合服务平台主要是建设集成化、综合化、数智化的北京市朝阳区“走出去”综合服务平台。
+其中，成渝地区的外资活跃度在西部保持领先，东西部协作加快向“双向赋能”转型，在新能源汽车、人工智能、低空经济等新兴与未来产业，外资呈“链式集聚”。
 
-集中整合对外投资合作国别(地区)指南、国别贸易指南、重点国别(地区)营商环境报告等公共产品，汇集相关机构的政策库、法律库、财税指引等商业资源及各类出海活动信息，打造企业出海全流程、全链条信息窗口。
+吴卫军指出，中国经济正从“量的扩张”转向“质的有效提升”，专业服务机构在其中发挥不可替代作用。
 
-线下全球化赋能中心依托CBD会客厅(铜牛国际大厦)和北京国际科技合作基地(望京留创园)，打造“一南一北”企业全球化赋能中心。
+德勤在中国聚焦三大核心工作：一是引进外部资本，让全球资本看好并投资中国；二是助力中国企业提升核心竞争力，稳妥“走出去”开拓全球市场；三是培养国际化专业人才，以专业能力降低监管风险、提升社会诚信、优化资源配置效率。
 
-聚焦企业出海全流程需求，提供涵盖境外投资备案指导、政策咨询、风险管理、专业资源对接及国际协作网络构建等综合性服务。
+“我们更愿把德勤视作国际网络，而非传统跨国公司。
 
-营商环境是企业生存发展的土壤，也是城市核心竞争力的重要体现。
+”吴卫军介绍，德勤已在全球120多个国家和地区，组建由5000余名中文专业人才构成的中国企业服务组，深度对接“一带一路”倡议，为中企出海提供合规、税务、市场战略等全链条支持，助力中国生产力优势与全球市场共享。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 07:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:22 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 07:21 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 07:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 07:17 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 07:38 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 07:32 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 07:36 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 07:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 07:33 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 07:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 07:45 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 07:23 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:32 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 07:34 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 07:28 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 07:44 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 07:47 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 07:24 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 07:18 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 07:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 07:31 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 07:31 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 07:22 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 07:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/8492801.shtml)
-- 2026-06-30 07:12 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/7086216.shtml)
-- 2026-06-30 07:19 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/758003943415.shtml)
-- 2026-06-30 07:32 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/56946204.shtml)
-- 2026-06-30 07:25 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/115772827402.shtml)
-- 2026-06-30 07:14 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/1605017.shtml)
-- 2026-06-30 07:33 - [巴西扳平比分](https://www.share.minike.top/Article/details/064116.shtml)
-- 2026-06-30 07:17 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/4531874451.shtml)
-- 2026-06-30 07:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/954017042.shtml)
-- 2026-06-30 07:39 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/81470.shtml)
-- 2026-06-30 07:38 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/96441984855.shtml)
-- 2026-06-30 07:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/85772957726.shtml)
-- 2026-06-30 07:19 - [扬名立万](http://www.share.kurohicncr.top/Article/details/25140.shtml)
-- 2026-06-30 07:39 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/297209028993.shtml)
-- 2026-06-30 07:27 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/76483.shtml)
+- 2026-06-30 07:29 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.minike.top/Article/details/80098072.shtml)
+- 2026-06-30 07:47 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/44907402708.shtml)
+- 2026-06-30 07:46 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/27668739.shtml)
+- 2026-06-30 07:20 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/273692.shtml)
+- 2026-06-30 07:36 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/8948023392.shtml)
+- 2026-06-30 07:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/67202208.shtml)
+- 2026-06-30 07:46 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/12224035921.shtml)
+- 2026-06-30 07:24 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/4457081288.shtml)
+- 2026-06-30 07:40 - [巴西2比1日本](http://www.blog.minike.top/Article/details/93096600707.shtml)
+- 2026-06-30 07:29 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/008321.shtml)
+- 2026-06-30 07:32 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/11187.shtml)
+- 2026-06-30 07:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/3923083608.shtml)
+- 2026-06-30 07:24 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/41773711495.shtml)
+- 2026-06-30 07:36 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/63366748.shtml)
+- 2026-06-30 07:26 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/124945.shtml)

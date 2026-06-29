@@ -1,56 +1,49 @@
-# 重庆市小面协会就渝见小面被诉发声：不支持单一企业独家垄断重庆小面
+# 洪水不退，我们不退！消防指战员席地而眠守护湖南石门
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电(记者 左雨晴) 针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。 协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。重庆小面是承载巴渝
+发布时间：2026年05月22日 08:35 来源：中国新闻网 5月21日，湖南常德，在遭遇强降雨灾害的石门县村落连续奋战多日后，长沙消防救援机动支队疲惫的指战员们在夜间生火席地而睡。(俞东卫 梅韦达 制作 徐志雄） 责任编辑：【李岩】
 
 ## 正文
 
-中新网6月16日电(记者 左雨晴) 针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。
+发布时间：2026年05月22日 08:35 来源：中国新闻网 5月21日，湖南常德，在遭遇强降雨灾害的石门县村落连续奋战多日后，长沙消防救援机动支队疲惫的指战员们在夜间生火席地而睡。
 
-协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。
-
-重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业从业者，倡导全行业共享，不支持单一企业独家垄断。
-
-协会还呼吁明晰法律适用边界。
-
-一方面甄别恶意侵权、仿冒品牌等行为，另一方面认可小微商户对地域文化符号、品类名称的正常使用，兼顾品牌方知识产权与小微经营主体的合法权益。
-
-协会网站显示，重庆市小面协会成立于2015年，是一家非营利性且有法人资格的社会民间团体。
-
-(完)
+(俞东卫 梅韦达 制作 徐志雄） 责任编辑：【李岩】
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 07:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 07:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 07:41 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 07:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 07:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 07:12 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 07:19 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 07:40 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 07:21 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 07:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 07:37 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 07:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 07:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 07:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 07:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 07:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 07:27 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 07:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 07:21 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 07:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 07:23 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 07:29 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 07:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 07:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 07:25 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/257537140.shtml)
-- 2026-06-30 07:30 - [郑钦文温网三连败西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/36943.shtml)
-- 2026-06-30 07:32 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/10618452077.shtml)
-- 2026-06-30 07:32 - [世界杯](https://www.blog.kurohicncr.top/Article/details/640766493.shtml)
-- 2026-06-30 07:13 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/7802604.shtml)
-- 2026-06-30 07:28 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/314104.shtml)
-- 2026-06-30 07:31 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/1350719538.shtml)
-- 2026-06-30 07:20 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/33464.shtml)
-- 2026-06-30 07:20 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/2459172209.shtml)
-- 2026-06-30 07:35 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/799448.shtml)
-- 2026-06-30 07:31 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/00184.shtml)
-- 2026-06-30 07:30 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/591564.shtml)
-- 2026-06-30 07:38 - [媒体：手机测评该挤挤水分了](https://www.blog.minike.top/Article/details/506817520.shtml)
-- 2026-06-30 07:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/492661219138.shtml)
-- 2026-06-30 07:28 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/177762.shtml)
+- 2026-06-30 07:28 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/65725858985.shtml)
+- 2026-06-30 07:41 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/76484481.shtml)
+- 2026-06-30 07:26 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/046572189.shtml)
+- 2026-06-30 07:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/314172274.shtml)
+- 2026-06-30 07:41 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/4966568022.shtml)
+- 2026-06-30 07:32 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/21960744.shtml)
+- 2026-06-30 07:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/770229254966.shtml)
+- 2026-06-30 07:30 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/964085817.shtml)
+- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/59810.shtml)
+- 2026-06-30 07:42 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/981355.shtml)
+- 2026-06-30 07:37 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/448157480790.shtml)
+- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/467290571.shtml)
+- 2026-06-30 07:22 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.minike.top/Article/details/049519.shtml)
+- 2026-06-30 07:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/166970807001.shtml)
+- 2026-06-30 07:41 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/9933106.shtml)

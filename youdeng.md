@@ -1,56 +1,56 @@
-# “孔子文化书画展”在莫斯科开幕
+# 第二届“青影计划”启动 公益训练营将落地雅安
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网莫斯科6月16日电 (记者 田冰)“孔子文化书画展”当地时间15日在俄罗斯莫斯科国立苏里科夫美术学院美术馆开幕。展览汇聚了中国山东省60位书画艺术家精心创作的以孔子文化、齐鲁风貌为主题的优秀作品，展现当代山东书画艺术的发展成果和创作水平。 本次展览由孔子第76代直系后裔、旅俄著名书法家孔令民担任学术指导，苏里科夫美院助理教授柳洁修担任策展人。中国驻俄罗斯大使馆公使衔参赞封
+中新网北京5月23日电 5月22日，适逢国际生物多样性日，“影像自然 守护未来”第二届中国青少年保护自然影像计划(下称“青影计划”)启动仪式在北京举行。活动旨在号召广大青少年走近大自然、了解大自然，用影像记录自然之美，培养青少年生态文明意识，切实将绿色发展理念融入素质教育全过程。 中国少年儿童新闻出版总社党委书记、董事长曾锐表示：“我们相信，自然是最好的老师，实践是最生动的教材
 
 ## 正文
 
-中新网莫斯科6月16日电 (记者 田冰)“孔子文化书画展”当地时间15日在俄罗斯莫斯科国立苏里科夫美术学院美术馆开幕。
+中新网北京5月23日电 5月22日，适逢国际生物多样性日，“影像自然 守护未来”第二届中国青少年保护自然影像计划(下称“青影计划”)启动仪式在北京举行。
 
-展览汇聚了中国山东省60位书画艺术家精心创作的以孔子文化、齐鲁风貌为主题的优秀作品，展现当代山东书画艺术的发展成果和创作水平。
+活动旨在号召广大青少年走近大自然、了解大自然，用影像记录自然之美，培养青少年生态文明意识，切实将绿色发展理念融入素质教育全过程。
 
-本次展览由孔子第76代直系后裔、旅俄著名书法家孔令民担任学术指导，苏里科夫美院助理教授柳洁修担任策展人。
+中国少年儿童新闻出版总社党委书记、董事长曾锐表示：“我们相信，自然是最好的老师，实践是最生动的教材，用影像保护自然，是青少年参与生态文明建设的有效路径。
 
-中国驻俄罗斯大使馆公使衔参赞封立涛，苏里科夫美院副院长让娜·尤里耶芙娜、津科娃·斯韦特兰娜、马洛娃·塔季扬娜等嘉宾出席开幕式并致辞。
+‘青影计划’将点亮孩子们心中的生态文明之光，也将点亮他们全面发展的未来之路。
 
-来自俄政府机构、高校、文化艺术机构、企业及社会团体代表，以及在俄华侨华人、留学生、中资机构和企业代表等百余人参加活动。
+” 蒙牛集团党委副书记、高级执行总裁李鹏程表示，生态文明教育，要从青少年抓起；美丽中国建设，要靠青少年传承。
 
-让娜·尤里耶芙娜表示，孔子是中国古代伟大的思想家、教育家和儒家学派创始人，其思想不仅深刻影响了中华文明的发展进程，也为世界文明交流与教育事业发展提供了重要智慧。
+如何让广大青少年真正理解并自觉践行这一理念，是全社会共同的责任与使命。
 
-值此“俄中教育年”之际举办孔子文化主题展览，既是对中华优秀传统文化的弘扬与传播，也是俄中两国教育合作、人文交流不断深化的重要体现。
+“野性中国”工作室创始人、“青影计划”总顾问奚志农表示，希望通过自然影像教育撬动校园自然美育建设、助力教育体系升级，守护青少年身心健康成长。
 
-展览现场，中俄艺术家以笔会交流、作品研讨等形式深入互动。
+相较于远距离研学，推动自然教育常态化走进校园，让青少年在日常学习生活中感知自然、热爱自然，是当下自然教育所需要的。
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 07:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 07:34 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 07:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 07:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 07:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:23 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:29 - [田中碧失误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:40 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 07:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 07:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 07:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 07:30 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 07:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 07:20 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 07:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 07:35 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 07:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/5981685.shtml)
-- 2026-06-30 07:36 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/521108.shtml)
-- 2026-06-30 07:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/31649789768.shtml)
-- 2026-06-30 07:22 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/424363361365.shtml)
-- 2026-06-30 07:26 - [女子遭下药退赔偿拟追刑责](https://www.blog.kurohicncr.top/Article/details/2462418.shtml)
-- 2026-06-30 07:37 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/3610247391.shtml)
-- 2026-06-30 07:21 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/37087798339.shtml)
-- 2026-06-30 07:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/73157.shtml)
-- 2026-06-30 07:18 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/72691.shtml)
-- 2026-06-30 07:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/756663.shtml)
-- 2026-06-30 07:30 - [《贺子珍》](https://www.share.minike.top/Article/details/6309329411.shtml)
-- 2026-06-30 07:30 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/1650553177.shtml)
-- 2026-06-30 07:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/395633631.shtml)
-- 2026-06-30 07:40 - [世界杯](http://www.blog.minike.top/Article/details/3244243.shtml)
-- 2026-06-30 07:34 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/38978990403.shtml)
+- 2026-06-30 07:28 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/4912802296.shtml)
+- 2026-06-30 07:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/92986.shtml)
+- 2026-06-30 07:22 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/186544318473.shtml)
+- 2026-06-30 07:33 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/8852851252.shtml)
+- 2026-06-30 07:26 - [送你一朵小红花](https://www.blog.minike.top/Article/details/374925964947.shtml)
+- 2026-06-30 07:33 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/5184315.shtml)
+- 2026-06-30 07:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/4821529389.shtml)
+- 2026-06-30 07:20 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/937863.shtml)
+- 2026-06-30 07:46 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/28811.shtml)
+- 2026-06-30 07:35 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/711899.shtml)
+- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/6147525.shtml)
+- 2026-06-30 07:26 - [巴西绝杀](https://www.blog.minike.top/Article/details/35159710571.shtml)
+- 2026-06-30 07:27 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/65031291728.shtml)
+- 2026-06-30 07:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/26941331133.shtml)
+- 2026-06-30 07:41 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/374494896789.shtml)

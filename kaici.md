@@ -1,58 +1,57 @@
-# 国防部：所谓“中国间谍威胁”是别有用心的捏造
+# 皇马前队长桑奇斯担任“滇超”顾问
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。 有记者问，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。请问对此有何评论？ 陈曦表示，这是“五眼联盟”惯用的贼喊捉贼套路。他们反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据
+“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫
 
 ## 正文
 
-中新网6月16日电 据国防部网站消息，6月16日下午，国防部新闻发言人陈曦大校就近期涉军问题发布消息。
+“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
 
-有记者问，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。
+618大战，为何先从手机降价开始？
 
-请问对此有何评论？
+埃及胡夫金字塔如何抗震？
 
-陈曦表示，这是“五眼联盟”惯用的贼喊捉贼套路。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-他们反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据，完全是捕风捉影、别有用心的捏造。
+你的股票和黄金，后市怎么走？
 
-反而是该联盟长期无底线搞间谍窃密活动，已是尽人皆知的事实。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-我们要求有关方摒弃冷战思维，停止虚假叙事，回归客观理性的对华政策轨道。
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 07:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:37 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 07:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 07:14 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 07:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 07:32 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 07:31 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 07:15 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 07:27 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 07:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 07:23 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 07:19 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 07:35 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 07:39 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 07:30 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 07:40 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 07:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 07:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 07:39 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 07:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 07:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/7407488.shtml)
-- 2026-06-30 07:20 - [女心理师](http://www.share.kurohicncr.top/Article/details/60208130.shtml)
-- 2026-06-30 07:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/612800346.shtml)
-- 2026-06-30 07:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/271618201863.shtml)
-- 2026-06-30 07:31 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/86147.shtml)
-- 2026-06-30 07:20 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/92204.shtml)
-- 2026-06-30 07:39 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/978716670.shtml)
-- 2026-06-30 07:12 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/070533833.shtml)
-- 2026-06-30 07:34 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/553896.shtml)
-- 2026-06-30 07:33 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/9105256.shtml)
-- 2026-06-30 07:29 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/39390391586.shtml)
-- 2026-06-30 07:16 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/54692.shtml)
-- 2026-06-30 07:26 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/502171142760.shtml)
-- 2026-06-30 07:35 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/5278142649.shtml)
-- 2026-06-30 07:12 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/768034.shtml)
+- 2026-06-30 07:20 - [起风了](http://www.share.minike.top/Article/details/0864514.shtml)
+- 2026-06-30 07:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/88662008.shtml)
+- 2026-06-30 07:36 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/50054555.shtml)
+- 2026-06-30 07:23 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/662953.shtml)
+- 2026-06-30 07:22 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/056212038029.shtml)
+- 2026-06-30 07:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/0674857052.shtml)
+- 2026-06-30 07:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/07862189.shtml)
+- 2026-06-30 07:21 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/873425025612.shtml)
+- 2026-06-30 07:19 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/80621803.shtml)
+- 2026-06-30 07:46 - [爱很美味](https://www.blog.minike.top/Article/details/0380251.shtml)
+- 2026-06-30 07:22 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2162533169.shtml)
+- 2026-06-30 07:30 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/1491705.shtml)
+- 2026-06-30 07:21 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/38031902.shtml)
+- 2026-06-30 07:32 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/146455.shtml)
+- 2026-06-30 07:44 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/204812739.shtml)

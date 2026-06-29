@@ -1,61 +1,59 @@
-# 联合海上信息中心证实美军仍在封锁伊朗港口
+# 中国疾控中心发布埃博拉病毒病防控提示
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-英国海上贸易行动办公室15日转发联合海上信息中心的一份通报，提醒船只注意美军仍在实施针对伊朗港口的封锁。 通报说，美国和伊朗的停战谅解备忘录正式执行之前，对伊朗港口的封锁持续有效。未接到明确指令前，严禁擅自通行。受封锁影响，霍尔木兹海峡海上安全威胁等级维持严重级别。 通报说，所有船只进出伊朗港口的航行均受到限制。与违反封锁的船只进行船对船货物转运，同样视作违反禁令。对于拒不立即
+中新网5月24日电 据中国疾控中心微信公众号消息，2026年5月17日，世界卫生组织宣布刚果(金)与乌干达本迪布焦埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。近日，海关总署发布关于防止埃博拉病毒病疫情传入我国的公告。为控制相关风险，中国疾控中心提示：一、近期，从刚果(金)和乌干达等疫情风险国家和地区来(返)华人员，自入境之日起，进行21天自我健康监测。如出现发热、乏力、
 
 ## 正文
 
-英国海上贸易行动办公室15日转发联合海上信息中心的一份通报，提醒船只注意美军仍在实施针对伊朗港口的封锁。
+中新网5月24日电 据中国疾控中心微信公众号消息，2026年5月17日，世界卫生组织宣布刚果(金)与乌干达本迪布焦埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。
 
-通报说，美国和伊朗的停战谅解备忘录正式执行之前，对伊朗港口的封锁持续有效。
+近日，海关总署发布关于防止埃博拉病毒病疫情传入我国的公告。
 
-未接到明确指令前，严禁擅自通行。
+为控制相关风险，中国疾控中心提示：一、近期，从刚果(金)和乌干达等疫情风险国家和地区来(返)华人员，自入境之日起，进行21天自我健康监测。
 
-受封锁影响，霍尔木兹海峡海上安全威胁等级维持严重级别。
+如出现发热、乏力、头痛、咽喉痛、呕吐、腹泻、不明原因出血等症状，要及时就医。
 
-通报说，所有船只进出伊朗港口的航行均受到限制。
+就医前，请电话联系当地疾控中心或社区卫生服务中心，在专业指导下就医；如自行前往就医的，尽量不乘坐公共交通，做好个人防护，避免与他人肢体接触。
 
-与违反封锁的船只进行船对船货物转运，同样视作违反禁令。
+就医时，要主动告知医生境外旅行史、可疑接触史等情况。
 
-对于拒不立即服从指令的船只，美军将开火打击。
+二、各级各类医疗卫生机构接诊时，对有发热、乏力、头痛、咽喉痛、呕吐、腹泻、不明原因出血等埃博拉可疑症状者，医生要主动询问其境外旅行史、旅居地、可疑接触史，发现自刚果(金)和乌干达等疫情风险国家和地区的返回人员、外籍人员，及时向医院公共卫生科和辖区疾控中心报告。
 
-联合海上信息中心是一个多国海军咨询机构，由美国主导。
+三、本次埃博拉病毒病疫情波及的国家和地区可能会有变化，请关注世界卫生组织公布的相关动态信息。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 07:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 07:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 07:31 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 07:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 07:29 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 07:33 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 07:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 07:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 07:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 07:20 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 07:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 07:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 07:39 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 07:30 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 07:33 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 07:21 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 07:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 07:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 07:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 07:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 07:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 07:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 07:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 07:28 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 07:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/02010944.shtml)
-- 2026-06-30 07:41 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/43702175.shtml)
-- 2026-06-30 07:31 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/956156.shtml)
-- 2026-06-30 07:35 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/2719267.shtml)
-- 2026-06-30 07:23 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/961361910.shtml)
-- 2026-06-30 07:23 - [点球大战](https://www.blog.minike.top/Article/details/95975.shtml)
-- 2026-06-30 07:40 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/799595087.shtml)
-- 2026-06-30 07:39 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/49235.shtml)
-- 2026-06-30 07:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/40505817.shtml)
-- 2026-06-30 07:15 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/8191494592.shtml)
-- 2026-06-30 07:13 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/331517388.shtml)
-- 2026-06-30 07:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/361622104.shtml)
-- 2026-06-30 07:40 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/7486991641.shtml)
-- 2026-06-30 07:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/56968507334.shtml)
-- 2026-06-30 07:39 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/21724.shtml)
+- 2026-06-30 07:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/009784.shtml)
+- 2026-06-30 07:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/3506106.shtml)
+- 2026-06-30 07:33 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/071245993.shtml)
+- 2026-06-30 07:37 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/82864.shtml)
+- 2026-06-30 07:28 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/01648814.shtml)
+- 2026-06-30 07:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/971157773.shtml)
+- 2026-06-30 07:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/454454.shtml)
+- 2026-06-30 07:28 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/82274542.shtml)
+- 2026-06-30 07:24 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/759690673807.shtml)
+- 2026-06-30 07:21 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/33500931342.shtml)
+- 2026-06-30 07:29 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/431248.shtml)
+- 2026-06-30 07:38 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/780453108424.shtml)
+- 2026-06-30 07:44 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/0644920.shtml)
+- 2026-06-30 07:47 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/921406.shtml)
+- 2026-06-30 07:38 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/558263776.shtml)

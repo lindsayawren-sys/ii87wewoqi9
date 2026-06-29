@@ -1,56 +1,56 @@
-# “本源悟空”完成超100万个全球量子计算任务
+# ATFX:美盘时段 关注凯文沃什宣誓就职和密歇根大学数据
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新社合肥6月15日电 (记者 张俊)记者15日从安徽省量子计算芯片重点实验室获悉，中国自主超导量子计算机“本源悟空”已累计完成超过100万个全球量子计算任务，为192个国家和地区用户提供量子算力服务。 “本源悟空”超导量子计算机自2024年1月6日上线运行以来，已稳定运行超过两年，累计提供远程访问服务超4900万次。在“本源悟空”的境外用户中，美国、俄罗斯、日本等国家的用户访
+专题：ATFX外汇专栏投稿 5月22日，ATFX：今日亚盘时段最受关注的数据是日本的四月份核心CPI年率，最新至1.4%低于前值1.8%，同样低于预期值1.7%。超预期的数据意味着，日本对能源价格拥有较强的控制能力。因此，本首相高市早苗表示，本周日本的价格在G7各国中保持最低。 ATFX图▲ 分钟级别，USDJPY在数据发布后，从最低点158.98上涨至159.03，幅度5基点
 
 ## 正文
 
-中新社合肥6月15日电 (记者 张俊)记者15日从安徽省量子计算芯片重点实验室获悉，中国自主超导量子计算机“本源悟空”已累计完成超过100万个全球量子计算任务，为192个国家和地区用户提供量子算力服务。
+专题：ATFX外汇专栏投稿 5月22日，ATFX：今日亚盘时段最受关注的数据是日本的四月份核心CPI年率，最新至1.4%低于前值1.8%，同样低于预期值1.7%。
 
-“本源悟空”超导量子计算机自2024年1月6日上线运行以来，已稳定运行超过两年，累计提供远程访问服务超4900万次。
+超预期的数据意味着，日本对能源价格拥有较强的控制能力。
 
-在“本源悟空”的境外用户中，美国、俄罗斯、日本等国家的用户访问频次位居前列。
+因此，本首相高市早苗表示，本周日本的价格在G7各国中保持最低。
 
-“本源悟空”完成的量子计算任务覆盖领域已从基础科研延伸至流体动力学、生物医药、金融科技等产业场景。
+ATFX图▲ 分钟级别，USDJPY在数据发布后，从最低点158.98上涨至159.03，幅度5基点，在走势图中形成明显的长阳线。
 
-科研团队依托全链条自主技术，在“本源悟空”上搭载了抗量子攻击密码防护体系“本源磐石”，构建了覆盖终端、传输、数据全生命周期的量子安全解决方案，在保障量子算力供给的同时，为量子计算服务体系构建了全维度安全防护能力。
+随后的一个半小时里，USDJPY继续上涨，最高触及159.11，累计最大涨幅13基点。
 
-(完)
+日本的通胀率低于预期，意味着日本央行加息的紧迫性不及美联储，日本走贬符合逻辑。
+
+北京时间22：00，美国密歇根大学将公布两项关键数据：消费者信心指数和一年期通胀预期。
+
+这两项数据被美联储重点关注，如果出现类似日本CPI一样的超预期情况，可能导致EURUSD剧烈波动。
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 07:24 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 07:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 07:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 07:25 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 07:23 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 07:13 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 07:17 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 07:34 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 07:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 07:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 07:27 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 07:30 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 07:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 07:27 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 07:20 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 07:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 07:43 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 07:37 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 07:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 07:30 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 07:29 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/51836283847.shtml)
-- 2026-06-30 07:31 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/403453655.shtml)
-- 2026-06-30 07:28 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/53934.shtml)
-- 2026-06-30 07:13 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/318519.shtml)
-- 2026-06-30 07:35 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/30169.shtml)
-- 2026-06-30 07:20 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/792993.shtml)
-- 2026-06-30 07:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/92597458.shtml)
-- 2026-06-30 07:37 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/303363182386.shtml)
-- 2026-06-30 07:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/99533.shtml)
-- 2026-06-30 07:17 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/44497.shtml)
-- 2026-06-30 07:29 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/7761484.shtml)
-- 2026-06-30 07:39 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/743713061.shtml)
-- 2026-06-30 07:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/2660792349.shtml)
-- 2026-06-30 07:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/08248910374.shtml)
-- 2026-06-30 07:39 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/5676500.shtml)
+- 2026-06-30 07:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/0912751.shtml)
+- 2026-06-30 07:33 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/407453061.shtml)
+- 2026-06-30 07:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/72570000.shtml)
+- 2026-06-30 07:26 - [第一炉香](https://www.share.minike.top/Article/details/48095.shtml)
+- 2026-06-30 07:43 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/223639.shtml)
+- 2026-06-30 07:46 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/1129392151.shtml)
+- 2026-06-30 07:26 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/464117.shtml)
+- 2026-06-30 07:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/051894166.shtml)
+- 2026-06-30 07:21 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/1093070.shtml)
+- 2026-06-30 07:20 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/73369877.shtml)
+- 2026-06-30 07:24 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/57847831904.shtml)
+- 2026-06-30 07:47 - [速度与激情9](https://www.share.minike.top/Article/details/0656756.shtml)
+- 2026-06-30 07:47 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/70598199643.shtml)
+- 2026-06-30 07:28 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/2213386.shtml)
+- 2026-06-30 07:24 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/82849409.shtml)

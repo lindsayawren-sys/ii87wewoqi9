@@ -1,57 +1,58 @@
-# 散户大军助力SpaceX史诗级首秀 稳定动荡的美股大盘
+# 加码防卫费 日本执意扩武拖累经济民生
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 几周以来，投资者首次感到焦虑。他们担忧中东战争，担忧势头过猛的芯片股涨势，也担忧利率走高。然后是SpaceX的首次公开募股（IPO）。 这家太空探索公司上周五的上市首秀顺利进行，瞬间让埃隆．马斯克（Elon Musk）的这家火箭公司成为美国估值最高的公司之一，市值达到2.1万亿美元。Vanda Research
+近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。 分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。京都新闻进一步分析认为，未来，
 
 ## 正文
 
-专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 几周以来，投资者首次感到焦虑。
+近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。
 
-他们担忧中东战争，担忧势头过猛的芯片股涨势，也担忧利率走高。
+分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。
 
-然后是SpaceX的首次公开募股（IPO）。
+京都新闻进一步分析认为，未来，日本可能进一步将防卫费提高至GDP的3.5%。
 
-这家太空探索公司上周五的上市首秀顺利进行，瞬间让埃隆．马斯克（Elon Musk）的这家火箭公司成为美国估值最高的公司之一，市值达到2.1万亿美元。
+然而，在人口持续减少的日本，是否能够长期承担每年的巨额开支？
 
-Vanda Research的数据显示，该股飙升两位数的一个关键催化剂是自行交易的散户大量涌入，他们在开盘后的前20分钟内买入了约1800万美元的SpaceX股票。
+如果不顾国家实际承受能力、一味追求增加防卫预算，反而可能使日本的防卫更加不稳定。
 
-Vanda的分析师表示，到当天收盘时，散户的净买入总额约为1.18亿美元，这是近期历史上散户参与规模最大的一次IPO。
+扩军备武叠加民生承压 自民党执政前景堪忧 总台记者 何欣蕾：可以看到在日本扩军备武的动向之下，为了保证防卫费预算而逐步推行相关增税政策，使得民生状况进一步承压。
 
-“这似乎是一场终极的‘错失恐惧症’（FOMO）式IPO，”34岁的投资者兼播客主持人扎伊德．阿德马尼（Zaid Admani）说；FOMO代表害怕错过的英文首字母缩写。
+而中东局势的长期化，给日本经济带来的影响也在不断显现。
 
-阿德马尼一整天都盯著他的超宽显示器，关注著SpaceX的股票。
+日本朝日新闻前记者佐藤章在社交媒体评论称，高市(领导下的)自民党的衰退已势不可挡，在地方选举连战连败，支持率日渐下跌。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 07:25 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 07:25 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 07:28 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 07:41 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 07:41 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 07:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:29 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 07:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 07:12 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 07:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 07:34 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 07:25 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 07:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 07:27 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 07:30 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 07:32 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 07:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 07:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 07:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [流金岁月](http://www.share.kurohicncr.top/Article/details/235467590337.shtml)
-- 2026-06-30 07:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/194101833.shtml)
-- 2026-06-30 07:15 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/3717006210.shtml)
-- 2026-06-30 07:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/512393517.shtml)
-- 2026-06-30 07:31 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/740624.shtml)
-- 2026-06-30 07:22 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/864339121700.shtml)
-- 2026-06-30 07:13 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/1309707.shtml)
-- 2026-06-30 07:22 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/35018195192.shtml)
-- 2026-06-30 07:39 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/87597.shtml)
-- 2026-06-30 07:38 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/82939.shtml)
-- 2026-06-30 07:39 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/25032.shtml)
-- 2026-06-30 07:17 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/70583493.shtml)
-- 2026-06-30 07:40 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/15424.shtml)
-- 2026-06-30 07:40 - [速度与激情9](http://www.share.minike.top/Article/details/7563106.shtml)
-- 2026-06-30 07:40 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/40533109.shtml)
+- 2026-06-30 07:46 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/736099028.shtml)
+- 2026-06-30 07:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/84106.shtml)
+- 2026-06-30 07:45 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/4204653294.shtml)
+- 2026-06-30 07:38 - [张凌赫 客串](https://www.share.minike.top/Article/details/6183231316.shtml)
+- 2026-06-30 07:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/697737.shtml)
+- 2026-06-30 07:47 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/9496692373.shtml)
+- 2026-06-30 07:26 - [流金岁月](http://www.blog.minike.top/Article/details/91205572.shtml)
+- 2026-06-30 07:42 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/404597280.shtml)
+- 2026-06-30 07:42 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/39293.shtml)
+- 2026-06-30 07:47 - [小娘惹](https://www.share.minike.top/Article/details/326409589089.shtml)
+- 2026-06-30 07:30 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/377531172651.shtml)
+- 2026-06-30 07:22 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/24928441.shtml)
+- 2026-06-30 07:27 - [点球大战](http://www.share.minike.top/Article/details/12222.shtml)
+- 2026-06-30 07:28 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/3548651.shtml)
+- 2026-06-30 07:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/71363036476.shtml)

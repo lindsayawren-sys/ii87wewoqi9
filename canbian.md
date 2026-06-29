@@ -1,61 +1,52 @@
-# 鲍师傅9.9元标价暗藏玄机，消费前“瞄一眼”帮你避开这些坑
+# 安徽省合肥市委原副书记路军被开除党籍和公职
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。 这种“大价小字”的标价方式，并非鲍师傅一家独有。从零食连锁店到生鲜超市
+中新网5月22日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对合肥市委原副书记路军严重违纪违法问题进行了立案审查调查。 经查，路军丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，违规接受宴请；违背组织原则，在组织谈话时不如实说明问题；廉洁底线失守，收受可能影响公正执行公务的礼品；违反工作纪律，违规干预行政执法活动；利用职
 
 ## 正文
 
-近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。
+中新网5月22日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对合肥市委原副书记路军严重违纪违法问题进行了立案审查调查。
 
-不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。
+经查，路军丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，违规接受宴请；违背组织原则，在组织谈话时不如实说明问题；廉洁底线失守，收受可能影响公正执行公务的礼品；违反工作纪律，违规干预行政执法活动；利用职务便利为他人在房地产项目开发、股权收购等方面谋利，并非法收受巨额财物。
 
-品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。
+路军严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-这种“大价小字”的标价方式，并非鲍师傅一家独有。
-
-从零食连锁店到生鲜超市，从餐饮门店到线上电商，“价格误导”已经成为消费场景中最常见的套路之一。
-
-消费者在快速决策时，往往只注意到醒目的数字，而忽略了旁边被刻意弱化的计量单位。
-
-除了价格误导，生活中还有哪些常见的消费陷阱？
-
-一是“先涨后降”。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予路军开除党籍处分；由安徽省监委给予其开除公职处分；终止其合肥市第十二次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 07:36 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 07:23 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 07:34 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 07:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 07:22 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 07:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 07:17 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 07:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 07:12 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 07:12 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 07:22 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 07:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 07:38 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:44 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 07:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:22 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 07:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 07:38 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 07:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 07:28 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 07:47 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 07:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 07:26 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 07:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 07:35 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 07:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/96257.shtml)
-- 2026-06-30 07:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/91889386.shtml)
-- 2026-06-30 07:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/3848878864.shtml)
-- 2026-06-30 07:22 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/29023.shtml)
-- 2026-06-30 07:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/7721605753.shtml)
-- 2026-06-30 07:21 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/70085095240.shtml)
-- 2026-06-30 07:18 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/398087423.shtml)
-- 2026-06-30 07:20 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2073136045.shtml)
-- 2026-06-30 07:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/8581544.shtml)
-- 2026-06-30 07:36 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/872775961422.shtml)
-- 2026-06-30 07:15 - [我们的少年时代2](https://www.share.minike.top/Article/details/08784407.shtml)
-- 2026-06-30 07:38 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/62029659890.shtml)
-- 2026-06-30 07:15 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/765572.shtml)
-- 2026-06-30 07:21 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/732983033.shtml)
-- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/431936.shtml)
+- 2026-06-30 07:22 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/924187517425.shtml)
+- 2026-06-30 07:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/46489281.shtml)
+- 2026-06-30 07:34 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/031609.shtml)
+- 2026-06-30 07:45 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/68074139.shtml)
+- 2026-06-30 07:31 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/26553119378.shtml)
+- 2026-06-30 07:19 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/751729883560.shtml)
+- 2026-06-30 07:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/297200.shtml)
+- 2026-06-30 07:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/4074541.shtml)
+- 2026-06-30 07:36 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/717260.shtml)
+- 2026-06-30 07:26 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/95679.shtml)
+- 2026-06-30 07:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/556097.shtml)
+- 2026-06-30 07:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/505291098.shtml)
+- 2026-06-30 07:40 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/3780944.shtml)
+- 2026-06-30 07:34 - [内马尔替补](http://www.share.minike.top/Article/details/173727979.shtml)
+- 2026-06-30 07:30 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/27956.shtml)

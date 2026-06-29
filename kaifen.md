@@ -1,61 +1,49 @@
-# 七国集团峰会在法国开幕 马克龙与特朗普会谈
+# 李家超回应黎家盈入选神23乘组
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。 根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。 特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会
+中国载人航天工程办公室今日(五月二十三日)公布神舟二十三号飞行乘组成员，当中包括来自香港特别行政区(特区)的载荷专家黎家盈博士。香港特区行政长官李家超感谢国家对香港特区的支持和信任，同时祝贺黎家盈博士通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量。李家超预祝神舟二十三号飞行任务圆满成功。(记者 邱兆翔)
 
 ## 正文
 
-中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。
+中国载人航天工程办公室今日(五月二十三日)公布神舟二十三号飞行乘组成员，当中包括来自香港特别行政区(特区)的载荷专家黎家盈博士。
 
-法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。
+香港特区行政长官李家超感谢国家对香港特区的支持和信任，同时祝贺黎家盈博士通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量。
 
-根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。
+李家超预祝神舟二十三号飞行任务圆满成功。
 
-巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。
-
-特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会。
-
-与马克龙的会谈是特朗普出席此次峰会期间的首场官方活动。
-
-特朗普尚未确定是否与其他与会领导人举行双边会谈。
-
-马克龙在会谈开始时就美国和伊朗确认就结束战争达成谅解备忘录向特朗普表示祝贺，称这是实现和平的“重要一步”。
+(记者 邱兆翔)
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 07:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 07:15 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 07:16 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 07:20 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 07:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:29 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 07:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:33 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 07:13 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 07:26 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 07:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 07:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 07:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 07:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 07:30 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 07:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:44 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 07:23 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 07:37 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 07:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 07:29 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 07:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 07:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:23 - [沉睡花园](http://www.blog.minike.top/Article/details/58397788.shtml)
-- 2026-06-30 07:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/62331878531.shtml)
-- 2026-06-30 07:29 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/90471.shtml)
-- 2026-06-30 07:17 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/074846.shtml)
-- 2026-06-30 07:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/3655412.shtml)
-- 2026-06-30 07:34 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/609159.shtml)
-- 2026-06-30 07:24 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/4496268.shtml)
-- 2026-06-30 07:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/90804.shtml)
-- 2026-06-30 07:29 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/18094130620.shtml)
-- 2026-06-30 07:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/7443271020.shtml)
-- 2026-06-30 07:20 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/184612123.shtml)
-- 2026-06-30 07:33 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/167371770676.shtml)
-- 2026-06-30 07:12 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/269376.shtml)
-- 2026-06-30 07:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/15356.shtml)
-- 2026-06-30 07:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/13047062409.shtml)
+- 2026-06-30 07:30 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/9948624.shtml)
+- 2026-06-30 07:39 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/927503.shtml)
+- 2026-06-30 07:47 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/393887654729.shtml)
+- 2026-06-30 07:28 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/408746.shtml)
+- 2026-06-30 07:33 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/905123085.shtml)
+- 2026-06-30 07:26 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/90403.shtml)
+- 2026-06-30 07:20 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/34608.shtml)
+- 2026-06-30 07:39 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/7905773.shtml)
+- 2026-06-30 07:27 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/88473228.shtml)
+- 2026-06-30 07:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/1692192662.shtml)
+- 2026-06-30 07:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/696828273.shtml)
+- 2026-06-30 07:44 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/81980.shtml)
+- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/99137049.shtml)
+- 2026-06-30 07:21 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/964386922570.shtml)
+- 2026-06-30 07:39 - [张凌赫 客串](http://www.share.minike.top/Article/details/870235851.shtml)

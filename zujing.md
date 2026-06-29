@@ -1,52 +1,57 @@
-# 德国队成世界杯历史进球最多队伍 荷兰日本平局收场
+# 化工板块掀涨停潮，超170亿主力资金加码！华宝基金化工ETF（516020）盘中涨近2%，“击球区”到了？
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网6月15日电 北京时间15日，美加墨世界杯共进行了四场小组赛争夺。 焦点之战中，荷兰队与日本队2比2战平，已出场的4支亚足联球队保持不败。科特迪瓦队1比0击败厄瓜多尔队，瑞典队5比1战胜突尼斯队。 德国队7比1大胜库拉索队，以239球超越巴西队成为赛事历史进球最多的队伍。世界杯赛场上一次出现该比分是12年前，当时德国队在半决赛中大胜主场作战的巴西队。(完)
+化工板块今日（5月22日）重拾攻势！反映化工板块整体走势的化工ETF华宝（516020）开盘后持续拉升，盘中场内价格最高涨幅达到1.98%，截至收盘，涨1.76%。 成份股方面，氟化工、氯碱、锂电等板块涨幅居前。截至收盘，巨化股份、航锦科技、三美股份三股涨停，新宙邦、联泓新科、多氟多等亦涨幅居前。 值得注意的是，年初以来，化工板块表现显著优于大盘。数据显示，截至今日（5月22日
 
 ## 正文
 
-中新网6月15日电 北京时间15日，美加墨世界杯共进行了四场小组赛争夺。
+化工板块今日（5月22日）重拾攻势！
 
-焦点之战中，荷兰队与日本队2比2战平，已出场的4支亚足联球队保持不败。
+反映化工板块整体走势的化工ETF华宝（516020）开盘后持续拉升，盘中场内价格最高涨幅达到1.98%，截至收盘，涨1.76%。
 
-科特迪瓦队1比0击败厄瓜多尔队，瑞典队5比1战胜突尼斯队。
+成份股方面，氟化工、氯碱、锂电等板块涨幅居前。
 
-德国队7比1大胜库拉索队，以239球超越巴西队成为赛事历史进球最多的队伍。
+截至收盘，巨化股份、航锦科技、三美股份三股涨停，新宙邦、联泓新科、多氟多等亦涨幅居前。
 
-世界杯赛场上一次出现该比分是12年前，当时德国队在半决赛中大胜主场作战的巴西队。
+值得注意的是，年初以来，化工板块表现显著优于大盘。
 
-(完)
+数据显示，截至今日（5月22日）收盘，化工ETF华宝（516020）标的指数细分化工指数年内累计涨幅为5.71%，优于同期上证指数（3.63%）、沪深300指数（4.65%）等A股主要指数。
+
+数据来源：Wind，取值区间为2026.1.1-2026.5.22，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。
+
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 07:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 07:27 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 07:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 07:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 07:26 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 07:23 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 07:28 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 07:12 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 07:12 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:39 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 07:47 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 07:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 07:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 07:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 07:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 07:36 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 07:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 07:43 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 07:26 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:23 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/20095173410.shtml)
-- 2026-06-30 07:27 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/356079491.shtml)
-- 2026-06-30 07:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/59907410.shtml)
-- 2026-06-30 07:31 - [毒液2](http://www.share.kurohicncr.top/Article/details/29782712.shtml)
-- 2026-06-30 07:20 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/19206.shtml)
-- 2026-06-30 07:23 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/3959831434.shtml)
-- 2026-06-30 07:26 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/195308.shtml)
-- 2026-06-30 07:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/007947766.shtml)
-- 2026-06-30 07:23 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/2807751.shtml)
-- 2026-06-30 07:21 - [点球大战](https://www.share.minike.top/Article/details/10274158001.shtml)
-- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/7240180.shtml)
-- 2026-06-30 07:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/8227792.shtml)
-- 2026-06-30 07:38 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/33502.shtml)
-- 2026-06-30 07:25 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/11728022.shtml)
-- 2026-06-30 07:22 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/6369314496.shtml)
+- 2026-06-30 07:20 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/210705702518.shtml)
+- 2026-06-30 07:35 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/530278119565.shtml)
+- 2026-06-30 07:32 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/81267418.shtml)
+- 2026-06-30 07:28 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/44712390633.shtml)
+- 2026-06-30 07:19 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/31636.shtml)
+- 2026-06-30 07:19 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/436479800.shtml)
+- 2026-06-30 07:19 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/739576377558.shtml)
+- 2026-06-30 07:42 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/8080116328.shtml)
+- 2026-06-30 07:39 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/668266761.shtml)
+- 2026-06-30 07:38 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/274483390.shtml)
+- 2026-06-30 07:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/85687.shtml)
+- 2026-06-30 07:31 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/29485230.shtml)
+- 2026-06-30 07:25 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/0114769135.shtml)
+- 2026-06-30 07:22 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/537483461259.shtml)
+- 2026-06-30 07:42 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/345787291979.shtml)

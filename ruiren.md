@@ -1,59 +1,55 @@
-# 金观平：打开“人工智能+消费”想象空间
+# 探馆第二十八届海峡两岸经贸交易会：“台味”浓 人气旺
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-商务部数据显示，今年前4个月，智能助行外骨骼网上商品零售额增长785.5%。消费级具身智能也快速成长，4月份智能眼镜和人形机器人网上商品零售额分别增长175.2%和20.6%。当前，我国正积极优化经济结构，持续扩大内需，提升经济发展质量。在此背景下，引导人工智能扎根实体经济、服务民生福祉，对推动消费领域深层变革具有重要意义。从宏观经济运行看，人工智能与消费的深度融合，正为经济结
+发布时间：2026年05月24日 17:06 来源：中国新闻网 5月24日，以“推动经贸融合、共建第一家园”为主题的第二十八届海峡两岸经贸交易会正在福建福州举行，本届海交会规划面积达4万平方米，时值周末，成果发布及推介交流活动吸引了许多民众前来参观。 记者看到，现场设置了包括台湾工业智造科技、台湾青年创业、台企好物、台湾县区特色产业、福马产业园、两岸绿色低碳产业、两岸乡建乡创合
 
 ## 正文
 
-商务部数据显示，今年前4个月，智能助行外骨骼网上商品零售额增长785.5%。
+发布时间：2026年05月24日 17:06 来源：中国新闻网 5月24日，以“推动经贸融合、共建第一家园”为主题的第二十八届海峡两岸经贸交易会正在福建福州举行，本届海交会规划面积达4万平方米，时值周末，成果发布及推介交流活动吸引了许多民众前来参观。
 
-消费级具身智能也快速成长，4月份智能眼镜和人形机器人网上商品零售额分别增长175.2%和20.6%。
+记者看到，现场设置了包括台湾工业智造科技、台湾青年创业、台企好物、台湾县区特色产业、福马产业园、两岸绿色低碳产业、两岸乡建乡创合作、两岸康养产业、各省市特色产业、两岸时尚产业等10个主题推介交流区。
 
-当前，我国正积极优化经济结构，持续扩大内需，提升经济发展质量。
+在福州海峡职业棒球队的用品中心互动体验区，现场搭起了棒球体验场，吸引众多民众前来体验。
 
-在此背景下，引导人工智能扎根实体经济、服务民生福祉，对推动消费领域深层变革具有重要意义。
+“台湾好物主题推介交流区”人气爆棚，牛肉面、台式麻辣锅等各类台湾零食饮品琳琅满目，吸引了民众驻足体验。
 
-从宏观经济运行看，人工智能与消费的深度融合，正为经济结构优化注入新动能。
-
-4月份国民经济运行情况显示，数智化和绿色化转型深入推进，智能、绿色、健康等新型消费需求加速释放，数字经济对传统消费领域的渗透持续加快。
-
-也要看到，人工智能的快速发展伴生算法歧视、数据垄断及隐私泄露等风险。
-
-对此，应加快构建一套涵盖标准引领、权益保障与市场准入的立体化治理体系。
+(记者 吴晟炜） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 07:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 07:35 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 07:18 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 07:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 07:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 07:37 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 07:20 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 07:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 07:33 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 07:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 07:41 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 07:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 07:26 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 07:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 07:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 07:37 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 07:26 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 07:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 07:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 07:24 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 07:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 07:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 07:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 07:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/122367.shtml)
-- 2026-06-30 07:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/34364130992.shtml)
-- 2026-06-30 07:26 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/60237.shtml)
-- 2026-06-30 07:21 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/8737437.shtml)
-- 2026-06-30 07:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/812908543806.shtml)
-- 2026-06-30 07:41 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/017241.shtml)
-- 2026-06-30 07:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/2426011.shtml)
-- 2026-06-30 07:13 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/17739817.shtml)
-- 2026-06-30 07:21 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/06964004.shtml)
-- 2026-06-30 07:31 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/03070594.shtml)
-- 2026-06-30 07:23 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/58009.shtml)
-- 2026-06-30 07:37 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/413080432609.shtml)
-- 2026-06-30 07:41 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/0605451.shtml)
-- 2026-06-30 07:22 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/88523156587.shtml)
-- 2026-06-30 07:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/2237656454.shtml)
+- 2026-06-30 07:42 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/8288416.shtml)
+- 2026-06-30 07:40 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/134685561809.shtml)
+- 2026-06-30 07:36 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/28058001.shtml)
+- 2026-06-30 07:38 - [逃狱兄弟](http://www.share.minike.top/Article/details/537480509.shtml)
+- 2026-06-30 07:46 - [巴西vs日本](http://www.blog.minike.top/Article/details/7125526202.shtml)
+- 2026-06-30 07:24 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/50474908992.shtml)
+- 2026-06-30 07:37 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/016913352.shtml)
+- 2026-06-30 07:18 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/186258703302.shtml)
+- 2026-06-30 07:31 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/0516379.shtml)
+- 2026-06-30 07:44 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/355255.shtml)
+- 2026-06-30 07:20 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/962432196927.shtml)
+- 2026-06-30 07:30 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/899624016557.shtml)
+- 2026-06-30 07:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/13996368853.shtml)
+- 2026-06-30 07:30 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/03537.shtml)
+- 2026-06-30 07:35 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/5562513.shtml)

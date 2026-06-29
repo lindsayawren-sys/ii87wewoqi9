@@ -1,57 +1,54 @@
-# （乡村行·看振兴）福建宁化：小箬叶激活林下经济 粽叶飘香“钱”景可期
+# 香港培侨中学将建AI+教育共享中心 助力香港基础教育数字化发展
 
-> 更新时间：2026-06-30 07:42:02 UTC+8
+> 更新时间：2026-06-30 07:48:02 UTC+8
 
 ## 摘要
 
-中新网福建宁化6月16日电 (雷露微 陈玉婕)夏日时节，福建省宁化县安远镇箬竹林，箬竹长势喜人，箬叶(粽叶)繁茂。清晨，村民走进林间，挑选叶片宽厚、品相完好的鲜叶，熟练采摘、整齐叠放。采摘粽叶门槛低、不与农时冲突，已成为当地群众增收的重要渠道。 宁化县是南方重点林区县，气候温润，林下土质肥沃疏松，非常适宜箬竹生长，安远、水茜、河龙等北部山区乡镇野生箬竹储量最为集中。本地箬叶叶片
+中新网香港5月24日电 香港培侨中学(简称“培侨中学”)校长伍焕杰23日表示，学校计划建设“AI(人工智能)+教育”共享中心，希望成为香港乃至全球教育界交流研究的平台，向海内外讲述AI在香港教育领域的实践故事。伍焕杰带领培侨中学代表团到访科大讯飞交流时做出以上表述，培侨中学将依托科大讯飞的AI技术与全场景教育解决方案，打造香港AI+教育示范样板，助力香港基础教育数字化高质量发展
 
 ## 正文
 
-中新网福建宁化6月16日电 (雷露微 陈玉婕)夏日时节，福建省宁化县安远镇箬竹林，箬竹长势喜人，箬叶(粽叶)繁茂。
+中新网香港5月24日电 香港培侨中学(简称“培侨中学”)校长伍焕杰23日表示，学校计划建设“AI(人工智能)+教育”共享中心，希望成为香港乃至全球教育界交流研究的平台，向海内外讲述AI在香港教育领域的实践故事。
 
-清晨，村民走进林间，挑选叶片宽厚、品相完好的鲜叶，熟练采摘、整齐叠放。
+伍焕杰带领培侨中学代表团到访科大讯飞交流时做出以上表述，培侨中学将依托科大讯飞的AI技术与全场景教育解决方案，打造香港AI+教育示范样板，助力香港基础教育数字化高质量发展。
 
-采摘粽叶门槛低、不与农时冲突，已成为当地群众增收的重要渠道。
+科大讯飞联合创始人聂小林表示，期望以此次合作为契机，更好地服务香港国际化、多元化的教育发展需求。
 
-宁化县是南方重点林区县，气候温润，林下土质肥沃疏松，非常适宜箬竹生长，安远、水茜、河龙等北部山区乡镇野生箬竹储量最为集中。
+活动期间，双方在交流会上聚焦香港基础教育特色、校园智能化升级需求、AI教育常态化应用等内容展开探讨。
 
-本地箬叶叶片宽大、质地柔韧、清香耐煮，品质优势突出，市场认可度高。
-
-自20世纪90年代起，安远镇逐步形成成熟的粽叶收购、外销流通体系，培育了一批本地购销商户，区域性集散市场日趋稳定。
-
-目前，安远镇年箬叶交易量60多万公斤，为当地群众带来稳定的经济收益。
-
-每年农历四月至七月是箬叶采收旺季。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 07:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 07:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 07:29 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 07:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 07:37 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 07:29 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 07:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 07:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 07:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 07:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 07:34 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 07:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 07:26 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 07:41 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 07:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 07:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 07:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 07:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 07:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 07:39 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 07:24 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 07:38 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/58639372.shtml)
-- 2026-06-30 07:34 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/9905209.shtml)
-- 2026-06-30 07:15 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/679290561.shtml)
-- 2026-06-30 07:39 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/37524078.shtml)
-- 2026-06-30 07:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/123501571.shtml)
-- 2026-06-30 07:24 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/559836.shtml)
-- 2026-06-30 07:35 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/69385694.shtml)
-- 2026-06-30 07:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/65948.shtml)
-- 2026-06-30 07:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/15369650.shtml)
-- 2026-06-30 07:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/14543636483.shtml)
-- 2026-06-30 07:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/4517238117.shtml)
-- 2026-06-30 07:33 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/744713107.shtml)
-- 2026-06-30 07:32 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/177794397042.shtml)
-- 2026-06-30 07:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/254054153296.shtml)
-- 2026-06-30 07:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/9574465947.shtml)
+- 2026-06-30 07:45 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/6445300.shtml)
+- 2026-06-30 07:31 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/2130848.shtml)
+- 2026-06-30 07:29 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/97418249.shtml)
+- 2026-06-30 07:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/373325060723.shtml)
+- 2026-06-30 07:33 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/179596719.shtml)
+- 2026-06-30 07:42 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/02335786.shtml)
+- 2026-06-30 07:20 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/355180084582.shtml)
+- 2026-06-30 07:43 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/2860342774.shtml)
+- 2026-06-30 07:44 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/02394102080.shtml)
+- 2026-06-30 07:22 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/010323.shtml)
+- 2026-06-30 07:41 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/92056962.shtml)
+- 2026-06-30 07:42 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/05296565.shtml)
+- 2026-06-30 07:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/198090.shtml)
+- 2026-06-30 07:24 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/67324033.shtml)
+- 2026-06-30 07:45 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/261489964688.shtml)
