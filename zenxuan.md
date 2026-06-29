@@ -1,57 +1,60 @@
-# 燃油附加费上调、国际航线缩减，全球航司为何在旺季削减运力？
+# Eni CCUS Holding获超6.7亿美元融资，用于碳捕集与封存项目
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-燃油附加费上调、国际航线缩减、低成本航司停运…… 全球航司为何在旺季削减运力？ 羊城晚报记者 詹淑真 国内航线燃油附加费将再次上调。机票销售平台飞常准App接航司通知，自2026年5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。800公里(含)以下航段向每位成人旅客收取燃油费90元，800公里以上航段向每位成人旅客收取燃油费170元，分别上涨30元和50元。 在不少消
+Eni与全球基础设施合作伙伴（贝莱德旗下公司，也是Eni CCUS Holding的战略合作伙伴）表示，该公司已获得超过6.7亿美元（5亿英镑）的融资，以支持其碳捕集与封存项目平台。 该融资由13家国际银行组成的银团提供，此前利物浦湾CCS项目已完成项目融资，该项目是英国HyNet工业脱碳集群的一部分。 两家公司表示，市场对Eni CCUS Holding的兴趣超过了最初设定的
 
 ## 正文
 
-燃油附加费上调、国际航线缩减、低成本航司停运…… 全球航司为何在旺季削减运力？
+Eni与全球基础设施合作伙伴（贝莱德旗下公司，也是Eni CCUS Holding的战略合作伙伴）表示，该公司已获得超过6.7亿美元（5亿英镑）的融资，以支持其碳捕集与封存项目平台。
 
-羊城晚报记者 詹淑真 国内航线燃油附加费将再次上调。
+该融资由13家国际银行组成的银团提供，此前利物浦湾CCS项目已完成项目融资，该项目是英国HyNet工业脱碳集群的一部分。
 
-机票销售平台飞常准App接航司通知，自2026年5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。
+两家公司表示，市场对Eni CCUS Holding的兴趣超过了最初设定的融资目标。
 
-800公里(含)以下航段向每位成人旅客收取燃油费90元，800公里以上航段向每位成人旅客收取燃油费170元，分别上涨30元和50元。
+法国巴黎银行担任该交易的独家财务顾问。
 
-在不少消费者看来，机票又要变贵了；而对于航空公司而言，这更像是一场不得不进行的“成本自救”。
+Eni CCUS Holding表示，此次融资反映了金融市场对其CCS战略和项目执行能力的信心，以及Eni和GIP作为股东的支持。
 
-过去两个多月，中东地缘冲突持续推高国际原油价格。
+利物浦湾CCS项目已于2025年4月与英国政府达成融资关闭，目前正在开发中，将作为HyNet集群工业的运输和封存网络。
 
-航空业这个对油价高度敏感的行业，正在经历新一轮成本冲击。
+两家公司表示，该项目已有超过30%的建设工作完成。
 
-燃油附加费上调、国际航线缩减、低成本航司停运……全球范围内，一场由油价引发的航空业连锁反应正在发生。
+利物浦湾CCS项目第一阶段预计每年可封存450万吨二氧化碳，到2030年代年封存量有望达到1000万吨。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 04:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 04:59 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:17 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 05:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 05:02 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 05:17 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 05:00 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 05:04 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 05:15 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 05:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 05:21 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 05:02 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:12 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 05:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 05:20 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 05:00 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 05:13 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 05:20 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:11 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 05:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/543553.shtml)
-- 2026-06-30 05:08 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/354688117726.shtml)
-- 2026-06-30 05:05 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/939868634.shtml)
-- 2026-06-30 05:16 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/91394661747.shtml)
-- 2026-06-30 05:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/370219.shtml)
-- 2026-06-30 05:08 - [日本领先巴西](http://www.blog.minike.top/Article/details/192388209222.shtml)
-- 2026-06-30 05:04 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/952228.shtml)
-- 2026-06-30 05:02 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/9683198.shtml)
-- 2026-06-30 04:54 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/28611.shtml)
-- 2026-06-30 05:09 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/091300.shtml)
-- 2026-06-30 05:21 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/566429.shtml)
-- 2026-06-30 05:23 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/51077499601.shtml)
-- 2026-06-30 05:03 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/461436152406.shtml)
-- 2026-06-30 04:59 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/2326408.shtml)
-- 2026-06-30 05:01 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/14812.shtml)
+- 2026-06-30 05:08 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/365960718181.shtml)
+- 2026-06-30 05:17 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/584456.shtml)
+- 2026-06-30 05:04 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/45724.shtml)
+- 2026-06-30 05:15 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/380541.shtml)
+- 2026-06-30 05:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/116283089.shtml)
+- 2026-06-30 05:05 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/98993147120.shtml)
+- 2026-06-30 05:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/5346555708.shtml)
+- 2026-06-30 05:21 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/792235267826.shtml)
+- 2026-06-30 05:16 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/21206.shtml)
+- 2026-06-30 05:00 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/91190693.shtml)
+- 2026-06-30 05:09 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/80522886.shtml)
+- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/510010610.shtml)
+- 2026-06-30 05:28 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/25013303.shtml)
+- 2026-06-30 05:23 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/976101.shtml)
+- 2026-06-30 05:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/69792210.shtml)

@@ -1,57 +1,61 @@
-# 106家画廊作品集中亮相“香港冉起当代艺博会”
+# 中信建投期货：5月22日农产品早报
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！告诉你一个你所不知道的天坛天热了车里别放这些东西！已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示科幻走进现实！首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？电动化替代速度超预期，中国新
+玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期
 
 ## 正文
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
+玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
+饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。
 
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
+目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期即便走强也不构成持续性利多。
 
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+稻谷拍的市场消息卖对盘面的反复拉扯削弱，适当减少关注。
 
-专家提示科幻走进现实！
+2．观点总结：观望为主，等待利空进一步消化。
 
-首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？
+豆粕：中性 1．地缘风险升水回吐、北美产区天气整体良好，以及市场等待中美采购协议的进一步细节，隔夜CBOT大豆延续回调。
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+截至5月19日，美豆产区干旱覆盖比例27%，周度环比小幅下降1个百分点。
 
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+天气预报显示，未来一周美豆多数产区迎来有利降雨，其中东南部地区周度累计降雨预计达到50-80毫米，有望缓解土壤干旱。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 05:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 05:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 05:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 05:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 05:08 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 05:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 05:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 05:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 05:13 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 05:01 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 05:20 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 05:11 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 05:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 05:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 05:28 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 05:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 05:04 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 05:07 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 05:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 05:10 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 05:02 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 05:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 05:00 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/2069741211.shtml)
-- 2026-06-30 05:17 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/99132.shtml)
-- 2026-06-30 05:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/85007.shtml)
-- 2026-06-30 04:57 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/35082.shtml)
-- 2026-06-30 05:05 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/6168442.shtml)
-- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/23834.shtml)
-- 2026-06-30 05:01 - [TOP Prada](http://www.share.minike.top/Article/details/124854306488.shtml)
-- 2026-06-30 05:04 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/2285921859.shtml)
-- 2026-06-30 05:20 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/347846955128.shtml)
-- 2026-06-30 04:58 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/361981.shtml)
-- 2026-06-30 05:23 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/791207721921.shtml)
-- 2026-06-30 04:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/0003218.shtml)
-- 2026-06-30 05:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/752873.shtml)
-- 2026-06-30 05:21 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/64780864.shtml)
-- 2026-06-30 05:16 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/4348824.shtml)
+- 2026-06-30 05:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/55996238504.shtml)
+- 2026-06-30 05:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/119265.shtml)
+- 2026-06-30 05:02 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/99321369407.shtml)
+- 2026-06-30 05:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/77521069625.shtml)
+- 2026-06-30 05:21 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/168196003.shtml)
+- 2026-06-30 05:17 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/09099354.shtml)
+- 2026-06-30 05:14 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/310396624.shtml)
+- 2026-06-30 05:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/1679288270.shtml)
+- 2026-06-30 05:23 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/141530444.shtml)
+- 2026-06-30 05:12 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/8629534428.shtml)
+- 2026-06-30 05:15 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/497883885.shtml)
+- 2026-06-30 05:20 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/132167684.shtml)
+- 2026-06-30 05:24 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/6854252.shtml)
+- 2026-06-30 05:11 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/85677143510.shtml)
+- 2026-06-30 05:26 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/48123455.shtml)

@@ -1,59 +1,57 @@
-# 长江有色：14日氧化铝期价收涨0.14% 下游维持刚需交易节奏
+# 合规前提下，什么软件可以查看基金实时估值？基民推荐这款APP
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-长江有色网5月14日讯，今日氧化铝所有合约涨跌分化，主力月2609合约早盘高开后略有回落，但随即反弹震荡，午后盘面进入区间震荡运行；截止当日15：00收盘，氧化铝主力月2609合约报2790元，涨4元，涨幅0.14%；加权合约累计成交325780手，比前一交易日增加112542手，涨幅52.78%；持仓量542512手增加1303手，涨幅0.24%。 今日国内氧化铝现货价格稳中
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年的基金市场，可谓冰火两重天。一方面，公募基金数量突破万只大关，5月新基金发行市场更是迎来“百基齐发”的小高峰，全月共有129只新基金排期发售；另一方面，2026年1月底，随着证监会监管合规要求全面落地，蚂蚁财富、同花顺基金、天天基金等主流平台纷纷关闭了“实时估值”入口，京东金融的“基金实盘牛人榜”也同步下线。不少基民打
 
 ## 正文
 
-长江有色网5月14日讯，今日氧化铝所有合约涨跌分化，主力月2609合约早盘高开后略有回落，但随即反弹震荡，午后盘面进入区间震荡运行；截止当日15：00收盘，氧化铝主力月2609合约报2790元，涨4元，涨幅0.14%；加权合约累计成交325780手，比前一交易日增加112542手，涨幅52.78%；持仓量542512手增加1303手，涨幅0.24%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年的基金市场，可谓冰火两重天。
 
-今日国内氧化铝现货价格稳中有跌；据长江有色网ccmn数据，5月14日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2680-2720元之间，与前一交易日报价持平；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2945-2985元之间，与前一交易日报价跌40元。
+一方面，公募基金数量突破万只大关，5月新基金发行市场更是迎来“百基齐发”的小高峰，全月共有129只新基金排期发售；另一方面，2026年1月底，随着证监会监管合规要求全面落地，蚂蚁财富、同花顺基金、天天基金等主流平台纷纷关闭了“实时估值”入口，京东金融的“基金实盘牛人榜”也同步下线。
 
-今日上期所氧化铝期货主力2605合约冲高震荡，日间交易收涨0.14%，国内氧化铝现货价格稳中有跌； 宏观方面，美联储新任主席已敲定由沃什接任，但市场对快速降息预期极低。
+不少基民打开支付宝或天天基金，发现熟悉的净值估算功能已悄然消失，一度陷入了“无估值可看”的焦虑。
 
-4月PPI超预期飙升创2022年初以来最大涨幅，叠加通胀加剧，年内降息预期基本破灭，甚至计价明年加息可能。
+监管为何叫停“实时估值”？
 
-美元走强、美债收益率攀升及股市吸金效应共振，情绪摇摆。
+这项功能看似便利，实则并非基金公司官方披露，而是平台基于上一份季报中的持仓信息进行的技术估算。
 
-但市场聚焦特朗普与中国领导人北京会晤，整体维持谨慎乐观。
+由于基金经理随时可能调仓换股，用“过期地图”导航当下市场的偏差风险不容忽视。
 
-产业层面，海外印度国家铝业宣布部分减产，且几内亚铝土矿出口政策尚不明朗，进口矿价格持稳，对海外氧化铝价格形成一定支撑。
+数据显示，主动混合型基金的实时估值与实际净值平均偏离度高达0.8%，极端情况可突破3%。
 
-国内供应端则呈现增减产并行态势，前期计划的复产与新投基本符合预期，氧化铝开工产能小幅爬升。
+2026年1月29日，监管部门通报要求所有基金销售机构及第三方网络平台加强自查自纠，按期下架“基金实时估值”“加仓榜”“实盘榜”等功能，以杜绝误导投资者的行为。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 05:20 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 05:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 05:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 05:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 05:14 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 05:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 05:04 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 04:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 05:03 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 05:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 05:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 05:08 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 05:29 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 05:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 05:22 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 05:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 05:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 05:10 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 05:19 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 05:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 05:04 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 05:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/23479677206.shtml)
-- 2026-06-30 05:16 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/0840351.shtml)
-- 2026-06-30 04:59 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/36597.shtml)
-- 2026-06-30 05:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/06095731760.shtml)
-- 2026-06-30 05:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/290811130.shtml)
-- 2026-06-30 05:05 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/53555410.shtml)
-- 2026-06-30 04:54 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/69035763119.shtml)
-- 2026-06-30 05:19 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/004015.shtml)
-- 2026-06-30 05:09 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/702536926.shtml)
-- 2026-06-30 05:22 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/656696109398.shtml)
-- 2026-06-30 05:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/52689.shtml)
-- 2026-06-30 05:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/33521.shtml)
-- 2026-06-30 05:20 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/43734.shtml)
-- 2026-06-30 05:19 - [沙丘](http://www.share.kurohicncr.top/Article/details/986056.shtml)
-- 2026-06-30 05:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/74473436703.shtml)
+- 2026-06-30 05:22 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/7968825.shtml)
+- 2026-06-30 05:19 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/730376302247.shtml)
+- 2026-06-30 05:21 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/129065.shtml)
+- 2026-06-30 05:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/52389.shtml)
+- 2026-06-30 05:05 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/804923972348.shtml)
+- 2026-06-30 05:11 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/608023050.shtml)
+- 2026-06-30 05:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/1627756247.shtml)
+- 2026-06-30 05:04 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/816706433.shtml)
+- 2026-06-30 05:13 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/690887.shtml)
+- 2026-06-30 05:29 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/033477720.shtml)
+- 2026-06-30 05:17 - [巴西vs日本](http://www.share.minike.top/Article/details/075530571035.shtml)
+- 2026-06-30 05:11 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/480051.shtml)
+- 2026-06-30 05:03 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/33537729.shtml)
+- 2026-06-30 05:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/87620.shtml)
+- 2026-06-30 05:00 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/9801633703.shtml)

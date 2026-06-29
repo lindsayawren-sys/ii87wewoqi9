@@ -1,60 +1,61 @@
-# 中信建投期货：5月14日黑色系早报
+# 618终极考验，吴泳铭将AI赌局全压在蒋凡一人身上
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。 2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新知财商早观 今年的618，早已不是普通的电商促销，而是吴泳铭对蒋凡的终极检验。 文丨南博闻 编辑丨新知君 2026年5月底，杭州阿里西溪园区，淘天集团的办公区连续半个月灯火通明。 蒋凡带着核心团队连轴转，把 618 大促的最后一轮补贴、流量、商家政策反复推演到深夜。 而在几公里外的西子宾馆，刚开完阿
 
 ## 正文
 
-钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。
+来源：新知财商早观 今年的618，早已不是普通的电商促销，而是吴泳铭对蒋凡的终极检验。
 
-美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%，均远超市场预期。
+文丨南博闻 编辑丨新知君 2026年5月底，杭州阿里西溪园区，淘天集团的办公区连续半个月灯火通明。
 
-3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸洗、冷轧、无取向硅钢等产品上调100元/吨。
+蒋凡带着核心团队连轴转，把 618 大促的最后一轮补贴、流量、商家政策反复推演到深夜。
 
-4、 5月4日-10日，10个重点城市新建商品房成交（签约）面积总计132.1万平方米，环比下降16.2%；二手房成交（签约）面积总计217.85万平方米，环比增长10.9%。
+而在几公里外的西子宾馆，刚开完阿里云峰会的吴泳铭，转头就把所有目光投向了淘天的 618数据——这是蒋凡从海外业务线调回淘天、接手电商基本盘后的第一个全民级大考，更是吴泳铭 ALL in AI 战略下，检验电商基本盘能否撑住 AI 烧钱黑洞的终极时刻。
 
-5、 5月13日，全国主港铁矿石成交85.40万吨，环比增47.2%；237家主流贸易商建筑钢材成交9.71万吨，环比增5.7%。
+一周前，阿里 2026 财年财报刚出炉，一组矛盾数据引爆市场：阿里云 AI 收入占比首破 30%，即时零售全年营收暴增 47%，可集团经调整净利润暴跌 85%，单季度 EBITA 亏损超 211 亿，自由现金流从净流入 738 亿转为净流出 466 亿。
 
-6、 5 月13日，76家独立电弧炉建筑钢材钢厂平均成本为3358元/吨，日环比持平，平均利润为19元/吨，谷电利润为118元/吨。
+一边是吴泳铭高调喊出“Agentic 时代”、“全栈 AI”的宏大叙事，一边是 AI 烧钱吞噬利润、淘天基本盘增速放缓、竞争对手疯狂挤压的现实。
 
-7、 据百年建筑调研，截至5月12日，样本建筑工地资金到位率为54.96%，较上一期下降0.4个百分点。
+所有人都在盯着618，蒋凡能不能把淘天的 GMV 拉起来？
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 05:08 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 05:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 04:57 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 05:09 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 05:14 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 05:09 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 05:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 05:19 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 04:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 05:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 05:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 05:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 04:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 05:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:28 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 05:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 05:17 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 05:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 05:23 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 05:17 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 05:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 05:01 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 05:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:18 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/17714921109.shtml)
-- 2026-06-30 05:11 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/86919.shtml)
-- 2026-06-30 05:11 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/43804.shtml)
-- 2026-06-30 05:12 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/5705340.shtml)
-- 2026-06-30 04:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/2696123.shtml)
-- 2026-06-30 05:03 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/142306590598.shtml)
-- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/93634.shtml)
-- 2026-06-30 05:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/6458383440.shtml)
-- 2026-06-30 04:58 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/764713435.shtml)
-- 2026-06-30 05:23 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/499550.shtml)
-- 2026-06-30 05:22 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/936589502077.shtml)
-- 2026-06-30 05:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/804304.shtml)
-- 2026-06-30 05:16 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/12362.shtml)
-- 2026-06-30 05:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/47866053874.shtml)
-- 2026-06-30 05:14 - [苗族银饰](http://www.blog.minike.top/Article/details/31446773590.shtml)
+- 2026-06-30 05:23 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/992071842.shtml)
+- 2026-06-30 05:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/251388.shtml)
+- 2026-06-30 05:03 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/0290910727.shtml)
+- 2026-06-30 05:28 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/48097.shtml)
+- 2026-06-30 05:07 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/886496047.shtml)
+- 2026-06-30 05:08 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/347129.shtml)
+- 2026-06-30 05:27 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/927413050595.shtml)
+- 2026-06-30 05:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/77685.shtml)
+- 2026-06-30 05:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/57802229272.shtml)
+- 2026-06-30 05:08 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/56530752172.shtml)
+- 2026-06-30 05:26 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/362415.shtml)
+- 2026-06-30 05:20 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/3977426.shtml)
+- 2026-06-30 05:19 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/995411531474.shtml)
+- 2026-06-30 05:05 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/5899200.shtml)
+- 2026-06-30 05:01 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/605201.shtml)

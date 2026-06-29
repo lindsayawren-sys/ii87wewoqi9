@@ -1,59 +1,57 @@
-# 外交部发言人就美国总统特朗普访华情况答记者问
+# 特朗普再威胁伊朗交出浓缩铀 称到手后或销毁
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。 有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平主席为特朗普
+新华社华盛顿5月21日电(记者黄强 徐剑梅)美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。 特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。我们不需要，也不想要。我们拿到后很可能会将其销毁，我们不会让他们拥有。”他还说，美伊正在进行谈判，结果如何尚待观察。 特朗普此前多次威胁伊朗交出浓缩铀。据美国媒体10日报道，特朗普称，
 
 ## 正文
 
-中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。
+新华社华盛顿5月21日电(记者黄强 徐剑梅)美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。
 
-有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
+特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。
 
-中方能否进一步介绍相关情况？
+我们不需要，也不想要。
 
-答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
+我们拿到后很可能会将其销毁，我们不会让他们拥有。
 
-这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+”他还说，美伊正在进行谈判，结果如何尚待观察。
 
-5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
+特朗普此前多次威胁伊朗交出浓缩铀。
 
-两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+据美国媒体10日报道，特朗普称，美国一直在对掩埋在废墟下的伊朗浓缩铀进行监控，美国太空军负责此事。
 
-两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
+当天早些时候，路透社援引伊朗消息人士的话报道，伊朗最高领袖穆杰塔巴·哈梅内伊已下达指令，要求该国浓缩铀库存不得运往国外。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 05:11 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 05:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 05:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 05:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 05:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 05:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 05:00 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 05:10 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 05:16 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 05:21 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 05:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 05:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 05:16 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 05:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 05:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 05:24 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 05:23 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 05:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 05:04 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 05:13 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 05:17 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 05:20 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 05:20 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/9482657191.shtml)
-- 2026-06-30 05:14 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/728590033.shtml)
-- 2026-06-30 05:02 - [爱很美味](https://www.share.kurohicncr.top/Article/details/6213105.shtml)
-- 2026-06-30 05:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/352713455227.shtml)
-- 2026-06-30 05:09 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/3978129597.shtml)
-- 2026-06-30 05:22 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/5785413586.shtml)
-- 2026-06-30 05:15 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/26647850851.shtml)
-- 2026-06-30 05:21 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/5374503391.shtml)
-- 2026-06-30 05:23 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/4617657.shtml)
-- 2026-06-30 04:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/48863377383.shtml)
-- 2026-06-30 04:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/481707779902.shtml)
-- 2026-06-30 05:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7383678157.shtml)
-- 2026-06-30 05:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0962933.shtml)
-- 2026-06-30 05:04 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/97148183958.shtml)
-- 2026-06-30 05:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/12321025772.shtml)
+- 2026-06-30 05:24 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/80841661.shtml)
+- 2026-06-30 05:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/65697025938.shtml)
+- 2026-06-30 05:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/1385945.shtml)
+- 2026-06-30 05:01 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/581902.shtml)
+- 2026-06-30 05:10 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/757490.shtml)
+- 2026-06-30 05:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/276166311549.shtml)
+- 2026-06-30 05:20 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/276035673.shtml)
+- 2026-06-30 05:21 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/8117344.shtml)
+- 2026-06-30 05:21 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8473305.shtml)
+- 2026-06-30 05:25 - [美人鱼](https://www.blog.minike.top/Article/details/32451374209.shtml)
+- 2026-06-30 05:24 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/46449.shtml)
+- 2026-06-30 05:23 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/713524.shtml)
+- 2026-06-30 05:11 - [巴西绝杀](http://www.share.minike.top/Article/details/39643.shtml)
+- 2026-06-30 05:04 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/05080654.shtml)
+- 2026-06-30 05:16 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/223316.shtml)

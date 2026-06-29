@@ -1,59 +1,60 @@
-# 成都公安通报一起“暴力虚开”增值税发票案 涉案金额12亿余元
+# “海上巨无霸”排队出海 我国造船业领跑全球市场
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网成都5月14日电 (记者 安源)成都市公安局14日通报了一起金融领域“暴力虚开”增值税发票案件。警方捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元，主要犯罪嫌疑人被判处有期徒刑5年。据了解，犯罪嫌疑人巫某某等人在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况
+2026年一季度，我国造船业三大指标——造船完工量‌、‌新接订单量‌和‌手持订单量继续领跑全球。其中，新接订单量同比增长195.2%，手持订单量‌同比增长43.6%，订单量占世界总量近70%，多家船厂的订单排到2030年。在广州南沙一个造船厂，2个40万吨级的船坞里摆满了各种正在建造的大船。造船订单已经排到2030年，大部分是出口海外。 4月28日，在广州市南沙区，全球首艘10
 
 ## 正文
 
-中新网成都5月14日电 (记者 安源)成都市公安局14日通报了一起金融领域“暴力虚开”增值税发票案件。
+2026年一季度，我国造船业三大指标——造船完工量‌、‌新接订单量‌和‌手持订单量继续领跑全球。
 
-警方捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元，主要犯罪嫌疑人被判处有期徒刑5年。
+其中，新接订单量同比增长195.2%，手持订单量‌同比增长43.6%，订单量占世界总量近70%，多家船厂的订单排到2030年。
 
-据了解，犯罪嫌疑人巫某某等人在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况下为其虚开增值税专用发票，帮助企业虚增业绩、提高贷款额度，并按票面金额的5%至6%收取“开票费”。
+在广州南沙一个造船厂，2个40万吨级的船坞里摆满了各种正在建造的大船。
 
-为达到偷逃税款的目的，巫某某又注册120余家空壳个体工商户，利用个体工商户部分免税政策，在没有真实业务的情况下向其实际控制的空壳公司虚开发票，冲抵企业成本以偷逃税款，造成国家税收损失巨大。
+造船订单已经排到2030年，大部分是出口海外。
 
-2025年2月，成都公安经侦部门对盘踞在本市的虚开犯罪团伙开展集中收网行动，捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元。
+4月28日，在广州市南沙区，全球首艘10800车LNG双燃料汽车运输船正式命名交付，刷新全球同类船舶运力纪录。
 
-目前，该案主要犯罪嫌疑人已被判处有期徒刑5年。
+这艘海上巨轮，可以装载10800辆汽车，车辆首尾相连长达50公里，堪称“海上移动立体车库”。
 
-据介绍，该案犯罪团伙区别于传统走逃式“暴力虚开”，在敏锐嗅到金融领域“开票经济”的商机后，借助地方税收优惠政策大量成立空壳企业，精心伪造虚假业务、设计虚开模式，精准匹配目标企业的实际需求。
+张付利是这艘运输船的技术经理。
 
-为偷逃税款、违规获益，犯罪团伙滥用个体工商户核定征收政策，大量注册空壳个体工商户，搭建层层虚开网络，实现“零”税点开票，形成“企业套利、国家受损”的不法经济秩序。
+他介绍，这艘运输船有14层甲板，开创了汽车运输船的先河。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 04:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 05:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 05:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 04:55 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 05:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 05:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 05:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 05:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 05:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 05:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 05:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 05:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 05:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 05:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 05:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 05:21 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 05:14 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 05:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 05:13 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 05:10 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 05:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 05:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:08 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 05:05 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/62676849.shtml)
-- 2026-06-30 05:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/185398116.shtml)
-- 2026-06-30 05:00 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/98876972319.shtml)
-- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/170454064108.shtml)
-- 2026-06-30 05:06 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/9529409.shtml)
-- 2026-06-30 05:23 - [刘念回应](http://www.share.kurohicncr.top/Article/details/65749857757.shtml)
-- 2026-06-30 05:17 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/458699767250.shtml)
-- 2026-06-30 05:16 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/41921.shtml)
-- 2026-06-30 05:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/112286906.shtml)
-- 2026-06-30 05:16 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/735510.shtml)
-- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/630410218.shtml)
-- 2026-06-30 04:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/896224276836.shtml)
-- 2026-06-30 05:06 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/396190233.shtml)
-- 2026-06-30 05:15 - [起风了](https://www.blog.minike.top/Article/details/0481775.shtml)
-- 2026-06-30 05:04 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/044158872.shtml)
+- 2026-06-30 05:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/31362772531.shtml)
+- 2026-06-30 05:06 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/812144035876.shtml)
+- 2026-06-30 05:02 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/0763883.shtml)
+- 2026-06-30 05:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/4307733387.shtml)
+- 2026-06-30 05:21 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/82556379.shtml)
+- 2026-06-30 05:00 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/008158796524.shtml)
+- 2026-06-30 05:27 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/352569072.shtml)
+- 2026-06-30 05:21 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/06863656845.shtml)
+- 2026-06-30 05:28 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/43180373962.shtml)
+- 2026-06-30 05:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/293155174255.shtml)
+- 2026-06-30 05:12 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/9721598.shtml)
+- 2026-06-30 05:17 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/63117932.shtml)
+- 2026-06-30 05:28 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/81697.shtml)
+- 2026-06-30 05:12 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/020799790380.shtml)
+- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/28022.shtml)

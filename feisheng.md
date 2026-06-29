@@ -1,61 +1,57 @@
-# 长江有色：14日铅价小涨 贴水主导现货询盘谨慎
+# 雪佛龙董事长将出席Bernstein战略决策会议并参与炉边问答
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-今日沪期铅走势：今日沪期铅小涨，沪铅主力合约2606开盘报16500元，高点报16600元，低点报16230元，结算价16535元，收盘16590元/吨，涨80元，涨幅为0.48%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格上涨20元；广东现货市场1#铅价报16410-16510元/吨，均价16460元，较
+雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。会议将于美国东部时间上午11时开始。 投资者可通过雪佛龙官网投资者关系页面观看直播。直播结束后，网站将提供回放。Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。 雪佛龙近期公
 
 ## 正文
 
-今日沪期铅走势：今日沪期铅小涨，沪铅主力合约2606开盘报16500元，高点报16600元，低点报16230元，结算价16535元，收盘16590元/吨，涨80元，涨幅为0.48%。
+雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16450-16550元/吨，均价16500元，较前一日价格上涨20元；广东现货市场1#铅价报16410-16510元/吨，均价16460元，较前一日价格上涨25元。
+会议将于美国东部时间上午11时开始。
 
-今日现货铅市场报价在16350-16550元/吨之间，对比沪期铅2605合约贴水240-贴水40元/吨，沪期铅2606合约贴水235-贴水35元/吨。
+投资者可通过雪佛龙官网投资者关系页面观看直播。
 
-宏观面影响因素 5月14日铅价震荡反弹，核心系内外宏观共振与供需结构博弈共同作用。
+直播结束后，网站将提供回放。
 
-外部层面，美元维持强势虽压制金属走势，但市场风险偏好回升、中美贸易预期缓和，叠加加息预期与能源成本上涨形成对冲；内部来看，稳增长政策提振经济预期，原生铅企业检修增加，再生铅原料短缺致开工率下滑，叠加部分需求增量支撑，共同推动铅价逆势回暖。
+Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。
 
-铅市场整体维持原料紧平衡格局，成本底部支撑力度较强。
+雪佛龙近期公布的2026年第一季度财报显示，调整后每股收益为1.41美元，远超市场预期的0.92美元，营收达486亿美元，同比增长2.1%。
 
-原生铅相关矿种货源偏紧，矿山挺价心态明显；再生铅核心废旧蓄电池原料供给不足，回收端惜售情绪浓厚，其余废旧铅制品、含铅废渣回收体量平稳，但受提纯工艺约束，难以有效补充市场缺口。
+尽管受下游业务疲软和外汇不利因素拖累，报告净利润降至22.1亿美元，但美国上游产量同比增长24%，连续第三个季度保持在每日200万桶油当量以上，主要受益于赫斯公司资产的整合及二叠纪盆地的持续增长。
 
-产业链呈现矿端偏紧、冶炼开工受限、终端需求分化的特征，辅助化工原料价格上行进一步抬升冶炼生产成本。
+雪佛龙重申2026年全年100亿至200亿美元的股票回购目标，并已连续39年提高股息。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 05:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 05:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 05:01 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 05:11 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 05:11 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 05:12 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 05:13 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 05:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 05:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 05:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 05:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:14 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 05:14 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 05:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 05:00 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 05:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 05:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 05:13 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 05:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 05:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 05:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 05:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/849871989.shtml)
-- 2026-06-30 05:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/510086.shtml)
-- 2026-06-30 05:17 - [一生一世](https://www.blog.minike.top/Article/details/20277.shtml)
-- 2026-06-30 05:19 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/35036507.shtml)
-- 2026-06-30 05:00 - [千香](https://www.blog.minike.top/Article/details/88128.shtml)
-- 2026-06-30 05:15 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/728823.shtml)
-- 2026-06-30 05:22 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/691595.shtml)
-- 2026-06-30 04:54 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/7550149.shtml)
-- 2026-06-30 05:23 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/30248629.shtml)
-- 2026-06-30 05:01 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/82251.shtml)
-- 2026-06-30 04:59 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/91853676.shtml)
-- 2026-06-30 05:09 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/62029650.shtml)
-- 2026-06-30 05:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/45237743.shtml)
-- 2026-06-30 05:23 - [世界杯](https://www.share.minike.top/Article/details/561427996.shtml)
-- 2026-06-30 05:07 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/294137.shtml)
+- 2026-06-30 05:05 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/765554330752.shtml)
+- 2026-06-30 05:27 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/5535598928.shtml)
+- 2026-06-30 05:19 - [毒液2](http://www.blog.kurohicncr.top/Article/details/18934309085.shtml)
+- 2026-06-30 05:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/10338.shtml)
+- 2026-06-30 05:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/180233485850.shtml)
+- 2026-06-30 05:16 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/953144768822.shtml)
+- 2026-06-30 05:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/735169422772.shtml)
+- 2026-06-30 05:14 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/116642.shtml)
+- 2026-06-30 05:25 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/357143.shtml)
+- 2026-06-30 05:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/008924.shtml)
+- 2026-06-30 05:14 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/0475937.shtml)
+- 2026-06-30 05:01 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/32175209536.shtml)
+- 2026-06-30 05:23 - [小娘惹](https://www.share.minike.top/Article/details/935980314.shtml)
+- 2026-06-30 05:29 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/28595269944.shtml)
+- 2026-06-30 05:26 - [斗破苍穹](https://www.blog.minike.top/Article/details/176419.shtml)

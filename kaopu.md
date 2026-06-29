@@ -1,59 +1,56 @@
-# NetSol Q3营收创纪录达1980万美元，GAAP每股收益0.11美元
+# 哈萨克斯坦出台发展规划推进核电建设“国产化”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-人工智能驱动的资产融资解决方案提供商NetSol Technologies周四公布了截至2026年3月31日的第三财季业绩。公司营收创下历史新高，GAAP净利润达130万美元，合每股收益0.11美元。 营收创纪录，毛利率大幅扩张 财报显示，公司第三季度总净营收同比增长13%至1980万美元，为历史最高季度营收纪录。其中，经常性订阅和支持收入同比增长11.7%至880万美元。许可
+中新社阿斯塔纳5月21日电 据哈通社21日消息，哈萨克斯坦政府已批准《2026—2030年核工业本地化生产发展综合规划》，提出将本国企业和产品在核电建设项目中的参与比例提高至30%，以提升核电建设本土配套能力。哈萨克斯坦总统托卡耶夫此前表示，发展核电是保障该国国家能源安全的重要举措。根据其指示，哈萨克斯坦目前正推进至少3座核电站前期筹建工作。 规划显示，目前哈萨克斯坦本国工业仅
 
 ## 正文
 
-人工智能驱动的资产融资解决方案提供商NetSol Technologies周四公布了截至2026年3月31日的第三财季业绩。
+中新社阿斯塔纳5月21日电 据哈通社21日消息，哈萨克斯坦政府已批准《2026—2030年核工业本地化生产发展综合规划》，提出将本国企业和产品在核电建设项目中的参与比例提高至30%，以提升核电建设本土配套能力。
 
-公司营收创下历史新高，GAAP净利润达130万美元，合每股收益0.11美元。
+哈萨克斯坦总统托卡耶夫此前表示，发展核电是保障该国国家能源安全的重要举措。
 
-营收创纪录，毛利率大幅扩张 财报显示，公司第三季度总净营收同比增长13%至1980万美元，为历史最高季度营收纪录。
+根据其指示，哈萨克斯坦目前正推进至少3座核电站前期筹建工作。
 
-其中，经常性订阅和支持收入同比增长11.7%至880万美元。
+规划显示，目前哈萨克斯坦本国工业仅能满足核电项目约20%至22%的设备和相关配套需求。
 
-许可费收入达470万美元，而去年同期仅约1000美元，主要来自一份为期四年、价值5000万美元的一级汽车专属金融合同续约。
+哈政府计划将本国企业和产品在相关项目中的参与比例提高至30%，涉及金额约40亿至45亿美元。
 
-服务收入为630万美元，低于去年同期的970万美元，反映了项目实施进度的差异。
+规划指出，目前制约哈萨克斯坦核能产业发展的主要问题包括：相关设备和材料生产企业数量有限，部分生产体系尚未达到国际安全和质量标准，专业技术人才不足，以及缺乏核能领域经验等。
 
-公司毛利率从去年同期的49.8%大幅提升至55.6%，非GAAP调整后EBITDA达340万美元，同比增长47.8%，EBITDA利润率扩大至17.2%。
+此外，质量监管体系也有待进一步加强。
 
-净利润受一次性税收影响 按GAAP计算，归属于NetSol的净利润为130万美元，或每股稀释收益0.11美元，略低于去年同期的140万美元或每股0.12美元。
+根据规划，哈萨克斯坦将进一步完善相关法律法规体系，包括修订现行法律并出台新的规范性文件。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 04:58 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 05:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 05:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:10 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 04:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 04:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 05:18 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:07 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 05:20 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 04:55 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 05:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 04:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 05:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 05:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 05:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 05:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 05:16 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 05:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:15 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 05:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 05:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/358987.shtml)
-- 2026-06-30 05:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/863975.shtml)
-- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/237729483818.shtml)
-- 2026-06-30 05:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/01733089762.shtml)
-- 2026-06-30 05:14 - [这一刀 会很帅](http://www.share.minike.top/Article/details/99072132.shtml)
-- 2026-06-30 05:23 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3104775.shtml)
-- 2026-06-30 05:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/28899809.shtml)
-- 2026-06-30 05:05 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/85017511245.shtml)
-- 2026-06-30 05:02 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/32483.shtml)
-- 2026-06-30 05:16 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/29171579827.shtml)
-- 2026-06-30 05:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5438272.shtml)
-- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/708090065.shtml)
-- 2026-06-30 05:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/06548117.shtml)
-- 2026-06-30 05:05 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/40874.shtml)
-- 2026-06-30 05:13 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/9884593.shtml)
+- 2026-06-30 05:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/9962567.shtml)
+- 2026-06-30 05:13 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/50185.shtml)
+- 2026-06-30 05:01 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/97428473.shtml)
+- 2026-06-30 05:05 - [《共患难》](http://www.share.kurohicncr.top/Article/details/4985108849.shtml)
+- 2026-06-30 05:09 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/47565029438.shtml)
+- 2026-06-30 05:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/4052222.shtml)
+- 2026-06-30 05:18 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/8422787845.shtml)
+- 2026-06-30 05:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/227858.shtml)
+- 2026-06-30 05:17 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/11293.shtml)
+- 2026-06-30 05:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/0560268.shtml)
+- 2026-06-30 05:02 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/96292411.shtml)
+- 2026-06-30 05:23 - [人类...完蛋了...](http://www.share.minike.top/Article/details/32949013.shtml)
+- 2026-06-30 05:06 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/105307.shtml)
+- 2026-06-30 05:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/86827.shtml)
+- 2026-06-30 05:12 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/749103553771.shtml)

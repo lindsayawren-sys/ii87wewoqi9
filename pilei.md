@@ -1,45 +1,59 @@
-# 拉脱维亚总理宣布决定辞职
+# 雨夜洪灾广东阳春公安连夜转移14名被困群众
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据彭博社及路透社报道，当地时间14日，拉脱维亚总理埃维卡·希莉娜宣布决定辞职，其内阁将作为看守政府继续履职。
+中新网广州5月22日电 (记者 方伟彬)记者22日从广东省公安厅获悉，5月20日18时至21时，广东阳江阳春市河口镇遭遇强降雨，龙门村委会辖区水位暴涨，多处民宅被淹。阳春市公安局迅速调集警力，联合救援队连夜赶赴西冲口村、大垌田村展开抢险，截至次日凌晨1时，成功将14名被困群众全部安全转移。 当晚19时许，救援警力接到报警，称一名高龄独居老人被困家中。由于家属无法准确描述位置，民
 
 ## 正文
 
-中新网5月14日电 据彭博社及路透社报道，当地时间14日，拉脱维亚总理埃维卡·希莉娜宣布决定辞职，其内阁将作为看守政府继续履职。
+中新网广州5月22日电 (记者 方伟彬)记者22日从广东省公安厅获悉，5月20日18时至21时，广东阳江阳春市河口镇遭遇强降雨，龙门村委会辖区水位暴涨，多处民宅被淹。
+
+阳春市公安局迅速调集警力，联合救援队连夜赶赴西冲口村、大垌田村展开抢险，截至次日凌晨1时，成功将14名被困群众全部安全转移。
+
+当晚19时许，救援警力接到报警，称一名高龄独居老人被困家中。
+
+由于家属无法准确描述位置，民警在及腰深的积水中逐户排查。
+
+此时雨势猛烈，搜救难度极大。
+
+经过近半小时寻找，民警终于在一间老旧泥瓦房的阁楼内发现了蜷缩在角落、已无法正常应答的老人。
+
+当时水位已涨至民警颈部，且老屋墙体经雨水浸泡随时可能坍塌。
+
+危急关头，民警迅速背起老人冲出危房，将其转移至安全地带。
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 05:18 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 05:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 05:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 05:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 04:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 05:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 05:07 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 05:23 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 05:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 05:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:22 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 05:04 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 05:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 05:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 05:15 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 05:00 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 05:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 05:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 05:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 05:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 05:18 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 05:00 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/0392453894.shtml)
-- 2026-06-30 05:14 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/216816775.shtml)
-- 2026-06-30 04:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/533551.shtml)
-- 2026-06-30 05:12 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/34629207416.shtml)
-- 2026-06-30 04:56 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/84365333854.shtml)
-- 2026-06-30 05:21 - [小娘惹](https://www.blog.minike.top/Article/details/812542.shtml)
-- 2026-06-30 05:23 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/791557958.shtml)
-- 2026-06-30 04:56 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/454391601722.shtml)
-- 2026-06-30 05:15 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/16561.shtml)
-- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/044407954.shtml)
-- 2026-06-30 04:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/537203466091.shtml)
-- 2026-06-30 05:17 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/191579760.shtml)
-- 2026-06-30 05:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/87713596369.shtml)
-- 2026-06-30 05:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3742669.shtml)
-- 2026-06-30 05:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/255480.shtml)
+- 2026-06-30 05:05 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/88904307.shtml)
+- 2026-06-30 05:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/1091637.shtml)
+- 2026-06-30 05:09 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/98737547014.shtml)
+- 2026-06-30 05:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/630449452.shtml)
+- 2026-06-30 05:12 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/93026732.shtml)
+- 2026-06-30 05:00 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/8469709.shtml)
+- 2026-06-30 05:18 - [逃狱兄弟](https://www.share.minike.top/Article/details/97505243975.shtml)
+- 2026-06-30 05:28 - [苗族银饰](http://www.share.minike.top/Article/details/570213.shtml)
+- 2026-06-30 05:08 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/88278160365.shtml)
+- 2026-06-30 05:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/33577638778.shtml)
+- 2026-06-30 05:27 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/159867347.shtml)
+- 2026-06-30 05:12 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/679290937.shtml)
+- 2026-06-30 05:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/917950859582.shtml)
+- 2026-06-30 05:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/703707472.shtml)
+- 2026-06-30 05:26 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/4533535.shtml)

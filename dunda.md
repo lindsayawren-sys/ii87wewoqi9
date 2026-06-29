@@ -1,60 +1,58 @@
-# 三十六年躬耕壮乡的田间“土专家”：一枚罗汉果一份乡土情
+# 光大期货0521热点追踪：玻璃底部弱势震荡，技术性反弹需谨慎对待
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网南宁5月15日电 题：三十六年躬耕壮乡的田间“土专家”：一枚罗汉果一份乡土情 作者 刘芷邑 黄恋清 夏日微风掠过，罗汉果藤蔓随风轻摆，虽未到硕果满枝的时节，白隆华依旧日日扎根田间，把最实用的种植技术送到农户身边。 “农户不看大部头，我们就做口袋书；字看不懂，我们就手把手教。”作为有着36年药用植物栽培经验的老科研人，白隆华是广西药用植物园三级研究员，14年坚守科技特派员岗
+截至撰稿，玻璃主力合约今日涨幅约1.5%，在今日上涨阵营中表现突出，成为盘面反弹的“主力军”。然而从基本面来看，本轮上涨更多属于技术性反弹，尚不具备趋势性反转的基础。 供给端来看，玻璃产能在前两日小幅回升后继续下降，行业日熔量昨日降至14.56万吨/天，日环比减少550吨/天，整体仍处于同比最低水平。供给端虽已收缩至低位，但短期再度下降的空间已相对有限，产能底部支撑力度边际减弱
 
 ## 正文
 
-中新网南宁5月15日电 题：三十六年躬耕壮乡的田间“土专家”：一枚罗汉果一份乡土情 作者 刘芷邑 黄恋清 夏日微风掠过，罗汉果藤蔓随风轻摆，虽未到硕果满枝的时节，白隆华依旧日日扎根田间，把最实用的种植技术送到农户身边。
+截至撰稿，玻璃主力合约今日涨幅约1.5%，在今日上涨阵营中表现突出，成为盘面反弹的“主力军”。
 
-“农户不看大部头，我们就做口袋书；字看不懂，我们就手把手教。
+然而从基本面来看，本轮上涨更多属于技术性反弹，尚不具备趋势性反转的基础。
 
-”作为有着36年药用植物栽培经验的老科研人，白隆华是广西药用植物园三级研究员，14年坚守科技特派员岗位，推动小小罗汉果成为带动四千多户药农致富的“黄金果”。
+供给端来看，玻璃产能在前两日小幅回升后继续下降，行业日熔量昨日降至14.56万吨/天，日环比减少550吨/天，整体仍处于同比最低水平。
 
-近日，白隆华被评选为广西“最美科技特派员”。
+供给端虽已收缩至低位，但短期再度下降的空间已相对有限，产能底部支撑力度边际减弱，难以给价格带来进一步的供给冲击。
 
-白隆华是广西灌阳县人，出身农村的他，自幼便与农田劳作打交道，骨子里藏着割舍不断的三农情怀。
+需求端则表现中规中矩。
 
-1990年从中国农业大学园艺果树专业毕业后，他进入广西药用植物园，深耕道地中药材种植研究，从此与广西山区、中药材种植户紧紧绑在一起。
+昨日主流地区产销率水平位于90%~100%区间，需求跟进尚能维持，但并未出现超预期放量。
 
-广西山林资源丰富，是罗汉果道地产区，但过去农户缺技术、缺良种，种苗种下去常出现“光长藤不结果”“产量低、病害多”的难题，辛苦一年收益微薄。
+产销率未突破100%意味着下游补库动力仍偏温和，终端需求没有出现实质性改善信号。
 
-白隆华看在眼里，急在心里，决心把科研方向对准生产一线，破解农户的种植痛点。
+此外，玻璃库存压力依然偏高。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 05:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 04:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 05:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 05:19 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:56 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 05:09 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 05:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 05:13 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 04:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 05:00 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 05:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 05:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 05:23 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 05:09 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 05:18 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 05:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 05:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 05:11 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 05:06 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 05:29 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:19 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 05:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 05:02 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:06 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/01744014816.shtml)
-- 2026-06-30 05:01 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/4941070701.shtml)
-- 2026-06-30 04:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/8877037.shtml)
-- 2026-06-30 05:14 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/458800576294.shtml)
-- 2026-06-30 05:03 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/333715601595.shtml)
-- 2026-06-30 05:13 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/00345.shtml)
-- 2026-06-30 05:04 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/6144820.shtml)
-- 2026-06-30 05:01 - [这一刀 会很帅](https://www.share.minike.top/Article/details/005336907420.shtml)
-- 2026-06-30 05:20 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/06043145.shtml)
-- 2026-06-30 05:04 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/196501875769.shtml)
-- 2026-06-30 05:20 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/954460156283.shtml)
-- 2026-06-30 05:10 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/77899.shtml)
-- 2026-06-30 05:11 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/948288.shtml)
-- 2026-06-30 04:59 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/8364185593.shtml)
-- 2026-06-30 05:00 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/550327958423.shtml)
+- 2026-06-30 05:24 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/43367.shtml)
+- 2026-06-30 05:10 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/639178062.shtml)
+- 2026-06-30 05:14 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/71252404701.shtml)
+- 2026-06-30 05:01 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/39159863.shtml)
+- 2026-06-30 05:07 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/9175262.shtml)
+- 2026-06-30 05:28 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/92338.shtml)
+- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/998428970428.shtml)
+- 2026-06-30 05:04 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/172395451.shtml)
+- 2026-06-30 05:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/28877400055.shtml)
+- 2026-06-30 05:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/3129118125.shtml)
+- 2026-06-30 05:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/57162080067.shtml)
+- 2026-06-30 05:08 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/7677455576.shtml)
+- 2026-06-30 05:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/8609121388.shtml)
+- 2026-06-30 05:22 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/19456.shtml)
+- 2026-06-30 05:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/096934710741.shtml)

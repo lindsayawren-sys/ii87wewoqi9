@@ -1,59 +1,59 @@
-# 工行“工盈研选”品牌全新亮相，富国基金为理财体验升级“添力”！
+# 广东连日暴雨部分河道超警 全省转移逾2万人
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌。该品牌以客户盈利为核心导向，依托专业投研能力，构建起金字塔型的公募基金优选产品体系，并同步提供全周期投资陪伴服务，着力打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。为满足不同风险偏好的客户投资需求，“工盈研选”首期推出“安盈”“智盈”两个产品系列。 攻守兼备 “工盈研选”分层布局适配不同投资需求 “工盈研选”从
+中新社广州5月22日电 (记者 王坚)21日至22日早晨，广东有491个镇街遭遇暴雨、大暴雨、特大暴雨，部分河道水位超警戒水位，漠阳江(江城段)洪水橙色预警处于生效中。截至21日19时，全省累计提前转移23008人。 22日上午，广东东北部和阳江到江门一带有雷雨，局地雨势较明显。目前，珠江防总、中国水利部珠江水利委员会维持防汛Ⅳ级和洪水防御Ⅳ级应急响应。 广东省气象部门介绍，气
 
 ## 正文
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌。
+中新社广州5月22日电 (记者 王坚)21日至22日早晨，广东有491个镇街遭遇暴雨、大暴雨、特大暴雨，部分河道水位超警戒水位，漠阳江(江城段)洪水橙色预警处于生效中。
 
-该品牌以客户盈利为核心导向，依托专业投研能力，构建起金字塔型的公募基金优选产品体系，并同步提供全周期投资陪伴服务，着力打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
+截至21日19时，全省累计提前转移23008人。
 
-为满足不同风险偏好的客户投资需求，“工盈研选”首期推出“安盈”“智盈”两个产品系列。
+22日上午，广东东北部和阳江到江门一带有雷雨，局地雨势较明显。
 
-攻守兼备 “工盈研选”分层布局适配不同投资需求 “工盈研选”从客户易于理解、基层便于营销的角度出发，定制了“收益、回撤”等量化标准，并给出合理的权益仓位建议，与合作机构共同建设维护系列产品池。
+目前，珠江防总、中国水利部珠江水利委员会维持防汛Ⅳ级和洪水防御Ⅳ级应急响应。
 
-首期推出的“安盈”“智盈”两大产品系列，能够精准匹配不同客户的投资需求。
+广东省气象部门介绍，气象水文监测显示，21日8时到22日8时，全省有10个镇街录得超过250毫米的特大暴雨，有117个镇街录得100至250毫米的大暴雨，有364个镇街录得50至100毫米的暴雨。
 
-其中，“安盈”系列聚焦固收及“固收+”产品，通过严格控制回撤风险，助力客户实现资产的稳健增长；“智盈”系列则聚焦权益指数类产品，精选指数及指数增强产品，为追求更高收益的客户提供具有进攻性的收益增强工具。
+其中，阳江阳春市潭水镇录得全省最大降雨量达529.8毫米。
 
-此次“工盈研选”品牌发布，不仅带来了分层清晰、标准明确的产品体系，更将打造全流程、多维度的基金销售服务保障体系。
+广东省水利厅表示，目前，该厅已组织调度全省323宗大中型水库全力拦蓄洪水7.71亿立方米。
 
-在客户服务方面，工商银行协同合作机构围绕3类陪伴内容、7个重点场景，依托手机银行开放式财富社区，提供专业化、个性化的投资陪伴服务。
+广东省应急管理厅表示，面对强降雨，全省落实人员转移“提前转、白天转、扩面转”措施，截至21日19时，全省累计提前转移23008人；广东省防总维持防汛Ⅳ级应急响应；河源、韶关、清远、茂名、阳江、江门6个地市和37个县区维持应急响应，其中阳春、阳东启动Ⅱ级应急响应。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 05:20 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 05:09 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:01 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 05:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 05:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 04:54 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 05:09 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 05:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 05:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 05:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 05:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 05:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 05:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 05:10 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 05:10 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 05:04 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 05:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 05:10 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 05:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 05:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 05:22 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 05:08 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [起风了](http://www.blog.minike.top/Article/details/498045695.shtml)
-- 2026-06-30 05:10 - [美股](https://www.share.kurohicncr.top/Article/details/7787537825.shtml)
-- 2026-06-30 05:18 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/158653788.shtml)
-- 2026-06-30 05:18 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/313869043.shtml)
-- 2026-06-30 05:05 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/384186742702.shtml)
-- 2026-06-30 05:16 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/166950.shtml)
-- 2026-06-30 05:19 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/91099295.shtml)
-- 2026-06-30 05:20 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/424701262.shtml)
-- 2026-06-30 05:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/225073.shtml)
-- 2026-06-30 05:20 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/6897673257.shtml)
-- 2026-06-30 05:03 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/678798603969.shtml)
-- 2026-06-30 04:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/974642094.shtml)
-- 2026-06-30 05:21 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22073130.shtml)
-- 2026-06-30 05:21 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/00749645.shtml)
-- 2026-06-30 05:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/37972.shtml)
+- 2026-06-30 05:18 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/01606114818.shtml)
+- 2026-06-30 05:13 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/719685.shtml)
+- 2026-06-30 05:24 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/5896071.shtml)
+- 2026-06-30 05:01 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/60218434357.shtml)
+- 2026-06-30 05:16 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/4734414356.shtml)
+- 2026-06-30 05:04 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/653081.shtml)
+- 2026-06-30 05:26 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/0273316767.shtml)
+- 2026-06-30 05:29 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/773128151036.shtml)
+- 2026-06-30 05:17 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/4288500934.shtml)
+- 2026-06-30 05:02 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/78448408260.shtml)
+- 2026-06-30 05:23 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/09795787721.shtml)
+- 2026-06-30 05:20 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/878460040.shtml)
+- 2026-06-30 05:19 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/6622380.shtml)
+- 2026-06-30 05:17 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/00013077.shtml)
+- 2026-06-30 05:09 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/3101591406.shtml)

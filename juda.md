@@ -1,46 +1,51 @@
-# 我国成功发射泰景三号05A星等5颗卫星
+# 全球首例 内蒙古贺兰山重引入雪豹繁殖出“豹二代”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-新华社酒泉5月15日电(李国利、王晨宇)5月15日12时33分，我国在东风商业航天创新试验区使用力箭一号遥十三运载火箭，成功将泰景三号05A/05B星、天仪50星、天雁27星、吉林一号高分03D55星共5颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。(完)
+发布时间：2026年05月22日 14:48 来源：中国新闻网 近日，内蒙古贺兰山国家级自然保护区红外相机多次拍到雪豹幼崽活动的清晰画面。影像完整记录幼崽从近5月龄至1岁龄成长轨迹，包含跟随母豹在岩壁上嬉戏觅食、巡视领地及亚成体体态趋近成年的珍贵场景。 经卫星定位与影像分析确认，幼崽母本为2024年放归的雌豹“F2”，父本为2021年放归的雄豹“四王子 M1”。这一成果是全球雪
 
 ## 正文
 
-新华社酒泉5月15日电(李国利、王晨宇)5月15日12时33分，我国在东风商业航天创新试验区使用力箭一号遥十三运载火箭，成功将泰景三号05A/05B星、天仪50星、天雁27星、吉林一号高分03D55星共5颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+发布时间：2026年05月22日 14:48 来源：中国新闻网 近日，内蒙古贺兰山国家级自然保护区红外相机多次拍到雪豹幼崽活动的清晰画面。
 
-(完)
+影像完整记录幼崽从近5月龄至1岁龄成长轨迹，包含跟随母豹在岩壁上嬉戏觅食、巡视领地及亚成体体态趋近成年的珍贵场景。
+
+经卫星定位与影像分析确认，幼崽母本为2024年放归的雌豹“F2”，父本为2021年放归的雄豹“四王子 M1”。
+
+这一成果是全球雪豹重引入项目中首例完整实现“野放定植—自然配对—野外产崽—成功育幼”的重大突破，打破了长期以来雪豹重引入难以实现野外自然繁殖的困局，标志着中国雪豹保护从“种群恢复”迈入“历史分布区重建”的新时期。
+
+(记者 陈峰 视频来源 阿拉善盟融媒体中心) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 05:09 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 04:56 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:59 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 05:18 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 04:55 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 05:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 04:56 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 05:21 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 05:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 05:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 05:20 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 05:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 05:10 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 05:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 05:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 05:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 05:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 05:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 05:20 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 05:03 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/358958.shtml)
-- 2026-06-30 04:56 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/043079.shtml)
-- 2026-06-30 05:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/3420082370.shtml)
-- 2026-06-30 05:21 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/396897047.shtml)
-- 2026-06-30 04:57 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/8650250.shtml)
-- 2026-06-30 05:12 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/17571261626.shtml)
-- 2026-06-30 05:15 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/86769463068.shtml)
-- 2026-06-30 05:17 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/8284375.shtml)
-- 2026-06-30 05:22 - [我们的少年时代2](https://www.blog.minike.top/Article/details/4691363804.shtml)
-- 2026-06-30 05:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/28278482121.shtml)
-- 2026-06-30 04:58 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/1652549.shtml)
-- 2026-06-30 05:11 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/4050992.shtml)
-- 2026-06-30 05:08 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/54779617.shtml)
-- 2026-06-30 05:05 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/583072966.shtml)
-- 2026-06-30 05:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/7922971.shtml)
+- 2026-06-30 05:14 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/0030624.shtml)
+- 2026-06-30 05:03 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/7830851.shtml)
+- 2026-06-30 05:14 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/317277406.shtml)
+- 2026-06-30 05:16 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/15632.shtml)
+- 2026-06-30 05:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/672323552.shtml)
+- 2026-06-30 05:29 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/865913516357.shtml)
+- 2026-06-30 05:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95767.shtml)
+- 2026-06-30 05:09 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/568952.shtml)
+- 2026-06-30 05:18 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/60348.shtml)
+- 2026-06-30 05:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/478663669.shtml)
+- 2026-06-30 05:14 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/03759.shtml)
+- 2026-06-30 05:18 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/972469371601.shtml)
+- 2026-06-30 05:04 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/956687834588.shtml)
+- 2026-06-30 05:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/526361.shtml)
+- 2026-06-30 05:22 - [TOP Prada](https://www.blog.minike.top/Article/details/327882.shtml)

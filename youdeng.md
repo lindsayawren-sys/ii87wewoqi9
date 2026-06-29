@@ -1,57 +1,52 @@
-# （经济观察）长春打造“中国光电城”推动中国“光电版图”向北延伸
+# 广东发布漠阳江（江城段）洪水橙色预警
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。 最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。 前不久在港交所主板挂牌
+中新网广州5月22日电 (记者 王坚)据广东省水利厅22日消息，该省漠阳江双捷水文站(江城区双捷镇)21日22时流量3570立方米每秒，相应水位6.57米。广东省水文局于21日23时升级发布漠阳江(江城段)洪水橙色预警。 广东省水利厅介绍，受新一轮强降雨影响，预计双捷站22日上午出现约4000立方米每秒的洪峰流量，洪峰水位7米左右(警戒水位6.8米，左堤高程10.5米，右堤高程
 
 ## 正文
 
-中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。
+中新网广州5月22日电 (记者 王坚)据广东省水利厅22日消息，该省漠阳江双捷水文站(江城区双捷镇)21日22时流量3570立方米每秒，相应水位6.57米。
 
-最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。
+广东省水文局于21日23时升级发布漠阳江(江城段)洪水橙色预警。
 
-第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。
+广东省水利厅介绍，受新一轮强降雨影响，预计双捷站22日上午出现约4000立方米每秒的洪峰流量，洪峰水位7米左右(警戒水位6.8米，左堤高程10.5米，右堤高程9.1米)。
 
-前不久在港交所主板挂牌上市的长春长光辰芯微电子股份有限公司，近期又与高端相机品牌徕卡达成战略合作，将为下一代徕卡相机定制高性能CMOS图像传感器芯片。
+广东省水利厅表示，受上游来水和天文潮汐影响，漠阳江下游段阳江河堤站(地处江城区马南水闸)21日22时30分水位复涨至3.78米，预计至24日阳江河堤站持续维持高水位(超警戒)。
 
-连日来，企业正开足马力生产。
+广东省水文局于5月21日23时升级发布漠阳江(江城段)洪水橙色预警，请漠阳江下游、马南河、西濑河沿岸相关单位、沿河村镇和社会公众加强防范，及时避险。
 
-该公司联合创始人、研发副总经理李扬表示，中国工业与科学成像行业起步稍晚，但随着国家政策持续赋能、国内企业技术实力稳步提升，国产高端图像传感器产业正迎来高速发展机遇。
-
-记者在长春长光精瓷复合材料有限公司了解到，近年来随着企业突破超轻量化碳化硅反射镜坯快速制造等关键技术，产品已应用于商业航天、航空遥感以及半导体设备领域。
-
-该公司总经理助理王笑天介绍，目前，企业还积极开发碳化硅作为光电系统的焦面基板、背板、框架等新构件，扩展先进材料的应用场景，为新型光电装备的设计开发提供更丰富的方案选择。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 04:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 05:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 05:22 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 05:13 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 05:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 04:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 04:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 05:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 05:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:09 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 05:17 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 05:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 05:03 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 05:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 05:09 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 05:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 05:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 05:14 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/37637369651.shtml)
-- 2026-06-30 04:54 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/6999377019.shtml)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/3040147188.shtml)
-- 2026-06-30 04:56 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/34530027762.shtml)
-- 2026-06-30 04:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/1690523244.shtml)
-- 2026-06-30 05:20 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/923665.shtml)
-- 2026-06-30 05:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/57367571.shtml)
-- 2026-06-30 05:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/649678906.shtml)
-- 2026-06-30 05:16 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/729963229.shtml)
-- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/22290029.shtml)
-- 2026-06-30 05:13 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/4370701680.shtml)
-- 2026-06-30 04:55 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/47471357.shtml)
-- 2026-06-30 05:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/60274562.shtml)
-- 2026-06-30 05:03 - [天道](http://www.share.kurohicncr.top/Article/details/1604092.shtml)
-- 2026-06-30 05:22 - [房价什么时候能涨](http://www.share.minike.top/Article/details/24684990816.shtml)
+- 2026-06-30 05:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/67461188937.shtml)
+- 2026-06-30 05:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/81639308728.shtml)
+- 2026-06-30 05:01 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/776288503954.shtml)
+- 2026-06-30 05:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/11173956.shtml)
+- 2026-06-30 05:07 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/620703.shtml)
+- 2026-06-30 05:06 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/102827637.shtml)
+- 2026-06-30 05:03 - [日本16强魔咒](https://www.share.minike.top/Article/details/867613338775.shtml)
+- 2026-06-30 05:16 - [起风了](https://www.blog.minike.top/Article/details/456037325124.shtml)
+- 2026-06-30 05:13 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/484009.shtml)
+- 2026-06-30 05:21 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/34677672387.shtml)
+- 2026-06-30 05:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/41107971815.shtml)
+- 2026-06-30 05:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/0948804071.shtml)
+- 2026-06-30 05:12 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/555205.shtml)
+- 2026-06-30 05:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/203288588.shtml)
+- 2026-06-30 05:28 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/52817307447.shtml)

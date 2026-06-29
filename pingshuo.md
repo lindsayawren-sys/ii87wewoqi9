@@ -1,51 +1,61 @@
-# 习言道丨台湾问题处理不好，中美就会碰撞甚至冲突
+# 服饰服装年报|七匹狼扣非净利不足千万元，97%利润依赖金融投资，服装主业空心化
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 13:55 来源：中国新闻网 5月14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。习近平主席强调，台湾问题是中美关系中最重要的问题。处理好了，两国关系就能保持总体稳定。处理不好，两国就会碰撞甚至冲突，将整个中美关系推向十分危险的境地。 责任编辑：【张舰元】
+2025年，七匹狼交出了一份让资本市场哭笑不得的财报。公司全年实现营业收入30.04亿元，同比下降4.35%；归母净利润3.33亿元，同比增长16.91%。表面上看，利润端连续增长，盈利能力似乎稳步提升。但拆解利润结构后发现，公司全年非经常性损益高达3.23亿元，占归母净利润比例达97%。剔除非经常性损益后，扣非归母净利润仅剩961.53万元，同比暴跌86.91%，创近10年新
 
 ## 正文
 
-发布时间：2026年05月14日 13:55 来源：中国新闻网 5月14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+2025年，七匹狼交出了一份让资本市场哭笑不得的财报。
 
-习近平主席强调，台湾问题是中美关系中最重要的问题。
+公司全年实现营业收入30.04亿元，同比下降4.35%；归母净利润3.33亿元，同比增长16.91%。
 
-处理好了，两国关系就能保持总体稳定。
+表面上看，利润端连续增长，盈利能力似乎稳步提升。
 
-处理不好，两国就会碰撞甚至冲突，将整个中美关系推向十分危险的境地。
+但拆解利润结构后发现，公司全年非经常性损益高达3.23亿元，占归母净利润比例达97%。
 
-责任编辑：【张舰元】
+剔除非经常性损益后，扣非归母净利润仅剩961.53万元，同比暴跌86.91%，创近10年新低。
+
+支撑利润的，是七匹狼庞大的金融投资布局。
+
+截至2025年末，公司交易性金融资产余额达28.24亿元，较2024年底增长48.96%，甚至超过全年30.04亿元的营收规模。
+
+其中，16.56亿元用于投资上市公司股票，10.82亿元用于银行理财产品，重仓标的涵盖腾讯控股、中国平安、宁德时代等知名股票，年内证券投资收益合计高达3.69亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:03 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 05:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 05:01 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 05:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 05:06 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 04:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 05:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 04:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 04:54 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 05:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 05:03 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 05:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 05:29 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 05:01 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 05:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 05:12 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 05:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 05:25 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:02 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 05:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:24 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 05:07 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 05:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/390945.shtml)
-- 2026-06-30 05:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/308710250.shtml)
-- 2026-06-30 04:59 - [请回答王牌2019](https://www.blog.minike.top/Article/details/401715.shtml)
-- 2026-06-30 04:56 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/52669.shtml)
-- 2026-06-30 05:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/78059.shtml)
-- 2026-06-30 05:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/88014.shtml)
-- 2026-06-30 05:18 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/68976229964.shtml)
-- 2026-06-30 05:19 - [千与千寻](https://www.blog.minike.top/Article/details/541655.shtml)
-- 2026-06-30 04:56 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6750856.shtml)
-- 2026-06-30 05:10 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/96342.shtml)
-- 2026-06-30 04:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/0339717.shtml)
-- 2026-06-30 05:15 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/383570.shtml)
-- 2026-06-30 05:17 - [千与千寻](http://www.blog.minike.top/Article/details/72976425934.shtml)
-- 2026-06-30 04:59 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/78555309.shtml)
-- 2026-06-30 04:56 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/2627926.shtml)
+- 2026-06-30 05:11 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/95580.shtml)
+- 2026-06-30 05:02 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/58565086.shtml)
+- 2026-06-30 05:05 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/4603809535.shtml)
+- 2026-06-30 05:20 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/945843762.shtml)
+- 2026-06-30 05:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/710399.shtml)
+- 2026-06-30 05:18 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/504290254172.shtml)
+- 2026-06-30 05:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/5726890569.shtml)
+- 2026-06-30 05:21 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5567199978.shtml)
+- 2026-06-30 05:16 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/96733.shtml)
+- 2026-06-30 05:20 - [日本领先巴西](https://www.share.minike.top/Article/details/986005830311.shtml)
+- 2026-06-30 05:06 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/1332216205.shtml)
+- 2026-06-30 05:00 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/24124149.shtml)
+- 2026-06-30 05:06 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/77778137.shtml)
+- 2026-06-30 05:23 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/476316620668.shtml)
+- 2026-06-30 05:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/733232.shtml)

@@ -1,60 +1,59 @@
-# 尾盘：纳指与标普500指数再创新高
+# Barnwell第二季度净亏损收窄至每股0.09美元 成本削减初见成效
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-北京时间5月14日凌晨，美股周三尾盘涨跌不一，芯片股普涨，纳指与标普500指数再创历史新高。美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。PPI报告后美债收益率升至10个月高位。 道指跌76.48点，跌幅为0.15%，报49684.08点；纳指涨340.73点，涨幅为1.31%，报26428.93点；标普500指数涨50.13点，涨幅为0.68%，
+Barnwell Industries于5月21日公布了截至2026年3月31日的第二财季业绩。财报显示，公司当季营收为253.5万美元，归属于Barnwell股东的净亏损为115万美元，合每股亏损0.09美元，较上一季度的每股亏损0.13美元有所改善。 公司在本季度继续受益于行政开支的降低、油气运营业绩的改善以及总部从夏威夷火奴鲁鲁迁至休斯顿的顺利完成。工资和奖金较上一季度下
 
 ## 正文
 
-北京时间5月14日凌晨，美股周三尾盘涨跌不一，芯片股普涨，纳指与标普500指数再创历史新高。
+Barnwell Industries于5月21日公布了截至2026年3月31日的第二财季业绩。
 
-美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。
+财报显示，公司当季营收为253.5万美元，归属于Barnwell股东的净亏损为115万美元，合每股亏损0.09美元，较上一季度的每股亏损0.13美元有所改善。
 
-PPI报告后美债收益率升至10个月高位。
+公司在本季度继续受益于行政开支的降低、油气运营业绩的改善以及总部从夏威夷火奴鲁鲁迁至休斯顿的顺利完成。
 
-道指跌76.48点，跌幅为0.15%，报49684.08点；纳指涨340.73点，涨幅为1.31%，报26428.93点；标普500指数涨50.13点，涨幅为0.68%，报7451.09点。
+工资和奖金较上一季度下降26%，一般及行政开支从161.6万美元降至152.1万美元。
 
-科技股表现优于市场其他板块，而因伊朗战争导致的能源价格上涨所引发的通胀担忧，对零售和银行等其他板块构成了压力。
+经调整后的现金一般及行政开支为139.2万美元，环比下降8%。
 
-英伟达股价上涨超过1%。
+油气业务运营业绩环比增长11.9万美元，达到8.7万美元的正收益，主要得益于运营费用和折耗费用的下降。
 
-AMD上涨1%，美光科技上涨逾5%。
+公司继续保持无负债状态，季末现金及现金等价物为401.6万美元，营运资本为215.2万美元。
 
-VanEck半导体ETF上涨1%。
+此外，公司正在对加拿大油气业务进行战略评估，包括潜在的资产出售可能性。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 04:59 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 05:11 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 05:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 04:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 05:22 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 04:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 05:08 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 05:23 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 04:54 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 04:59 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 04:54 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 05:10 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 05:13 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 05:03 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 05:16 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 05:13 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 05:05 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 05:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 05:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 05:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 05:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 05:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/2117956191.shtml)
-- 2026-06-30 05:06 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/43216.shtml)
-- 2026-06-30 05:00 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/745054575.shtml)
-- 2026-06-30 04:56 - [千香](https://www.share.minike.top/Article/details/7715177821.shtml)
-- 2026-06-30 05:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/3895635.shtml)
-- 2026-06-30 05:14 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/71866681.shtml)
-- 2026-06-30 05:16 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/62872988.shtml)
-- 2026-06-30 04:58 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/55084717043.shtml)
-- 2026-06-30 05:20 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/469378.shtml)
-- 2026-06-30 05:13 - [世界杯](https://www.share.kurohicncr.top/Article/details/432223.shtml)
-- 2026-06-30 05:14 - [美股](https://www.blog.minike.top/Article/details/06803668.shtml)
-- 2026-06-30 05:10 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/0806834.shtml)
-- 2026-06-30 05:00 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/46598680700.shtml)
-- 2026-06-30 05:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/49282.shtml)
-- 2026-06-30 05:02 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/725922870.shtml)
+- 2026-06-30 05:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/943208.shtml)
+- 2026-06-30 05:11 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/0607110.shtml)
+- 2026-06-30 05:03 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/895486556.shtml)
+- 2026-06-30 05:10 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/08569108.shtml)
+- 2026-06-30 05:19 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/7684926.shtml)
+- 2026-06-30 05:28 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/456109.shtml)
+- 2026-06-30 05:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1221421.shtml)
+- 2026-06-30 05:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6676002.shtml)
+- 2026-06-30 05:10 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/4314467.shtml)
+- 2026-06-30 05:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/9993476.shtml)
+- 2026-06-30 05:20 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/908704793.shtml)
+- 2026-06-30 05:04 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/898629225.shtml)
+- 2026-06-30 05:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/5226406.shtml)
+- 2026-06-30 05:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/101239.shtml)
+- 2026-06-30 05:07 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/0875238421.shtml)

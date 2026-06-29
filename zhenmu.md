@@ -1,56 +1,47 @@
-# 【市场聚焦】多晶硅：风云再起
+# 学习笔记丨“推动中俄关系实现更高质量发展”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中粮期货研究中心 电改提速、双碳考核、能效及能耗新规，工业硅、多晶硅老旧落后产能将逐步出清，供给趋向收缩再平衡。整体工业硅基本面优于多晶硅，短期需关注水电、夏季用电的供需预期差。 一、政策预期助力供需改善 2021年伊始，我国电力市场改革加速，调节煤电价格机制、推动新能源电力融入市场、改革发电侧容量电力机制，使其在用时充分发挥保供调峰作用、闲时提高自给自足能力。根据发改委、能源
+制作：刘珂君 宋嵩 岳小乔 贾雪
 
 ## 正文
 
-中粮期货研究中心 电改提速、双碳考核、能效及能耗新规，工业硅、多晶硅老旧落后产能将逐步出清，供给趋向收缩再平衡。
-
-整体工业硅基本面优于多晶硅，短期需关注水电、夏季用电的供需预期差。
-
-一、政策预期助力供需改善 2021年伊始，我国电力市场改革加速，调节煤电价格机制、推动新能源电力融入市场、改革发电侧容量电力机制，使其在用时充分发挥保供调峰作用、闲时提高自给自足能力。
-
-根据发改委、能源局联合印发的《国家发展改革委 国家能源局关于完善发电侧容量电价机制的通知》，2026年起，各地通过容量电价回收固定成本的比例提升至不低于50%，意味着发电侧电价抬升，同时根据钢联数据、内蒙、新疆地区电价出现逆季节性抬升，引发工业硅成本抬升预期。
-
-4月中旬中共中央办公厅、国务院印发《碳达峰碳中和综合评价考核办法》，“双碳”政策从引导走向考核。
-
-同时前期发布的《工业重点领域能效标杆水平和基准水平2023年版》对于存量不达标的老旧产能约定原则上应在2026年底前完成技改或淘汰。
-
-而多晶硅则通过新国标提高了能耗标准。
-
-综上，工业硅及多晶硅由“双碳”相关政策引导，预期逐步出清老旧落后产能，供给收缩以期再平衡。
+制作：刘珂君 宋嵩 岳小乔 贾雪
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 04:57 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 04:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 05:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 05:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 04:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 05:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 05:10 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 05:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:07 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 05:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 05:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 05:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 05:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:05 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 05:16 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 05:07 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:03 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 05:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 05:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 05:01 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 05:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 05:03 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/7608479.shtml)
-- 2026-06-30 05:04 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/190201709.shtml)
-- 2026-06-30 05:05 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/315329294886.shtml)
-- 2026-06-30 05:03 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/451726638.shtml)
-- 2026-06-30 05:21 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/504611294.shtml)
-- 2026-06-30 05:15 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/988465640472.shtml)
-- 2026-06-30 05:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/91859020811.shtml)
-- 2026-06-30 05:02 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/43282370336.shtml)
-- 2026-06-30 04:56 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/371171.shtml)
-- 2026-06-30 05:17 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/6724420.shtml)
-- 2026-06-30 04:55 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/455773.shtml)
-- 2026-06-30 05:14 - [内马尔替补](https://www.blog.minike.top/Article/details/324430.shtml)
-- 2026-06-30 05:20 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/76490.shtml)
-- 2026-06-30 05:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/61365545500.shtml)
-- 2026-06-30 05:19 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/3133684382.shtml)
+- 2026-06-30 05:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3435370.shtml)
+- 2026-06-30 05:07 - [金刚川](http://www.blog.minike.top/Article/details/882097.shtml)
+- 2026-06-30 05:23 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/612460544751.shtml)
+- 2026-06-30 05:20 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/70011.shtml)
+- 2026-06-30 05:13 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/232202521.shtml)
+- 2026-06-30 05:02 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/81092.shtml)
+- 2026-06-30 05:02 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/6930542729.shtml)
+- 2026-06-30 05:24 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/141502.shtml)
+- 2026-06-30 05:21 - [巴西绝杀](https://www.blog.minike.top/Article/details/1693567492.shtml)
+- 2026-06-30 05:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/47559.shtml)
+- 2026-06-30 05:19 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/60325291.shtml)
+- 2026-06-30 05:21 - [沙丘](https://www.blog.minike.top/Article/details/63008.shtml)
+- 2026-06-30 05:07 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/524338059.shtml)
+- 2026-06-30 05:28 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/89411172432.shtml)
+- 2026-06-30 05:12 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/21792347.shtml)

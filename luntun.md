@@ -1,56 +1,59 @@
-# （滇藏公路50年）茶马古道重镇奔子栏的指尖藏艺
+# 中央气象台：江南黄淮等地有强降水
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！告诉你一个你所不知道的天坛天热了车里别放这些东西！已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示科幻走进现实！首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆
+中新网5月22日电 据中央气象台网站消息，昨日，华南、江南和四川、陕西等地部分地区出现大到暴雨，局地大暴雨。预计22日至23日中东部有大范围降雨，24日起又有新一轮强降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、中小河流洪水、城市暴雨积涝和地质灾害。 江南黄淮等地有强降水 22-23日，中东部有较大范围降雨过程，西北地区东部、华北、黄淮及东北地区有小到
 
 ## 正文
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
+中新网5月22日电 据中央气象台网站消息，昨日，华南、江南和四川、陕西等地部分地区出现大到暴雨，局地大暴雨。
 
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
+预计22日至23日中东部有大范围降雨，24日起又有新一轮强降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、中小河流洪水、城市暴雨积涝和地质灾害。
 
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+江南黄淮等地有强降水 22-23日，中东部有较大范围降雨过程，西北地区东部、华北、黄淮及东北地区有小到中雨，局地大到暴雨；江汉南部、江淮、江南、华南北部等地有中到大雨，局地暴雨或大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
 
-专家提示科幻走进现实！
+预计，5月22日8时至23日8时，湖南北部、江西中北部和东部、浙江南部、福建中西部、广东北部、广西东北部以及四川东部、河北东部、天津、辽宁西南部、内蒙古东北部等地部分地区有大到暴雨，其中，江西东部、福建西部等地局地有大暴雨(100～150毫米)。
 
-首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+中央气象台5月22日6时继续发布暴雨蓝色预警。
 
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+24-27日，中东部还有较大范围降雨过程，西北地区东南部、黄淮、江汉、江淮及江南北部等地有中到大雨，部分地区有暴雨，局地有大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
 
-专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
+国内未来三天具体预报 5月22日8时至23日8时，湖南北部、江西中北部和东部、浙江南部、福建中西部、广东北部、广西东北部以及四川东部、河北东部、天津、辽宁西南部、内蒙古东北部等地部分地区有大到暴雨，其中，江西东部、福建西部等地局地有大暴雨(100～150毫米)。
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 05:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 04:58 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 05:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 05:11 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 05:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 05:00 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 04:54 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 05:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 05:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 05:20 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 05:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 05:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 05:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 05:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 05:20 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 05:24 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 05:01 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 05:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 05:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/065194778.shtml)
-- 2026-06-30 05:06 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/7599438276.shtml)
-- 2026-06-30 05:18 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/0626510089.shtml)
-- 2026-06-30 04:59 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/1360473.shtml)
-- 2026-06-30 04:57 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/6600776.shtml)
-- 2026-06-30 05:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/0679148.shtml)
-- 2026-06-30 05:07 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/0215885.shtml)
-- 2026-06-30 05:02 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/2570677.shtml)
-- 2026-06-30 05:12 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/0650506.shtml)
-- 2026-06-30 05:04 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/245029.shtml)
-- 2026-06-30 05:22 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/96651.shtml)
-- 2026-06-30 05:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/892580703.shtml)
-- 2026-06-30 05:02 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/11833843618.shtml)
-- 2026-06-30 05:00 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/97282597260.shtml)
-- 2026-06-30 04:57 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/396930.shtml)
+- 2026-06-30 05:09 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/532495973.shtml)
+- 2026-06-30 05:27 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/823020.shtml)
+- 2026-06-30 05:29 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/205696443.shtml)
+- 2026-06-30 05:03 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/33076.shtml)
+- 2026-06-30 05:04 - [张凌赫 客串](http://www.share.minike.top/Article/details/391407.shtml)
+- 2026-06-30 05:09 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/70646274.shtml)
+- 2026-06-30 05:25 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/04538040258.shtml)
+- 2026-06-30 05:04 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/55604493.shtml)
+- 2026-06-30 05:19 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/15362.shtml)
+- 2026-06-30 05:25 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9483823145.shtml)
+- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/31687470.shtml)
+- 2026-06-30 05:21 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/9429954.shtml)
+- 2026-06-30 05:20 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/751610.shtml)
+- 2026-06-30 05:29 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/9717824.shtml)
+- 2026-06-30 05:16 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/76780475.shtml)

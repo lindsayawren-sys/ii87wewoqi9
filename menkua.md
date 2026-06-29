@@ -1,61 +1,57 @@
-# 里昂：壁仞科技维持“跑赢大市”评级 目标价升至67.4港元
+# 加拿大石油大省艾伯塔省将就是否脱离加拿大举行投票
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。 报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片
+艾伯塔省省长Danielle Smith宣布，计划让这个石油大省在今年秋天举行一场不具约束力的投票，以了解居民是否希望继续留在加拿大，抑或是推进举行第二次具有约束力的分离投票。 此举是加拿大历史上除魁北克省外，首次有省份将分离问题交由公众投票。此前，一批分离主义者进行了数月的宣传活动。 在周四晚上的电视讲话中，Smith表示她支持艾伯塔省继续留在加拿大，并将在省级公投中投下赞成
 
 ## 正文
 
-里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。
+艾伯塔省省长Danielle Smith宣布，计划让这个石油大省在今年秋天举行一场不具约束力的投票，以了解居民是否希望继续留在加拿大，抑或是推进举行第二次具有约束力的分离投票。
 
-该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。
+此举是加拿大历史上除魁北克省外，首次有省份将分离问题交由公众投票。
 
-该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。
+此前，一批分离主义者进行了数月的宣传活动。
 
-报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片（tape-out），目标客户为一线超大规模数据中心营运商（hyperscalers），将具备更高的计算密度、更大的内存容量与带宽及互联能力。
+在周四晚上的电视讲话中，Smith表示她支持艾伯塔省继续留在加拿大，并将在省级公投中投下赞成票。
 
-公司长远目标是在中国AI芯片市场夺取10%的市场份额。
+Smith说：“尽管我个人支持留在加拿大，但一项错误的法院判决令我深感不安，因为它干涉了数十万艾伯塔省人民的民主权利。
 
-该行上调对公司2026及2027财年的收入预测10%及32%，以反映更强劲的国内AI需求及BR20X出货加速。
+” 此前，艾伯塔省的一名法官驳回了要求该省脱离加拿大的请愿书。
 
-基于更高的28倍2026/27年平均预测市销率（此前为25倍），因此调升目标价。
+由公民领导的“自由艾伯塔”组织的支持者表示，他们已经收集了超过30.1万个支持其运动的签名。
 
-责任编辑：卢昱君
+该运动的动因之一是认为渥太华的决策者们长期以来一直忽视该省。
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 05:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 05:07 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 05:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 04:57 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 05:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 05:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 05:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 05:06 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 05:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 05:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 04:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 05:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 05:30 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 05:25 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 05:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 05:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 05:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 05:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 05:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 05:14 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 05:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 05:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/948309286483.shtml)
-- 2026-06-30 05:21 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/867822476597.shtml)
-- 2026-06-30 05:12 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/852583396529.shtml)
-- 2026-06-30 04:55 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/96740.shtml)
-- 2026-06-30 05:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/225058605.shtml)
-- 2026-06-30 05:22 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/7182287.shtml)
-- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/58066734800.shtml)
-- 2026-06-30 05:08 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/99527860758.shtml)
-- 2026-06-30 04:59 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/8412250565.shtml)
-- 2026-06-30 04:54 - [日本领先巴西](http://www.share.minike.top/Article/details/044018.shtml)
-- 2026-06-30 05:16 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/288271160.shtml)
-- 2026-06-30 05:16 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/0468683.shtml)
-- 2026-06-30 04:59 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/477464342827.shtml)
-- 2026-06-30 05:11 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/17962.shtml)
-- 2026-06-30 05:04 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/562959840.shtml)
+- 2026-06-30 05:28 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/58183941.shtml)
+- 2026-06-30 05:17 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/158167786518.shtml)
+- 2026-06-30 05:12 - [天道](https://www.share.minike.top/Article/details/005824421.shtml)
+- 2026-06-30 05:08 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/74532738436.shtml)
+- 2026-06-30 05:05 - [啊啊啊](http://www.blog.minike.top/Article/details/29433.shtml)
+- 2026-06-30 05:29 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/95069926637.shtml)
+- 2026-06-30 05:30 - [日本淘汰](https://www.blog.minike.top/Article/details/27681003828.shtml)
+- 2026-06-30 05:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/1961598828.shtml)
+- 2026-06-30 05:00 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/62131028.shtml)
+- 2026-06-30 05:09 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/23784497588.shtml)
+- 2026-06-30 05:01 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/3245078373.shtml)
+- 2026-06-30 05:20 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/84650204.shtml)
+- 2026-06-30 05:08 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8729672547.shtml)
+- 2026-06-30 05:10 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/2856141.shtml)
+- 2026-06-30 05:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/151708386.shtml)

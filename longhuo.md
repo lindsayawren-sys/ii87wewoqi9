@@ -1,47 +1,59 @@
-# 一箭五星 我国成功发射泰景三号05A星等卫星
+# Service Properties Trust将出席Nareit 2026年REITweek投资者大会
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电 (马帅莎 王晨宇)北京时间5月15日12时33分，我国在东风商业航天创新试验区使用力箭一号遥十三运载火箭，成功将泰景三号05A/05B星、天仪50星、天雁27星、吉林一号高分03D55星共5颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是力箭一号运载火箭的第13次飞行。(完）
+Service Properties Trust(SVC)宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Brian Donley将于2026年6月3日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间上午9时30分进行专题演讲。 投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。 Ser
 
 ## 正文
 
-中新网北京5月15日电 (马帅莎 王晨宇)北京时间5月15日12时33分，我国在东风商业航天创新试验区使用力箭一号遥十三运载火箭，成功将泰景三号05A/05B星、天仪50星、天雁27星、吉林一号高分03D55星共5颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+Service Properties Trust(SVC)宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Brian Donley将于2026年6月3日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间上午9时30分进行专题演讲。
 
-此次任务是力箭一号运载火箭的第13次飞行。
+投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。
 
-(完）
+Service Properties Trust是一家房地产投资信托基金，截至2026年3月31日，公司投资组合包括761处服务型零售净租赁物业，总面积超1360万平方英尺，以及93家酒店，逾2.1万间客房，投资总额约99亿美元。
+
+近期公司持续推进战略转型。
+
+2026年第一季度，公司完成了约15亿美元的资本市场活动，包括发行7.45亿美元资产支持证券和5.75亿美元股权融资，用于偿还16亿美元债务，实现年化利息节省5900万美元。
+
+公司同时将2026年标准化营运资金指引上调至每股0.24至0.27美元。
+
+市场关注管理层将在会议上就资产处置进展、酒店业绩改善及净租赁组合扩张等议题发表最新看法。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 05:17 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 04:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 05:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 05:20 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 05:08 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 04:59 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 05:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 04:56 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 04:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 05:23 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 05:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 05:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 05:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 05:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:18 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 05:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 05:10 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 05:11 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 05:10 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 05:01 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/221549024732.shtml)
-- 2026-06-30 05:18 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/6501008310.shtml)
-- 2026-06-30 05:19 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/850049.shtml)
-- 2026-06-30 05:02 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/15903.shtml)
-- 2026-06-30 04:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/5929634105.shtml)
-- 2026-06-30 04:59 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/1156996.shtml)
-- 2026-06-30 05:17 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/70478597.shtml)
-- 2026-06-30 05:10 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/776428219.shtml)
-- 2026-06-30 04:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/99151995258.shtml)
-- 2026-06-30 04:58 - [85花告别古偶](http://www.share.minike.top/Article/details/53556946854.shtml)
-- 2026-06-30 05:03 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/18551839964.shtml)
-- 2026-06-30 05:11 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/992817176808.shtml)
-- 2026-06-30 04:56 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/849764.shtml)
-- 2026-06-30 04:55 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/95305605178.shtml)
-- 2026-06-30 05:00 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/113077076.shtml)
+- 2026-06-30 05:07 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/9716634570.shtml)
+- 2026-06-30 05:11 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/098120267.shtml)
+- 2026-06-30 05:22 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/88078162.shtml)
+- 2026-06-30 05:02 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/6462645854.shtml)
+- 2026-06-30 05:07 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/249400.shtml)
+- 2026-06-30 05:06 - [毒液2](http://www.share.kurohicncr.top/Article/details/82957099.shtml)
+- 2026-06-30 05:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/107643319.shtml)
+- 2026-06-30 05:04 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/4929867.shtml)
+- 2026-06-30 05:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/60953518.shtml)
+- 2026-06-30 05:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/331107.shtml)
+- 2026-06-30 05:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/70474788.shtml)
+- 2026-06-30 05:04 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/6248682.shtml)
+- 2026-06-30 05:23 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/266730.shtml)
+- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/379680.shtml)
+- 2026-06-30 05:27 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/98905143179.shtml)

@@ -1,60 +1,59 @@
-# 海南自贸港港澳大学生暑期实习岗位对接推荐会举办
+# 骑乘电动车务必戴牢头盔 公安交管部门提示
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网海口5月14日电(记者 符宇群)作为首届“聚四方之才·海南自贸港人才周”活动之一，2026年海南自贸港“逐浪计划”港澳大学生暑期实习活动(下称“逐浪计划”)岗位对接推荐会14日在海口举办，40余家园区及企业的代表参会交流。 “从参与公司的日常工作到感受海南全岛冲刺封关的火热氛围，我真切地感受到了海南自贸港的活力和潜力。”香港树仁大学学生唐诚智连续两年参与“逐浪计划”，他以
+新修订的《北京市非机动车管理条例》实施已三周，尽管交管部门和各区政府等部门持续强调规范佩戴安全头盔的重要性，近期仍有骑行人因未规范佩戴遇交通事故遭遇不幸。 5月12日晚9点多，在北京昌平区育知西路，一骑车人骑电动自行车由南向西横穿道路，与一辆由北向南直行的大客车发生碰撞事故，造成骑车人侧向倒地受伤，后经医院抢救无效不幸身亡。从监控视频中可以看到，事故发生时骑车人把安全头盔放在前
 
 ## 正文
 
-中新网海口5月14日电(记者 符宇群)作为首届“聚四方之才·海南自贸港人才周”活动之一，2026年海南自贸港“逐浪计划”港澳大学生暑期实习活动(下称“逐浪计划”)岗位对接推荐会14日在海口举办，40余家园区及企业的代表参会交流。
+新修订的《北京市非机动车管理条例》实施已三周，尽管交管部门和各区政府等部门持续强调规范佩戴安全头盔的重要性，近期仍有骑行人因未规范佩戴遇交通事故遭遇不幸。
 
-“从参与公司的日常工作到感受海南全岛冲刺封关的火热氛围，我真切地感受到了海南自贸港的活力和潜力。
+5月12日晚9点多，在北京昌平区育知西路，一骑车人骑电动自行车由南向西横穿道路，与一辆由北向南直行的大客车发生碰撞事故，造成骑车人侧向倒地受伤，后经医院抢救无效不幸身亡。
 
-”香港树仁大学学生唐诚智连续两年参与“逐浪计划”，他以两年的实习经历分享了在琼成长收获，“海南自贸港产业多元、机遇满满，期待更多港澳青年加入‘逐浪计划’，来海南看一看、闯一闯，把青春融入自贸港建设，做琼港澳深化交流的小桥梁。
+从监控视频中可以看到，事故发生时骑车人把安全头盔放在前车筐中，并没有规范佩戴，头盔根本没能发挥应有的保护作用。
 
-” 诚合祥(海南)农业科技有限公司是一家专注于海南源头高品质水果的平台服务公司。
+北京公安交管部门提示：安全头盔是电动自行车骑乘人员发生交通事故遇险时的“最后一道防线”，能有效降低交通事故带来的头部损伤风险，大幅减少伤亡概率。
 
-该公司董事长李林冲说，港澳青年与内地发展血脉相连、同频共振，希望公司能成为港澳青年在海南成长、实习及就业过程中的助力者。
+骑行电动自行车请牢记并践行“骑车戴头盔，乘车戴头盔，喝酒不骑车，不闯灯、不逆行”，文明骑行、安全出行，共同维护首都安全、有序、畅通的道路交通环境。
 
-目前其公司正积极备案荔枝等水果出口韩国、加拿大，欢迎各位优秀的港澳青年加入实习、就业，公司将为大家提供广阔的发展空间。
+交管部门将持续常态化开展电动自行车交通违法治理与宣传引导工作，加强各类交通违法的查处治理，通过路面执法、科普宣传、温馨提示等多种形式，推动安全骑行理念深入人心。
 
-“逐浪计划”自启动以来，已成功帮助数百名港澳大学生获得在琼优质实习机会，成为港澳青年认知海南自贸港、把握发展机遇的重要载体。
-
-2026年海南自贸港“逐浪计划”港澳大学生暑期实习活动将进一步整合全省优质资源，联动重点企事业单位，征集百余个多领域的暑期实习岗位，在为港澳青年提供实践锻炼、开阔视野的平台的同时，也为海南自贸港建设吸纳和储备青年后备人才。
+(总台央视记者 赵学荣)
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 05:01 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 05:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 05:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 05:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 04:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 05:09 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 05:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 05:23 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 05:21 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 05:15 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 04:55 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 05:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 05:23 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 05:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 05:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 05:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 05:09 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 05:17 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 05:06 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 05:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 05:07 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 05:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 05:24 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 05:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 05:20 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/275333.shtml)
-- 2026-06-30 05:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/032636222.shtml)
-- 2026-06-30 05:15 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/07439910125.shtml)
-- 2026-06-30 05:00 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/400118.shtml)
-- 2026-06-30 04:56 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/792683.shtml)
-- 2026-06-30 05:22 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/63417110849.shtml)
-- 2026-06-30 05:08 - [爱很美味](https://www.share.minike.top/Article/details/674186950.shtml)
-- 2026-06-30 04:58 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/3159569377.shtml)
-- 2026-06-30 05:22 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/024257.shtml)
-- 2026-06-30 04:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/5451981.shtml)
-- 2026-06-30 05:21 - [斛珠夫人](http://www.blog.minike.top/Article/details/5540715023.shtml)
-- 2026-06-30 05:01 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/48283800691.shtml)
-- 2026-06-30 05:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/5837002624.shtml)
-- 2026-06-30 04:59 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/31346641213.shtml)
-- 2026-06-30 05:20 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/16573004.shtml)
+- 2026-06-30 05:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/7792913300.shtml)
+- 2026-06-30 05:29 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/90257.shtml)
+- 2026-06-30 05:12 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/075238.shtml)
+- 2026-06-30 05:19 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/429868737187.shtml)
+- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/93596.shtml)
+- 2026-06-30 05:22 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/054821.shtml)
+- 2026-06-30 05:03 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/1808796.shtml)
+- 2026-06-30 05:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/461101122147.shtml)
+- 2026-06-30 05:27 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8752541337.shtml)
+- 2026-06-30 05:28 - [千与千寻](https://www.blog.minike.top/Article/details/644154.shtml)
+- 2026-06-30 05:17 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/691475323909.shtml)
+- 2026-06-30 05:08 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/35327412.shtml)
+- 2026-06-30 05:21 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/39385875497.shtml)
+- 2026-06-30 05:26 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/776377867.shtml)
+- 2026-06-30 05:18 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/13302163016.shtml)

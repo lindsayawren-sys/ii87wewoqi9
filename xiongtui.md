@@ -1,43 +1,59 @@
-# 老年旅客淡季优惠火车票明日开始发售
+# 广西一航班紧急备降 空地联动抢救危重旅客
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 14:44 来源：央视新闻 责任编辑：【王祎】
+中新网南宁5月22日电(黄艳梅 马媛媛 蒋艺萍)广西北部湾航空有限责任公司22日介绍，5月21日，北部湾航空GX8823(南宁—亳州)航班起飞后不久，一名旅客突发严重呕血，生命危在旦夕，一场空地协同的紧急救援随即展开，为旅客打通空中绿色生命通道。当日航班于7时42分起飞。约8时15分，一名旅客流鼻血，乘务员上前查看。随后，乘务长迅速组成三人急救小组，同时通过广播寻找医生，并报告
 
 ## 正文
 
-发布时间：2026年05月14日 14:44 来源：央视新闻 责任编辑：【王祎】
+中新网南宁5月22日电(黄艳梅 马媛媛 蒋艺萍)广西北部湾航空有限责任公司22日介绍，5月21日，北部湾航空GX8823(南宁—亳州)航班起飞后不久，一名旅客突发严重呕血，生命危在旦夕，一场空地协同的紧急救援随即展开，为旅客打通空中绿色生命通道。
+
+当日航班于7时42分起飞。
+
+约8时15分，一名旅客流鼻血，乘务员上前查看。
+
+随后，乘务长迅速组成三人急救小组，同时通过广播寻找医生，并报告机长。
+
+此时旅客病情迅速恶化，开始吐血。
+
+机组当即决策并通报运行控制中心(AOC)就近备降桂林两江国际机场。
+
+AOC立即启动应急响应，第一时间与桂林机场指挥中心取得联系，通报备降需求，协调急救车辆、专用机位及医护人员提前就位。
+
+桂林机场为航班开辟优先落地通道，安排距离急救中心最近的廊桥作为停靠机位，最大限度缩短转运时间。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 04:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 04:58 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 04:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 05:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 05:15 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 05:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 04:58 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 05:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 05:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 05:22 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 05:10 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 05:10 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 05:11 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:20 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 05:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:25 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 05:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 05:02 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 05:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 05:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 05:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 05:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 05:29 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/759179962031.shtml)
-- 2026-06-30 05:06 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/75309044.shtml)
-- 2026-06-30 05:21 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/58171715.shtml)
-- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/89169751.shtml)
-- 2026-06-30 05:07 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/256263039552.shtml)
-- 2026-06-30 04:58 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/11518495.shtml)
-- 2026-06-30 05:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/50264717.shtml)
-- 2026-06-30 05:14 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/3651672048.shtml)
-- 2026-06-30 05:16 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/996761.shtml)
-- 2026-06-30 05:19 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/090664348419.shtml)
-- 2026-06-30 05:01 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/7471561.shtml)
-- 2026-06-30 05:03 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/59726804.shtml)
-- 2026-06-30 05:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/12790.shtml)
-- 2026-06-30 05:11 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/32918283.shtml)
-- 2026-06-30 05:12 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/52172715931.shtml)
+- 2026-06-30 05:23 - [TOP Prada](http://www.blog.minike.top/Article/details/9730855188.shtml)
+- 2026-06-30 05:16 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/449667495.shtml)
+- 2026-06-30 05:06 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/45158464.shtml)
+- 2026-06-30 05:15 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/285288541066.shtml)
+- 2026-06-30 05:22 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/31785.shtml)
+- 2026-06-30 05:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/96195.shtml)
+- 2026-06-30 05:02 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/428717956.shtml)
+- 2026-06-30 05:19 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/18547963.shtml)
+- 2026-06-30 05:03 - [TOP Prada](http://www.share.minike.top/Article/details/9914342519.shtml)
+- 2026-06-30 05:11 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/201365059.shtml)
+- 2026-06-30 05:11 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/288283.shtml)
+- 2026-06-30 05:14 - [蔚来车主罚站](https://www.share.minike.top/Article/details/414338908.shtml)
+- 2026-06-30 05:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/5968636.shtml)
+- 2026-06-30 05:05 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/51054067297.shtml)
+- 2026-06-30 05:18 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/26247083.shtml)

@@ -1,56 +1,58 @@
-# 霍尔木兹海峡局势不明 Okeanis Q2已锁定约20.29万美元/天运价
+# A股逢修复，下周怎么走？机构建议：不要“满仓赌反弹”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-Q1业绩创纪录 运价大幅飙升 Okeanis Eco Tankers近日公布2026年第一季度财报，各项指标刷新公司历史纪录。财报显示，公司一季度营业收入达1.702亿美元，较上年同期的8010万美元增长超一倍；净利润8830万美元，上年同期仅为1260万美元；调整后每股收益为2.33美元，远高于上年同期的0.39美元。当季TCE收入达1.322亿美元，船队日均TCE运价为9.
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 5月22日，A股缩量反弹，成交额回落至3万亿元下方，3869只个股收涨。半导体、通信、军工等科技板块表现亮眼，而大消费、金融板块延续弱势。 受访人士指出，今日市场本质上是结构性修复，而非突破信号，新趋势尚未确认。下周A股或围绕4100点附近震荡整固，资金可能进行高低切换。短期对科技板块宜保
 
 ## 正文
 
-Q1业绩创纪录 运价大幅飙升 Okeanis Eco Tankers近日公布2026年第一季度财报，各项指标刷新公司历史纪录。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-财报显示，公司一季度营业收入达1.702亿美元，较上年同期的8010万美元增长超一倍；净利润8830万美元，上年同期仅为1260万美元；调整后每股收益为2.33美元，远高于上年同期的0.39美元。
+来源：国际金融报 5月22日，A股缩量反弹，成交额回落至3万亿元下方，3869只个股收涨。
 
-当季TCE收入达1.322亿美元，船队日均TCE运价为9.36万美元。
+半导体、通信、军工等科技板块表现亮眼，而大消费、金融板块延续弱势。
 
-公司首席执行官Aristidis Alafouzos在财报电话会议上表示：“第一季度是公司的创纪录季度，Q1和Q2合并业绩将比公司历史上任何全年都要强劲”。
+受访人士指出，今日市场本质上是结构性修复，而非突破信号，新趋势尚未确认。
 
-Q2运价锁定情况：各船型表现分化 针对市场高度关注的第二季度，公司披露了已锁定的现货租约情况。
+下周A股或围绕4100点附近震荡整固，资金可能进行高低切换。
 
-截至一季度末，第二季度VLCC可用现货天数中56%已被预订，平均TCE运价为22.39万美元/天；苏伊士型油轮可用现货天数中60%已被预订，平均运价为18.73万美元/天。
+短期对科技板块宜保持谨慎，可借修复之机先减持逻辑弱化、走势最弱的品种以腾出资金，总体维持中性偏多、可攻可守的仓位配置。
 
-综合各船型后，公司第二季度已锁定运价约为20.29万美元/天。
+电子、通信等科技股大涨 指数方面，A股早盘高开，午后进一步走强。
 
-值得关注的是，该指引较行业同业表现出显著优势。
+沪指收涨0.87%报4112.9点，创业板指收涨2.84%报3938.5点，深证成指收涨2.3%。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 05:01 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 05:19 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 05:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 05:23 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 04:55 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 04:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 05:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 05:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 05:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 05:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 05:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 05:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 05:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 05:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 05:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 05:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 05:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 05:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 05:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 05:11 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/9011268699.shtml)
-- 2026-06-30 05:13 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/7602010403.shtml)
-- 2026-06-30 04:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/28677037608.shtml)
-- 2026-06-30 05:17 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/182738499700.shtml)
-- 2026-06-30 05:00 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/31112073.shtml)
-- 2026-06-30 05:11 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/026491.shtml)
-- 2026-06-30 05:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/0684077302.shtml)
-- 2026-06-30 05:04 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/753421640207.shtml)
-- 2026-06-30 05:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/881864.shtml)
-- 2026-06-30 05:19 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/20011885443.shtml)
-- 2026-06-30 05:09 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/2653543246.shtml)
-- 2026-06-30 05:08 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/52904.shtml)
-- 2026-06-30 05:19 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/3702222.shtml)
-- 2026-06-30 05:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/133796727423.shtml)
-- 2026-06-30 05:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/1475632.shtml)
+- 2026-06-30 05:13 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/39588774386.shtml)
+- 2026-06-30 05:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/92111411450.shtml)
+- 2026-06-30 05:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/2245507.shtml)
+- 2026-06-30 05:29 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/9893741.shtml)
+- 2026-06-30 05:29 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/84927759.shtml)
+- 2026-06-30 05:24 - [周生如故](http://www.share.kurohicncr.top/Article/details/6440501573.shtml)
+- 2026-06-30 05:25 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/03737.shtml)
+- 2026-06-30 05:14 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/97397.shtml)
+- 2026-06-30 05:05 - [第一炉香](https://www.blog.minike.top/Article/details/637497.shtml)
+- 2026-06-30 05:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/81803.shtml)
+- 2026-06-30 05:23 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/74817.shtml)
+- 2026-06-30 05:21 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/4734729318.shtml)
+- 2026-06-30 05:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/963714.shtml)
+- 2026-06-30 05:26 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/14741.shtml)
+- 2026-06-30 05:00 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/138010.shtml)

@@ -1,57 +1,57 @@
-# 详讯丨习近平同美国总统特朗普会谈
+# 纽约汇市：美元涨幅收窄 伊朗局势缓和预期升温
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-新华社北京5月14日电（记者杨依军、朱基钗）5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？这些是历史之问、世界之问
+市场对美国和伊朗将很快达成止战协议的乐观预期推动油价下跌和长期美国国债上涨，彭博美元指数收窄早前涨幅。 彭博美元即期指数上涨不到0.1%，在1204点附近的200日移动均线下方盘整。 美国10年期国债收益率下跌2个基点至4.56%；布伦特原油期货下跌1%至每桶约104美元。 稍早公布的数据显示，美国首次申领失业救济人数为20.9万，预估为21万；标普全球美国综合PMI为51.7
 
 ## 正文
 
-新华社北京5月14日电（记者杨依军、朱基钗）5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+市场对美国和伊朗将很快达成止战协议的乐观预期推动油价下跌和长期美国国债上涨，彭博美元指数收窄早前涨幅。
 
-习近平指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”，开创大国关系新范式？
+彭博美元即期指数上涨不到0.1%，在1204点附近的200日移动均线下方盘整。
 
-能不能携手应对全球性挑战，为世界注入更多稳定性？
+美国10年期国债收益率下跌2个基点至4.56%；布伦特原油期货下跌1%至每桶约104美元。
 
-能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？
+稍早公布的数据显示，美国首次申领失业救济人数为20.9万，预估为21万；标普全球美国综合PMI为51.7，预估为51.8。
 
-这些是历史之问、世界之问、人民之问，也是大国领导人需要共同书写的时代答卷。
+欧元/美元基本持平于1.1621，此前该货币对在数据显示欧元区商业活动以两年半来最快步伐萎缩后承压。
 
-我愿同特朗普总统共同为中美关系这艘大船领好航、掌好舵，让2026年成为中美关系继往开来的历史性、标志性年份。
+欧元区5月标普综合PMI指数从4月的48.8降至47.5。
 
-习近平强调，中方致力于中美关系稳定、健康、可持续发展。
+欧洲央行的Olli Rehn告诉路透，在伊朗战争导致通胀率突破2%这个目标水平后，该行可能不得不收紧货币政策以维护信誉。
 
-我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。
+美元/日元稳定在158.97。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 05:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 05:13 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 05:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 05:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 05:15 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 05:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 04:58 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 05:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 05:02 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 05:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 05:15 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 05:02 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 05:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 05:10 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 05:24 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 05:05 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:26 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 05:05 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 05:17 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 05:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/81549702988.shtml)
-- 2026-06-30 05:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/592599.shtml)
-- 2026-06-30 05:19 - [小娘惹](http://www.blog.minike.top/Article/details/7770833.shtml)
-- 2026-06-30 05:02 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/11816419.shtml)
-- 2026-06-30 05:09 - [时光音乐会](http://www.blog.minike.top/Article/details/8197603.shtml)
-- 2026-06-30 05:08 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/967172.shtml)
-- 2026-06-30 05:14 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/959297772228.shtml)
-- 2026-06-30 05:09 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/080840531.shtml)
-- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/795243883.shtml)
-- 2026-06-30 04:55 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/08137.shtml)
-- 2026-06-30 05:22 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/07576580.shtml)
-- 2026-06-30 05:15 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/4899137.shtml)
-- 2026-06-30 04:55 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/39607256.shtml)
-- 2026-06-30 04:58 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/9828540.shtml)
-- 2026-06-30 05:21 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/49982.shtml)
+- 2026-06-30 05:02 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/21930572.shtml)
+- 2026-06-30 05:25 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/3396011003.shtml)
+- 2026-06-30 05:19 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/3472459266.shtml)
+- 2026-06-30 05:12 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/29498812375.shtml)
+- 2026-06-30 05:25 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/70646669140.shtml)
+- 2026-06-30 05:22 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/8313178131.shtml)
+- 2026-06-30 05:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/06255.shtml)
+- 2026-06-30 05:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/46221085.shtml)
+- 2026-06-30 05:01 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/6907491.shtml)
+- 2026-06-30 05:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/156566507.shtml)
+- 2026-06-30 05:15 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/00289086392.shtml)
+- 2026-06-30 05:02 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/442408519901.shtml)
+- 2026-06-30 05:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/33972335.shtml)
+- 2026-06-30 05:15 - [巴西扳平比分](http://www.blog.minike.top/Article/details/028654880.shtml)
+- 2026-06-30 05:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/564863881.shtml)

@@ -1,59 +1,58 @@
-# 标普A股红利ETF华宝（562060）标的指数4月月报出炉！最新股息率5.14%，市值中位数176亿元
+# 当AI越来越“会教”，教师该做什么
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-一、标普中国A股红利机会指数历史表现 二、标普中国A股红利机会指数收益表现 三、标普中国A股红利机会指数年度表现 四、标普中国A股红利机会指数股息率、估值 五、标普中国A股红利机会指数成份股特点 六、标普中国A股红利机会指数前十大成份股 七、标普中国A股红利机会指数行业分布 注：基于GICS行业分类，指数中的个别行业分类百分比以0.1%向上舍入，故总百分比未必为100%。 内容
+从大模型到智能体，过去两年，人工智能(AI)技术的迅猛发展给教育领域带来一轮又一轮颠覆式影响。与此同时，教学层面围绕AI的讨论重点已经从“能不能用”逐渐转移到“该怎么用”。 有高中生希望利用AI自动分析自己的错题数据，帮助发现知识漏洞；有教师开始借助智能体完成备课、批改与学情分析；也有越来越多学生习惯向AI提问、与AI对话，甚至把AI当作“学习搭子”。 在5月中旬举办的2026
 
 ## 正文
 
-一、标普中国A股红利机会指数历史表现 二、标普中国A股红利机会指数收益表现 三、标普中国A股红利机会指数年度表现 四、标普中国A股红利机会指数股息率、估值 五、标普中国A股红利机会指数成份股特点 六、标普中国A股红利机会指数前十大成份股 七、标普中国A股红利机会指数行业分布 注：基于GICS行业分类，指数中的个别行业分类百分比以0.1%向上舍入，故总百分比未必为100%。
+从大模型到智能体，过去两年，人工智能(AI)技术的迅猛发展给教育领域带来一轮又一轮颠覆式影响。
 
-内容来源：标普道琼斯指数，截至2026.4.30。
+与此同时，教学层面围绕AI的讨论重点已经从“能不能用”逐渐转移到“该怎么用”。
 
-费率说明：标普A股红利ETF华宝联接A申购费100万元以下为1.0%，100万元（含）-200万元为0.6%，200万元（含）以上为每笔1000元；赎回费续存期限7天以内为1.5%，7天（含）-30天为0.5%，30天（含）以上为0；标普A股红利ETF华宝联接C不收取申购费；赎回费续存期限7天以内为1.5%，7天（含）以上为0；销售服务费为0.3%。
+有高中生希望利用AI自动分析自己的错题数据，帮助发现知识漏洞；有教师开始借助智能体完成备课、批改与学情分析；也有越来越多学生习惯向AI提问、与AI对话，甚至把AI当作“学习搭子”。
 
-投资者在申购或赎回ETF基金份额时，申购赎回代理机构可按照不超过0.5%的标准收取佣金。
+在5月中旬举办的2026世界数字教育大会“为未来学校准备教师”平行会议上，围绕人工智能如何重塑教师角色、课堂生态与学生学习方式，来自高校、国际组织、科技企业的多位专家学者通过一系列讨论，不断触及核心问题：当AI越来越“会教”，教师究竟该做什么？
 
-场内交易费用以证券公司实际收取为准。
+如何教学生“毫无顾虑”地使用AI“教师不是创新的障碍，也不是体系中的问题；他们是体系的脊梁，也是体系转型的关键。
 
-基金管理费0.5%/年，托管费0.1%/年。
+”论坛现场，爱尔兰教育大会主席安妮·鲁尼提出这一观点。
 
-风险提示：标普红利A股红利ETF华宝及其联接基金被动跟踪标普A股红利指数（CSPSADRP），该指数基日为2004.6.18，发布日期为2008.9.11，指数成份股构成根据该指数编制规则适时调整。
+她注意到，全球越来越多国家正在重新构建教师能力框架，人工智能素养、AI驱动的新教学法和教师持续专业学习，已经成为未来教师的核心能力。
 
-标普A股红利全收益指数（将成份股分红计入收益）近5个完整年度的涨跌幅为：2021年，23.12%；2022年，-3.59%；2023年，14.21%；2024年，14.98%；2025年，18.95%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+这种趋势，在中国基础教育领域同样明显。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 05:09 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 05:12 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 04:59 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 05:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 05:17 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 04:54 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 05:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 04:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 04:54 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 05:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 05:02 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 05:15 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 05:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 05:05 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 05:22 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 05:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:28 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 05:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 05:26 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 05:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 05:09 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 05:06 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/06532.shtml)
-- 2026-06-30 05:22 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/42237067.shtml)
-- 2026-06-30 05:11 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/742438181499.shtml)
-- 2026-06-30 05:23 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/34223718429.shtml)
-- 2026-06-30 05:11 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/288015201.shtml)
-- 2026-06-30 05:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/0513924611.shtml)
-- 2026-06-30 05:15 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/59973.shtml)
-- 2026-06-30 05:22 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/27827.shtml)
-- 2026-06-30 04:59 - [《共患难》](https://www.share.minike.top/Article/details/96348139.shtml)
-- 2026-06-30 05:01 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/517577.shtml)
-- 2026-06-30 05:14 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/915811.shtml)
-- 2026-06-30 05:11 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/6800668.shtml)
-- 2026-06-30 05:01 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/19646553545.shtml)
-- 2026-06-30 05:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/752246.shtml)
-- 2026-06-30 05:05 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/81343.shtml)
+- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/636071693972.shtml)
+- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/176379723354.shtml)
+- 2026-06-30 05:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/9996936044.shtml)
+- 2026-06-30 05:30 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/6133277701.shtml)
+- 2026-06-30 05:12 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/8404723.shtml)
+- 2026-06-30 05:20 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/12272.shtml)
+- 2026-06-30 05:05 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/74692706436.shtml)
+- 2026-06-30 05:24 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/147298561.shtml)
+- 2026-06-30 05:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/80350026.shtml)
+- 2026-06-30 05:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/027236.shtml)
+- 2026-06-30 05:22 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/8887083261.shtml)
+- 2026-06-30 05:17 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/15641622.shtml)
+- 2026-06-30 05:13 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/639588.shtml)
+- 2026-06-30 05:28 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/82637585044.shtml)
+- 2026-06-30 05:16 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/9568814.shtml)

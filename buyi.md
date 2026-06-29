@@ -1,57 +1,60 @@
-# 印度限制珠宝出口商黄金免税进口额度，以抑制黄金需求
+# 恭博礼物“绿盒子”亮相第二十二届文博会 诠释传统文化当代表达
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-印度政府在一份官方通告中表示，该国于周四收紧了珠宝出口商的黄金免税进口规则，将每张进口许可证的黄金进口量上限设为100公斤。作为全球第二大黄金消费国，印度正以此举抑制黄金进口需求。 本周早些时候，这个南亚国家已将黄金和白银进口关税从6%上调至15%，旨在减少两类贵金属的海外采购规模，缓解油价高企给外汇储备带来的压力。 印度是全球主要黄金珠宝出口国之一。印度政府通过预先授权计划，
+中新网深圳5月22日电 文化和旅游部恭王府博物馆携“恭博礼物”21日起亮相第二十二届中国(深圳)国际文化产业博览交易会，全方位呈现恭博文化品牌建设与产业发展成果，诠释传统文化的当代表达。 恭王府博物馆展区以“恭博绿”为基调，沿用标志性的“绿盒子”视觉符号，创新再现恭王府五进式的院落格局。西洋门、海棠花等经典古建园林元素与现代设计语言巧妙交融，打造沉浸式传统建筑美学体验空间。展厅
 
 ## 正文
 
-印度政府在一份官方通告中表示，该国于周四收紧了珠宝出口商的黄金免税进口规则，将每张进口许可证的黄金进口量上限设为100公斤。
+中新网深圳5月22日电 文化和旅游部恭王府博物馆携“恭博礼物”21日起亮相第二十二届中国(深圳)国际文化产业博览交易会，全方位呈现恭博文化品牌建设与产业发展成果，诠释传统文化的当代表达。
 
-作为全球第二大黄金消费国，印度正以此举抑制黄金进口需求。
+恭王府博物馆展区以“恭博绿”为基调，沿用标志性的“绿盒子”视觉符号，创新再现恭王府五进式的院落格局。
 
-本周早些时候，这个南亚国家已将黄金和白银进口关税从6%上调至15%，旨在减少两类贵金属的海外采购规模，缓解油价高企给外汇储备带来的压力。
+西洋门、海棠花等经典古建园林元素与现代设计语言巧妙交融，打造沉浸式传统建筑美学体验空间。
 
-印度是全球主要黄金珠宝出口国之一。
+展厅入口以恭王府秘云洞的洞天意象为灵感，设计“洞天福地”影壁墙，运用现代解构手法营造层叠穿越感，重现康熙御笔“天下第一福”福字碑的经典景致，使观众步入展区即刻感受到传统“福”文化的深厚底蕴。
 
-印度政府通过预先授权计划，允许珠宝制造商和珠宝商为出口业务免税进口黄金。
+展区内部以“春、夏、秋、冬”为主题分区，全景呈现恭王府园林意境，实现人文空间与自然美学的有机统一。
 
-印度政府于周四修订珠宝出口商进口新规：每张许可证黄金进口限额100公斤，且后续新许可证的申领，须至少完成前期50%的出口履约义务。
+展区集中展示了恭王府博物馆近年来文创产品开发的核心成果：“恭·时尚”品牌将恭王府大戏楼经典的紫藤缠枝彩绘元素与古法缠花、盘金刺绣等传统技艺相结合，设计开发服饰及配套文创产品，实现美学价值与实用功能的双重提升；“恭小主”IP手办、“恭小福食礼”饮品茶点、冰箱贴等爆款文创，以“传统纹样+当代潮流”设计语言，使传统文化可触摸、可品尝、可收藏。
 
-通告还指出，首次申请企业必须接受地方监管部门对生产厂房的实地核查，核实企业真实存续情况、产能及实际经营状态。
+在文化产业开放合作方面，“恭博礼物”与知名品牌跨界携手推出新品，体现专业化和市场化的同时，更向世界展现了东方审美哲思与中式生活风雅。
 
-持证企业还须每两周提交一次报告，由独立注册会计师鉴证，详细列明在该政策框架下的黄金进口与出口明细。
+参展期间，“恭小主”人偶与现场观众互动合影，工作人员实时解说产品设计巧思。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 05:23 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 05:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 05:21 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 04:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 05:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 04:56 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 05:22 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 04:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 04:57 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:30 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 05:25 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 05:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 05:20 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 05:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 05:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 05:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 05:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 05:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 05:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 05:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 05:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 05:19 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/4066706.shtml)
-- 2026-06-30 05:21 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/4984407.shtml)
-- 2026-06-30 04:56 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/2319196184.shtml)
-- 2026-06-30 05:11 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/164027318533.shtml)
-- 2026-06-30 05:19 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/171921686.shtml)
-- 2026-06-30 04:55 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/5967329.shtml)
-- 2026-06-30 05:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/480953.shtml)
-- 2026-06-30 04:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/252792990580.shtml)
-- 2026-06-30 05:07 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/68977044560.shtml)
-- 2026-06-30 04:57 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/583165355504.shtml)
-- 2026-06-30 05:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/9568382819.shtml)
-- 2026-06-30 05:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/199900416.shtml)
-- 2026-06-30 05:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/267556.shtml)
-- 2026-06-30 05:16 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/225414038601.shtml)
-- 2026-06-30 05:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/15459.shtml)
+- 2026-06-30 05:18 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/886698477.shtml)
+- 2026-06-30 05:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/5268415698.shtml)
+- 2026-06-30 05:16 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/74896336058.shtml)
+- 2026-06-30 05:17 - [千与千寻](https://www.blog.minike.top/Article/details/8696131827.shtml)
+- 2026-06-30 05:26 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/542109.shtml)
+- 2026-06-30 05:01 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/989015662.shtml)
+- 2026-06-30 05:20 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/312958137.shtml)
+- 2026-06-30 05:05 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/9032398730.shtml)
+- 2026-06-30 05:13 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/4879826.shtml)
+- 2026-06-30 05:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4916561775.shtml)
+- 2026-06-30 05:15 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/487868.shtml)
+- 2026-06-30 05:05 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/46631437768.shtml)
+- 2026-06-30 05:27 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/96114751.shtml)
+- 2026-06-30 05:25 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/16437963678.shtml)
+- 2026-06-30 05:29 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/38123030356.shtml)

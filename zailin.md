@@ -1,61 +1,59 @@
-# 上海国际电影节全新单元“AI片场”在沪“开机”
+# “男子发现名下有25年前陌生贷款”，工行：资料已统一销毁
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新社上海5月13日电 (记者 王笈)人工智能正深刻改变影视内容生产方式，成为越来越多专业影视工作者关注的方向。13日，第28届上海国际电影节全新单元“AI片场”在上海率先“开机”。 将于6月12日至21日举行的第28届上海国际电影节(下称“上影节”)，是中国唯一的国际A类电影节。 本届上影节首次设立“AI片场”单元，打造面向行业开放的AI影像协作实验场，邀请影视创作者与AI超
+原标题：“男子发现名下有25年前陌生贷款”，银行：资料已统一销毁 澎湃新闻记者 段彦超 实习生 李晨溪 河北省肃宁县的刘先生向澎湃新闻反映，其4月底通过中国工商银行APP发现名下有一笔2001年办理的贷款，金额9万元，已结清。 25年前，刘先生只有19岁。他称，自己根本没有办理过该笔贷款。 刘先生多次向工行肃宁支行反映此事。录音显示，该行工作人员称，相关贷款资料超过档案保存期限
 
 ## 正文
 
-中新社上海5月13日电 (记者 王笈)人工智能正深刻改变影视内容生产方式，成为越来越多专业影视工作者关注的方向。
+原标题：“男子发现名下有25年前陌生贷款”，银行：资料已统一销毁 澎湃新闻记者 段彦超 实习生 李晨溪 河北省肃宁县的刘先生向澎湃新闻反映，其4月底通过中国工商银行APP发现名下有一笔2001年办理的贷款，金额9万元，已结清。
 
-13日，第28届上海国际电影节全新单元“AI片场”在上海率先“开机”。
+25年前，刘先生只有19岁。
 
-将于6月12日至21日举行的第28届上海国际电影节(下称“上影节”)，是中国唯一的国际A类电影节。
+他称，自己根本没有办理过该笔贷款。
 
-本届上影节首次设立“AI片场”单元，打造面向行业开放的AI影像协作实验场，邀请影视创作者与AI超级创作者以“1+1”方式组队，在一个月内使用AI工具，磨合创作流程，完成AI影像短片创制，并将其过程转化为可被观察、讨论的创制样本。
+刘先生多次向工行肃宁支行反映此事。
 
-在为期43天的公开征集中，“AI片场”收到了来自7个国家和地区的近500名影视创作者、AI超级创作者的报名。
+录音显示，该行工作人员称，相关贷款资料超过档案保存期限，已统一销毁，无法提供原始签字凭证。
 
-经过前期评选、破冰组队、终选路演，最终形成4组由影视创作者与AI超级创作者组成的融合创制团队，于当日亮相上海临港科技智慧图书馆。
+5月20日、21日，澎湃新闻多次致电工行肃宁支行，未获回应。
 
-上海国际影视节中心副主任童颖表示，“AI片场”创新采用“1+1”融合机制，希望让两类创作者真正进入同一个创作现场——一方带来影像语言和经验判断，另一方带来技术工具和新的生产逻辑，在协作中弥合认知差异，碰撞新的火花。
+意外发现一笔陌生贷款记录 44岁的刘先生是肃宁县人，是一位农民。
 
-融合创制团队“Bicycle Kids”成员之一、德国AI导演马克(Mark Wachholz)告诉中新社记者，两年前AI电影节开始兴起，他去过韩国、意大利、瑞士等地的相关影展，今年想看看传统电影节能否接纳AI创作，“传统电影制作与AI创作在同一平台进行展示，或许会有新的融合和发现”。
+刘先生称，4月28日，他用工行APP给妻子交保险，无意中进入“我的贷款”页面，发现自己名下有一笔陌生贷款。
 
 ## 相关推荐
 
-- 2026-06-30 05:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 05:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 05:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:07 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 04:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 05:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 05:08 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 04:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 05:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 05:21 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 05:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 05:07 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 04:56 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 05:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 05:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 05:12 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 05:02 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 05:08 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 05:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 05:08 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 05:27 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 05:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 05:12 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 05:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 05:15 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/895052351854.shtml)
-- 2026-06-30 05:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/55406838.shtml)
-- 2026-06-30 05:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/27374533.shtml)
-- 2026-06-30 04:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/77097.shtml)
-- 2026-06-30 05:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/38815.shtml)
-- 2026-06-30 05:00 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/00639.shtml)
-- 2026-06-30 05:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/239283819.shtml)
-- 2026-06-30 05:16 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/6349071655.shtml)
-- 2026-06-30 05:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/799504258.shtml)
-- 2026-06-30 05:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/8900973.shtml)
-- 2026-06-30 05:01 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/8744230362.shtml)
-- 2026-06-30 04:56 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/327105.shtml)
-- 2026-06-30 05:06 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/320700.shtml)
-- 2026-06-30 05:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/22077108205.shtml)
-- 2026-06-30 05:08 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/07839438308.shtml)
+- 2026-06-30 05:18 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/093922.shtml)
+- 2026-06-30 05:04 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/0822429.shtml)
+- 2026-06-30 05:24 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/93899979931.shtml)
+- 2026-06-30 05:07 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/50439.shtml)
+- 2026-06-30 05:21 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/9748395544.shtml)
+- 2026-06-30 05:01 - [金牌调解](https://www.blog.minike.top/Article/details/478874102863.shtml)
+- 2026-06-30 05:11 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/72324586.shtml)
+- 2026-06-30 05:17 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/7723203.shtml)
+- 2026-06-30 05:05 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/033420.shtml)
+- 2026-06-30 05:12 - [送你一朵小红花](https://www.share.minike.top/Article/details/262786381.shtml)
+- 2026-06-30 05:03 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/621006.shtml)
+- 2026-06-30 05:14 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/06020849280.shtml)
+- 2026-06-30 05:03 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/51401.shtml)
+- 2026-06-30 05:06 - [啊啊啊](https://www.share.minike.top/Article/details/074855376211.shtml)
+- 2026-06-30 05:05 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/0984252.shtml)

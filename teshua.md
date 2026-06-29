@@ -1,60 +1,61 @@
-# 昆明飞虎小学：童声传颂飞虎精神
+# 工业物流地产信托公司将出席Nareit 2026年REITweek投资者大会
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网昆明5月15日电 (时文枝 袁鸿凯)初夏时节，云南省昆明市呈贡区第一小学(昆明飞虎小学)操场上，孩子们在嬉戏玩耍，他们身后一个个石碾子花坛引人注目。这些石碾的原型正是八十余年前中美军民共建抗战机场时使用的“重器”，它们成了校园里最沉静、也最会“说话”的课本。 这所始建于1908年的百年老校，因毗邻呈贡机场原址而承载着一段特殊记忆。二战时期，中美军民并肩修建的呈贡机场曾是飞
+工业物流地产信托公司（Industrial Logistics Properties Trust）宣布，公司总裁兼首席执行官Yael Duffy及首席财务官兼财务主管Tiffany Sy将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午3时15分进行专题演讲。 投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议
 
 ## 正文
 
-中新网昆明5月15日电 (时文枝 袁鸿凯)初夏时节，云南省昆明市呈贡区第一小学(昆明飞虎小学)操场上，孩子们在嬉戏玩耍，他们身后一个个石碾子花坛引人注目。
+工业物流地产信托公司（Industrial Logistics Properties Trust）宣布，公司总裁兼首席执行官Yael Duffy及首席财务官兼财务主管Tiffany Sy将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午3时15分进行专题演讲。
 
-这些石碾的原型正是八十余年前中美军民共建抗战机场时使用的“重器”，它们成了校园里最沉静、也最会“说话”的课本。
+投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。
 
-这所始建于1908年的百年老校，因毗邻呈贡机场原址而承载着一段特殊记忆。
+Industrial Logistics Properties Trust是一家专注于工业与物流地产的房地产投资信托基金。
 
-二战时期，中美军民并肩修建的呈贡机场曾是飞虎队(中国空军美国志愿援华航空队)的重要基地。
+截至2026年3月31日，公司投资组合涵盖409处物业，可租赁面积约5960万平方英尺，分布于39个州。
 
-因没有碾压机械，当地民众冒着炮火用巨石凿成的石碾子压路，为抗战筑起坚强的航空基地。
+约77%的年化租金收入来自投资级租户或其子公司。
 
-2015年9月，呈贡区第一小学被云南省飞虎队研究会授予“昆明飞虎小学”称号，成为中国唯一一所飞虎小学。
+公司近期业绩表现强劲。
 
-“飞虎精神是抗战历史留给我们的宝贵财富。
+2026年第一季度财报显示，标准化营运资金达2200万美元，合每股0.33美元，同比增长超过60%，为连续第六个季度实现两位数租金增长。
 
-”昆明市呈贡区第一小学(昆明飞虎小学)校长张红平介绍，挂牌以来，学校深入挖掘飞虎精神内涵，以“飞虎文化”打造校园环境。
+公司成功完成16.2亿美元固定利率再融资，将全部合并债务转换为固定利率，加权平均利率约5.48%，且直至2029年无债务到期，预计每年释放近2000万美元现金流。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 05:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 04:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:16 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 04:56 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 05:14 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 05:15 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 04:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 05:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 05:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 05:05 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 05:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 04:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 05:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 05:23 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 05:25 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 05:27 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 05:25 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 05:07 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:13 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 05:14 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 05:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 05:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 05:14 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 05:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 05:10 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 05:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/180914.shtml)
-- 2026-06-30 05:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/799214.shtml)
-- 2026-06-30 04:55 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/463162.shtml)
-- 2026-06-30 04:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/2347442.shtml)
-- 2026-06-30 04:55 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/19759.shtml)
-- 2026-06-30 05:21 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/230359762076.shtml)
-- 2026-06-30 05:23 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/765695.shtml)
-- 2026-06-30 05:07 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/7235964713.shtml)
-- 2026-06-30 05:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/41690.shtml)
-- 2026-06-30 05:16 - [千与千寻](https://www.share.minike.top/Article/details/63513.shtml)
-- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/9102875.shtml)
-- 2026-06-30 05:06 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/600656.shtml)
-- 2026-06-30 05:20 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/240718.shtml)
-- 2026-06-30 05:10 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/3379392.shtml)
-- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/62101533258.shtml)
+- 2026-06-30 05:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/4805037.shtml)
+- 2026-06-30 05:08 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/52077.shtml)
+- 2026-06-30 05:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/49165.shtml)
+- 2026-06-30 05:30 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/09257978.shtml)
+- 2026-06-30 05:26 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/8813889.shtml)
+- 2026-06-30 05:08 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/56921.shtml)
+- 2026-06-30 05:17 - [刘念回应](http://www.share.minike.top/Article/details/547901880.shtml)
+- 2026-06-30 05:16 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/83976334.shtml)
+- 2026-06-30 05:01 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/79437.shtml)
+- 2026-06-30 05:01 - [TOP Prada](http://www.share.minike.top/Article/details/3761795415.shtml)
+- 2026-06-30 05:02 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/364307.shtml)
+- 2026-06-30 05:21 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/466170080.shtml)
+- 2026-06-30 05:02 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/20111554.shtml)
+- 2026-06-30 05:00 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/85585.shtml)
+- 2026-06-30 05:05 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/9868221.shtml)

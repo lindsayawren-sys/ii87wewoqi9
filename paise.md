@@ -1,61 +1,57 @@
-# 海通国际：银河娱乐目标价降至41.5港元 维持“优于大市”评级
+# 沙特3月石油出口额飙升至三年新高
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-海通国际发布研报称，银河娱乐（00027）首季业绩符合预期，高端业务持续增长。首季其实现净收入124亿港元，同比提升10.7%； 经调整EBITDA达35.8亿港元，同比提升8.5%，对应经调整EBITDA利润率为28.8%，同比下滑0.6个百分点。整体来看，首季业绩符合市场预期。参考可比公司估值，该行给予银娱2026年8.5倍EV/EBITDA，目标价由47.3港元降至41.
+中东战事全面爆发首月，沙特阿拉伯3月石油出口收入飙升至247亿美元，创三年多以来新高。该国依托红海航线转运运力，叠加能源价格走高，抵消了霍尔木兹海峡通行受阻带来的贸易冲击。 沙特总局统计局数据显示，3月沙特原油及石油制品出口总额同比大增37%，创下2022年10月以来最高值。2月末冲突爆发后原油及成品油价格大幅上涨，是收入走高的重要推手。 霍尔木兹海峡航运受阻后，沙特顺利通过境
 
 ## 正文
 
-海通国际发布研报称，银河娱乐（00027）首季业绩符合预期，高端业务持续增长。
+中东战事全面爆发首月，沙特阿拉伯3月石油出口收入飙升至247亿美元，创三年多以来新高。
 
-首季其实现净收入124亿港元，同比提升10.7%； 经调整EBITDA达35.8亿港元，同比提升8.5%，对应经调整EBITDA利润率为28.8%，同比下滑0.6个百分点。
+该国依托红海航线转运运力，叠加能源价格走高，抵消了霍尔木兹海峡通行受阻带来的贸易冲击。
 
-整体来看，首季业绩符合市场预期。
+沙特总局统计局数据显示，3月沙特原油及石油制品出口总额同比大增37%，创下2022年10月以来最高值。
 
-参考可比公司估值，该行给予银娱2026年8.5倍EV/EBITDA，目标价由47.3港元降至41.5港元，维持“优于大市”评级。
+2月末冲突爆发后原油及成品油价格大幅上涨，是收入走高的重要推手。
 
-首季银娱博彩毛收入达127.3亿港元，同比提升16.4%，同比增速超行业水平（14%）。
+霍尔木兹海峡航运受阻后，沙特顺利通过境内输油管道将大部分原油转运至西海岸港口。
 
-期内高端业务持续增长，VIP和高端中场业务目前占GGR的53%； 中场业务中，基础中场和高端中场的比例约为55：45。
+伦敦基准原油价格3月大涨43%。
 
-银娱首季市场份额为19.9%，按季下滑1.8个百分点，同比提升0.4个百分点，回落至常态水平。
+霍尔木兹海峡近乎停航导致全球原油供给大幅缩减，重创部分海湾国家经济。
 
-该行提到，五一黄金周期间银娱旗下酒店、餐饮及访客量表现强劲。
+而沙特迅速启用横贯本土的输油管线，将原油输送至红海沿岸备用港口，截至3月底，石油外运产能已恢复至战前约七成水平。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 04:56 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 05:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 05:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 04:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:22 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 05:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 05:18 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 05:07 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 05:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 04:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 05:12 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 05:17 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 05:04 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 05:12 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 05:20 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 05:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 05:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 05:28 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 05:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 05:24 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 05:09 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 05:27 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 05:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 05:27 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/7263025.shtml)
-- 2026-06-30 04:59 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/852032058752.shtml)
-- 2026-06-30 05:11 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/82230083.shtml)
-- 2026-06-30 05:11 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/4416624.shtml)
-- 2026-06-30 05:03 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/2254397444.shtml)
-- 2026-06-30 05:15 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/244862.shtml)
-- 2026-06-30 05:20 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/26353.shtml)
-- 2026-06-30 05:16 - [恋与深空回应争议](http://www.share.minike.top/Article/details/195361.shtml)
-- 2026-06-30 05:03 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/692848943.shtml)
-- 2026-06-30 05:04 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/033817547178.shtml)
-- 2026-06-30 05:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/507548539.shtml)
-- 2026-06-30 05:20 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/21337.shtml)
-- 2026-06-30 05:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/705780.shtml)
-- 2026-06-30 05:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/38081844.shtml)
-- 2026-06-30 04:54 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/6042569.shtml)
+- 2026-06-30 05:20 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/82048.shtml)
+- 2026-06-30 05:03 - [小娘惹](https://www.share.minike.top/Article/details/5568231.shtml)
+- 2026-06-30 05:04 - [女心理师](https://www.share.kurohicncr.top/Article/details/9517362818.shtml)
+- 2026-06-30 05:08 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/5257384999.shtml)
+- 2026-06-30 05:28 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/421591649.shtml)
+- 2026-06-30 05:09 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/67241.shtml)
+- 2026-06-30 05:12 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/61767548.shtml)
+- 2026-06-30 05:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/464447790.shtml)
+- 2026-06-30 05:11 - [田曦薇没招了](https://www.share.minike.top/Article/details/75158710.shtml)
+- 2026-06-30 05:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/7136703.shtml)
+- 2026-06-30 05:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/66660975307.shtml)
+- 2026-06-30 05:18 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/94763120597.shtml)
+- 2026-06-30 05:27 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/913017226.shtml)
+- 2026-06-30 05:08 - [田曦薇没招了](https://www.share.minike.top/Article/details/17634476012.shtml)
+- 2026-06-30 05:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/07065371431.shtml)

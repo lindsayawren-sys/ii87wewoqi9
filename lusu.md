@@ -1,58 +1,56 @@
-# 国家医保局印发《五年行动计划》 建立健全医保基金监管体系
+# “75后”王芳将掌舵嘉兴银行，从副行长到拟任董事长仅用三年
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境
+蓝鲸新闻5月21日讯（记者 金磊）据嘉兴银行官微，嘉兴市委常委、常务副市长颜海荣一行日前到嘉兴银行调研指导。其中，王芳以嘉兴银行党委书记、拟任董事长身份，沈旭东以该行党委副书记、拟任行长身份参加调研座谈会。这也意味着该行新的领导班子正式确立。 在此之前，嘉兴银行原党委书记、董事长林斌于去年7月被免去党委书记职务，随后辞去董事长职务。 据了解，王芳为嘉兴银行内部提拔，近几年在嘉兴
 
 ## 正文
 
-本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境深度净化、医保治理体系和治理能力现代化水平显著提升。
+蓝鲸新闻5月21日讯（记者 金磊）据嘉兴银行官微，嘉兴市委常委、常务副市长颜海荣一行日前到嘉兴银行调研指导。
 
-国家医保局有关负责人表示，国家医保局自成立以来，积极探索建立了飞行检查机制，坚持打防结合，有力筑牢了基金安全防线。
+其中，王芳以嘉兴银行党委书记、拟任董事长身份，沈旭东以该行党委副书记、拟任行长身份参加调研座谈会。
 
-然而，目前基金安全运行仍面临诸多挑战，一方面，基金“跑冒滴漏”问题尚未彻底根治，欺诈骗保时有发生，骗保方式呈现隐蔽化、专业化、复杂化特征，对基金安全构成直接冲击。
+这也意味着该行新的领导班子正式确立。
 
-另一方面，随着医保参保覆盖面扩大、保障待遇水平提升、医保支付方式改革推进，基金使用主体日益多元，资金流转链条不断延伸，进一步加大了医保基金风险防控难度，对基金监管工作提出了更高要求。
+在此之前，嘉兴银行原党委书记、董事长林斌于去年7月被免去党委书记职务，随后辞去董事长职务。
 
-《五年行动计划》提出了“十五五”时期医保基金监管重点工作，包括重拳治标，持续巩固“不敢骗”的高压态势，通过强化飞行检查，充分发挥震慑效应；技术赋能，不断织密“不能骗”的天罗地网；源头治本，持续健全“不想骗”的长效机制。
+据了解，王芳为嘉兴银行内部提拔，近几年在嘉兴银行从副行长一路升至拟任董事长。
 
-针对飞行检查，推动监督检查全面覆盖，覆盖全国所有统筹地区，覆盖各主体、各类型、各性质、各规模、各场景、各险种。
+履历显示，王芳出生于1975年3月，浙江海宁人，硕士，高级经济师，具备金融监管与地方政府双重任职背景。
 
-通过国家、省、市三级联动，构建起立体化的监管格局。
+她曾任职央行海宁市支行、嘉兴银监分局，后历任海宁经济开发区管委会副主任、海宁市商务局局长、海盐县委常委组织部长等职。
 
-“十五五”时期，力争完成全国定点医药机构现场检查全覆盖。
+2023年9月，王芳来到嘉兴银行任党委副书记，同年11月起任副行长。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 05:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 05:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 05:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 05:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 05:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 05:05 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 05:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 05:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 05:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 05:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 05:26 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 05:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 05:27 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 05:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 05:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 05:08 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 05:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 05:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 05:20 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 05:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0687534467.shtml)
-- 2026-06-30 05:22 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/2991018.shtml)
-- 2026-06-30 05:15 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/55278.shtml)
-- 2026-06-30 05:20 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/9929400012.shtml)
-- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/1885038.shtml)
-- 2026-06-30 05:01 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/768790.shtml)
-- 2026-06-30 05:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/17019021516.shtml)
-- 2026-06-30 05:19 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/24388392372.shtml)
-- 2026-06-30 04:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/64715694544.shtml)
-- 2026-06-30 04:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/22285.shtml)
-- 2026-06-30 05:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/225841374856.shtml)
-- 2026-06-30 05:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/970521.shtml)
-- 2026-06-30 05:10 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/08769.shtml)
-- 2026-06-30 05:16 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/958090105838.shtml)
-- 2026-06-30 05:16 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/79277.shtml)
+- 2026-06-30 05:26 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/71769566.shtml)
+- 2026-06-30 05:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/53863016.shtml)
+- 2026-06-30 05:23 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/188139519.shtml)
+- 2026-06-30 05:05 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/60833294249.shtml)
+- 2026-06-30 05:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/67504988419.shtml)
+- 2026-06-30 05:15 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/545121372.shtml)
+- 2026-06-30 05:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/320020722612.shtml)
+- 2026-06-30 05:26 - [美人鱼](https://www.blog.minike.top/Article/details/64558693992.shtml)
+- 2026-06-30 05:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/886567.shtml)
+- 2026-06-30 05:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/18731629.shtml)
+- 2026-06-30 05:03 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/40260.shtml)
+- 2026-06-30 05:18 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/63648025591.shtml)
+- 2026-06-30 05:09 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/6992090.shtml)
+- 2026-06-30 05:23 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/00244902353.shtml)
+- 2026-06-30 05:11 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/917250054.shtml)

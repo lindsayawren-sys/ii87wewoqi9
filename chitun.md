@@ -1,59 +1,56 @@
-# A股三大股指集体收跌超1.5%，航运、猪肉等板块逆势走强
+# 广西发布洪水蓝色预警
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指5月14日集体高开。早盘三大股指高开低走，很快均跌超1%。午后一度回暖，但尾盘跌幅扩大。 从盘面上看，商业航天、AI应用、能源金属、电池、特高压、人形机器人、算力硬件、创新药概念股纷纷下挫。航运、猪肉、白酒、银行板块逆势走强。 至收盘，上证综指跌1.52%，报4177.92点；深证成指跌2.14
+中新网南宁5月21日电 (陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，5月21日，受强降雨影响，广西北仑河、防城河、大宁河及茅岭江支流滩营江、大直河等5条河流7个水文站出现超警0.01米至1.17米的洪水。21日11时30分，广西壮族自治区水文中心发布洪水蓝色预警。广西壮族自治区水文中心预测，未来3小时至6小时，防城河防城城区河段(警戒水位5.5米)及北仑河东兴
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网南宁5月21日电 (陈秋霞 周也茹)广西壮族自治区水文中心21日提供的信息显示，5月21日，受强降雨影响，广西北仑河、防城河、大宁河及茅岭江支流滩营江、大直河等5条河流7个水文站出现超警0.01米至1.17米的洪水。
 
-A股三大股指5月14日集体高开。
+21日11时30分，广西壮族自治区水文中心发布洪水蓝色预警。
 
-早盘三大股指高开低走，很快均跌超1%。
+广西壮族自治区水文中心预测，未来3小时至6小时，防城河防城城区河段(警戒水位5.5米)及北仑河东兴市区河段(警戒水位5.5米)将出现超警1.5米左右的洪水，茅岭江支流滩营江、大直河将出现超警1米至2米的洪水。
 
-午后一度回暖，但尾盘跌幅扩大。
+未来36小时，柳江下游、桂江中下游、左江上游、贺江中上游、浔江及西江干流将继续上涨1米至5米，其中西江梧州城区河段(警戒水位18.5米)将出现14.5米左右的洪峰水位；桂林、贺州、梧州、防城港及钦州等市部分中小河流可能出现超警洪水。
 
-从盘面上看，商业航天、AI应用、能源金属、电池、特高压、人形机器人、算力硬件、创新药概念股纷纷下挫。
+广西壮族自治区水文中心于5月21日11时30分发布洪水蓝色预警，提请防城港、钦州、贺州、来宾、崇左、梧州、贵港及桂林等市上述沿江区域有关单位及社会公众加强防范，及时避险。
 
-航运、猪肉、白酒、银行板块逆势走强。
-
-至收盘，上证综指跌1.52%，报4177.92点；深证成指跌2.14%，报15745.74点；创业板指跌2.16%，报3951.14点。
-
-Wind统计显示，两市及北交所共1047家上涨，4382家下跌，平盘有81家。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 05:19 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 05:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 05:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 05:15 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 05:17 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 05:17 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 05:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 04:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:20 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 05:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 05:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 05:17 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 05:09 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 05:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 05:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 05:00 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 05:13 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 05:23 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 05:08 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 05:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 05:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 05:22 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:11 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 05:17 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 05:17 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 05:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/614354537997.shtml)
-- 2026-06-30 05:15 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/49921234674.shtml)
-- 2026-06-30 05:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/3288474.shtml)
-- 2026-06-30 05:22 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/7036373.shtml)
-- 2026-06-30 05:07 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/750243667.shtml)
-- 2026-06-30 05:12 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/8419362.shtml)
-- 2026-06-30 05:08 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/56586666.shtml)
-- 2026-06-30 05:16 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/02094650582.shtml)
-- 2026-06-30 05:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/379750937538.shtml)
-- 2026-06-30 05:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/788305733.shtml)
-- 2026-06-30 04:59 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/07086441241.shtml)
-- 2026-06-30 04:59 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/06283459326.shtml)
-- 2026-06-30 05:02 - [一生一世](http://www.blog.kurohicncr.top/Article/details/62976.shtml)
-- 2026-06-30 04:54 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/096211.shtml)
-- 2026-06-30 04:54 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/28101.shtml)
+- 2026-06-30 05:08 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/8958885.shtml)
+- 2026-06-30 05:22 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/631232442518.shtml)
+- 2026-06-30 05:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/736360271703.shtml)
+- 2026-06-30 05:21 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/64696.shtml)
+- 2026-06-30 05:20 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/650646.shtml)
+- 2026-06-30 05:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/98674514386.shtml)
+- 2026-06-30 05:28 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/21112260.shtml)
+- 2026-06-30 05:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/76883350.shtml)
+- 2026-06-30 05:04 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/010065.shtml)
+- 2026-06-30 05:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/3233618968.shtml)
+- 2026-06-30 05:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/49032487.shtml)
+- 2026-06-30 05:23 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/591970883.shtml)
+- 2026-06-30 05:01 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/1530539886.shtml)
+- 2026-06-30 05:06 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/159964729010.shtml)
+- 2026-06-30 05:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/577964871870.shtml)

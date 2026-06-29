@@ -1,59 +1,56 @@
-# 2026年4月全国期货市场交易情况：成交额同比增长6.53%
+# 北京升级发布第二批“技能照亮前程”项目化培训指导目录
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中国期货业协会最新统计资料表明，以单边计算， 4月全国期货市场成交量为854，890，907手，成交额为747，635.50亿元，同比分别增长5.73%和6.53%。1-4月全国期货市场累计成交量为3，456，178，650手，累计成交额为3，314，687.54亿元，同比分别增长30.02%和42.75%。 上海期货交易所4月成交量为196，720，657手，成交额为259，
+中新网北京5月22日电 (记者 吕少威)记者今天从北京市人力资源和社会保障局获悉，该局升级发布《北京市“技能照亮前程”项目化培训指导目录(第二批)》(以下简称“第二批目录”)，覆盖12个行业产业领域、132个职业类别，共计385个培训项目。目录紧扣人工智能、集成电路新兴产业新职业培训内容，并针对大学生、企业职工、失业人员等群体设置定制化课程，精准对接不同群体的技能提升需求，为产
 
 ## 正文
 
-中国期货业协会最新统计资料表明，以单边计算， 4月全国期货市场成交量为854，890，907手，成交额为747，635.50亿元，同比分别增长5.73%和6.53%。
+中新网北京5月22日电 (记者 吕少威)记者今天从北京市人力资源和社会保障局获悉，该局升级发布《北京市“技能照亮前程”项目化培训指导目录(第二批)》(以下简称“第二批目录”)，覆盖12个行业产业领域、132个职业类别，共计385个培训项目。
 
-1-4月全国期货市场累计成交量为3，456，178，650手，累计成交额为3，314，687.54亿元，同比分别增长30.02%和42.75%。
+目录紧扣人工智能、集成电路新兴产业新职业培训内容，并针对大学生、企业职工、失业人员等群体设置定制化课程，精准对接不同群体的技能提升需求，为产业发展输送适配性人才。
 
-上海期货交易所4月成交量为196，720，657手，成交额为259，374.84亿元，分别占全国市场的23.01%和34.69%，同比分别下降15.21%和10.54%。
+精准对接需求全面升级培训目录 去年以来，北京市人社局积极贯彻落实人社部“技能照亮前程”培训行动部署要求，坚持以人岗需求为基础，按照“用什么、学什么”的原则，开发小型化、模块化、标准化培训项目，动态发布项目化培训指导目录。
 
-4月末上海期货交易所持仓总量为10，900，809手，较上月末增长7.39%。
+第二批目录在首批基础上全面升级，涵盖12个行业产业领域、132个职业类别，共计385个培训项目；采取“市级+区级”联动模式，其中市级目录157个，主要由“产教评”链主单位及院校开发；区级目录228个，主要来源于各区职业技能培训机构，呈现出“紧盯前沿技术、民生服务托底、产教评就深度融合”的鲜明特色。
 
-1-4月上海期货交易所累计成交量为940，666，983手，累计成交额为1，414，647.15亿元，同比分别增长29.66%和83.25%，分别占全国市场的27.22%和42.68%。
+培训目录可满足不同群体的个性化需求 第二批目录紧密围绕人工智能、集成电路、生物医药等战略性新兴产业，并精准对接企业用人需求，特别纳入了“生成式人工智能系统应用员”等10个已纳入国家职业分类大典的新职业，以及“数据治理工程师”等14个市场急需紧缺的新岗位。
 
-上海国际能源交易中心4月成交量为9，477，881手，成交额为19，175.68亿元，分别占全国市场的1.11%和2.56%，同比分别下降45.62%和39.32%。
+同时，聚焦民生服务托底，开发了家政服务、养老护理、托幼照护等短期实用课程，还涵盖了短训、长训、订单式等多种培训形式，满足高校毕业生、企业职工、失业人员、农村劳动力等不同群体的个性化需求。
 
-4月末上海国际能源交易中心持仓总量为430，401手，较上月下降5.23%。
+为大学生等青年群体推出人工智能、互联网营销等“技能进阶课”，为失业人员提供家政、养老、托幼等“民生刚需课”，为农村劳动力定制农艺、园林、电商等“乡土技能课”，实现“培训即上岗”，推动就近就业。
 
-1-4月上海国际能源交易中心累计成交量为52，075，302手，累计成交额为111，930.11亿元，同比分别下降7.74%和增长3.08%，分别占全国市场的1.51%和3.38%。
+所有培训项目面向京津冀劳动者开放 第二批目录吸引了10家“产教评”技能生态链链主单位、11所院校及53家培训机构共同参与，通过发挥链主单位的岗位资源优势、院校的产教融合优势以及培训机构的地缘服务优势，形成全方位、多层次的培训服务网络。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 05:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 05:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 05:05 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 05:23 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 04:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 05:15 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 05:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 05:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 05:21 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 05:06 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 05:12 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 05:06 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 05:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 05:07 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 05:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 05:19 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 05:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 05:20 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 05:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/807586.shtml)
-- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/15175540.shtml)
-- 2026-06-30 04:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/04447441581.shtml)
-- 2026-06-30 05:07 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/81706.shtml)
-- 2026-06-30 04:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/69274.shtml)
-- 2026-06-30 04:59 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/89788496960.shtml)
-- 2026-06-30 05:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/129268145.shtml)
-- 2026-06-30 05:02 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/45438563818.shtml)
-- 2026-06-30 05:07 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/951106119.shtml)
-- 2026-06-30 05:03 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/994831.shtml)
-- 2026-06-30 04:56 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/73583.shtml)
-- 2026-06-30 05:14 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/56337170.shtml)
-- 2026-06-30 05:21 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/023674019516.shtml)
-- 2026-06-30 05:12 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/77129.shtml)
-- 2026-06-30 05:08 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/91092.shtml)
+- 2026-06-30 05:22 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/45394.shtml)
+- 2026-06-30 05:08 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/8901957656.shtml)
+- 2026-06-30 05:20 - [送你一朵小红花](https://www.share.minike.top/Article/details/08871916854.shtml)
+- 2026-06-30 05:23 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/953783.shtml)
+- 2026-06-30 05:13 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/33736.shtml)
+- 2026-06-30 05:09 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/89090.shtml)
+- 2026-06-30 05:21 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/064631210.shtml)
+- 2026-06-30 05:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/4455460.shtml)
+- 2026-06-30 05:24 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/092138812905.shtml)
+- 2026-06-30 05:29 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/49983.shtml)
+- 2026-06-30 05:13 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/15904795722.shtml)
+- 2026-06-30 05:13 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/001185271983.shtml)
+- 2026-06-30 05:03 - [85花告别古偶](http://www.share.minike.top/Article/details/4570865.shtml)
+- 2026-06-30 05:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/2286861390.shtml)
+- 2026-06-30 05:15 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/366268780948.shtml)

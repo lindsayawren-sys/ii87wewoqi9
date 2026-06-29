@@ -1,57 +1,60 @@
-# 世行预计越南今年经济增速放缓至6.8%
+# 长城基金杨建华：科技仍有望是主线
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。 世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。 世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。” 越南的目标是今年及未来十年每年GDP增速至少达到10%。 受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的
+当前市场进入高位宽幅震荡格局，而前期科技则成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。与此同时，本月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。 市场高位后，能否继续冲高？在估值分化加剧的背景下，又有哪些投资机会值得关注？ 对此，长城基金副总经理、投资总监杨建华表示，从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国内一季度G
 
 ## 正文
 
-世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。
+当前市场进入高位宽幅震荡格局，而前期科技则成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。
 
-世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。
+与此同时，本月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。
 
-世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。
+市场高位后，能否继续冲高？
 
-” 越南的目标是今年及未来十年每年GDP增速至少达到10%。
+在估值分化加剧的背景下，又有哪些投资机会值得关注？
 
-受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的目标。
+对此，长城基金副总经理、投资总监杨建华表示，从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国内一季度GDP增长强劲，中国在地缘政治博弈中保持定力，处于相对有利的位置。
 
-责任编辑：于健 SF069
+与此同时，上市公司业绩整体回暖，投资者信心在修复。
+
+我们预计短期内行情仍值得期待。
+
+方向上，杨建华认为，科技仍有望是市场主线，看好景气度高、业绩持续兑现的科技成长股，也看好供给受限、需求稳定向上的资源股，短期内需避免估值偏高、竞争格局不友好、业绩兑现度低的高位板块个股。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 05:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 05:07 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 05:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 04:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 05:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 05:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 05:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 05:21 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 05:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 05:02 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 05:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 05:05 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 05:01 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 05:28 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 05:07 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 05:04 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 05:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 05:18 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 05:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 05:14 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 05:20 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 05:16 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 05:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [世界杯](https://www.blog.kurohicncr.top/Article/details/65250091457.shtml)
-- 2026-06-30 05:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/3908221.shtml)
-- 2026-06-30 05:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/649553087904.shtml)
-- 2026-06-30 04:55 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/38194986.shtml)
-- 2026-06-30 04:59 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/749842243720.shtml)
-- 2026-06-30 05:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/399470904138.shtml)
-- 2026-06-30 05:00 - [月亮](http://www.blog.minike.top/Article/details/71188.shtml)
-- 2026-06-30 05:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/733598.shtml)
-- 2026-06-30 05:21 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/10547939053.shtml)
-- 2026-06-30 05:20 - [斛珠夫人](http://www.blog.minike.top/Article/details/79718173684.shtml)
-- 2026-06-30 05:17 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/2182977.shtml)
-- 2026-06-30 05:21 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/177940.shtml)
-- 2026-06-30 05:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/026804.shtml)
-- 2026-06-30 05:19 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/084828855784.shtml)
-- 2026-06-30 05:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/702671.shtml)
+- 2026-06-30 05:16 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/34405.shtml)
+- 2026-06-30 05:20 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/570764567742.shtml)
+- 2026-06-30 05:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/25012.shtml)
+- 2026-06-30 05:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/473062227369.shtml)
+- 2026-06-30 05:12 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/93753.shtml)
+- 2026-06-30 05:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/172754028.shtml)
+- 2026-06-30 05:20 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/5001261.shtml)
+- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/01508704.shtml)
+- 2026-06-30 05:25 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/261300.shtml)
+- 2026-06-30 05:28 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/657526160.shtml)
+- 2026-06-30 05:27 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/87912870003.shtml)
+- 2026-06-30 05:19 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/08914.shtml)
+- 2026-06-30 05:15 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/824425.shtml)
+- 2026-06-30 05:12 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/59992.shtml)
+- 2026-06-30 05:22 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/39224923.shtml)

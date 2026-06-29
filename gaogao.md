@@ -1,42 +1,47 @@
-# 日本“再军事化”这头“灰犀牛”正奔袭而来 日本自民党提出强化“宇宙开发”方案
+# 中天期货:橡胶震荡下行 棕榈反弹转下行
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 11:13 来源：央视新闻 责任编辑：【王祎】
+热点品种分析 一、商品指数 二、股指 中国上证综指5月21日（周四）收盘下跌84.91点，跌幅2.04%，报4077.28点； 中国深证成指5月21日（周四）收盘下跌322.71点，跌幅2.07%，报15247.27点； 中国沪深300 5月21日（周四）收盘下跌67.60点，跌幅1.39%，报4783.10点； 中国创业板指5月21日（周四）收盘下跌92.01点，跌幅2.35
 
 ## 正文
 
-发布时间：2026年05月14日 11:13 来源：央视新闻 责任编辑：【王祎】
+热点品种分析 一、商品指数 二、股指 中国上证综指5月21日（周四）收盘下跌84.91点，跌幅2.04%，报4077.28点； 中国深证成指5月21日（周四）收盘下跌322.71点，跌幅2.07%，报15247.27点； 中国沪深300 5月21日（周四）收盘下跌67.60点，跌幅1.39%，报4783.10点； 中国创业板指5月21日（周四）收盘下跌92.01点，跌幅2.35%，报3829.78点； 中国科创50 5月21日（周四）收盘下跌67.85点，跌幅3.70%，报1764.17点。
+
+三、原油2607 四、白银2608 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 05:07 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 05:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 04:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:21 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 05:23 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 04:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 05:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 05:23 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 05:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 05:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 05:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:19 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 05:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 05:05 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 05:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 05:01 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 05:24 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 05:06 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/4472938059.shtml)
-- 2026-06-30 05:12 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/4962421.shtml)
-- 2026-06-30 04:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/60539.shtml)
-- 2026-06-30 05:14 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/393845361.shtml)
-- 2026-06-30 05:02 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/80299729.shtml)
-- 2026-06-30 04:55 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/2618388746.shtml)
-- 2026-06-30 05:14 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/3374028803.shtml)
-- 2026-06-30 05:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/43039.shtml)
-- 2026-06-30 05:18 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/416818656.shtml)
-- 2026-06-30 05:10 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/129377325248.shtml)
-- 2026-06-30 05:21 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/76654.shtml)
-- 2026-06-30 04:57 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/0685638423.shtml)
-- 2026-06-30 05:19 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/746531247.shtml)
-- 2026-06-30 05:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/029015885037.shtml)
-- 2026-06-30 04:58 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/81640624278.shtml)
+- 2026-06-30 05:21 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/1639140.shtml)
+- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/6649046.shtml)
+- 2026-06-30 05:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/93157887581.shtml)
+- 2026-06-30 05:00 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/900860877747.shtml)
+- 2026-06-30 05:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/9871284.shtml)
+- 2026-06-30 05:23 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/5488256054.shtml)
+- 2026-06-30 05:03 - [张凌赫 客串](http://www.blog.minike.top/Article/details/65766859.shtml)
+- 2026-06-30 05:21 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/759398641344.shtml)
+- 2026-06-30 05:15 - [一见倾心](http://www.share.minike.top/Article/details/55592327217.shtml)
+- 2026-06-30 05:21 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/65440.shtml)
+- 2026-06-30 05:02 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/86217231.shtml)
+- 2026-06-30 05:06 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/15011.shtml)
+- 2026-06-30 05:01 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/23439.shtml)
+- 2026-06-30 05:05 - [苗族银饰](http://www.share.minike.top/Article/details/2203206877.shtml)
+- 2026-06-30 05:05 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/9558708192.shtml)

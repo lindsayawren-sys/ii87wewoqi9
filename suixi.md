@@ -1,42 +1,51 @@
-# 拾光纪·中美元首共同参观，为什么选择天坛？
+# 康龙化成获Ariel Investments, LLC增持90.07万股 每股作价约18.28港元
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 20:21 来源：人民日报客户端 责任编辑：【李太源】
+香港联交所最新资料显示，5月18日，Ariel Investments， LLC增持康龙化成（03759）90.07万股，每股作价18.2754港元，总金额约为1646.07万港元。增持后最新持股数目为1778.99万股，最新持股比例为5.04%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月14日 20:21 来源：人民日报客户端 责任编辑：【李太源】
+香港联交所最新资料显示，5月18日，Ariel Investments， LLC增持康龙化成（03759）90.07万股，每股作价18.2754港元，总金额约为1646.07万港元。
+
+增持后最新持股数目为1778.99万股，最新持股比例为5.04%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 05:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 05:19 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 05:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 05:13 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 05:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 05:13 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 05:22 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 04:59 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 04:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 05:21 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 05:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 05:13 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 05:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:05 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 05:07 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 05:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 05:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:24 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 05:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 05:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 05:08 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 05:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 05:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/924389986798.shtml)
-- 2026-06-30 05:02 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/2525005.shtml)
-- 2026-06-30 05:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/28122.shtml)
-- 2026-06-30 05:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/94648409.shtml)
-- 2026-06-30 05:01 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/515606067.shtml)
-- 2026-06-30 05:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/8586429.shtml)
-- 2026-06-30 05:03 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/90120.shtml)
-- 2026-06-30 05:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/22746.shtml)
-- 2026-06-30 05:06 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/875905590914.shtml)
-- 2026-06-30 05:19 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/491762753230.shtml)
-- 2026-06-30 05:07 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/769727214.shtml)
-- 2026-06-30 04:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/253903107268.shtml)
-- 2026-06-30 05:15 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/667981.shtml)
-- 2026-06-30 05:08 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/294129.shtml)
-- 2026-06-30 05:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/49668053.shtml)
+- 2026-06-30 05:11 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/0328200.shtml)
+- 2026-06-30 05:09 - [请回答王牌2019](http://www.blog.minike.top/Article/details/406421103.shtml)
+- 2026-06-30 05:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/7599825828.shtml)
+- 2026-06-30 05:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/00849296.shtml)
+- 2026-06-30 05:11 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/114624729374.shtml)
+- 2026-06-30 05:13 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/57234027777.shtml)
+- 2026-06-30 05:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6807863868.shtml)
+- 2026-06-30 05:08 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/52259494.shtml)
+- 2026-06-30 05:15 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/78740.shtml)
+- 2026-06-30 05:29 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/12271222635.shtml)
+- 2026-06-30 05:25 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/32883362.shtml)
+- 2026-06-30 05:27 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/601803673.shtml)
+- 2026-06-30 05:28 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/82109486.shtml)
+- 2026-06-30 05:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/895653.shtml)
+- 2026-06-30 05:05 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/11711811705.shtml)

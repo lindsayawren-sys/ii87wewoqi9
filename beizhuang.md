@@ -1,61 +1,61 @@
-# 广州“百企强百村”研训开班 197名“新班长”学“造血”
+# 报告显示：两岸经贸保持很强韧性
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。 针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导
+中新社福州5月21日电 (叶秋云)21日在福州发布的《两岸融合发展报告(2026)》显示，两岸经贸保持很强韧性，且不断向高新技术、绿色低碳、现代服务等领域提质增效。 2026年两岸融合发展(福州)大会当天举行，中国人民大学国家发展与战略研究院副教授邹静娴在会上发布上述报告。 报告指出，“十四五”时期成为两岸融合举措最密集、制度创新最活跃的时期。 报告称，“人”是两岸融合的最终驱
 
 ## 正文
 
-中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。
+中新社福州5月21日电 (叶秋云)21日在福州发布的《两岸融合发展报告(2026)》显示，两岸经贸保持很强韧性，且不断向高新技术、绿色低碳、现代服务等领域提质增效。
 
-该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。
+2026年两岸融合发展(福州)大会当天举行，中国人民大学国家发展与战略研究院副教授邹静娴在会上发布上述报告。
 
-针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导师结对辅导。
+报告指出，“十四五”时期成为两岸融合举措最密集、制度创新最活跃的时期。
 
-老书记则自愿参训。
+报告称，“人”是两岸融合的最终驱动力，两岸融合发展应聚焦青年人群、民间人群。
 
-广州市委统战部相关负责人表示，研训不仅是落实“五年显著变化”目标的关键举措，更是为了将“投资于物”与“投资于人”结合，建强基层“头雁方阵”。
+例如，福建通过打造海峡青年节活动，累计吸引逾4.1万名两岸青年参与，其中台湾青年超过2.3万名。
 
-自去年起，广州创新推行“行政专班+专业运营”双轮驱动模式。
+近半数参与海峡青年节的台湾青年为首次来大陆。
 
-通过引入农业农村部专家及专业机构，以“理论+实操+陪跑”方式，指导197个村定制“一村一策”发展计划，成功导入淡水蓝龙虾等优质项目。
+报告建议，福建在两岸融合中应定位为两岸心灵契合的“情感归宿”、台胞台企登陆第一家园、两岸融合发展的“试验田”“先行区”并提供两岸融合经验可复制“样板”。
 
-农业农村部专家顾益康评价称，该模式既强化了政策统筹，又激活了市场效能。
+邹静娴介绍，报告依托中国人民大学年度调研数据，系统梳理了两岸融合发展示范区建设的最新进展，客观研判了两岸经贸合作、社会融合、文化交流等领域的发展态势，从宏观上为政策优化与行业布局提供了专业参考。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:16 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 05:11 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 05:10 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 04:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 05:24 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 05:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:56 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 05:02 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 05:13 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 04:56 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 05:16 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 04:59 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 05:22 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 05:15 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 05:21 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 05:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 05:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 05:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 05:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 05:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 05:02 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 05:22 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 05:05 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 05:04 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 05:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 05:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 05:25 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 05:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/507434.shtml)
-- 2026-06-30 05:13 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/6654229250.shtml)
-- 2026-06-30 05:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/823092221192.shtml)
-- 2026-06-30 05:08 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/617747.shtml)
-- 2026-06-30 05:21 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/257916.shtml)
-- 2026-06-30 05:07 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/11728091401.shtml)
-- 2026-06-30 05:22 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/151501.shtml)
-- 2026-06-30 05:12 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/6099618372.shtml)
-- 2026-06-30 05:01 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/3954544.shtml)
-- 2026-06-30 04:55 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/753228090730.shtml)
-- 2026-06-30 05:09 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/75419383846.shtml)
-- 2026-06-30 05:10 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/3345629707.shtml)
-- 2026-06-30 05:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/239627365.shtml)
-- 2026-06-30 05:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/334926571.shtml)
-- 2026-06-30 04:54 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/220436582082.shtml)
+- 2026-06-30 05:17 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/664787.shtml)
+- 2026-06-30 05:19 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/21121789.shtml)
+- 2026-06-30 05:23 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/5137065041.shtml)
+- 2026-06-30 05:02 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/3329140.shtml)
+- 2026-06-30 05:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/54136168425.shtml)
+- 2026-06-30 05:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/0676843447.shtml)
+- 2026-06-30 05:17 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/76714545.shtml)
+- 2026-06-30 05:06 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/20995597.shtml)
+- 2026-06-30 05:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/67944545.shtml)
+- 2026-06-30 05:27 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/546546.shtml)
+- 2026-06-30 05:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/9373430.shtml)
+- 2026-06-30 05:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/3427026788.shtml)
+- 2026-06-30 05:00 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/216042794.shtml)
+- 2026-06-30 05:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/168365.shtml)
+- 2026-06-30 05:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/135288.shtml)

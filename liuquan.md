@@ -1,59 +1,55 @@
-# “需要共同书写的时代答卷”——习近平主席同特朗普总统会晤侧记
+# “茶和天下·雅集”暨“你好！中国”旅游推介活动在贝尔法斯特举行
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-人民大会堂河北厅，巨幅画作《金山岭晨光》前，摆放着中美两国国旗旗阵。习近平主席同特朗普总统微笑着步入大厅，并肩而立、握手合影，闪光灯亮起，快门声频密。 他们身后，万里长城蜿蜒于崇山峻岭，晨光将锦绣山河染成明丽的金黄。 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 这是美国总统时隔9年再次访华，也是中美两国元首继去年10月釜山之后再次
+中新网伦敦5月22日电 (记者 欧阳开宇)5月21日，“国际茶日”当天，中国驻贝尔法斯特总领馆举办“茶和天下·雅集”暨“你好！中国”旅游推介活动。李南总领事出席并致辞，英国北爱尔兰政商文教旅各界逾50名嘉宾出席。李南介绍茶的历史渊源、精神智慧、国际影响与时代意义，表示中国是茶的故乡，“茶和天下”活动首次来到北爱，正是希望以茶为媒，传递和平、包容、共享的理念。 北爱艺委会首席执行
 
 ## 正文
 
-人民大会堂河北厅，巨幅画作《金山岭晨光》前，摆放着中美两国国旗旗阵。
+中新网伦敦5月22日电 (记者 欧阳开宇)5月21日，“国际茶日”当天，中国驻贝尔法斯特总领馆举办“茶和天下·雅集”暨“你好！
 
-习近平主席同特朗普总统微笑着步入大厅，并肩而立、握手合影，闪光灯亮起，快门声频密。
+中国”旅游推介活动。
 
-他们身后，万里长城蜿蜒于崇山峻岭，晨光将锦绣山河染成明丽的金黄。
+李南总领事出席并致辞，英国北爱尔兰政商文教旅各界逾50名嘉宾出席。
 
-5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+李南介绍茶的历史渊源、精神智慧、国际影响与时代意义，表示中国是茶的故乡，“茶和天下”活动首次来到北爱，正是希望以茶为媒，传递和平、包容、共享的理念。
 
-这是美国总统时隔9年再次访华，也是中美两国元首继去年10月釜山之后再次面对面会晤。
+北爱艺委会首席执行官麦克多诺、贝法女王大学副校长托平、安徽农业大学副校长蔡德军分别致辞，愿积极推动双边加深人文交流合作。
 
-又一次“跨越太平洋的握手”，牵动着世界目光。
+本次活动由安徽农业大学和安徽省文化和旅游厅联合主办，通过茶艺展示、茶文化交流、非遗图片展等形式，展示中国茶文化的独特魅力，增进北爱各界对中华优秀传统文化的了解与认知。
 
-“我们会面，现在可以说是举世瞩目。
-
-”“在美国，几乎所有人都在谈论这次会晤。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 05:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 05:01 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 05:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 05:01 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 05:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 04:59 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 05:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 04:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 05:18 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 05:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 04:59 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:11 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 05:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 05:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 05:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 05:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 05:18 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 05:08 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 05:29 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 05:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 05:02 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 05:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/89055867486.shtml)
-- 2026-06-30 05:04 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/6111548014.shtml)
-- 2026-06-30 05:22 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/89154614.shtml)
-- 2026-06-30 05:21 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/96545.shtml)
-- 2026-06-30 05:10 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/171230.shtml)
-- 2026-06-30 04:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/365335972066.shtml)
-- 2026-06-30 05:14 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/280823598670.shtml)
-- 2026-06-30 05:23 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/687498061201.shtml)
-- 2026-06-30 05:13 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/72800246.shtml)
-- 2026-06-30 04:59 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/008181745.shtml)
-- 2026-06-30 05:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/04870652.shtml)
-- 2026-06-30 05:15 - [世界杯](https://www.blog.kurohicncr.top/Article/details/0682201.shtml)
-- 2026-06-30 05:18 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/109082554204.shtml)
-- 2026-06-30 04:59 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/838192449.shtml)
-- 2026-06-30 05:12 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/250749021003.shtml)
+- 2026-06-30 05:10 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/698920306.shtml)
+- 2026-06-30 05:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/88737.shtml)
+- 2026-06-30 05:14 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/42959611869.shtml)
+- 2026-06-30 05:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/458927.shtml)
+- 2026-06-30 05:11 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/65156.shtml)
+- 2026-06-30 05:26 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/651297705034.shtml)
+- 2026-06-30 05:09 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/1909845309.shtml)
+- 2026-06-30 05:26 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/74215974.shtml)
+- 2026-06-30 05:21 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/1192051233.shtml)
+- 2026-06-30 05:09 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/29610339.shtml)
+- 2026-06-30 05:22 - [爱很美味](http://www.blog.minike.top/Article/details/919524276198.shtml)
+- 2026-06-30 05:14 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/06084342865.shtml)
+- 2026-06-30 05:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1723079131.shtml)
+- 2026-06-30 05:15 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/348744265.shtml)
+- 2026-06-30 05:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/47679515.shtml)

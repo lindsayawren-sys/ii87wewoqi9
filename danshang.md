@@ -1,60 +1,60 @@
-# 长江有色：14日铸造铝期价收跌0.17% 今日成交以刚需为主
+# 民警深夜跃身急流勇救落水女子 40分钟后这声“到”让人心安
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-上海期货价格走势：今日铸造铝合金主力月2607合约高开走弱；截止当日15：00收盘，铸造铝主力合约报23320元，跌40元，跌幅0.17%，全天成交量6207手减少965手；持仓量13786手增加193手。 据长江有色金属网数据统计，5月14日长江现货数据显示，铝合金ADC12报价23600-23800元/吨，均价报23700元/吨，持平；铸造铝合金锭（A356.2）报价249
+“黄同才！”“到！” 5月17日深夜，贵州凯里 三江河段白午大桥附近河水暴涨 一名群众落水 赶到现场的民警黄同才 纵身跃入水中救人 然而河水湍急 两人瞬间没了身影 同事们一边搜救 一边呼唤黄同才 40分钟后 黑暗中突然传来了一声 令人安心的“到！” 当晚，凯里市公安局白午派出所接到报警 称一名女子独自在河边逗留 周边河水汹涌湍急，十分危险 接警后，派出所副所长黄同才 立即带领值
 
 ## 正文
 
-上海期货价格走势：今日铸造铝合金主力月2607合约高开走弱；截止当日15：00收盘，铸造铝主力合约报23320元，跌40元，跌幅0.17%，全天成交量6207手减少965手；持仓量13786手增加193手。
+“黄同才！
 
-据长江有色金属网数据统计，5月14日长江现货数据显示，铝合金ADC12报价23600-23800元/吨，均价报23700元/吨，持平；铸造铝合金锭（A356.2）报价24900-25300元/吨，均价报25100元/吨，涨100元；铸造铝合金锭（A380）报价25700-25900元/吨，均价报25800元/吨，持平；铸造铝合金锭（ZL102）报价24800-25000元/吨，均价报24900元/吨，涨100元；铸造铝合金锭（ZLD104）报价24800-2500元/吨，均价报24900元/吨，涨100元； ccmn铸造铝合金市场分析： 宏观层面，美国4月PPI超预期暴涨6%，通胀粘性显著增强，令美联储降息前景再添变数。
+”“到！
 
-与此同时，凯文·沃什于5月13日以微弱优势正式确认为美联储主席。
+” 5月17日深夜，贵州凯里 三江河段白午大桥附近河水暴涨 一名群众落水 赶到现场的民警黄同才 纵身跃入水中救人 然而河水湍急 两人瞬间没了身影 同事们一边搜救 一边呼唤黄同才 40分钟后 黑暗中突然传来了一声 令人安心的“到！
 
-尽管特朗普成功扭转了2017年的人事任命，但市场对其能否在复杂的政治环境中保持央行独立性仍存疑虑。
+” 当晚，凯里市公安局白午派出所接到报警 称一名女子独自在河边逗留 周边河水汹涌湍急，十分危险 接警后，派出所副所长黄同才 立即带领值班民警辅警赶往现场 当抵达河岸时 发现女子已经落入水中 随时可能被水流卷入更深的水域 “你打119 告诉他们现场的情况和位置 如果我下水，记得把救生圈扔给我” 黄同才快速评估现场环境 与自身救援能力 迅速安排一名民警抛掷救生圈 做好接应工作 另一名民警紧急请求增援 紧接着，黄同才纵身跃入水中 黄同才迅速朝着落水女子游去 紧紧抓住对方，为其套上救生圈 水流湍急，两人很快被冲走 黄同才一边与急流对抗 一边凭借对周边环境的了解 精准预判弯道漩涡和暗礁分布 反复调整漂流姿态 避开多处致命险境 此时，两人已被冲向下游近2公里 黑暗中，黄同才突然摸到水中有一根水管 他双脚夹住水管 顺势把被救群众拖上水管 并抓住崖壁上的水草 大声呼
 
-受此影响，美元指数强势冲高，市场避险情绪主导，施压有色金属盘面，沪期铝承压转跌，铸造铝合金紧随原铝波动下滑。
+他说，现在回想起来确实后怕 “但我是人民警察 我觉得有机会救，那为什么不救？
 
-基本面，成本端废铝供应陷入“内外双紧”格局。
+群众有危险，我必须上！
 
-霍尔木兹海峡的实质性关闭切断了部分海外废铝海运通道，推升进口成本；叠加国内“反向开票”等税务监管持续收紧，合规废铝货源极度稀缺。
+” 为黄同才点赞！
 
-原料成本的刚性锁定，为铸造铝合金价格提供底部强支撑。
+(总台记者 陈春晓 杨晓东）
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 05:05 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 05:04 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:19 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 05:21 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 04:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 04:57 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 05:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 05:09 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:17 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 04:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 05:22 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 04:54 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 05:11 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 05:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 05:05 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:04 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 05:17 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 05:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 05:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 05:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 05:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 05:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 05:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 05:29 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 05:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 05:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 05:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/782198669757.shtml)
-- 2026-06-30 05:23 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/884263.shtml)
-- 2026-06-30 05:16 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/6104496.shtml)
-- 2026-06-30 05:01 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/691702364.shtml)
-- 2026-06-30 05:10 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/262403646.shtml)
-- 2026-06-30 05:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/55648759.shtml)
-- 2026-06-30 05:02 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/654432997.shtml)
-- 2026-06-30 05:04 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/28888.shtml)
-- 2026-06-30 05:08 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/597051485.shtml)
-- 2026-06-30 04:57 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4133893.shtml)
-- 2026-06-30 05:15 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/60517103.shtml)
-- 2026-06-30 05:04 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/057851766390.shtml)
-- 2026-06-30 04:59 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/313447677.shtml)
-- 2026-06-30 05:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/4570207.shtml)
-- 2026-06-30 05:14 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/91983.shtml)
+- 2026-06-30 05:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/89952.shtml)
+- 2026-06-30 05:09 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/1653804.shtml)
+- 2026-06-30 05:10 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/21030637121.shtml)
+- 2026-06-30 05:26 - [乔家的儿女](https://www.blog.minike.top/Article/details/9790217.shtml)
+- 2026-06-30 05:12 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/377370319900.shtml)
+- 2026-06-30 05:08 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/535450.shtml)
+- 2026-06-30 05:11 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/758722.shtml)
+- 2026-06-30 05:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/4613426.shtml)
+- 2026-06-30 05:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/72194001.shtml)
+- 2026-06-30 05:12 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/97651163077.shtml)
+- 2026-06-30 05:25 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/23870268.shtml)
+- 2026-06-30 05:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/923926.shtml)
+- 2026-06-30 05:08 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/4181848.shtml)
+- 2026-06-30 05:19 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/5173304086.shtml)
+- 2026-06-30 05:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/981457836.shtml)

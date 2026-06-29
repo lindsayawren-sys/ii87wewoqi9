@@ -1,53 +1,61 @@
-# 云南牟定电商直播大赛启幕 特色好物“云端”出圈
+# 珍稀物种数量持续回升 我国公布野生动植物最新家底
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 11:17 来源：中国新闻网 5月14日，2026牟定三月会第五届电商直播大赛，在云南省楚雄彝族自治州牟定县茅州古镇举行。活动现场，向直播间全球网友介绍非遗腐乳、高原蜂蜜、生态茶油等一众“牟定好物”。 本次大赛共吸引7个乡镇，35支电商直播团队齐聚，采用“以舞带货、以节促销”的特色模式，让文化流量赋能本地特色产品销售。(陆星羽） 责任编辑：【李
+今天(22日)是国际生物多样性日。记者从国家林草局了解到，我国珍稀物种野外种群数量持续回升，全国200多种珍稀濒危野生动物进入恢复性增长阶段，100余种濒危野生植物得到抢救性保护，国家重点保护陆生野生动物和野生植物种数保护率达到80%以上。 在海南热带雨林国家公园，新出生的3只幼猿茁壮成长，使海南长臂猿成为全球长臂猿中唯一持续增长的种群；在东北虎豹国家公园，一只雌虎带领5只幼崽
 
 ## 正文
 
-发布时间：2026年05月15日 11:17 来源：中国新闻网 5月14日，2026牟定三月会第五届电商直播大赛，在云南省楚雄彝族自治州牟定县茅州古镇举行。
+今天(22日)是国际生物多样性日。
 
-活动现场，向直播间全球网友介绍非遗腐乳、高原蜂蜜、生态茶油等一众“牟定好物”。
+记者从国家林草局了解到，我国珍稀物种野外种群数量持续回升，全国200多种珍稀濒危野生动物进入恢复性增长阶段，100余种濒危野生植物得到抢救性保护，国家重点保护陆生野生动物和野生植物种数保护率达到80%以上。
 
-本次大赛共吸引7个乡镇，35支电商直播团队齐聚，采用“以舞带货、以节促销”的特色模式，让文化流量赋能本地特色产品销售。
+在海南热带雨林国家公园，新出生的3只幼猿茁壮成长，使海南长臂猿成为全球长臂猿中唯一持续增长的种群；在东北虎豹国家公园，一只雌虎带领5只幼崽的画面，刷新了我国野生东北虎繁殖数量的最高纪录；而在贺兰山，放归雪豹成功实现自然配对、野外产崽并成功育幼，标志着雪豹保护工作取得突破性进展。
 
-(陆星羽） 责任编辑：【李季】
+我国是世界上生物多样性最丰富的国家之一。
+
+广袤国土之上，哪些有力举措正持续助力这些珍稀濒危“明星物种”家族不断壮大？
+
+作为活跃在海南热带雨林国家公园内的“雨林精灵”，海南长臂猿，不仅是我国国家一级重点保护野生动物，还是我国特有物种。
+
+记者从国家林草局获悉，这里的海南长臂猿种群再传喜讯，去年新诞生的3只幼猿，使我国海南长臂猿种群数量增长到7群44只，成为全球长臂猿中唯一持续增长的种群。
+
+海南热带雨林国家公园管理局霸王岭分局信息中心主任韩文涛说，据海南长臂猿监测队员观察，这些幼猿正在茁壮成长。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 04:54 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 05:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 04:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 05:02 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 05:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 05:09 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 05:16 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 05:20 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 05:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 04:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 05:22 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 05:04 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 05:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 05:12 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 05:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 05:23 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 05:04 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 05:04 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 05:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 05:04 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 05:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 05:04 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 05:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 05:05 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 05:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 05:18 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 05:28 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/31410427.shtml)
-- 2026-06-30 05:12 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/47937719243.shtml)
-- 2026-06-30 04:55 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/731845.shtml)
-- 2026-06-30 05:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/762635564.shtml)
-- 2026-06-30 05:13 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/244410.shtml)
-- 2026-06-30 05:02 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/12252263943.shtml)
-- 2026-06-30 04:57 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/35755193.shtml)
-- 2026-06-30 05:00 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/867216792.shtml)
-- 2026-06-30 05:00 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/865980.shtml)
-- 2026-06-30 04:56 - [世界杯](http://www.share.minike.top/Article/details/839525.shtml)
-- 2026-06-30 05:08 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/50563.shtml)
-- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/2647497.shtml)
-- 2026-06-30 05:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/861244546.shtml)
-- 2026-06-30 05:06 - [金牌调解](http://www.share.kurohicncr.top/Article/details/54603886691.shtml)
-- 2026-06-30 05:09 - [一生一世](http://www.share.minike.top/Article/details/14026289957.shtml)
+- 2026-06-30 05:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9342283567.shtml)
+- 2026-06-30 05:16 - [《贺子珍》](http://www.blog.minike.top/Article/details/8441818.shtml)
+- 2026-06-30 05:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/72610.shtml)
+- 2026-06-30 05:06 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/347924397653.shtml)
+- 2026-06-30 05:24 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/105308240.shtml)
+- 2026-06-30 05:14 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/86721595.shtml)
+- 2026-06-30 05:10 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/05809709.shtml)
+- 2026-06-30 05:03 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/472343.shtml)
+- 2026-06-30 05:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/652171072079.shtml)
+- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/31528961294.shtml)
+- 2026-06-30 05:23 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/33705272.shtml)
+- 2026-06-30 05:23 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/234667.shtml)
+- 2026-06-30 05:22 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/1885128.shtml)
+- 2026-06-30 05:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/846429.shtml)
+- 2026-06-30 05:25 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/7132725119.shtml)

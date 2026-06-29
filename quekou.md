@@ -1,61 +1,56 @@
-# 华泰期货：宽松压力渐显，双焦原料需求出现瓶颈
+# 陆秀竞＆让·安哥拉中法艺术对话联展将在巴黎启幕
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-市场分析 期现货方面：昨日焦煤焦炭盘面延续弱势震荡。焦炭三轮涨价落地兑现，第四轮涨价仅为预期，需求增量有限，短期内现货预计暂稳运行，缺乏进一步上涨驱动。产地个别煤矿因安全检查产量受限，但整体供需还算稳定。蒙5原煤价格降至在1110-1120元/吨左右，口岸成交相对冷清。 供需与逻辑：焦炭方面，焦企利润好刺激了企业加大生产，铁水维持高位甚至还有向上探涨空间，叠加近期铁路运输偏紧，
+中新网杭州5月22日电(记者 赵晔娇)5月26日至6月14日，“问道中西——陆秀竞＆让·安哥拉中法艺术对话联展”将在巴黎举行。中国山水画家陆秀竞与法国雕塑家让·安哥拉，将以绘画与雕塑、平面与立体的相互呼应，探寻中法艺术共生之道、共融之境。 本次展览由巴黎中国文化中心、法国卡尔多基金会、浙江省国际文化交流协会等主办，以“问道中西”为核心，遴选两位艺术家的30余件精品，生动呈现中法
 
 ## 正文
 
-市场分析 期现货方面：昨日焦煤焦炭盘面延续弱势震荡。
+中新网杭州5月22日电(记者 赵晔娇)5月26日至6月14日，“问道中西——陆秀竞＆让·安哥拉中法艺术对话联展”将在巴黎举行。
 
-焦炭三轮涨价落地兑现，第四轮涨价仅为预期，需求增量有限，短期内现货预计暂稳运行，缺乏进一步上涨驱动。
+中国山水画家陆秀竞与法国雕塑家让·安哥拉，将以绘画与雕塑、平面与立体的相互呼应，探寻中法艺术共生之道、共融之境。
 
-产地个别煤矿因安全检查产量受限，但整体供需还算稳定。
+本次展览由巴黎中国文化中心、法国卡尔多基金会、浙江省国际文化交流协会等主办，以“问道中西”为核心，遴选两位艺术家的30余件精品，生动呈现中法艺术在审美经验与文化精神上的相通与互鉴。
 
-蒙5原煤价格降至在1110-1120元/吨左右，口岸成交相对冷清。
+法兰西艺术院通讯院士迪迪埃·贝奈姆、法国卡尔多美术馆馆长陈岩任总策展人。
 
-供需与逻辑：焦炭方面，焦企利润好刺激了企业加大生产，铁水维持高位甚至还有向上探涨空间，叠加近期铁路运输偏紧，短期焦炭供需仍处于紧平衡状态。
+陆秀竞曾任杭州西泠书画院常务副院长、浙江山水画研究会副会长，系当代浙派山水画代表人物。
 
-焦煤方面，供需相对宽松，煤价反弹后供给进一步增长，随着投机性需求减弱，市场继续追高情绪有限，焦煤库存压力逐步加大。
+其作品以山水为主要题材，重视笔墨意境，气韵与心象表达，同时融合借鉴东西方色彩构成，形成独特的个人风格。
 
-整体来看黑色板块前期涨幅过大，估值过高但基本面支撑偏弱，后续重点跟踪下游钢材出口、焦煤及动煤现货走势。
+让·安哥拉是法兰西艺术院院士，前院长，法国知名的雕塑家、画家。
 
-策略 焦煤方面：震荡 焦炭方面：震荡 跨品种：无 跨期：无 期现：无 期权：无 风险 宏观政策、钢厂利润、焦化利润、煤炭供给、基差风险等。
+让·安哥拉深受中国文化影响，经常从南宋诗人陆游的诗文中汲取艺术创作的灵感，创作了大量以陆游诗歌为主题的系列作品。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 05:01 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 05:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 05:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 05:13 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 04:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 05:09 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 05:01 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 05:18 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 05:00 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 04:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:58 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 05:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 05:08 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 05:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 05:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 05:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 05:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 05:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 05:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 05:20 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 05:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 05:16 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/20164.shtml)
-- 2026-06-30 05:08 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/493745952.shtml)
-- 2026-06-30 05:03 - [斗破苍穹](https://www.share.minike.top/Article/details/9606330707.shtml)
-- 2026-06-30 05:11 - [一生一世](http://www.share.kurohicncr.top/Article/details/45079235004.shtml)
-- 2026-06-30 05:19 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/7138627.shtml)
-- 2026-06-30 05:23 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/0681301149.shtml)
-- 2026-06-30 04:59 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/58138083277.shtml)
-- 2026-06-30 04:56 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/442318.shtml)
-- 2026-06-30 05:03 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/3916501725.shtml)
-- 2026-06-30 05:20 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/88859757.shtml)
-- 2026-06-30 05:12 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/0375625785.shtml)
-- 2026-06-30 05:07 - [急先锋](https://www.blog.kurohicncr.top/Article/details/26396.shtml)
-- 2026-06-30 05:22 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/63059.shtml)
-- 2026-06-30 05:16 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/851336738.shtml)
-- 2026-06-30 05:06 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/693900.shtml)
+- 2026-06-30 05:08 - [恋与深空 日服](http://www.share.minike.top/Article/details/461782771338.shtml)
+- 2026-06-30 05:14 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/283098.shtml)
+- 2026-06-30 05:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/55951762.shtml)
+- 2026-06-30 05:22 - [千与千寻](http://www.share.minike.top/Article/details/2472950.shtml)
+- 2026-06-30 05:26 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/790398800.shtml)
+- 2026-06-30 05:22 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/490521.shtml)
+- 2026-06-30 05:29 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/924496.shtml)
+- 2026-06-30 05:17 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/752140119722.shtml)
+- 2026-06-30 05:26 - [周生如故](https://www.blog.kurohicncr.top/Article/details/34140064.shtml)
+- 2026-06-30 05:03 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/68107398402.shtml)
+- 2026-06-30 05:28 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/772754387.shtml)
+- 2026-06-30 05:21 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/5417919.shtml)
+- 2026-06-30 05:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/556001.shtml)
+- 2026-06-30 05:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/84022410.shtml)
+- 2026-06-30 05:06 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/194199.shtml)

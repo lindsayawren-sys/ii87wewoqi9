@@ -1,56 +1,61 @@
-# 利用“仅退款”恶意下单2700多次，平台规则不应纵容
+# 中国文化遗产保护融入现代生活 留住人间烟火
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-原标题：光明网评论员：利用“仅退款”恶意下单2700多次，平台规则不应纵容 光明网评论员：日前，媒体报道了一起案例，有人滥用电商平台“仅退款”的规则，企图免费得到商品，被商家拒绝后就投诉店铺、恶意下单、索要“和解费”。当事人共计对900多家网络店铺下手，恶意下单2700余次，下单总流水高达1030多万元。最后被法院以破坏生产经营罪获刑一年半。 这个案例一出，互联网上出现了不少叫
+中新社深圳5月22日电 (记者 程景伟)“古城保护，首在坚守初心，重在统筹兼顾，必须平衡好保护与开发、传统与现代、古韵与新风的关系。”云南省巍山县委书记丁洪涛22日于深圳举行的2026文化强国建设高峰论坛文化遗产保护传承论坛上，分享巍山古城保护实践体会。巍山古城始建于元代，现完整保留明清时期城池格局。丁洪涛称，巍山古城恢复保护文庙、南诏镇古建筑群，引入优质文化业态，对濒危老旧书
 
 ## 正文
 
-原标题：光明网评论员：利用“仅退款”恶意下单2700多次，平台规则不应纵容 光明网评论员：日前，媒体报道了一起案例，有人滥用电商平台“仅退款”的规则，企图免费得到商品，被商家拒绝后就投诉店铺、恶意下单、索要“和解费”。
+中新社深圳5月22日电 (记者 程景伟)“古城保护，首在坚守初心，重在统筹兼顾，必须平衡好保护与开发、传统与现代、古韵与新风的关系。
 
-当事人共计对900多家网络店铺下手，恶意下单2700余次，下单总流水高达1030多万元。
+”云南省巍山县委书记丁洪涛22日于深圳举行的2026文化强国建设高峰论坛文化遗产保护传承论坛上，分享巍山古城保护实践体会。
 
-最后被法院以破坏生产经营罪获刑一年半。
+巍山古城始建于元代，现完整保留明清时期城池格局。
 
-这个案例一出，互联网上出现了不少叫好的声音——“终于有人管管了”。
+丁洪涛称，巍山古城恢复保护文庙、南诏镇古建筑群，引入优质文化业态，对濒危老旧书院实施可逆式修缮，打造阅读文创等融合空间，培育民宿240余家。
 
-叫好者不只有商家，不少普通消费者同样感到解气。
+近年来，安徽徽州古城盘活近3万平方米的古建筑，植入夜游演出等新业态。
 
-哪怕商家和消费者立场有别，但出于常识和同理心，人们普遍厌恶挫伤基本诚信的行为。
+“要留住街巷深处最可触可感的人间烟火，在守护千年肌理的同时让原住民共享发展红利。
 
-最近因为“仅退款”惹出的纠纷不止一起。
+”安徽省歙县县长王奇勇称，徽州古城既要防止“空心化”，也要警惕“过度商业化”，实现文化传承与经济社会良性互动。
 
-前不久一位卖榴莲的商家遭遇“仅退款”，为了证明自己的货物没有问题，不惜来回奔波1600多公里，只是为了向买家讨要个说法，买家最后也被行政拘留。
+中国从20世纪60年代公布第一批全国重点文物保护单位，1982年建立历史文化名城保护制度，并持续完善保护体系。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 05:21 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 04:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 05:12 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 05:08 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 05:18 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 05:22 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 05:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 04:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 05:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 05:17 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 05:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 05:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 05:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 05:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 05:29 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 05:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 05:00 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:12 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 05:23 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 05:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 05:14 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:21 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 05:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [周生如故](http://www.blog.minike.top/Article/details/1271979332.shtml)
-- 2026-06-30 05:20 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/39915.shtml)
-- 2026-06-30 04:56 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/464357320.shtml)
-- 2026-06-30 05:01 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/613031320.shtml)
-- 2026-06-30 04:54 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/474223264.shtml)
-- 2026-06-30 05:06 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/201882680.shtml)
-- 2026-06-30 05:13 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/8836821175.shtml)
-- 2026-06-30 05:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/78930875926.shtml)
-- 2026-06-30 05:12 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/269491307.shtml)
-- 2026-06-30 05:19 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/212478952541.shtml)
-- 2026-06-30 05:04 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/1405880245.shtml)
-- 2026-06-30 05:02 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/700426592548.shtml)
-- 2026-06-30 05:18 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/3447476840.shtml)
-- 2026-06-30 05:16 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/721451992179.shtml)
-- 2026-06-30 05:12 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/27180698815.shtml)
+- 2026-06-30 05:20 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/8274843963.shtml)
+- 2026-06-30 05:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/6302701883.shtml)
+- 2026-06-30 05:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/836610.shtml)
+- 2026-06-30 05:22 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/561206.shtml)
+- 2026-06-30 05:16 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/12130.shtml)
+- 2026-06-30 05:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/38214.shtml)
+- 2026-06-30 05:18 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/7148282.shtml)
+- 2026-06-30 05:17 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/42262435698.shtml)
+- 2026-06-30 05:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/701171.shtml)
+- 2026-06-30 05:02 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/492412379.shtml)
+- 2026-06-30 05:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/39534.shtml)
+- 2026-06-30 05:13 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/96124.shtml)
+- 2026-06-30 05:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/66308615469.shtml)
+- 2026-06-30 05:20 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/3700945778.shtml)
+- 2026-06-30 05:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/2614010.shtml)

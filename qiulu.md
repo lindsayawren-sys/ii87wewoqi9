@@ -1,52 +1,58 @@
-# 三星电子敦促工会重启薪资谈判，并向公众和政府致歉
+# 长三角一体化发展再添十项实事项目
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-三星电子高管周五敦促工会重启薪资谈判，同时就罢工威胁风波升级引发公众和政府担忧一事致歉。 三星表示，其高管将以开放的态度参与谈判，并呼吁工会尽快重返对话。工会此前表示，因薪资和奖金事宜仍存在争议，计划从5月21日开始发起为期18天的罢工。责任编辑：于健 SF069
+中新网上海5月21日电 (谢梦圆)21日，第八届长三角一体化发展高层论坛在沪举行。除了第三批长三角创新联合体名单，会上还发布了2026年度长三角一体化发展实事项目清单，在卫生、政务服务、文旅消费、体育赛事等方面推动三省一市协同发展再进一步。记者在现场获悉，该项目清单包括对往年实事的延续提升，具体为：打造跨省通办“高效办成一件事”最佳体验地、共推长三角地区医疗机构检查检验结果互认
 
 ## 正文
 
-三星电子高管周五敦促工会重启薪资谈判，同时就罢工威胁风波升级引发公众和政府担忧一事致歉。
+中新网上海5月21日电 (谢梦圆)21日，第八届长三角一体化发展高层论坛在沪举行。
 
-三星表示，其高管将以开放的态度参与谈判，并呼吁工会尽快重返对话。
+除了第三批长三角创新联合体名单，会上还发布了2026年度长三角一体化发展实事项目清单，在卫生、政务服务、文旅消费、体育赛事等方面推动三省一市协同发展再进一步。
 
-工会此前表示，因薪资和奖金事宜仍存在争议，计划从5月21日开始发起为期18天的罢工。
+记者在现场获悉，该项目清单包括对往年实事的延续提升，具体为：打造跨省通办“高效办成一件事”最佳体验地、共推长三角地区医疗机构检查检验结果互认、共筑长三角区域食品安全防线、合力提振长三角文旅消费、共同举办长三角体育赛事活动。
 
-责任编辑：于健 SF069
+此次清单还新增了联合培育专业技术人才、财政电子票据赋能工伤保险跨省报销、深化长三角区域跨省警情处置、协同推进长三角区域预防接种数据互联互认和结核病防控、共推“长三角科普场馆一本通”5件实事。
+
+具体而言，联合培育专业技术人才由三省一市(江苏省、浙江省、安徽省、上海市)人力资源和社会保障部门牵头实施，共同举办专业技术人才和项目对接大会暨上海(长三角)中青年工程师创新创业大赛等活动，共同发布高层次专业技术人才岗位需求3000个，联合培养工程技术人才，培育示范性数字技术创新创业团队100支、尖端数字技术工程师400名、高水平数字技术工程师5000名。
+
+深化长三角区域跨省警情处置由三省一市公安部门和上海铁路公安局牵头实施，将依托上海市公安局“一线赋能”平台，打造长三角区域公安数字化指挥协作网络，进一步提升区域警务协作效能。
+
+聚焦走失、离家出走人员找回等事项，实现“一点登录发起、区域接力支撑”的联动格局，将跨省(市)警情平均处置时间缩短30%以上。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 05:10 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 05:00 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 05:16 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 05:20 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 05:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 05:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 05:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 04:54 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 04:54 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 04:59 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 05:00 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:08 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 05:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 05:11 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 05:22 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 05:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 05:12 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 05:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 05:18 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 05:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 05:28 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 05:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 05:04 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/894428501865.shtml)
-- 2026-06-30 04:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/94311520.shtml)
-- 2026-06-30 04:58 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/1708644411.shtml)
-- 2026-06-30 05:23 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/20034573677.shtml)
-- 2026-06-30 05:21 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/59680113417.shtml)
-- 2026-06-30 05:20 - [小娘惹](http://www.share.minike.top/Article/details/5071037987.shtml)
-- 2026-06-30 05:17 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/084999409307.shtml)
-- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/3842367059.shtml)
-- 2026-06-30 04:57 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/149530.shtml)
-- 2026-06-30 05:21 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/97202.shtml)
-- 2026-06-30 05:02 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/7444831.shtml)
-- 2026-06-30 05:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/516261.shtml)
-- 2026-06-30 05:09 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/39598.shtml)
-- 2026-06-30 05:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/29322913.shtml)
-- 2026-06-30 04:59 - [日本 高位逼抢](https://www.share.minike.top/Article/details/64281703390.shtml)
+- 2026-06-30 05:14 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/5211349.shtml)
+- 2026-06-30 05:23 - [恋与深空 日服](http://www.share.minike.top/Article/details/6219568.shtml)
+- 2026-06-30 05:03 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/76979986.shtml)
+- 2026-06-30 05:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/1617256.shtml)
+- 2026-06-30 05:06 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/786933.shtml)
+- 2026-06-30 05:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/4505315128.shtml)
+- 2026-06-30 05:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/042985576.shtml)
+- 2026-06-30 05:00 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/02068.shtml)
+- 2026-06-30 05:28 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/40816.shtml)
+- 2026-06-30 05:19 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/10190.shtml)
+- 2026-06-30 05:04 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/703238041046.shtml)
+- 2026-06-30 05:29 - [起风了](https://www.share.minike.top/Article/details/12180.shtml)
+- 2026-06-30 05:20 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/82732189870.shtml)
+- 2026-06-30 05:18 - [张凌赫 客串](http://www.blog.minike.top/Article/details/940590029.shtml)
+- 2026-06-30 05:18 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/350002724.shtml)

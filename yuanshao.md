@@ -1,56 +1,55 @@
-# 西部证券：易鑫集团维持“增持”评级 海外业务加速突破
+# 中老警务合作再添战果：494名涉诈犯罪嫌疑人移交中方
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-西部证券发布研报称，易鑫集团（02858）作为国内领先的第三方汽车金融平台，金科业务和二手车金融两大增长引擎动力强劲。看好公司凭借其在渠道、科技和风险管理方面的核心优势，实现业务规模和市场份额的稳步扩大。预计公司2026年归母净利润14.86亿元，同比+24%，5月13日对应PE为7.4倍，维持“增持”评级。 西部证券主要观点如下： 事件 5月12日，公司披露2026年第一季度
+中新网5月22日电 据公安部微信公众号消息，为依法严厉打击跨国电信网络诈骗等违法犯罪活动，中国公安机关与老挝警方持续开展国际警务执法合作。近日，老挝警方将前期专项打击行动中，抓获的494名涉诈犯罪嫌疑人移交中方。这是两国警方联合打击跨国电信网络诈骗取得的又一重要战果。今年以来，随着柬埔寨不断加大对电信网络诈骗活动的打击清剿力度，部分电诈窝点及涉诈人员转移至老挝境内继续作案。按照
 
 ## 正文
 
-西部证券发布研报称，易鑫集团（02858）作为国内领先的第三方汽车金融平台，金科业务和二手车金融两大增长引擎动力强劲。
+中新网5月22日电 据公安部微信公众号消息，为依法严厉打击跨国电信网络诈骗等违法犯罪活动，中国公安机关与老挝警方持续开展国际警务执法合作。
 
-看好公司凭借其在渠道、科技和风险管理方面的核心优势，实现业务规模和市场份额的稳步扩大。
+近日，老挝警方将前期专项打击行动中，抓获的494名涉诈犯罪嫌疑人移交中方。
 
-预计公司2026年归母净利润14.86亿元，同比+24%，5月13日对应PE为7.4倍，维持“增持”评级。
+这是两国警方联合打击跨国电信网络诈骗取得的又一重要战果。
 
-西部证券主要观点如下： 事件 5月12日，公司披露2026年第一季度运营数据。
+今年以来，随着柬埔寨不断加大对电信网络诈骗活动的打击清剿力度，部分电诈窝点及涉诈人员转移至老挝境内继续作案。
 
-二手车及SaaS业务持续高增验证成长 26Q1公司共实现22.6万笔汽车融资交易（包括新车及二手车），融资总额达人民币196亿元，同比增长27.9%。
+按照中老警务合作协定，老挝警方近期开展专项打击行动，抓获涉诈犯罪嫌疑人494名，在云南省西双版纳磨憨口岸移交中方。
 
-1）从新车二手车结构来看，26Q1公司实现二手车融资额约112亿元，同比增长约31.3%，二手车融资占比进一步提升至约57.1%，公司通过提供更精准的风险定价及扩大盈利二手车产品组合的积极策略持续发挥成效。
+公安部已组织指挥四川、重庆公安机关成功接收上述犯罪嫌疑人，依法开展相关工作。
 
-其中，公司二手新能源汽车融资额同比增长约76.3%，占公司2026年第一季度新能源汽车融资总额约24.4%。
-
-2）从SaaS维度来看，26Q1公司实现金融科技（SaaS）交易额约142亿元，同比增长约132.8%，延续高增态势。
+公安部有关负责人表示，公安机关将持续深化与相关国家警务执法合作，进一步固化完善联合打击机制，持续开展窝点清剿、“金主”缉捕、人员遣返等工作，全力挤压电信网络诈骗犯罪活动空间，坚决遏制跨国电信网络诈骗犯罪高发态势。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 05:18 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 04:56 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 04:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 05:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 04:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 05:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 05:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 04:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 04:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 05:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 05:01 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 05:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 05:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 05:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 05:09 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 05:22 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 05:11 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 05:06 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 05:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [一见倾心](http://www.share.kurohicncr.top/Article/details/700750.shtml)
-- 2026-06-30 05:11 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/9603346819.shtml)
-- 2026-06-30 05:03 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/1064399726.shtml)
-- 2026-06-30 05:15 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/07731932.shtml)
-- 2026-06-30 05:04 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/54241461895.shtml)
-- 2026-06-30 05:13 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/042147143.shtml)
-- 2026-06-30 04:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/36566120179.shtml)
-- 2026-06-30 05:03 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/1762017.shtml)
-- 2026-06-30 05:03 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/23439943913.shtml)
-- 2026-06-30 04:58 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/336436948725.shtml)
-- 2026-06-30 04:58 - [日本进球](http://www.blog.minike.top/Article/details/74180286.shtml)
-- 2026-06-30 05:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/15268494993.shtml)
-- 2026-06-30 04:57 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/76317597443.shtml)
-- 2026-06-30 05:02 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/306366168765.shtml)
-- 2026-06-30 05:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/206693368064.shtml)
+- 2026-06-30 05:12 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/29409.shtml)
+- 2026-06-30 05:14 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/0810307.shtml)
+- 2026-06-30 05:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/568965.shtml)
+- 2026-06-30 05:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/674425357712.shtml)
+- 2026-06-30 05:18 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/405085907439.shtml)
+- 2026-06-30 05:07 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/3109621.shtml)
+- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/4964232.shtml)
+- 2026-06-30 05:12 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/93304426961.shtml)
+- 2026-06-30 05:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/0132086.shtml)
+- 2026-06-30 05:03 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/1737683.shtml)
+- 2026-06-30 05:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/210143989.shtml)
+- 2026-06-30 05:13 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/37834965.shtml)
+- 2026-06-30 05:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/780649676.shtml)
+- 2026-06-30 05:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/833887320499.shtml)
+- 2026-06-30 05:16 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/820151.shtml)

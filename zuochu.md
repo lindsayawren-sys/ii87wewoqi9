@@ -1,57 +1,57 @@
-# 玉林海关2026年6月份“关领导接待日”公告
+# 美国拉韩国造船，到底是谁赚了？
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就玉林海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月16日(工作时间，上午9:00-12:00；下午14:30-17:00)。 二、当值关领导：玉林海关党委书记、关长邓华。 三、接待地点：玉林市教育东路128号海关大楼。四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容
+民智评论作者：邢瑞珂，民智国际研究院研究助理（正文约 4200 字，预计阅读时间 15 分钟）导语美国造船业在帆船时代曾长期处于世界领先地位，但进入蒸汽船和现代轮船时代后，竞争优势逐渐减弱。除两次世界大战期间一度拥有全球最大的商船队外，美国造船业整体实力逐渐难以与其世界大国地位相匹配。美韩造船的合作背景当前，美国的民间造船厂共有 154 家，仅有少数具备建造军舰和远洋货轮的能力
 
 ## 正文
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就玉林海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月16日(工作时间，上午9:00-12:00；下午14:30-17:00)。
+民智评论作者：邢瑞珂，民智国际研究院研究助理（正文约 4200 字，预计阅读时间 15 分钟）导语美国造船业在帆船时代曾长期处于世界领先地位，但进入蒸汽船和现代轮船时代后，竞争优势逐渐减弱。
 
-二、当值关领导：玉林海关党委书记、关长邓华。
+除两次世界大战期间一度拥有全球最大的商船队外，美国造船业整体实力逐渐难以与其世界大国地位相匹配。
 
-三、接待地点：玉林市教育东路128号海关大楼。
+美韩造船的合作背景当前，美国的民间造船厂共有 154 家，仅有少数具备建造军舰和远洋货轮的能力。
 
-四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
+美国海军仅剩 4 家能够运转的公共造船厂，其中 3 家建于 1940 年以前，设备和基础设施普遍老化，难以承担大规模新舰建造任务，也无法高效完成现役舰艇的维修与维护。
 
-(二)来访者可通过拨打电话(0775-3268851)告知相关预约信息，也可以填写预约表(详见附件)发至传真(0775-3268935)或者邮箱(ylhg3268932@sina.com)进行预约。
+为复兴造船业，2026 年 2 月，美国白宫正式发布《美国海事行动计划》，将造船业定位为国家安全与经济安全的重要战略产业。
 
-(注：若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
+该计划通过设立“海洋繁荣区”、扩大联邦融资、提高外国船舶费用以及推进盟友“桥梁战略”等措施，试图扭转本土造船能力的长期衰退。
 
-)预约截止时间：2026年5月29日下午17点前。
+计划明确提出，要借助韩国、日本等盟国的力量重振美国造船业。
 
-玉林海关“关领导接待日”预约登记表.doc
+韩国是全球第二大造船国，在 LNG 船、大型集装箱船等高附加值船型领域技术领先，产业管理经验丰富，生产效率高。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 05:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 04:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 05:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 05:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 05:21 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 05:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 05:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 04:55 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 04:58 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 05:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 05:24 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 05:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 05:10 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 05:18 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 05:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 05:02 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 05:13 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 05:23 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 05:07 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/419329262248.shtml)
-- 2026-06-30 05:20 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/37606.shtml)
-- 2026-06-30 05:08 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/304901778456.shtml)
-- 2026-06-30 04:57 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/632566.shtml)
-- 2026-06-30 05:13 - [沙丘](http://www.blog.kurohicncr.top/Article/details/49234089226.shtml)
-- 2026-06-30 04:55 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/525858971485.shtml)
-- 2026-06-30 04:57 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8390553.shtml)
-- 2026-06-30 05:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/472232.shtml)
-- 2026-06-30 05:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/493384204850.shtml)
-- 2026-06-30 04:57 - [第一炉香](http://www.share.kurohicncr.top/Article/details/62008.shtml)
-- 2026-06-30 05:22 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/43835.shtml)
-- 2026-06-30 05:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/671135008.shtml)
-- 2026-06-30 05:17 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/1676552.shtml)
-- 2026-06-30 05:16 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/16677.shtml)
-- 2026-06-30 05:02 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/94611.shtml)
+- 2026-06-30 05:08 - [我和我的家乡](http://www.share.minike.top/Article/details/544782288725.shtml)
+- 2026-06-30 05:10 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/001548.shtml)
+- 2026-06-30 05:22 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/83406947113.shtml)
+- 2026-06-30 05:30 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/3739808.shtml)
+- 2026-06-30 05:07 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/746567.shtml)
+- 2026-06-30 05:23 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/87328.shtml)
+- 2026-06-30 05:05 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/70188863.shtml)
+- 2026-06-30 05:03 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/19473901520.shtml)
+- 2026-06-30 05:21 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/284125.shtml)
+- 2026-06-30 05:24 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/16248637.shtml)
+- 2026-06-30 05:21 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/2257427476.shtml)
+- 2026-06-30 05:25 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/48280231184.shtml)
+- 2026-06-30 05:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/78028549.shtml)
+- 2026-06-30 05:03 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/980874769.shtml)
+- 2026-06-30 05:29 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/3863627013.shtml)

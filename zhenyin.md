@@ -1,58 +1,53 @@
-# 515投资者保护 | 揭秘“AI荐股”骗局！《AI荐股套路深，捂紧钱包莫轻信》荣获2026年度最具影响力投教项目奖
+# 国际能源署署长：七八月份石油市场或将进入风险红色区间
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。长城基金凭借《AI荐股套路深，捂紧钱包莫轻信》投教视频，荣获2026年度“最具影响力投教项目奖”。 据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，有效帮
+国际能源署署长周四表示，夏季燃油需求进入旺季，叠加中东石油新增出口中断、库存持续消耗，今年七八月份石油市场或将迈入红色警戒区间，其并未进一步详述具体缘由。 法提赫・比罗尔在伦敦查塔姆研究所发表讲话时称，受伊朗战事引发石油供应危机之初，全球原油库存尚且充裕，一定程度上缓冲了市场冲击，但如今原油库存正不断缩减。 他表示，今年3月，拥有32个成员国的国际能源署协同释放4亿桶战略石油储
 
 ## 正文
 
-专题：515投资者保护！
+国际能源署署长周四表示，夏季燃油需求进入旺季，叠加中东石油新增出口中断、库存持续消耗，今年七八月份石油市场或将迈入红色警戒区间，其并未进一步详述具体缘由。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+法提赫・比罗尔在伦敦查塔姆研究所发表讲话时称，受伊朗战事引发石油供应危机之初，全球原油库存尚且充裕，一定程度上缓冲了市场冲击，但如今原油库存正不断缩减。
 
-长城基金凭借《AI荐股套路深，捂紧钱包莫轻信》投教视频，荣获2026年度“最具影响力投教项目奖”。
+他表示，今年3月，拥有32个成员国的国际能源署协同释放4亿桶战略石油储备以稳定市场，此次抛储规模创下历史之最，目前这批储备原油正以每日250万至300万桶的速度投放至市场。
 
-据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。
+比罗尔补充道，若形势需要，国际能源署随时准备协调开展新一轮战略原油投放行动。
 
-长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，有效帮助投资者认清非法荐股本质，引导选择正规投资渠道，强化理性投资意识，显著提升投教宣传的传播力与接受度，筑牢群众防非反诈防线。
-
-该作品为AI荐股防非反诈主题短视频，以情景对话、场景演绎形式揭露非法“AI荐股”骗局，对投资者开展风险警示。
-
-产品以生活化对话、直播间话术还原、动态指标拆解为特色，用通俗剧情揭示非法平台伪造盈利截图、利用“未来函数”制造择时精准假象，内容生动易懂、警示性强。
-
-效果上，《AI荐股套路深，捂紧钱包莫轻信》投教视频推出以来在新华网播放量超百万，获得行业内外口碑好评。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 05:00 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 05:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:14 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 05:04 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 05:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 05:03 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 04:59 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 05:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 05:11 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 04:55 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 04:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:27 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 05:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 05:22 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 05:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 05:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 05:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 05:21 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 05:18 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 05:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 05:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/19424.shtml)
-- 2026-06-30 04:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/982258849.shtml)
-- 2026-06-30 05:14 - [日本16强魔咒](http://www.blog.minike.top/Article/details/02204561.shtml)
-- 2026-06-30 04:57 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/63761.shtml)
-- 2026-06-30 05:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/713659.shtml)
-- 2026-06-30 05:18 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/6374518.shtml)
-- 2026-06-30 05:16 - [田曦薇没招了](http://www.share.minike.top/Article/details/9209058546.shtml)
-- 2026-06-30 04:57 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/13746348914.shtml)
-- 2026-06-30 05:01 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/5479005314.shtml)
-- 2026-06-30 05:06 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/386591008707.shtml)
-- 2026-06-30 05:16 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/103399460.shtml)
-- 2026-06-30 05:13 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/6471087974.shtml)
-- 2026-06-30 05:19 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/560894.shtml)
-- 2026-06-30 05:00 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/80409.shtml)
-- 2026-06-30 04:55 - [85花告别古偶](https://www.share.minike.top/Article/details/92388817622.shtml)
+- 2026-06-30 05:17 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/2869238.shtml)
+- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/09004110429.shtml)
+- 2026-06-30 05:14 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/519095504.shtml)
+- 2026-06-30 05:07 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/1397867883.shtml)
+- 2026-06-30 05:09 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/425867.shtml)
+- 2026-06-30 05:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/782711119.shtml)
+- 2026-06-30 05:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/3890323212.shtml)
+- 2026-06-30 05:11 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/093786775435.shtml)
+- 2026-06-30 05:10 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/74857433.shtml)
+- 2026-06-30 05:24 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/0857919375.shtml)
+- 2026-06-30 05:07 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/9698664332.shtml)
+- 2026-06-30 05:16 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/283538812.shtml)
+- 2026-06-30 05:03 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/1121746752.shtml)
+- 2026-06-30 05:08 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/84731397121.shtml)
+- 2026-06-30 05:14 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/012998007.shtml)

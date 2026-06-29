@@ -1,57 +1,49 @@
-# 燃油成本飙升80%-90% Copa二季度利润率指引降至8%-12%
+# 美军称对伊朗港口的封锁已使94艘商船改变航向
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-二季度业绩指引与燃油冲击 巴拿马航空控股公司Copa Holdings在2026年第一季度财报电话会议上披露，由于航空燃油价格同比暴涨80%至90%，预计第二季度运营利润率将收窄至8%至12%区间。公司首席执行官Pedro Heilbron表示，受“提前预订水平较高”影响，预计仅能通过提高票价回收约50%的增量燃油成本。 一季度业绩表现强劲 尽管面临成本压力，Copa第一季度业
+美军中央司令部21日在社交媒体发布消息说，截至当天，美军对伊朗港口实施的封锁行动已迫使94艘商船改变航向。 (央视新闻客户端)
 
 ## 正文
 
-二季度业绩指引与燃油冲击 巴拿马航空控股公司Copa Holdings在2026年第一季度财报电话会议上披露，由于航空燃油价格同比暴涨80%至90%，预计第二季度运营利润率将收窄至8%至12%区间。
+美军中央司令部21日在社交媒体发布消息说，截至当天，美军对伊朗港口实施的封锁行动已迫使94艘商船改变航向。
 
-公司首席执行官Pedro Heilbron表示，受“提前预订水平较高”影响，预计仅能通过提高票价回收约50%的增量燃油成本。
-
-一季度业绩表现强劲 尽管面临成本压力，Copa第一季度业绩依然亮眼。
-
-财报显示，公司一季度净利润达2.125亿美元，同比增长20.2%；运营收入同比增长17%至11亿美元，运营利润攀升21%至2.586亿美元。
-
-当季载客率提升0.8个百分点至87.2%，运能同比增长14%。
-
-不含燃油的单位成本同比下降1%至5.8美分，体现了公司持续的成本管控成效。
-
-全年运能目标维持不变 展望全年，Copa维持运能增长11%至13%的预期，载客率目标约为87%，不含燃油单位成本预计为5.7美分。
-
-公司财务长Peter Donkersloot Ponce指出，若收益率趋势持续向好，全年燃油成本回收比例有望提升至100%。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 05:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 05:16 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 04:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 05:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 04:55 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 05:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 05:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 05:03 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 05:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 05:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 05:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 05:18 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 05:21 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 05:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 05:09 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 05:29 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 05:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 05:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 05:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 05:27 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 05:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 05:08 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 05:14 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/068479750121.shtml)
-- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/91043918234.shtml)
-- 2026-06-30 05:06 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/45285356123.shtml)
-- 2026-06-30 05:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/281424337358.shtml)
-- 2026-06-30 05:07 - [蔚来车主罚站](http://www.share.minike.top/Article/details/764735137018.shtml)
-- 2026-06-30 05:01 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2729267019.shtml)
-- 2026-06-30 05:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/75401302349.shtml)
-- 2026-06-30 04:56 - [千香](https://www.share.kurohicncr.top/Article/details/146636701824.shtml)
-- 2026-06-30 05:01 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/55266696116.shtml)
-- 2026-06-30 05:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/319502333.shtml)
-- 2026-06-30 04:58 - [千与千寻](http://www.blog.minike.top/Article/details/08490.shtml)
-- 2026-06-30 05:09 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/335488208.shtml)
-- 2026-06-30 04:57 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/41625.shtml)
-- 2026-06-30 05:10 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/0390116679.shtml)
-- 2026-06-30 04:56 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/536272441419.shtml)
+- 2026-06-30 05:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/33622952.shtml)
+- 2026-06-30 05:21 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/733745.shtml)
+- 2026-06-30 05:08 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/9333789.shtml)
+- 2026-06-30 05:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/54597925452.shtml)
+- 2026-06-30 05:19 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/4928629.shtml)
+- 2026-06-30 05:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/56726.shtml)
+- 2026-06-30 05:18 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/95470.shtml)
+- 2026-06-30 05:22 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/8820687.shtml)
+- 2026-06-30 05:15 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/2857896258.shtml)
+- 2026-06-30 05:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/1329989.shtml)
+- 2026-06-30 05:03 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/52891484.shtml)
+- 2026-06-30 05:18 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/439503387813.shtml)
+- 2026-06-30 05:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/443610626228.shtml)
+- 2026-06-30 05:10 - [急先锋](http://www.blog.minike.top/Article/details/014352.shtml)
+- 2026-06-30 05:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/547445235.shtml)

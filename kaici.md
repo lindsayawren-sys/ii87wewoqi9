@@ -1,61 +1,59 @@
-# 印度航空年度亏损突破 20 亿美元、创历史新高
+# 嘉信理财连续第四年获《美国新闻》整体最佳投资平台奖
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-股东新加坡航空年报显示，受伊朗战事冲击及巴基斯坦禁止印度航司使用其领空影响，印度第二大航空公司印度航空集团2025-26财年亏损突破20亿美元，创下历史新高。 新加坡航空持有印度航空25%股份。该航司周四发布的年报称，在截至3月底的过去12个月里，印度航空集团亏损达35.6亿新加坡元，按当前汇率折合28亿美元。 新航并未披露核算亏损所采用的新加坡元兑印度卢比汇率。媒体此前曾报道
+嘉信理财宣布，被《美国新闻与世界报道》评为2026年度整体最佳投资平台，这是该平台连续第四年获此殊荣。 《美国新闻》在评选中对嘉信理财的综合实力给予高度评价，称其在几乎所有方面都表现出色，在成本、投资选择、客户支持以及提供大量面对面咨询服务的能力上持续获得高分。这一认可充分评价了嘉信理财在零售经纪行业的领先地位。 近年来，嘉信理财持续展现强劲的客户增长势头。2026年第一季度，
 
 ## 正文
 
-股东新加坡航空年报显示，受伊朗战事冲击及巴基斯坦禁止印度航司使用其领空影响，印度第二大航空公司印度航空集团2025-26财年亏损突破20亿美元，创下历史新高。
+嘉信理财宣布，被《美国新闻与世界报道》评为2026年度整体最佳投资平台，这是该平台连续第四年获此殊荣。
 
-新加坡航空持有印度航空25%股份。
+《美国新闻》在评选中对嘉信理财的综合实力给予高度评价，称其在几乎所有方面都表现出色，在成本、投资选择、客户支持以及提供大量面对面咨询服务的能力上持续获得高分。
 
-该航司周四发布的年报称，在截至3月底的过去12个月里，印度航空集团亏损达35.6亿新加坡元，按当前汇率折合28亿美元。
+这一认可充分评价了嘉信理财在零售经纪行业的领先地位。
 
-新航并未披露核算亏损所采用的新加坡元兑印度卢比汇率。
+近年来，嘉信理财持续展现强劲的客户增长势头。
 
-媒体此前曾报道，印度航空全年亏损预计将超过21.2亿美元。
+2026年第一季度，公司新增经纪账户130万户，同比增长10%，总客户资产达到创纪录的11.77万亿美元，同比增长19%。
 
-此次巨亏对印度航空又是一次重大打击。
+核心净新增资产达1580亿美元，创第一季度历史新高。
 
-近几个月来，该航司被迫削减大量国际航班，严重拖累塔塔集团旗下这家航司的扭亏为盈计划。
+日均交易量达到创纪录的990万笔，显示零售交易参与度显著提升。
 
-在新航披露的附属报告中，其审计机构毕马威表示，受经营环境艰难、地缘政治不确定性加剧影响，管理层认为对印度航空的投资存在减值迹象。
+嘉信理财还在不断拓展服务边界。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 05:22 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 05:16 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 05:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 05:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 05:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 05:21 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 05:03 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 05:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 05:14 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 05:16 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 05:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 05:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 04:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 05:05 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 05:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 05:24 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 05:16 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 05:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 05:11 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 05:01 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 05:28 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 05:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 05:05 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/38907994.shtml)
-- 2026-06-30 04:55 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/4521698981.shtml)
-- 2026-06-30 04:58 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/23369427.shtml)
-- 2026-06-30 05:07 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/808768272715.shtml)
-- 2026-06-30 05:08 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/74964642005.shtml)
-- 2026-06-30 05:10 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/40791305724.shtml)
-- 2026-06-30 05:11 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/291271075551.shtml)
-- 2026-06-30 05:14 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/1676423127.shtml)
-- 2026-06-30 05:13 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/9906649568.shtml)
-- 2026-06-30 05:14 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/34813.shtml)
-- 2026-06-30 05:14 - [《共患难》](https://www.blog.minike.top/Article/details/7834223992.shtml)
-- 2026-06-30 05:15 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/864739.shtml)
-- 2026-06-30 05:20 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/37578.shtml)
-- 2026-06-30 05:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/820035.shtml)
-- 2026-06-30 05:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/897918.shtml)
+- 2026-06-30 05:01 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/148742805463.shtml)
+- 2026-06-30 05:21 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/8278022.shtml)
+- 2026-06-30 05:22 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/4005837218.shtml)
+- 2026-06-30 05:00 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/55799621562.shtml)
+- 2026-06-30 05:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/743168.shtml)
+- 2026-06-30 05:23 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/0547152.shtml)
+- 2026-06-30 05:13 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/767390.shtml)
+- 2026-06-30 05:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/6239670.shtml)
+- 2026-06-30 05:27 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/63935009.shtml)
+- 2026-06-30 05:17 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/526653934810.shtml)
+- 2026-06-30 05:07 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/015421257969.shtml)
+- 2026-06-30 05:16 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/704094495.shtml)
+- 2026-06-30 05:16 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/017405.shtml)
+- 2026-06-30 05:10 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/49010.shtml)
+- 2026-06-30 05:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/739938097.shtml)

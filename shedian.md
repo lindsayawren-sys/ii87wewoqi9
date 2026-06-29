@@ -1,58 +1,47 @@
-# 营收及调整后盈利超预期 西班牙电信股价上涨
+# 全国13条河流发生超警以上洪水
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 欧洲早盘股价涨幅达 5.1% 内容概要 西班牙电信一季度营收、调整后盈利均超出市场预期，带动股价上涨 5.1%。 西班牙电信（TEF）股价上涨 6.18%。公司一季度营收与调整后盈利双双超出市场预期，转型战略持续落地，股价应声走高。 早盘交易中，该股上涨 5.1%，报 4.01 欧元；年内累计涨幅略超 14%。 这家西班牙电信巨头周四公布，
+记者从水利部了解到，受降雨影响，昨天到今天，广西都柳江、桂南沿海防城河，广东潭江及三甲河、潭水河，云南金沙江支流沙河、盘龙江，贵州六硐河，湖南湘江支流涓水，湖北长湖等13条河流发生超警洪水，最大超警幅度2.22米，目前大部已退至警戒以下。 (总台央视记者 梁丽娟 李洁）
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 欧洲早盘股价涨幅达 5.1% 内容概要 西班牙电信一季度营收、调整后盈利均超出市场预期，带动股价上涨 5.1%。
+记者从水利部了解到，受降雨影响，昨天到今天，广西都柳江、桂南沿海防城河，广东潭江及三甲河、潭水河，云南金沙江支流沙河、盘龙江，贵州六硐河，湖南湘江支流涓水，湖北长湖等13条河流发生超警洪水，最大超警幅度2.22米，目前大部已退至警戒以下。
 
-西班牙电信（TEF）股价上涨 6.18%。
-
-公司一季度营收与调整后盈利双双超出市场预期，转型战略持续落地，股价应声走高。
-
-早盘交易中，该股上涨 5.1%，报 4.01 欧元；年内累计涨幅略超 14%。
-
-这家西班牙电信巨头周四公布，一季度营收从去年同期的 80.9 亿欧元微增至81.3 亿欧元（约 95.3 亿美元），高于公司统计的市场一致预期 80.7 亿欧元。
-
-按固定汇率计算，西班牙本土营收同比增长 2%：其中服务收入增长 1.7%，手机设备销售额增长 6.9%。
-
-巴西市场营收增长 7.4%，数字新业务、手机销售、移动服务收入等多个板块表现强劲。
-
-公司补充称，受移动服务收入短期承压、德国手机市场需求低迷拖累，德国市场营收下滑 8.6%。
+(总台央视记者 梁丽娟 李洁）
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 04:55 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 05:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 04:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 05:21 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 04:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 04:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 05:09 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 05:09 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 05:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 05:22 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 05:22 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 05:12 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 05:29 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 05:21 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 05:14 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 05:17 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 05:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 05:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:26 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 05:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 05:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 05:00 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [一生一世](https://www.share.kurohicncr.top/Article/details/9411324.shtml)
-- 2026-06-30 05:00 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/511640986.shtml)
-- 2026-06-30 05:20 - [毒液2](http://www.share.minike.top/Article/details/80488052463.shtml)
-- 2026-06-30 04:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/85762.shtml)
-- 2026-06-30 05:05 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/14217051.shtml)
-- 2026-06-30 05:23 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/5011027.shtml)
-- 2026-06-30 04:54 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/24105682.shtml)
-- 2026-06-30 05:05 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/733446422030.shtml)
-- 2026-06-30 05:11 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/551279888.shtml)
-- 2026-06-30 05:00 - [沙丘](http://www.blog.minike.top/Article/details/266372.shtml)
-- 2026-06-30 05:00 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/561584669011.shtml)
-- 2026-06-30 04:59 - [《共患难》](https://www.blog.minike.top/Article/details/51224506.shtml)
-- 2026-06-30 05:09 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/712370.shtml)
-- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/11661667146.shtml)
-- 2026-06-30 05:03 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/86501404883.shtml)
+- 2026-06-30 05:10 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/4327604061.shtml)
+- 2026-06-30 05:11 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/8006387.shtml)
+- 2026-06-30 05:20 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/22819536138.shtml)
+- 2026-06-30 05:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/115365176912.shtml)
+- 2026-06-30 05:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/0952111.shtml)
+- 2026-06-30 05:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/1332919.shtml)
+- 2026-06-30 05:03 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/346478.shtml)
+- 2026-06-30 05:05 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/779539037949.shtml)
+- 2026-06-30 05:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/7398167875.shtml)
+- 2026-06-30 05:21 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/689484364.shtml)
+- 2026-06-30 05:26 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/267215.shtml)
+- 2026-06-30 05:22 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/601146528.shtml)
+- 2026-06-30 05:27 - [田曦薇没招了](http://www.share.minike.top/Article/details/994593532303.shtml)
+- 2026-06-30 05:11 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/37990920178.shtml)
+- 2026-06-30 05:05 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/299260433.shtml)

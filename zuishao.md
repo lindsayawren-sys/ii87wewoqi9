@@ -1,56 +1,54 @@
-# 中国央行将缩量开展6个月期买断式逆回购操作
+# 石药集团早盘涨超5% 布地奈德肠溶胶囊获药品注册批件
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新社北京5月14日电 (陶思阅)中国央行14日发布公告称，为保持银行体系流动性充裕，2026年5月15日，将以固定数量、利率招标、多重价位中标方式开展3000亿元(人民币，下同)买断式逆回购操作，期限为6个月(184天)。数据显示，5月有8000亿元6个月期买断式逆回购到期，因此，中国央行此次操作为缩量续作，缩量规模5000亿元。此外，本月3个月期买断式逆回购已缩量5000亿
+石药集团（01093）盘中涨超6% ，截至发稿，股价上涨5.31%，现报7.73港元，成交额2.20亿港元。 5月21日，石药集团宣布，集团开发的布地奈德肠溶胶囊（4mg）已获得中华人民共和国国家药品监督管理局颁发的药品注册批件。据悉，该产品用于治疗具有疾病进展风险的原发性免疫球蛋白A肾病（IgAN）成人患者，以减少肾功能损失。与其他药物相比，该产品为IgA肾病的对因治疗药物，
 
 ## 正文
 
-中新社北京5月14日电 (陶思阅)中国央行14日发布公告称，为保持银行体系流动性充裕，2026年5月15日，将以固定数量、利率招标、多重价位中标方式开展3000亿元(人民币，下同)买断式逆回购操作，期限为6个月(184天)。
+石药集团（01093）盘中涨超6% ，截至发稿，股价上涨5.31%，现报7.73港元，成交额2.20亿港元。
 
-数据显示，5月有8000亿元6个月期买断式逆回购到期，因此，中国央行此次操作为缩量续作，缩量规模5000亿元。
+5月21日，石药集团宣布，集团开发的布地奈德肠溶胶囊（4mg）已获得中华人民共和国国家药品监督管理局颁发的药品注册批件。
 
-此外，本月3个月期买断式逆回购已缩量5000亿元。
+据悉，该产品用于治疗具有疾病进展风险的原发性免疫球蛋白A肾病（IgAN）成人患者，以减少肾功能损失。
 
-综合来看，5月买断式逆回购合计净回笼10000亿元。
+与其他药物相比，该产品为IgA肾病的对因治疗药物，采用迟释和缓释的双重制剂工艺实现靶向治疗，全身暴露量低，安全性高。
 
-中国央行在最新的货币政策执行报告中表示，会持续加强对银行体系流动性供求和金融市场变化的分析监测，灵活运用多种货币政策工具，保持流动性充裕，并提出要“引导隔夜利率在政策利率水平附近运行”。
+石药集团表示该产品的获批将进一步丰富集团在肾病领域的产品线，提升集团在该领域的竞争力。
 
-东方金诚首席宏观分析师王青预计，在主要市场利率回升至政策利率附近之前，中国央行“收水”过程会持续，这包括公开市场“地量”操作，以及MLF(中期借贷便利)和买断式逆回购净回笼等。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 05:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 05:15 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 05:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:12 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 05:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 05:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 05:15 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 05:18 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 05:13 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 05:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 05:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 05:23 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 05:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 05:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 05:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 05:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 05:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 05:02 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 05:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 05:13 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/40735.shtml)
-- 2026-06-30 05:22 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/4648073.shtml)
-- 2026-06-30 05:22 - [天道](http://www.blog.kurohicncr.top/Article/details/72795673.shtml)
-- 2026-06-30 05:00 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/63775.shtml)
-- 2026-06-30 05:16 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/3581711.shtml)
-- 2026-06-30 05:19 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/098012476.shtml)
-- 2026-06-30 05:09 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/8179943068.shtml)
-- 2026-06-30 05:18 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/98783771.shtml)
-- 2026-06-30 05:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/23389.shtml)
-- 2026-06-30 05:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/104415926462.shtml)
-- 2026-06-30 05:18 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/58056.shtml)
-- 2026-06-30 05:07 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/2914891.shtml)
-- 2026-06-30 05:17 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/551434495027.shtml)
-- 2026-06-30 05:10 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/86447823.shtml)
-- 2026-06-30 05:14 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/07583003415.shtml)
+- 2026-06-30 05:23 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/100788793502.shtml)
+- 2026-06-30 05:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/941890719.shtml)
+- 2026-06-30 05:28 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/791171600383.shtml)
+- 2026-06-30 05:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/83125882.shtml)
+- 2026-06-30 05:10 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/4821489.shtml)
+- 2026-06-30 05:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/2380463.shtml)
+- 2026-06-30 05:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/1296330.shtml)
+- 2026-06-30 05:29 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/10995807146.shtml)
+- 2026-06-30 05:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/04513.shtml)
+- 2026-06-30 05:09 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/76599.shtml)
+- 2026-06-30 05:06 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/90502669.shtml)
+- 2026-06-30 05:00 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/771625943.shtml)
+- 2026-06-30 05:13 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6797033.shtml)
+- 2026-06-30 05:27 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/97679469.shtml)
+- 2026-06-30 05:27 - [张凌赫 客串](https://www.blog.minike.top/Article/details/26320.shtml)

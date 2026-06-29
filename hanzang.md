@@ -1,60 +1,57 @@
-# 海口海关缉私局情报中心空调采购项目比选公告
+# 酒价内参5月22日价格发布：精品茅台下跌2元
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-一、采购条件 海口海关缉私局情报中心空调采购项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关缉私局情报中心空调采购；(二)项目具体内容及需求详见《海口海关缉私局情报中心空调采购项目需求书》； (三)交货安装期：自设备进场
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，重
 
 ## 正文
 
-一、采购条件 海口海关缉私局情报中心空调采购项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。
 
-项目已具备采购条件，现对该项目进行比选采购。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。
 
-二、项目概况与采购范围 (一)项目名称：海口海关缉私局情报中心空调采购；(二)项目具体内容及需求详见《海口海关缉私局情报中心空调采购项目需求书》； (三)交货安装期：自设备进场起15天内完成新空调安装； (四)质保期：整机保修6年，按空调开机验收合格时间开始计算； (五)质量要求：达到国家及相关行业的合格标准，保证原厂原装； (六)最高限价：人民币99740.53元； (七)报价要求：该项目为固定总价包干，供应商报价费用包括但不限于安装、材料、人工、辅材、运输、税费、保险、安全防护、垃圾清运、成品保护以及合理利润等实施本项目所需的全部费用，除采购人书面提出的正式需求变更外，总价不作任何调整。
+市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。
 
-(八)现场踏勘：采购人组织现场踏勘(海口海关缉私局，地址：海口市长滨东四街9号)，供应商可根据自身需要选择是否参加踏勘(联系人：黄警官，19989693010)。
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-采购人对踏勘现场的描述仅作参考，供应商需自行核实现场实际情况，踏勘结果视为供应商已充分了解项目实施条件。
+上涨方面，青花郎涨幅居前，上涨5元/瓶，重返710元关口，平月内最高价纪录；五粮液普五八代上涨2元/瓶；五粮液1618小幅上涨1元/瓶。
 
-供应商因未参加踏勘或踏勘不充分导致的报价偏差、施工冲突等风险，由供应商自行承担；但采购人不得因供应商未参与踏勘拒绝其参加比选。
+下跌方面，洋河梦之蓝M6+跌幅居前，下跌6元/瓶，回吐前一日全部涨幅；国窖1573下跌4元/瓶，连续四日回落，价格进一步远离900元关口，回调至月内低位；飞天茅台、精品茅台、古井贡古20与水晶剑南春均下跌2元/瓶；古20遭遇四连阴，价格下探至月内新低；水晶剑南春平近一个月最低价纪录；习酒君品小幅下跌1元/瓶，价格再度回落至月内次低位。
 
-三、比选申请人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)。
+青花汾20的价格环比保持不变，平月内最低价纪录。
 
-(二)具备能承办本项目的有效合法证照(证照中营业范围、业务范围须与本项目相关)。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 05:18 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 04:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 05:20 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 05:07 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 05:05 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 04:58 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 05:11 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 05:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 05:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 04:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 04:55 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 05:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 05:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 05:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 05:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 05:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 05:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 05:26 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 05:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 05:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/33075.shtml)
-- 2026-06-30 05:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/19655611952.shtml)
-- 2026-06-30 05:08 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/59512020582.shtml)
-- 2026-06-30 05:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/72317.shtml)
-- 2026-06-30 05:15 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/509529022751.shtml)
-- 2026-06-30 05:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/648322.shtml)
-- 2026-06-30 04:57 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/8422232535.shtml)
-- 2026-06-30 05:20 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/17964026459.shtml)
-- 2026-06-30 05:18 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/559103304.shtml)
-- 2026-06-30 05:03 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/32606879.shtml)
-- 2026-06-30 05:15 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/41232219.shtml)
-- 2026-06-30 04:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2459238.shtml)
-- 2026-06-30 05:07 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/29481119.shtml)
-- 2026-06-30 05:22 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/951705.shtml)
-- 2026-06-30 05:05 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/65537.shtml)
+- 2026-06-30 05:18 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/224930121.shtml)
+- 2026-06-30 05:15 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/2501644787.shtml)
+- 2026-06-30 05:01 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/435582587.shtml)
+- 2026-06-30 05:10 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/27009506.shtml)
+- 2026-06-30 05:18 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/89220.shtml)
+- 2026-06-30 05:27 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/0934782.shtml)
+- 2026-06-30 05:24 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/46702281.shtml)
+- 2026-06-30 05:09 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/4547279.shtml)
+- 2026-06-30 05:06 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/04807.shtml)
+- 2026-06-30 05:18 - [《共患难》](https://www.share.minike.top/Article/details/905873.shtml)
+- 2026-06-30 05:00 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/59542669676.shtml)
+- 2026-06-30 05:08 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/9437548.shtml)
+- 2026-06-30 05:21 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/715511907929.shtml)
+- 2026-06-30 05:28 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/845928927.shtml)
+- 2026-06-30 05:14 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/91624.shtml)

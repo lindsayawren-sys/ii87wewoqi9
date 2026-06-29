@@ -1,57 +1,56 @@
-# 让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质
+# 英前卫生大臣提议大幅上调资本利得税
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-视频：让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质来源：新华社服务业是我国国民经济第一大产业，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥的作用日益凸显，成为推动我国经济社会发展的重要引擎。“十五五”时期，服务业规模预计将突破100万亿元。今年4月，全国服务业大会在京召开，习近平总书记就服务业发展作出重要指示。总书记强调，新征程上，要坚持以新时代中
+英国前卫生大臣、执政党工党党魁潜在竞选人韦斯·斯特里廷21日提出最新政策主张，呼吁对英国现行资本利得税进行大幅度改革，使其与个人所得税率接轨，以构建更公平的税收体系。 斯特里廷强调，英国亟需建立行之有效的财富税机制，资产持有者的获利税率不应低于普通劳动者的劳动所得税率。根据其提出的方案，英国资本利得税率将从现行的18%至24%区间，大幅上调至40%乃至45%，具体征收标准将与个
 
 ## 正文
 
-视频：让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质来源：新华社服务业是我国国民经济第一大产业，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥的作用日益凸显，成为推动我国经济社会发展的重要引擎。
+英国前卫生大臣、执政党工党党魁潜在竞选人韦斯·斯特里廷21日提出最新政策主张，呼吁对英国现行资本利得税进行大幅度改革，使其与个人所得税率接轨，以构建更公平的税收体系。
 
-“十五五”时期，服务业规模预计将突破100万亿元。
+斯特里廷强调，英国亟需建立行之有效的财富税机制，资产持有者的获利税率不应低于普通劳动者的劳动所得税率。
 
-今年4月，全国服务业大会在京召开，习近平总书记就服务业发展作出重要指示。
+根据其提出的方案，英国资本利得税率将从现行的18%至24%区间，大幅上调至40%乃至45%，具体征收标准将与个人的所得税缴纳等级挂钩。
 
-总书记强调，新征程上，要坚持以新时代中国特色社会主义思想为指导，完整准确全面贯彻新发展理念，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业扩能提质行动，推进生产性服务业向专业化和价值链高端延伸，促进生活性服务业高品质多样化便利化发展，培育更多“中国服务”品牌，努力开创服务业高质量发展新局面。
+目前，英国仅对出售资产产生超过3000英镑（约合3900美元）的利润征收资本利得税。
 
-新华社推出“中国经济圆桌会”大型全媒体访谈节目，邀请国家发展改革委产业发展司副司长李春芳，国务院发展研究中心市场经济研究所副所长刘涛，中国质量认证中心有限公司总经理刘钢，荣华养老服务有限责任公司董事长张程程，深入阐释如何实现服务业扩能提质、目前我国服务业还存在哪些短板、在推动服务业高质量发展方面将有哪些政策利好，共话服务业发展前景。
+相关研究表明，该项税制改革每年有望为英国政府增加约120亿英镑的财政收入。
 
-新华社音视频部制作 新华通讯社出品
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 05:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 05:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 05:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 05:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 05:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 04:55 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 05:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 05:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 05:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 05:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 05:03 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 05:17 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:29 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:14 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 05:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 05:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 05:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 05:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 05:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 05:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 05:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 05:18 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 05:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 05:13 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/422198534.shtml)
-- 2026-06-30 05:19 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/45469389.shtml)
-- 2026-06-30 05:05 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/52322767289.shtml)
-- 2026-06-30 05:05 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/62967655105.shtml)
-- 2026-06-30 05:05 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/474651223844.shtml)
-- 2026-06-30 05:19 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/5787097903.shtml)
-- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/08784904108.shtml)
-- 2026-06-30 05:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1642090.shtml)
-- 2026-06-30 05:05 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/4579875423.shtml)
-- 2026-06-30 05:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/3835028.shtml)
-- 2026-06-30 05:21 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/53625123.shtml)
-- 2026-06-30 04:55 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/921982864457.shtml)
-- 2026-06-30 05:04 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/02257.shtml)
-- 2026-06-30 05:04 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/986816522631.shtml)
-- 2026-06-30 05:22 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/46889828.shtml)
+- 2026-06-30 05:00 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/525519321.shtml)
+- 2026-06-30 05:13 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/539673.shtml)
+- 2026-06-30 05:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/1985714768.shtml)
+- 2026-06-30 05:10 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/796838070.shtml)
+- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/44307667975.shtml)
+- 2026-06-30 05:00 - [日本反击率先破门](https://www.blog.minike.top/Article/details/30868317570.shtml)
+- 2026-06-30 05:10 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/348371.shtml)
+- 2026-06-30 05:21 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/909144876.shtml)
+- 2026-06-30 05:08 - [女心理师](https://www.share.kurohicncr.top/Article/details/52883719982.shtml)
+- 2026-06-30 05:15 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/73004808219.shtml)
+- 2026-06-30 05:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/1149186230.shtml)
+- 2026-06-30 05:08 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/89797410249.shtml)
+- 2026-06-30 05:27 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/16572658.shtml)
+- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/21972621016.shtml)
+- 2026-06-30 05:26 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/1412710250.shtml)

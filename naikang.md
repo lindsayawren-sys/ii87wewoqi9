@@ -1,57 +1,58 @@
-# 通胀升温推高央行加息预期，日本多期限国债收益率创历史新高
+# 高盛：共同基金难以追上不断走高的基准股指
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-5月15日，受国内通胀压力加剧及日本央行加息预期持续升温影响，日本国债收益率全线上行，短期与超长期国债收益率均创下历史新高。 交易数据显示，各期限日本国债收益率当日全面攀升。 作为基准的10年期国债收益率最高上涨10个基点至2.73%，创下1997年5月以来最高水平。 对货币政策最为敏感的2年期国债收益率升至1.415%，为1995年5月以来的最高值； 5年期国债收益率则触及2
+高盛分析师表示，大型共同基金虽然带来了正收益，但难以跟上不断上涨的基准股票指数。 今年迄今，纳斯达克指数上涨13%，标普500指数上涨8.6%。 包括Ryan Hammond在内的团队指出，年迄今，仅有29%的基金跑赢了其标的指数，远低于37%的历史平均水平。 今年以来，流入美国股票型共同基金和ETF的资金已加速，达1660亿美元。 共同基金继续加大对半导体行业的配置，并减持软
 
 ## 正文
 
-5月15日，受国内通胀压力加剧及日本央行加息预期持续升温影响，日本国债收益率全线上行，短期与超长期国债收益率均创下历史新高。
+高盛分析师表示，大型共同基金虽然带来了正收益，但难以跟上不断上涨的基准股票指数。
 
-交易数据显示，各期限日本国债收益率当日全面攀升。
+今年迄今，纳斯达克指数上涨13%，标普500指数上涨8.6%。
 
-作为基准的10年期国债收益率最高上涨10个基点至2.73%，创下1997年5月以来最高水平。
+包括Ryan Hammond在内的团队指出，年迄今，仅有29%的基金跑赢了其标的指数，远低于37%的历史平均水平。
 
-对货币政策最为敏感的2年期国债收益率升至1.415%，为1995年5月以来的最高值； 5年期国债收益率则触及2%的历史高位。
+今年以来，流入美国股票型共同基金和ETF的资金已加速，达1660亿美元。
 
-在长期及超长期国债方面，20年期国债收益率升至3.66%，创下自1999年有完整数据记录以来的最高值； 30年期国债收益率上涨10.5个基点至4.010%，历史上首次突破4%关口； 期限最长的40年期国债收益率上涨8.5个基点，达到创纪录的4.235%。
+共同基金继续加大对半导体行业的配置，并减持软件股，目前对后者的持仓比例已降至至少自2012年以来的最低水平。
 
-责任编辑：龙运翔
+基金继续低配美国科技巨头，主要由于投资组合多元化限制所致。
+
+基金积极减持所有所谓“七巨头”股票的净持股比例，其中Alphabet的减持幅度最大。
+
+现金头寸仍处低位，但自年初以来有所增加。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 05:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 05:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 05:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 04:54 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 04:54 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:57 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 05:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 05:15 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 05:03 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 05:11 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 05:28 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 05:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 05:11 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 05:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 05:28 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 05:20 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 05:07 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 05:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 05:24 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 05:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 05:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 05:23 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/042607053.shtml)
-- 2026-06-30 05:17 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/6842288151.shtml)
-- 2026-06-30 05:17 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/02994369551.shtml)
-- 2026-06-30 05:15 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/187711.shtml)
-- 2026-06-30 04:54 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/708388.shtml)
-- 2026-06-30 05:10 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/57030418352.shtml)
-- 2026-06-30 05:19 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/918945168342.shtml)
-- 2026-06-30 05:12 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/63467447266.shtml)
-- 2026-06-30 05:06 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/90918574744.shtml)
-- 2026-06-30 05:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/42030490706.shtml)
-- 2026-06-30 05:02 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/29252.shtml)
-- 2026-06-30 05:09 - [蔚来车主罚站](http://www.share.minike.top/Article/details/460767398382.shtml)
-- 2026-06-30 05:22 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/962286.shtml)
-- 2026-06-30 05:18 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/69697363901.shtml)
-- 2026-06-30 05:13 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/25730.shtml)
+- 2026-06-30 05:16 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7223827.shtml)
+- 2026-06-30 05:22 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/53225.shtml)
+- 2026-06-30 05:29 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/3448923.shtml)
+- 2026-06-30 05:08 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/383306.shtml)
+- 2026-06-30 05:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/851115496.shtml)
+- 2026-06-30 05:18 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/828783368040.shtml)
+- 2026-06-30 05:09 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/155590224289.shtml)
+- 2026-06-30 05:05 - [TOP Prada](https://www.share.minike.top/Article/details/88154.shtml)
+- 2026-06-30 05:20 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/5704785810.shtml)
+- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/74131952074.shtml)
+- 2026-06-30 05:09 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/85281.shtml)
+- 2026-06-30 05:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/129380452.shtml)
+- 2026-06-30 05:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/064245798.shtml)
+- 2026-06-30 05:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/096422426450.shtml)
+- 2026-06-30 05:28 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/548083091.shtml)

@@ -1,59 +1,45 @@
-# （经济观察）上海崛起科创新生态：“一人公司”成新风口
+# 南方地区降雨持续 各地各部门积极应对
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新社上海5月13日电 (范宇斌)当下，以“一人公司”(OPC)为代表的微型创新主体在上海快速崛起。徐汇滨江、杨浦复兴岛、临港新片区等多处创业空间内，新一代“超级个体”创业者依托零租金办公、普惠算力、人才公寓等全链条配套服务，投身科创浪潮。上海“十五五”规划纲要将“OPC”定义为在人工智能赋能下，由个体独立完成产品研发到市场投放全链路闭环的新型创业形态。 该模式核心优势在于，A
+发布时间：2026年05月22日 08:58 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-中新社上海5月13日电 (范宇斌)当下，以“一人公司”(OPC)为代表的微型创新主体在上海快速崛起。
-
-徐汇滨江、杨浦复兴岛、临港新片区等多处创业空间内，新一代“超级个体”创业者依托零租金办公、普惠算力、人才公寓等全链条配套服务，投身科创浪潮。
-
-上海“十五五”规划纲要将“OPC”定义为在人工智能赋能下，由个体独立完成产品研发到市场投放全链路闭环的新型创业形态。
-
-该模式核心优势在于，AI技术助力个体创业者，单人即可完成过去团队才能达成的商业闭环。
-
-不同于传统孵化器“先研产、后商业化”的模式，当前OPC社区更注重快速实现商业闭环，同类创业者集聚交流、资源互通，有效提升创业存活率。
-
-不少青年创业者入局OPC模式。
-
-浦东“95后”创业者张可欣今年1月创办“一人公司”，聚焦药物研发生物基础模型开发，深耕生命科学与人工智能交叉的前沿领域。
-
-张可欣称，企业目前运营成本极低，开支主要集中在算力方面。
+发布时间：2026年05月22日 08:58 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 05:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 05:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 05:04 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 05:17 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 05:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 05:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 05:06 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 04:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 05:05 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 05:13 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 05:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 05:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 05:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 05:02 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 05:09 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 05:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 05:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 05:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 05:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 05:15 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 05:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 05:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 05:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/12659229.shtml)
-- 2026-06-30 04:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/604759.shtml)
-- 2026-06-30 04:58 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/892920.shtml)
-- 2026-06-30 05:05 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/616409.shtml)
-- 2026-06-30 05:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/48314352022.shtml)
-- 2026-06-30 05:18 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/59005754.shtml)
-- 2026-06-30 05:21 - [《共患难》](http://www.blog.minike.top/Article/details/634043.shtml)
-- 2026-06-30 05:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/88834302.shtml)
-- 2026-06-30 05:05 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/5625120.shtml)
-- 2026-06-30 05:15 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/035820020.shtml)
-- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/814771.shtml)
-- 2026-06-30 05:18 - [苗族银饰](https://www.blog.minike.top/Article/details/225393976552.shtml)
-- 2026-06-30 05:10 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/75251802727.shtml)
-- 2026-06-30 04:58 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/83774.shtml)
-- 2026-06-30 05:05 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/64856.shtml)
+- 2026-06-30 05:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/524727888.shtml)
+- 2026-06-30 05:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/1033532.shtml)
+- 2026-06-30 05:26 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1734220195.shtml)
+- 2026-06-30 05:22 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/016592003466.shtml)
+- 2026-06-30 05:11 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/337120425620.shtml)
+- 2026-06-30 05:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/67763795.shtml)
+- 2026-06-30 05:11 - [TOP Prada](http://www.share.minike.top/Article/details/4845859.shtml)
+- 2026-06-30 05:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/86377656884.shtml)
+- 2026-06-30 05:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/686486039886.shtml)
+- 2026-06-30 05:05 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/23661803381.shtml)
+- 2026-06-30 05:00 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/078440077119.shtml)
+- 2026-06-30 05:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/03772532.shtml)
+- 2026-06-30 05:23 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/049008375634.shtml)
+- 2026-06-30 05:02 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/54882729.shtml)
+- 2026-06-30 05:20 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/516971972.shtml)

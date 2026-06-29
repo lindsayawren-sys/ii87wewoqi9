@@ -1,51 +1,48 @@
-# 保利发展：董事童云翔退休
+# 中金：同程旅行维持跑赢行业评级 目标价22港元
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-5月14日，保利发展控股集团股份有限公司发布公告称，公司近日收到董事童云翔先生提交的辞职申请。童云翔先生因退休申请辞去公司董事及董事会专门委员会职务，辞职后将不再担任公司任何职务。公司对童云翔先生在任职期间为公司发展所作的贡献表示衷心感谢。
+中金发布研报称，维持同程旅行（00780）跑赢行业评级，予目标价22港元（对应12x/10x 26e/27e Non-IFRS P/E），上行空间为40%，公司目前交易于8x/7x 26e/27e Non-IFRS P/E。同程旅行1Q26收入同增14%至50.1亿元，高于市场预期2%，主要系住宿和酒管业务超预期；Non-IFRS归母净利润9.36亿元，超市场预期2.8%，对应
 
 ## 正文
 
-5月14日，保利发展控股集团股份有限公司发布公告称，公司近日收到董事童云翔先生提交的辞职申请。
+中金发布研报称，维持同程旅行（00780）跑赢行业评级，予目标价22港元（对应12x/10x 26e/27e Non-IFRS P/E），上行空间为40%，公司目前交易于8x/7x 26e/27e Non-IFRS P/E。
 
-童云翔先生因退休申请辞去公司董事及董事会专门委员会职务，辞职后将不再担任公司任何职务。
+同程旅行1Q26收入同增14%至50.1亿元，高于市场预期2%，主要系住宿和酒管业务超预期；Non-IFRS归母净利润9.36亿元，超市场预期2.8%，对应18.7% Non-IFRS净利润率。
 
-公司对童云翔先生在任职期间为公司发展所作的贡献表示衷心感谢。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 05:18 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 04:55 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 05:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:21 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 05:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 05:10 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:16 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 05:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 05:12 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 04:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 05:12 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 05:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 05:01 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 05:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 05:19 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 05:11 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 05:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 05:22 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 05:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 05:21 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 05:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 05:28 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 05:28 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/282349.shtml)
-- 2026-06-30 05:22 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/659916.shtml)
-- 2026-06-30 05:21 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/129506504597.shtml)
-- 2026-06-30 05:16 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/17018077817.shtml)
-- 2026-06-30 04:55 - [美人鱼](http://www.blog.minike.top/Article/details/510818705.shtml)
-- 2026-06-30 05:04 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/06229900.shtml)
-- 2026-06-30 05:17 - [刘念回应](http://www.blog.minike.top/Article/details/62444922183.shtml)
-- 2026-06-30 05:10 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/19098.shtml)
-- 2026-06-30 05:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/29440945.shtml)
-- 2026-06-30 05:02 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/9326255.shtml)
-- 2026-06-30 05:22 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/228632.shtml)
-- 2026-06-30 05:11 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/10338827.shtml)
-- 2026-06-30 04:58 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/579283770.shtml)
-- 2026-06-30 04:56 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/3262481.shtml)
-- 2026-06-30 05:12 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/28876.shtml)
+- 2026-06-30 05:05 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/364075.shtml)
+- 2026-06-30 05:02 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/63857.shtml)
+- 2026-06-30 05:27 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/074583730.shtml)
+- 2026-06-30 05:00 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/4151458.shtml)
+- 2026-06-30 05:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/656228490226.shtml)
+- 2026-06-30 05:08 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/1933756.shtml)
+- 2026-06-30 05:11 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/419450476.shtml)
+- 2026-06-30 05:16 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/83717598556.shtml)
+- 2026-06-30 05:03 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/8303096.shtml)
+- 2026-06-30 05:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/16249697149.shtml)
+- 2026-06-30 05:27 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/325805241442.shtml)
+- 2026-06-30 05:09 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/61966036.shtml)
+- 2026-06-30 05:26 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/1486106982.shtml)
+- 2026-06-30 05:26 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/14974.shtml)
+- 2026-06-30 05:25 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/6817355.shtml)

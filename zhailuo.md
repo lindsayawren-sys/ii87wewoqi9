@@ -1,57 +1,44 @@
-# 华宝基金ETF热点π | 赵晓光聊“光”：AI算力基建的纵深远未结束，应用加速正在路上
+# 大量美军加油机现身以色列机场
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-当前AI投资正处在关键路口：算力基建的狂欢能否延续？应用加速的春天还有多远？市场关于“芯片还是应用”的争论，本质上是对于产业趋势持续性以及资金流向节奏的深度博弈。 2026年5月13日，在华宝基金主办的《华宝ETF·热点π》第6期线上交流中，天风证券董事、副总裁赵晓光给出了他的系统研判。本文围绕赵晓光的核心观点进行了深度梳理，从行业底层逻辑、算力基建的增量机会、国产替代的超节点
+发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-当前AI投资正处在关键路口：算力基建的狂欢能否延续？
-
-应用加速的春天还有多远？
-
-市场关于“芯片还是应用”的争论，本质上是对于产业趋势持续性以及资金流向节奏的深度博弈。
-
-2026年5月13日，在华宝基金主办的《华宝ETF·热点π》第6期线上交流中，天风证券董事、副总裁赵晓光给出了他的系统研判。
-
-本文围绕赵晓光的核心观点进行了深度梳理，从行业底层逻辑、算力基建的增量机会、国产替代的超节点路径，到应用端的商业化兑现节奏，为投资者梳理AI资金迁徙的全景图谱。
-
-在工具层面，本次交流重点提及了几只聚焦AI不同环节的产品——创业板人工智能ETF华宝（159363），侧重算力侧尤其是光模块方向；以及科创人工智能ETF华宝（589520）、港股通信息技术ETF华宝（159131），聚焦国产芯片与前沿应用，为投资者提供了高效布局AI双主线的工具化解决方案。
-
-一、AI行业逻辑质变——告别性价比，进入“性能为王”的高利润时代 要想理解人工智能产业的投资可持续性，必须首先认识到一个本质变化：AI行业的运行逻辑，已经与过去几十年我们熟悉的制造业和消费品行业截然不同。
-
-1． 从“性价比”到“性能至上”的范式转移 过去，无论是家电、手机还是光伏产业，企业竞争的核心往往围绕成本控制与规模效应展开，性价比是赢得市场的关键。
+发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 05:12 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 05:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 05:23 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 05:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 04:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 05:05 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 04:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 04:59 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 04:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 05:23 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 05:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 05:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 05:09 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 05:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 05:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 05:21 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 05:14 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 05:21 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 05:28 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/627041653.shtml)
-- 2026-06-30 05:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/45022058350.shtml)
-- 2026-06-30 05:22 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/06020251.shtml)
-- 2026-06-30 05:09 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/820864775053.shtml)
-- 2026-06-30 05:12 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/606062053515.shtml)
-- 2026-06-30 05:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/2652747.shtml)
-- 2026-06-30 05:19 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/72415.shtml)
-- 2026-06-30 05:01 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/24242210300.shtml)
-- 2026-06-30 05:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/4667708.shtml)
-- 2026-06-30 05:04 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/880806912002.shtml)
-- 2026-06-30 05:13 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/43605.shtml)
-- 2026-06-30 05:21 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/800266.shtml)
-- 2026-06-30 05:18 - [日本领先巴西](https://www.blog.minike.top/Article/details/67423190637.shtml)
-- 2026-06-30 05:01 - [速度与激情9](https://www.blog.minike.top/Article/details/559656.shtml)
-- 2026-06-30 05:12 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/125599.shtml)
+- 2026-06-30 05:08 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/5335801593.shtml)
+- 2026-06-30 05:30 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/97021588212.shtml)
+- 2026-06-30 05:27 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/34807.shtml)
+- 2026-06-30 05:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/1249213.shtml)
+- 2026-06-30 05:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/345484731.shtml)
+- 2026-06-30 05:15 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/97256685.shtml)
+- 2026-06-30 05:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/405526586.shtml)
+- 2026-06-30 05:22 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/24678837.shtml)
+- 2026-06-30 05:22 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/630523596.shtml)
+- 2026-06-30 05:24 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/995385.shtml)
+- 2026-06-30 05:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/48005874252.shtml)
+- 2026-06-30 05:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/028525818869.shtml)
+- 2026-06-30 05:24 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/647392740.shtml)
+- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/0717319.shtml)
+- 2026-06-30 05:03 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/88768712845.shtml)

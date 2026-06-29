@@ -1,55 +1,58 @@
-# 英诺赛科盘中涨超7% 机构指公司业绩有望保持强劲增长态势
+# 日本大型银行创下利润新高，但分析师警示风险加剧、增长或将放缓
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。 英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。 公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，
+核心要点 在首相高市早苗胜选后，市场看好日本推行更为稳健的财政政策，叠加日本股市走高，日元汇率周三迎来上涨。 分析师表示，日本头部银行最新财报交出年度史上最高利润成绩单，但受信贷成本走高、地缘政治风险扰动，后续盈利增长势头或将降温。 日本规模最大的金融机构三菱日联金融集团公布，截至 2026 年 3 月的财年净利润同比大增 30%，达到2.4 万亿日元，连续第三年创下历史新高。
 
 ## 正文
 
-英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。
+核心要点 在首相高市早苗胜选后，市场看好日本推行更为稳健的财政政策，叠加日本股市走高，日元汇率周三迎来上涨。
 
-英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。
+分析师表示，日本头部银行最新财报交出年度史上最高利润成绩单，但受信贷成本走高、地缘政治风险扰动，后续盈利增长势头或将降温。
 
-兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。
+日本规模最大的金融机构三菱日联金融集团公布，截至 2026 年 3 月的财年净利润同比大增 30%，达到2.4 万亿日元，连续第三年创下历史新高。
 
-公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，近期已成功供货谷歌，其8英寸氮化镓晶圆产线月产能已从1.3万片提升至2万片。
+除此以外，三井住友金融集团、瑞穗金融集团同样斩获年度史上最高利润，净利润同比分别上涨 34%、41%。
 
-东吴证券表示，随着数据中心及人形机器人领域GaN渗透率的持续提升，公司业绩有望保持强劲增长态势。
+惠誉评级银行业主管西泽香织分析称：“日元利率上行拓宽银行放贷利差，净利息收入随之提升；叠加企业融资需求旺盛、中间业务收入增加，共同拉动营收走高。
 
-责任编辑：卢昱君
+” 野村证券依旧看好日本头部银行发展前景，将三井住友与瑞穗列为首选标的。
+
+该行认为，三菱日联、三井住友、瑞穗这三大巨型银行，对照自身强劲的盈利实力来看，目前估值仍处于偏低水平。
+
+不过分析师普遍认为，银行难以长期维持利润峰值水平。
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 05:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 05:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 05:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 05:01 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 05:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 05:06 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 04:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 04:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 05:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 04:57 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:58 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 05:28 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 05:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 05:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 05:08 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 05:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 05:08 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 05:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 05:02 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 05:19 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:11 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 05:23 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 05:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/6870745.shtml)
-- 2026-06-30 05:18 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/9035679242.shtml)
-- 2026-06-30 05:06 - [第一炉香](https://www.blog.minike.top/Article/details/374571950.shtml)
-- 2026-06-30 04:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/2987933.shtml)
-- 2026-06-30 04:56 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/6820301629.shtml)
-- 2026-06-30 05:04 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/82661443.shtml)
-- 2026-06-30 05:03 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/919377971246.shtml)
-- 2026-06-30 05:01 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/02329.shtml)
-- 2026-06-30 04:58 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/3028345962.shtml)
-- 2026-06-30 04:57 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/26329175.shtml)
-- 2026-06-30 04:57 - [沙丘](http://www.share.kurohicncr.top/Article/details/1098144215.shtml)
-- 2026-06-30 04:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/212802170.shtml)
-- 2026-06-30 04:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/5757702.shtml)
-- 2026-06-30 05:01 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/403247673.shtml)
-- 2026-06-30 05:21 - [《共患难》](http://www.share.minike.top/Article/details/5363012712.shtml)
+- 2026-06-30 05:03 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8215754.shtml)
+- 2026-06-30 05:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/8902295.shtml)
+- 2026-06-30 05:24 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/85541.shtml)
+- 2026-06-30 05:23 - [日本反击率先破门](http://www.blog.minike.top/Article/details/7972139.shtml)
+- 2026-06-30 05:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/8648771415.shtml)
+- 2026-06-30 05:17 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/158315.shtml)
+- 2026-06-30 05:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/2882556.shtml)
+- 2026-06-30 05:08 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/10381311704.shtml)
+- 2026-06-30 05:24 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/87619.shtml)
+- 2026-06-30 05:13 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/38955080822.shtml)
+- 2026-06-30 05:14 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/8786242.shtml)
+- 2026-06-30 05:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/52896469503.shtml)
+- 2026-06-30 05:10 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/46139391569.shtml)
+- 2026-06-30 05:07 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/04106124.shtml)
+- 2026-06-30 05:01 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/49760.shtml)

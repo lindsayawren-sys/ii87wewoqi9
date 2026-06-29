@@ -1,61 +1,51 @@
-# 推动中美两国民间交往走深走实
+# 珀莱雅：拟3.51亿元收购花知晓公司12.55%股份
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-人民日报 本报记者 李志伟 中美关系希望在人民，基础在民间，未来在青年，活力在地方。探寻两国正确相处之道，中美需要不断夯实人文交流基础，共同拉紧友谊纽带。美国各界人士在接受本报记者采访时表示，当前在美国越来越多声音主张增进彼此了解、推动两国合作，期待两国民间交往不断走深走实，推动两国关系健康、稳定、可持续发展。 “我们应当放下偏见，建立真诚、友好、务实的关系”中美两国虽然历史文
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额
 
 ## 正文
 
-人民日报 本报记者 李志伟 中美关系希望在人民，基础在民间，未来在青年，活力在地方。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-探寻两国正确相处之道，中美需要不断夯实人文交流基础，共同拉紧友谊纽带。
+来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额为3.51亿元。
 
-美国各界人士在接受本报记者采访时表示，当前在美国越来越多声音主张增进彼此了解、推动两国合作，期待两国民间交往不断走深走实，推动两国关系健康、稳定、可持续发展。
+上述股权转让交割完成后，公司通过全资子公司珀莱雅（海南）持有花知晓公司51%的股权，花知晓公司纳入公司合并报表范围。
 
-“我们应当放下偏见，建立真诚、友好、务实的关系”中美两国虽然历史文化、社会制度、发展道路不同，但人民都善良友好、勤劳务实，都爱祖国、爱家庭、爱生活，都对彼此抱有好感和兴趣。
-
-正是人民之间的双向奔赴，让中美关系一次次从低谷重回正道。
-
-在美国弗吉尼亚州哈里森堡市，当地居民拉娜·道蒂是中国电视剧粉丝。
-
-拉娜说：“通过看影视剧、阅读，我感受到中国的美好，发现中国文化的巨大魅力，这给我的世界带来很多精彩。
-
-” “人与人之间有时会有隔阂，但我们可以互相学习，更深入地了解彼此文化。
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 05:11 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 05:16 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 05:01 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 05:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 05:17 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 05:18 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 05:10 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 05:01 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:59 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 05:18 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 05:06 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 05:13 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 05:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:27 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 05:07 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 05:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 05:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 05:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 05:05 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 05:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 05:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 05:12 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 05:30 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [明星大侦探第一季](http://www.share.minike.top/Article/details/821724676566.shtml)
-- 2026-06-30 05:04 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/93891.shtml)
-- 2026-06-30 05:12 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/73099.shtml)
-- 2026-06-30 04:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/502514917.shtml)
-- 2026-06-30 05:21 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/59441.shtml)
-- 2026-06-30 04:56 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/728211.shtml)
-- 2026-06-30 05:01 - [女心理师](http://www.share.kurohicncr.top/Article/details/111117.shtml)
-- 2026-06-30 04:56 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/252785746207.shtml)
-- 2026-06-30 04:56 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/990993.shtml)
-- 2026-06-30 05:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/72631.shtml)
-- 2026-06-30 04:54 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/594698365.shtml)
-- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/881492.shtml)
-- 2026-06-30 05:23 - [极限挑战第一季](https://www.share.minike.top/Article/details/50518115.shtml)
-- 2026-06-30 05:01 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/5158921368.shtml)
-- 2026-06-30 05:18 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/44757186481.shtml)
+- 2026-06-30 05:29 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/393697.shtml)
+- 2026-06-30 05:18 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/882298.shtml)
+- 2026-06-30 05:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/23816411.shtml)
+- 2026-06-30 05:12 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/16116.shtml)
+- 2026-06-30 05:15 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/3619688.shtml)
+- 2026-06-30 05:10 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/44499292635.shtml)
+- 2026-06-30 05:22 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/97319469.shtml)
+- 2026-06-30 05:15 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/916160015685.shtml)
+- 2026-06-30 05:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/39505.shtml)
+- 2026-06-30 05:16 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/577552.shtml)
+- 2026-06-30 05:15 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/412067.shtml)
+- 2026-06-30 05:24 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/7599034.shtml)
+- 2026-06-30 05:24 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/8256447.shtml)
+- 2026-06-30 05:03 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/61750917550.shtml)
+- 2026-06-30 05:14 - [恋与深空回应争议](http://www.share.minike.top/Article/details/18191779.shtml)

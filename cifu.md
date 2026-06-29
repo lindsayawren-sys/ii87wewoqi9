@@ -1,61 +1,58 @@
-# 长江有色：国内有色板块疲弱拖累锌价走势 15日锌价或下跌
+# 2026年现代科技馆体系联合行动开启“全国科技工作者日”欢乐科学周
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-【ccmn.cn摘要】海外炼厂事故加剧供应担忧叠加股市转好提振，隔夜伦锌四连涨0.99%；国内TC持续低位运行及能源危机冲击，但国内有色板块疲弱拖累锌价走势，今现锌或下跌。 【ccmn.cn锌期货市场】隔夜伦锌连续四个交易日走强，开盘报3558.5美元/吨，高点报3633.5美元，低点报3542.5美元，尾盘收于3587美元，涨35美元，涨幅0.99%；成交量14070手减少1
+中新网北京5月21日电 (记者 孙自法)中国科技馆5月21日向媒体通报说，2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“全国科技工作者日”欢乐科学周，当天在河南省科技馆开启。“纪念红军长征胜利90周年”科技成果科普化展览也以河南作为首站，启动全国巡展。 活动在科学表演《纸飞机工程秀》和机器人表演《智创乾坤武动未来》中拉开帷幕，来自全国各地科技馆、中小学生、高校
 
 ## 正文
 
-【ccmn.cn摘要】海外炼厂事故加剧供应担忧叠加股市转好提振，隔夜伦锌四连涨0.99%；国内TC持续低位运行及能源危机冲击，但国内有色板块疲弱拖累锌价走势，今现锌或下跌。
+中新网北京5月21日电 (记者 孙自法)中国科技馆5月21日向媒体通报说，2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“全国科技工作者日”欢乐科学周，当天在河南省科技馆开启。
 
-【ccmn.cn锌期货市场】隔夜伦锌连续四个交易日走强，开盘报3558.5美元/吨，高点报3633.5美元，低点报3542.5美元，尾盘收于3587美元，涨35美元，涨幅0.99%；成交量14070手减少1436手，持仓量242115手减少139手。
+“纪念红军长征胜利90周年”科技成果科普化展览也以河南作为首站，启动全国巡展。
 
-晚间沪锌跳空高开后震荡运行，主力2606合约最新收盘价报24915元/吨，涨50元，涨幅0.20%。
+活动在科学表演《纸飞机工程秀》和机器人表演《智创乾坤武动未来》中拉开帷幕，来自全国各地科技馆、中小学生、高校、科研院所等31家单位的43个优秀科学表演项目集中展演，传递科学精神；系列主题展览、互动体验、资源展示等特色活动，带来内容丰富、形式多元的“科普盛宴”。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估：宏观层面，美国4月零售销售创下8个月最强涨幅，打压了市场的降息预期，直接提振美元指数重返强势格局。
+本次欢乐科学周设置“聚主场·启新之程”“见未来·前沿之光”“乐探索·欢趣之秀”“论新知·智见之远”“共致远·普惠之行”“享资源·联动之合”六大板块，通过科普剧目、展览展示、创意市集、科学之夜等各类精彩活动，让公众在沉浸式体验中感受科学魅力。
 
-美元指数DXY维持在98.54附近的近一周高位，这使得以美元计价的锌锭对持有其他货币的投资者而言相对更贵，成为压制锌价上行的直接阻力。
+活动期间，“科技创新成果科普展”“河南省前沿科技成果展”“河南省健康科普展”“蔚蓝奇境——共生与未来”“国家安全长城行”等五大主题科普展览集中开展，为公众提供直观了解科技发展前沿、感受科学精神与创新价值的平台。
 
-不过，隔夜LME三个月期锌依然上涨0.99%，报收每吨3，587美元，盘中一度触及3，633.5美元，创下2022年8月以来的新高。
+“论道科普”展览创新系列沙龙、区域性科学教育中心建设项目交流会相继举办，围绕展览创新、科普实验室共建、科学教育新方向等议题展开深入研讨，为科普事业协同发展探索新路径。
 
-产业层面，供应端的突发扰动成为市场核心焦点。
+欢乐科学周活动联动全国现代科技馆体系场馆、科研院所、学校及行业单位协同发力，并向河南全省延伸构建科普矩阵，形成覆盖城乡的科普服务网络，实现科普服务惠民利民、普惠万家。
 
-继哈萨克斯坦Kazzinc冶炼厂事故后，拉丁美洲最大的锌冶炼厂——秘鲁Cajamarquilla锌冶炼厂（年产能34.44万吨）也因火灾导致基础设施受损，目前已暂时停产。
+本次活动由中国科协科普部、教育部校外教育培训监管司指导，中国科技馆、中国自然科学博物馆学会和河南省科协等多单位联合主办，活动联动全国200余家省、市、县级科技馆及各类行业机构同步开展科普惠民行动，全面营造全民参与科普、热爱科学的浓厚氛围。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 05:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:54 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 05:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 05:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 05:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 05:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 05:08 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 05:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 05:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 04:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 05:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 05:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 05:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 05:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 05:09 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 05:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 05:14 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 05:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 05:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 05:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 05:16 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 05:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/486230664.shtml)
-- 2026-06-30 05:10 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/88677.shtml)
-- 2026-06-30 05:22 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/40019355.shtml)
-- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/4765682.shtml)
-- 2026-06-30 05:22 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/94108113634.shtml)
-- 2026-06-30 05:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/195015223.shtml)
-- 2026-06-30 04:56 - [一见倾心](http://www.share.minike.top/Article/details/52571078678.shtml)
-- 2026-06-30 05:06 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/646805208391.shtml)
-- 2026-06-30 05:22 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/8656404582.shtml)
-- 2026-06-30 04:56 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/73091820207.shtml)
-- 2026-06-30 05:22 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/95197000840.shtml)
-- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/5081873384.shtml)
-- 2026-06-30 05:14 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/0986169.shtml)
-- 2026-06-30 05:12 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/51685586990.shtml)
-- 2026-06-30 05:18 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/03879784899.shtml)
+- 2026-06-30 05:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/96592122150.shtml)
+- 2026-06-30 05:15 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/6736231.shtml)
+- 2026-06-30 05:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/0172154.shtml)
+- 2026-06-30 05:15 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/8464312786.shtml)
+- 2026-06-30 05:24 - [逃狱兄弟](http://www.blog.minike.top/Article/details/63342273.shtml)
+- 2026-06-30 05:01 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/559080460.shtml)
+- 2026-06-30 05:27 - [毒液2](http://www.share.kurohicncr.top/Article/details/027736604.shtml)
+- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/68300955330.shtml)
+- 2026-06-30 05:06 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/39441414588.shtml)
+- 2026-06-30 05:17 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/027290.shtml)
+- 2026-06-30 05:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/0262969694.shtml)
+- 2026-06-30 05:04 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/47834653.shtml)
+- 2026-06-30 05:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/3985920.shtml)
+- 2026-06-30 05:11 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/37686342515.shtml)
+- 2026-06-30 05:02 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/6345262429.shtml)

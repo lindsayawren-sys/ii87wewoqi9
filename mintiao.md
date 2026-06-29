@@ -1,45 +1,57 @@
-# 牧原股份将于6月22日派发末期股息每10股4.882869港元
+# 台商黄武勇在江西泰和台湾风情度假村打造“台湾知识馆”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-牧原股份（02714）发布公告，将于2026年6月22日派发截至2025年12月31日止年度的末期股息每10股4.882869港元。责任编辑：卢昱君
+发布时间：2026年05月22日 13:04 来源：中国新闻网 5月20日，江西吉安泰和县桃源度假村内的台湾知识馆迎来了数十名小学生的参观游览，向同学们介绍馆内展陈的正是该馆的创办人——台商黄武勇。 1997年，台湾桃园人黄武勇只身来到江西吉安泰和县投资兴业，在事业上取得了一番成就之后，他积极推动两岸交流。2011年4月，由他投资建设的桃源度假村开业迎客，具有浓郁台湾风情，成为
 
 ## 正文
 
-牧原股份（02714）发布公告，将于2026年6月22日派发截至2025年12月31日止年度的末期股息每10股4.882869港元。
+发布时间：2026年05月22日 13:04 来源：中国新闻网 5月20日，江西吉安泰和县桃源度假村内的台湾知识馆迎来了数十名小学生的参观游览，向同学们介绍馆内展陈的正是该馆的创办人——台商黄武勇。
 
-责任编辑：卢昱君
+1997年，台湾桃园人黄武勇只身来到江西吉安泰和县投资兴业，在事业上取得了一番成就之后，他积极推动两岸交流。
+
+2011年4月，由他投资建设的桃源度假村开业迎客，具有浓郁台湾风情，成为当地推广台湾文化的一扇窗口。
+
+2025年，黄武勇又在桃源度假村打造了江西省内首个以台湾文化为主题的台湾知识馆，系统展示了台湾与大陆同根同源的历史渊源、一脉相承的传统文化，以及两岸交流合作的成果。
+
+馆内还通过历史文献、民俗展品、互动体验等多种形式，让参观者能够沉浸式感受到两岸一家亲的深厚情谊。
+
+这也是他回馈社会的一种形式。
+
+在台湾知识馆一旁的草地上，还矗立着一块形似台湾地图的大石头。
+
+黄武勇介绍，这是他在一次偶然在泰和游玩时发现的，成为度假村里连接两岸的“信物”。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 05:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 05:03 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 04:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 05:02 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:06 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 05:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 05:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 04:54 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 05:00 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 05:04 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:19 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 05:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 05:15 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 05:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 05:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 05:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 05:13 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 05:28 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 05:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 05:09 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/1461538248.shtml)
-- 2026-06-30 04:59 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/108191019.shtml)
-- 2026-06-30 05:05 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/532639993.shtml)
-- 2026-06-30 05:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/451659.shtml)
-- 2026-06-30 05:22 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/65491787.shtml)
-- 2026-06-30 05:17 - [乔家的儿女](http://www.blog.minike.top/Article/details/888604.shtml)
-- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/42541084190.shtml)
-- 2026-06-30 05:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/298706764910.shtml)
-- 2026-06-30 05:17 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/9819885.shtml)
-- 2026-06-30 05:00 - [一见倾心](https://www.share.minike.top/Article/details/623144126838.shtml)
-- 2026-06-30 04:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/3549691726.shtml)
-- 2026-06-30 05:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/80458.shtml)
-- 2026-06-30 05:21 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/675541.shtml)
-- 2026-06-30 05:23 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/057593189.shtml)
-- 2026-06-30 05:21 - [起风了](https://www.share.kurohicncr.top/Article/details/49052.shtml)
+- 2026-06-30 05:24 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/6625697656.shtml)
+- 2026-06-30 05:28 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/2053396.shtml)
+- 2026-06-30 05:07 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/512964348.shtml)
+- 2026-06-30 05:01 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/35426774.shtml)
+- 2026-06-30 05:05 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/474657483073.shtml)
+- 2026-06-30 05:23 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/13395858033.shtml)
+- 2026-06-30 05:04 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/240695120.shtml)
+- 2026-06-30 05:05 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/2444757080.shtml)
+- 2026-06-30 05:20 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/291525.shtml)
+- 2026-06-30 05:22 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/79447.shtml)
+- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/496131440.shtml)
+- 2026-06-30 05:20 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/770035897559.shtml)
+- 2026-06-30 05:12 - [世界杯](https://www.share.minike.top/Article/details/378937.shtml)
+- 2026-06-30 05:09 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/59280721.shtml)
+- 2026-06-30 05:17 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/718082394721.shtml)

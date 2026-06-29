@@ -1,61 +1,59 @@
-# 安徽“十五五”计划新增城镇就业340万人左右
+# 天天学习｜一叶茶香 四重深意
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新网合肥5月15日电 (记者 张俊)记者15日从开局起步“十五五”安徽专场新闻发布会上获悉，安徽坚持“政府过紧日子，百姓过好日子”，“十五五”期间，计划新增城镇就业340万人左右，构建就业友好型发展方式。 “十五五”时期，安徽将制定务实管用、有力有效的城乡居民增收实施方案，分城乡、区域、群体提出针对性举措，提高居民工资性、经营性、财产性、转移性“四项收入”。 在保障困难群体生
+小小一片茶叶，在习近平总书记心中有着很重的分量。 在福建坦洋的薄雾里，它记录了一位年轻干部走村入户的足迹；在浙江余村的绿水青山间，它见证一个村庄从“卖石头”到“卖风景”的华丽转变；在陕西平利的山坡上，它托起一方百姓的小康梦想；在外交舞台上，它向世界传递和而不同的中国智慧。 国际茶日到来之际，让我们循着总书记的足迹，品读一叶茶香背后的深意。 上世纪80年代，习近平在福建宁德工作期
 
 ## 正文
 
-中新网合肥5月15日电 (记者 张俊)记者15日从开局起步“十五五”安徽专场新闻发布会上获悉，安徽坚持“政府过紧日子，百姓过好日子”，“十五五”期间，计划新增城镇就业340万人左右，构建就业友好型发展方式。
+小小一片茶叶，在习近平总书记心中有着很重的分量。
 
-“十五五”时期，安徽将制定务实管用、有力有效的城乡居民增收实施方案，分城乡、区域、群体提出针对性举措，提高居民工资性、经营性、财产性、转移性“四项收入”。
+在福建坦洋的薄雾里，它记录了一位年轻干部走村入户的足迹；在浙江余村的绿水青山间，它见证一个村庄从“卖石头”到“卖风景”的华丽转变；在陕西平利的山坡上，它托起一方百姓的小康梦想；在外交舞台上，它向世界传递和而不同的中国智慧。
 
-在保障困难群体生活方面，安徽将精准分类、分步实施，提高孤儿基本生活保障、“残独”“失独”家庭扶助金，加大残疾人“两项补贴”财政投入，提升兜底保障水平。
+国际茶日到来之际，让我们循着总书记的足迹，品读一叶茶香背后的深意。
 
-就业是最基本的民生。
+上世纪80年代，习近平在福建宁德工作期间，坦洋村是他的农村党建联系点。
 
-安徽将推动产业、创业、就业“三业联动”，实施稳岗扩容提质、“家门口”就业等专项行动。
+那时的坦洋，虽有坦洋工夫红茶的历史招牌，村民们却守着荒山过日子，人均年收入不足500元。
 
-“十五五”期间，安徽计划开展职业技能培训450万人次。
+1988年7月，刚刚履新宁德地委书记一个月，习近平就来到坦洋村调研。
 
-在改善人居环境上，安徽将推进生态环境治理攻坚，实施空气质量改善行动，全省域推进“无废城市”建设，提升污水收集处理效能，整治“家门口”环境问题。
+在同干部群众座谈时，见村支书拿出事先拟好的书面材料准备汇报，他摆摆手微笑着说：“不用念材料，我来问，你来答就好了。
 
-今年将重点推进生活垃圾分类提质增效，完善“投、收、运、处”全链条管理，力争年底基本完成地级市分类设施提标改造、县城住宅小区分类投放设施的全覆盖。
+” 现在种了多少亩茶？
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 04:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 05:03 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:10 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 05:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 05:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 04:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 05:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 05:20 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 05:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 05:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 05:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:22 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 04:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 05:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:26 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 05:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 05:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 05:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 05:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 05:05 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 05:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 05:21 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 05:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 05:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/3357190.shtml)
-- 2026-06-30 05:19 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/392475506.shtml)
-- 2026-06-30 05:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/697817.shtml)
-- 2026-06-30 05:11 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/128418.shtml)
-- 2026-06-30 05:18 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/387074416845.shtml)
-- 2026-06-30 04:59 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/5783199367.shtml)
-- 2026-06-30 04:55 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/800338377335.shtml)
-- 2026-06-30 05:01 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/672989098405.shtml)
-- 2026-06-30 05:21 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/25443258.shtml)
-- 2026-06-30 04:57 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/04726410.shtml)
-- 2026-06-30 05:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/3619706.shtml)
-- 2026-06-30 05:08 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/096605019858.shtml)
-- 2026-06-30 05:11 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/5138091328.shtml)
-- 2026-06-30 04:56 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/3548835241.shtml)
-- 2026-06-30 05:14 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/337873.shtml)
+- 2026-06-30 05:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/345981966.shtml)
+- 2026-06-30 05:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/48748.shtml)
+- 2026-06-30 05:27 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/9520523806.shtml)
+- 2026-06-30 05:18 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/906559720.shtml)
+- 2026-06-30 05:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/79569534.shtml)
+- 2026-06-30 05:07 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/06243646.shtml)
+- 2026-06-30 05:06 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/444185064.shtml)
+- 2026-06-30 05:05 - [恋与深空 日服](http://www.blog.minike.top/Article/details/18471.shtml)
+- 2026-06-30 05:13 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/9771788674.shtml)
+- 2026-06-30 05:24 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/64063903655.shtml)
+- 2026-06-30 05:26 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/730876070335.shtml)
+- 2026-06-30 05:11 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/49367361082.shtml)
+- 2026-06-30 05:15 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/30697898.shtml)
+- 2026-06-30 05:09 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/4459593652.shtml)
+- 2026-06-30 05:12 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/80637.shtml)

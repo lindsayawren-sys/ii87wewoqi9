@@ -1,49 +1,56 @@
-# 金力永磁获瑞银增持25.34万股 每股作价约19.92港元
+# 从“输血”到“造血” 临沂大学非遗传承“创演研”实践走出青春路径
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月7日，瑞银增持金力永磁（06680）25.34万股，每股作价19.9214港元，总金额约为504.81万港元。增持后最新持股数目约为1417.53万股，最新持股比例为6.04%。责任编辑：卢昱君
+中新网临沂5月21日电 当“拉魂腔”不再拉得住年轻人的心，一门三百年历史的国家级非遗，还能否重获新生？ 中国国际大学生创新大赛(2025)获奖名单此前公布，山东临沂大学“创梨园”柳琴戏社团的“柳梦薪传——国家级非物质文化遗产柳琴戏保护与传承领航者”项目斩获铜奖。这支由“95后”“00后”大学生组成的团队，用一场“造血式”传承实验，给出了肯定的回答。 柳琴戏，源于清乾隆年间，唱腔
 
 ## 正文
 
-香港联交所最新资料显示，5月7日，瑞银增持金力永磁（06680）25.34万股，每股作价19.9214港元，总金额约为504.81万港元。
+中新网临沂5月21日电 当“拉魂腔”不再拉得住年轻人的心，一门三百年历史的国家级非遗，还能否重获新生？
 
-增持后最新持股数目约为1417.53万股，最新持股比例为6.04%。
+中国国际大学生创新大赛(2025)获奖名单此前公布，山东临沂大学“创梨园”柳琴戏社团的“柳梦薪传——国家级非物质文化遗产柳琴戏保护与传承领航者”项目斩获铜奖。
 
-责任编辑：卢昱君
+这支由“95后”“00后”大学生组成的团队，用一场“造血式”传承实验，给出了肯定的回答。
+
+柳琴戏，源于清乾隆年间，唱腔婉转、一唱三叹，被鲁南苏北民众称为“拉魂腔”。
+
+随着时代变迁，观众流失、人才断代，这门古老剧种一度面临“失魂”危机。
+
+传统保护多依赖财政补贴与抢救式记录，如同“输血”，难以长久。
+
+临沂大学创梨园柳琴戏社团依托教育部中华优秀传统文化传承基地(柳琴戏)、国家革命文物协同研究中心等平台，探索出“创演研一体”为核心驱动、“课程培训—剧目演出—IP文创”三位一体的“造血式”传承模式。
+
+社团由临沂大学音乐学院主导，依托教育部2020年设立的柳琴戏传承基地，省级非遗代表性传承人如刘桂红、梁福生担任特聘教授指导。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 05:17 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 05:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 05:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 05:02 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 05:14 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 04:57 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 05:04 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 04:56 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 05:14 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 05:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 05:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 05:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:04 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 05:01 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 05:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 05:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 05:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 05:12 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 05:06 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 05:27 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/461335859.shtml)
-- 2026-06-30 04:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/783875479481.shtml)
-- 2026-06-30 05:06 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/3598025823.shtml)
-- 2026-06-30 05:15 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9432773803.shtml)
-- 2026-06-30 05:21 - [日本 高位逼抢](http://www.share.minike.top/Article/details/1246958.shtml)
-- 2026-06-30 05:01 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/2171386.shtml)
-- 2026-06-30 05:01 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/77117778281.shtml)
-- 2026-06-30 04:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/391203993.shtml)
-- 2026-06-30 05:12 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/70565222.shtml)
-- 2026-06-30 05:05 - [金牌调解](http://www.share.minike.top/Article/details/041978963596.shtml)
-- 2026-06-30 04:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/36756064211.shtml)
-- 2026-06-30 05:22 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/554946556273.shtml)
-- 2026-06-30 05:15 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/7010933632.shtml)
-- 2026-06-30 05:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/8235323.shtml)
-- 2026-06-30 04:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/92175441535.shtml)
+- 2026-06-30 05:09 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/713156030243.shtml)
+- 2026-06-30 05:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/16815725812.shtml)
+- 2026-06-30 05:29 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/732482.shtml)
+- 2026-06-30 05:27 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/8093803.shtml)
+- 2026-06-30 05:06 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/898012404652.shtml)
+- 2026-06-30 05:12 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/5124289.shtml)
+- 2026-06-30 05:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/50382312903.shtml)
+- 2026-06-30 05:18 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/9322057195.shtml)
+- 2026-06-30 05:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/41893040896.shtml)
+- 2026-06-30 05:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/10316136384.shtml)
+- 2026-06-30 05:07 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/67383894181.shtml)
+- 2026-06-30 05:22 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/068133485303.shtml)
+- 2026-06-30 05:26 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/050384.shtml)
+- 2026-06-30 05:10 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/330465.shtml)
+- 2026-06-30 05:26 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/65212.shtml)

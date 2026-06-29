@@ -1,53 +1,58 @@
-# 中金：阿里巴巴-W维持跑赢行业评级 目标价172港元
+# 第一观察·瞬间｜光影记录中俄友谊故事
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中金发布研报称，目前阿里巴巴-W（09988）港股交易于25倍FY27和15倍FY28非通用准则市盈率，阿里巴巴（BABA.US）美股交易于24倍FY27和15倍FY28非通用准则市盈率。该行下调FY27和FY28收入3%和4%至11474亿元和13010亿元，系CMR会计口径调整；上调FY27和FY28 non-GAAP净利润预测9%和5%至911亿元和1471亿元，系云计算
+5月20日，新华社记者的镜头定格下这样一个瞬间—— 国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。 时空长廊中的璀璨光影，讲述着新时代中俄友谊的精彩故事。 在新华社、塔斯社记者拍摄的26张照片前，中俄元首驻足仔细观看，愉快忆及两国近年来友好交往合作的历程。 步入图片展现场，首先映入眼帘的，是这张拍摄于整整12年前的照片。 2
 
 ## 正文
 
-中金发布研报称，目前阿里巴巴-W（09988）港股交易于25倍FY27和15倍FY28非通用准则市盈率，阿里巴巴（BABA.US）美股交易于24倍FY27和15倍FY28非通用准则市盈率。
+5月20日，新华社记者的镜头定格下这样一个瞬间—— 国家主席习近平同俄罗斯总统普京在北京人民大会堂共同参观“传承中俄世代友好 树立大国关系典范”图片展。
 
-该行下调FY27和FY28收入3%和4%至11474亿元和13010亿元，系CMR会计口径调整；上调FY27和FY28 non-GAAP净利润预测9%和5%至911亿元和1471亿元，系云计算利润率提升和闪购优化UE。
+时空长廊中的璀璨光影，讲述着新时代中俄友谊的精彩故事。
 
-该行采用SOTP估值，基于FY27给予电商业务（不含闪购）8x P/E和云计算业务8x P/S，维持港股和美股目标价172港币和178美元，维持跑赢行业评级，较目前港股和美股股价有30%和32%的上行空间。
+在新华社、塔斯社记者拍摄的26张照片前，中俄元首驻足仔细观看，愉快忆及两国近年来友好交往合作的历程。
 
-责任编辑：卢昱君
+步入图片展现场，首先映入眼帘的，是这张拍摄于整整12年前的照片。
+
+2014年5月20日，上海西郊会议中心广场，习近平主席为普京总统举行欢迎仪式。
+
+两国元首微笑着并肩前行。
+
+光影长卷，是中俄两国元首密切交往的珍贵见证—— 从上海到乌法，从莫斯科到北京，从双边会晤到多边会议，有见面相聚，也有视频连线……一张张图片记录着两位领导人一次次并肩前行、一次次双手紧握、一次次亲切交流，生动呈现老朋友之间的深厚友谊。
+
+“这些年，我们进行了多次会面，每一次交流都坦诚深入、富有成果。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 05:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 04:54 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 05:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 05:12 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 05:07 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 05:21 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 05:02 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:06 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 04:59 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 04:55 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 05:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 05:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 05:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 05:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 05:29 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 05:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 05:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 05:22 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 05:25 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 05:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 05:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 05:22 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 05:20 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 05:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/128711028.shtml)
-- 2026-06-30 05:10 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/076658.shtml)
-- 2026-06-30 05:01 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/229272.shtml)
-- 2026-06-30 05:14 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/897007.shtml)
-- 2026-06-30 05:15 - [千与千寻](https://www.share.kurohicncr.top/Article/details/135002.shtml)
-- 2026-06-30 05:13 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/483236449397.shtml)
-- 2026-06-30 05:15 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/1895192.shtml)
-- 2026-06-30 05:16 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/305718751489.shtml)
-- 2026-06-30 04:58 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/573942.shtml)
-- 2026-06-30 05:01 - [千香](https://www.share.kurohicncr.top/Article/details/50310480.shtml)
-- 2026-06-30 05:17 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/124846.shtml)
-- 2026-06-30 05:12 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/90181984256.shtml)
-- 2026-06-30 05:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/4011160.shtml)
-- 2026-06-30 05:08 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/81697.shtml)
-- 2026-06-30 05:10 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/3405634.shtml)
+- 2026-06-30 05:06 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/82695370.shtml)
+- 2026-06-30 05:18 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/780814.shtml)
+- 2026-06-30 05:24 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/160674416149.shtml)
+- 2026-06-30 05:25 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/13889542.shtml)
+- 2026-06-30 05:18 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/55205767884.shtml)
+- 2026-06-30 05:04 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/39702204.shtml)
+- 2026-06-30 05:10 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/917207979.shtml)
+- 2026-06-30 05:11 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/5501452.shtml)
+- 2026-06-30 05:20 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/7871436937.shtml)
+- 2026-06-30 05:14 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/87195291427.shtml)
+- 2026-06-30 05:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/5938261572.shtml)
+- 2026-06-30 05:16 - [苗族银饰](https://www.blog.minike.top/Article/details/47005.shtml)
+- 2026-06-30 05:24 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/6538321166.shtml)
+- 2026-06-30 05:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/558710191863.shtml)
+- 2026-06-30 05:01 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/148738012286.shtml)

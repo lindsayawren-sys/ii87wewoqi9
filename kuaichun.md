@@ -1,59 +1,61 @@
-# 部分品牌宣传越过科学边界 牙膏买的是功效还是营销
+# 一年涨价三倍！存储芯片“老兵”退场，谁在接盘？
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-网红牙膏品牌递交上市申请，功效性牙膏市场份额显著提升—— 你的牙膏，买的是功效还是营销？ 本报记者 李晨琰 前不久，网红牙膏品牌“参半”的母公司深圳小阔科技股份有限公司向港交所递交上市申请，剑指“港股口腔护理第一股”。瞄准Z世代审美与高密度流量推广策略，“参半”牙膏迅速跻身新消费明星产品行列。中研普华产业研究院统计数据显示，预计到2030年，我国牙膏市场规模将突破600亿元。从
+21世纪经济报道记者 骆轶琪 在全球争夺AI基础设施产能背景下，越来越多存储芯片品类开始面临紧俏行情，产能转移造成的供需缺口正在持续放大。 在三星、铠侠、美光等国际大厂集体退出MLC（Multi-Level Cell，多层单元）NAND闪存市场的背景下，这一曾经不起眼的“老兵”，产品价格近期暴涨300%。由此造成的供应缺口，正对汽车电子、工业控制、医疗设备等产业造成潜在影响。
 
 ## 正文
 
-网红牙膏品牌递交上市申请，功效性牙膏市场份额显著提升—— 你的牙膏，买的是功效还是营销？
+21世纪经济报道记者 骆轶琪 在全球争夺AI基础设施产能背景下，越来越多存储芯片品类开始面临紧俏行情，产能转移造成的供需缺口正在持续放大。
 
-本报记者 李晨琰 前不久，网红牙膏品牌“参半”的母公司深圳小阔科技股份有限公司向港交所递交上市申请，剑指“港股口腔护理第一股”。
+在三星、铠侠、美光等国际大厂集体退出MLC（Multi-Level Cell，多层单元）NAND闪存市场的背景下，这一曾经不起眼的“老兵”，产品价格近期暴涨300%。
 
-瞄准Z世代审美与高密度流量推广策略，“参半”牙膏迅速跻身新消费明星产品行列。
+由此造成的供应缺口，正对汽车电子、工业控制、医疗设备等产业造成潜在影响。
 
-中研普华产业研究院统计数据显示，预计到2030年，我国牙膏市场规模将突破600亿元。
+NAND行业的发展规律是通过纵向堆叠来进行扩容，MLC正如其名，一般采用二维平面堆叠方式，也就是2D NAND。
 
-从产品结构看，中高端产品占比已超40%，其中功效性牙膏市场份额显著提升。
+目前行业主流已经迭代到TLC（Triple-Level Cell，三层单元）和QLC（Quad-Level Cell，四层单元）阶段，也就是进入3D NAND维度。
 
-放眼市场，宣称具有美白、抗敏、修复等功效的牙膏价格水涨船高。
+因此不难发现，上游存储供应商决定将MLC逐渐停产，有基于产品自身迭代的因素考量，也有将更多产能留给更高利润空间的考虑。
 
-面对眼花缭乱的产品，消费者买的究竟是实实在在的功效，还是被精心包装的营销？
+随着海外大厂陆续停产，也为国内产业链厂商带来一定发展机会。
 
-部分品牌的宣传已越过科学边界 公开资料显示，小阔科技成立于2015年，2018年推出“参半”品牌。
+涨价传导，供应断层 上游存储原厂在整体产能有限条件下，正退出一些薄利市场，MLC NAND就在此之列。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 05:13 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 05:00 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 05:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 05:02 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 05:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 05:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 05:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 05:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 05:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 04:54 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 05:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 05:24 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 05:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 05:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 05:22 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 05:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:10 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 05:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:26 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 05:24 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 05:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 05:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 05:14 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/509837.shtml)
-- 2026-06-30 05:01 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/49310.shtml)
-- 2026-06-30 05:00 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/62328844.shtml)
-- 2026-06-30 05:21 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/889159567.shtml)
-- 2026-06-30 04:57 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/9536305294.shtml)
-- 2026-06-30 04:55 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/7091156584.shtml)
-- 2026-06-30 05:07 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/620655813.shtml)
-- 2026-06-30 04:54 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/746991487717.shtml)
-- 2026-06-30 04:57 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8464095.shtml)
-- 2026-06-30 04:56 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/754422298187.shtml)
-- 2026-06-30 05:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/52320796790.shtml)
-- 2026-06-30 05:09 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8323137.shtml)
-- 2026-06-30 05:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/6650320883.shtml)
-- 2026-06-30 05:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/568473795792.shtml)
-- 2026-06-30 04:58 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/64928619.shtml)
+- 2026-06-30 05:18 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/3061121.shtml)
+- 2026-06-30 05:26 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/899767.shtml)
+- 2026-06-30 05:12 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/236196.shtml)
+- 2026-06-30 05:28 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/361928502.shtml)
+- 2026-06-30 05:07 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/12786876.shtml)
+- 2026-06-30 05:03 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/938416084214.shtml)
+- 2026-06-30 05:26 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/317078212.shtml)
+- 2026-06-30 05:24 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/102358758126.shtml)
+- 2026-06-30 05:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/6378155935.shtml)
+- 2026-06-30 05:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/556840646845.shtml)
+- 2026-06-30 05:19 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/482367.shtml)
+- 2026-06-30 05:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/79333424.shtml)
+- 2026-06-30 05:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/86664135.shtml)
+- 2026-06-30 05:15 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/73684047517.shtml)
+- 2026-06-30 05:00 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/52530253.shtml)

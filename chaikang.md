@@ -1,59 +1,48 @@
-# 深夜，直线拉升！一则消息，突然引爆！
+# 120名蒙古国白内障患者来华“光明行”
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-英伟达持仓概念股，集体异动！ 北京时间13日晚间，英伟达持仓概念股集体拉升。截至发稿，AI云公司Nebius涨超14%，迈威尔科技涨超9%，光通信企业Lumentum、Coherent涨超4%，康宁微涨超2%。市场分析人士指出，上述个股走高，可能是受到了英伟达相关利好消息的提振。 另外，Nebius的大涨也跟其最新披露的财报有关。数据显示，Nebius第一季度营收为3.99亿美
+发布时间：2026年05月21日 13:53 来源：中国新闻网 近日，120位蒙古国白内障患者在中蒙两国红十字会工作人员的帮助下，顺利入境中国。得益于2026年“一带一路·光明行”蒙古国行动，他们将在二连浩特接受手术。 “一带一路·光明行”蒙古国行动启动于2019年，是中蒙两国红十字会等共同打造的跨国人道主义合作品牌项目，截至目前，已成功实施免费白内障复明手术645例。 (奥蓝
 
 ## 正文
 
-英伟达持仓概念股，集体异动！
+发布时间：2026年05月21日 13:53 来源：中国新闻网 近日，120位蒙古国白内障患者在中蒙两国红十字会工作人员的帮助下，顺利入境中国。
 
-北京时间13日晚间，英伟达持仓概念股集体拉升。
+得益于2026年“一带一路·光明行”蒙古国行动，他们将在二连浩特接受手术。
 
-截至发稿，AI云公司Nebius涨超14%，迈威尔科技涨超9%，光通信企业Lumentum、Coherent涨超4%，康宁微涨超2%。
+“一带一路·光明行”蒙古国行动启动于2019年，是中蒙两国红十字会等共同打造的跨国人道主义合作品牌项目，截至目前，已成功实施免费白内障复明手术645例。
 
-市场分析人士指出，上述个股走高，可能是受到了英伟达相关利好消息的提振。
-
-另外，Nebius的大涨也跟其最新披露的财报有关。
-
-数据显示，Nebius第一季度营收为3.99亿美元，同比增长684%，超出市场预期。
-
-有分析师预计，Nebius将在今年年底前大幅提升其数据中心容量，可能会推动其收入强劲增长。
-
-当晚，美股三大指数涨跌不一，但在美上市的中国资产大幅拉升，纳斯达克中国金龙指数大涨超4%。
+(奥蓝 王军 牡丹 制作 崔博群 视频来源 二连浩特市融媒体中心） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 05:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 05:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 05:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 05:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 04:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 05:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 05:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 05:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 05:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 05:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 05:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:07 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 05:12 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 05:03 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 05:09 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 05:14 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 05:20 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 05:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 05:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/7089344.shtml)
-- 2026-06-30 04:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/404926335622.shtml)
-- 2026-06-30 05:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/578367086930.shtml)
-- 2026-06-30 05:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/422732.shtml)
-- 2026-06-30 05:15 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/40442.shtml)
-- 2026-06-30 05:10 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/746898110.shtml)
-- 2026-06-30 05:07 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/085611546937.shtml)
-- 2026-06-30 05:04 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/23986292.shtml)
-- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/35876028510.shtml)
-- 2026-06-30 04:58 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/86876.shtml)
-- 2026-06-30 04:57 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/953071578.shtml)
-- 2026-06-30 05:16 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/46668.shtml)
-- 2026-06-30 05:15 - [美股](https://www.blog.minike.top/Article/details/886573068707.shtml)
-- 2026-06-30 05:10 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/019748.shtml)
-- 2026-06-30 05:10 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/230536002.shtml)
+- 2026-06-30 05:06 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/96490075992.shtml)
+- 2026-06-30 05:05 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5139803007.shtml)
+- 2026-06-30 05:00 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/43702581280.shtml)
+- 2026-06-30 05:00 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/054593428598.shtml)
+- 2026-06-30 05:03 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/22185183919.shtml)
+- 2026-06-30 05:18 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/597092384.shtml)
+- 2026-06-30 05:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/47430439.shtml)
+- 2026-06-30 05:01 - [《共患难》](https://www.share.minike.top/Article/details/1733000.shtml)
+- 2026-06-30 05:06 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/021700005272.shtml)
+- 2026-06-30 05:27 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/502966.shtml)
+- 2026-06-30 05:23 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/357542011.shtml)
+- 2026-06-30 05:04 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/7253571.shtml)
+- 2026-06-30 05:12 - [女心理师](http://www.share.minike.top/Article/details/840280.shtml)
+- 2026-06-30 05:08 - [日本进球](http://www.share.minike.top/Article/details/94827.shtml)
+- 2026-06-30 05:03 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/41734179997.shtml)

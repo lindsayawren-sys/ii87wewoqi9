@@ -1,60 +1,61 @@
-# 光大期货：5月15日软商品日报
+# 邦达亚洲:美元走高油价回落 美元加元小幅收涨
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026年4月份巴西出口至中国的原糖数量为3.98万吨，同比减少10.99万吨。2026年1-4月巴西出口至中国的原糖数量为15.63万吨，同比减少23.65万吨。25/26榨季截至4月底巴西累计出口至中国的原糖数量为160.34万吨，同比增加64.15万吨。现货报价方面，广西制糖集团
+5月22日，根据美国劳工部周四公布的数据，在截至5月16日的一周内，初请失业金人数减少了3000人，降至20.9万人。对经济学家进行的一项调查得出的预测中位数为21万人。上周美国申请失业救济的人数变化不大，这表明尽管近期有一些裁员消息宣布，但裁员规模依然处于低位。数据公布之后，利率期货交易员们对于美联储今年重启降息前景的预期可谓进一步削弱，几乎100%定价今年按兵不动（既不加息
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026年4月份巴西出口至中国的原糖数量为3.98万吨，同比减少10.99万吨。
+5月22日，根据美国劳工部周四公布的数据，在截至5月16日的一周内，初请失业金人数减少了3000人，降至20.9万人。
 
-2026年1-4月巴西出口至中国的原糖数量为15.63万吨，同比减少23.65万吨。
+对经济学家进行的一项调查得出的预测中位数为21万人。
 
-25/26榨季截至4月底巴西累计出口至中国的原糖数量为160.34万吨，同比增加64.15万吨。
+上周美国申请失业救济的人数变化不大，这表明尽管近期有一些裁员消息宣布，但裁员规模依然处于低位。
 
-现货报价方面，广西制糖集团报价区间5430~5510元/吨，部分上调10~30元/吨。
+数据公布之后，利率期货交易员们对于美联储今年重启降息前景的预期可谓进一步削弱，几乎100%定价今年按兵不动（既不加息也不降息的维系基准利率不变立场）并且对于12月加息定价的概率基准一度接近50%。
 
-原糖因市场预期巴西压榨进度较快，入榨蔗、产糖量方面均有大幅增长，期价受到抑制大幅下行，7月合约再度回到15美分/磅附近，后期保持震荡思路，除了关注巴西压榨进度也需关注原油的影响。
+作为领取失业救济人数替代指标的连续申请失业救济人数，在此前一周小幅上升至178万人。
 
-国内昨日大宗商品普遍调整，白糖期价下行，未来关注持仓变化情况，预计延续高位震荡，可静待中期布局空单建仓机会。
+另外，在美伊战火引发油价飙升，从而引爆通胀再抬头的担忧下，不仅市场彻底放弃降息希望暗暗担忧“加息噩梦”，美联储官员近期也频频“放鹰”暗示潜在的加息。
 
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉下跌3.28%，报收83.96美分/磅，郑棉主力合约环比下跌0.24%，报收16435元/吨，主力合约持仓环比增加2265手至80.34万手，棉花3128B现货价格指数17580元/吨，较前一日上涨20元/吨。
+不过，里士满联储主席托马斯·巴尔金发表了不一样的观点。
 
-国际市场方面，USDA5月报发布，预计2026~27年度美棉播种面积964万英亩，产量约290万吨，低于此前市场预期。
+他周四表示，提高利率可能不是当前形势的正确做法，如果长期通胀预期没有上升，美联储可能会对油价飙升视而不见。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 05:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 05:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 05:23 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 05:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 05:05 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 05:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 05:09 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 05:05 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 05:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 05:01 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 05:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 05:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 05:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 05:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 05:05 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 05:03 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 05:17 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 05:15 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 05:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 05:23 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 05:01 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 05:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 05:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 05:07 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 05:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:05 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/641812092.shtml)
-- 2026-06-30 05:09 - [一生一世](https://www.blog.minike.top/Article/details/5401914.shtml)
-- 2026-06-30 05:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/61404239.shtml)
-- 2026-06-30 05:19 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/544831980226.shtml)
-- 2026-06-30 05:12 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/3779730013.shtml)
-- 2026-06-30 05:12 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/393147948453.shtml)
-- 2026-06-30 05:10 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/3181543.shtml)
-- 2026-06-30 05:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/16204977.shtml)
-- 2026-06-30 05:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/42499.shtml)
-- 2026-06-30 05:08 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/009411604.shtml)
-- 2026-06-30 05:18 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/3502305.shtml)
-- 2026-06-30 05:05 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/59162239302.shtml)
-- 2026-06-30 05:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/92775.shtml)
-- 2026-06-30 05:08 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/414286.shtml)
-- 2026-06-30 05:07 - [金刚川](https://www.share.minike.top/Article/details/23551760966.shtml)
+- 2026-06-30 05:06 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/702190197254.shtml)
+- 2026-06-30 05:26 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/58962576.shtml)
+- 2026-06-30 05:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/03056920647.shtml)
+- 2026-06-30 05:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/24319216.shtml)
+- 2026-06-30 05:17 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/57457.shtml)
+- 2026-06-30 05:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/851461264846.shtml)
+- 2026-06-30 05:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/878760582034.shtml)
+- 2026-06-30 05:28 - [流金岁月](http://www.share.minike.top/Article/details/842049892.shtml)
+- 2026-06-30 05:13 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/58822.shtml)
+- 2026-06-30 05:24 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/486016.shtml)
+- 2026-06-30 05:09 - [巴西绝杀日本](https://www.share.minike.top/Article/details/4887987.shtml)
+- 2026-06-30 05:17 - [勇敢的心第二部](https://www.share.minike.top/Article/details/33271.shtml)
+- 2026-06-30 05:29 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/30382406319.shtml)
+- 2026-06-30 05:01 - [世界杯](http://www.blog.minike.top/Article/details/67231429506.shtml)
+- 2026-06-30 05:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/04889599.shtml)

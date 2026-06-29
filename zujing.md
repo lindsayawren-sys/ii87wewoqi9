@@ -1,57 +1,58 @@
-# 2026年APEC妇女与经济论坛在上海举行
+# 中国生物多样性“家底”2026版发布 共收录物种及种下单元168871个
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-中新社上海5月15日电 (记者 陈静)2026年APEC妇女与经济论坛15日起在上海举行，由全国妇联与上海市人民政府合办，主题为“推动妇女经济赋权，促进亚太共同繁荣”。论坛举办高级别政策对话会及公共与私营部门对话会，为各方交流合作提供平台。论坛系APEC“中国年”首场部长级会议，APEC成员经济体政府部门、工商界、学界，APEC秘书处及相关组织代表200余人出席。论坛举办高级别
+中新网北京5月22日电 (记者 孙自法)5月22日是国际生物多样性日，中国生物多样性的最新“家底”——《中国生物物种名录2026版》在北京正式发布，共收录物种及种下单元168871个，包括155266个物种及13605个种下单元，较2025版新增6154个物种及种下单元。 中国科学院生物多样性委员会当天在中国科学院植物研究所召开中国生物物种编目研讨会，发布《中国生物物种名录20
 
 ## 正文
 
-中新社上海5月15日电 (记者 陈静)2026年APEC妇女与经济论坛15日起在上海举行，由全国妇联与上海市人民政府合办，主题为“推动妇女经济赋权，促进亚太共同繁荣”。
+中新网北京5月22日电 (记者 孙自法)5月22日是国际生物多样性日，中国生物多样性的最新“家底”——《中国生物物种名录2026版》在北京正式发布，共收录物种及种下单元168871个，包括155266个物种及13605个种下单元，较2025版新增6154个物种及种下单元。
 
-论坛举办高级别政策对话会及公共与私营部门对话会，为各方交流合作提供平台。
+中国科学院生物多样性委员会当天在中国科学院植物研究所召开中国生物物种编目研讨会，发布《中国生物物种名录2026版》供全球用户自由下载使用。
 
-论坛系APEC“中国年”首场部长级会议，APEC成员经济体政府部门、工商界、学界，APEC秘书处及相关组织代表200余人出席。
+其收录的逾16.8万个物种及种下单元中，动物界新增3380个物种和477个种下单元；植物界新增431个物种，减少2个种下单元；真菌界新增3114个物种，减少1246个种下单元。
 
-论坛举办高级别政策对话会、公私部门对话会，发布《2026年APEC妇女与经济论坛主席声明》。
+2026版中国生物物种名录首次收录轮虫动物门(双巢纲、单巢纲)476种和节肢动物门弹尾纲734种；在昆虫纲下，新增蚤目10个科、膜翅目姬小蜂科、半翅目叶蝉科和鞘翅目拟步甲科等类群总计超过2000种；在脊索动物门方面，两栖纲新增48种，总数达到767种，爬行纲新增40种，总数达到731种；真菌方面，进行分类系统调整与更新，进一步扩大收录范围，新增超过1800种及种下单元。
 
-全国妇联表示，目前，中国女性正在以前所未有的自信和活力参与国家和社会治理全过程。
+中国是唯一每年都发布生物物种名录的国家，名录总下载量超过24 TB(太字节)，在线物种页面访问量超过2700万次，被中外期刊论文、专著引用超过1500次。
 
-要把握新一轮科技革命和产业变革机遇，以科技创新为妇女经济赋权创造条件；共建共赢生态，在促进亚太妇女合作上取得更多务实成果。
+中国科学院生物多样性委员会表示，中国生物物种名录的持续更新，既夯实了中国生物多样性“家底”，又切实将中国的《生物多样性公约》履约担当转化为惠及全球的公共产品。
 
-论坛希望凝聚各方共识，明确可行举措，助力女性把握新机遇、应对新挑战，实现共同发展、共享繁荣。
+展望未来，中国生物物种名录将继续依托数字化平台，推动物种信息在全球范围内的深度融合与共享，支撑全球生物多样性研究与保护决策。
 
-当日，记者了解到，面向未来，上海要大力推动科技创新和产业创新深度融合，加快构建现代化产业体系。
+据悉，《中国生物物种名录2026版》由中国科学院动物研究所牵头联合中国科学院植物研究所、微生物研究所、海洋研究所、成都生物研究所、昆明动物研究所等多家科研机构共同完成，并得到中国科学院战略生物资源计划和国家基础学科公共科学数据中心的支持。
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 05:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 05:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 05:06 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 05:13 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 04:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:54 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 04:55 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 04:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 05:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 05:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 05:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 05:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 05:25 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 05:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 05:15 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 05:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 05:03 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 05:19 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 05:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 05:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/030174170162.shtml)
-- 2026-06-30 05:19 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/531810.shtml)
-- 2026-06-30 05:07 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/37898055.shtml)
-- 2026-06-30 05:16 - [起风了](http://www.share.minike.top/Article/details/88080019016.shtml)
-- 2026-06-30 04:56 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/3023194.shtml)
-- 2026-06-30 04:59 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/44471159.shtml)
-- 2026-06-30 05:07 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/9159516.shtml)
-- 2026-06-30 05:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/7719281.shtml)
-- 2026-06-30 05:13 - [恋与深空 日服](http://www.blog.minike.top/Article/details/21210.shtml)
-- 2026-06-30 05:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/65095.shtml)
-- 2026-06-30 04:54 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/786962.shtml)
-- 2026-06-30 04:57 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/4924100062.shtml)
-- 2026-06-30 05:01 - [《共患难》](http://www.share.kurohicncr.top/Article/details/748558719060.shtml)
-- 2026-06-30 05:10 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/140588174.shtml)
-- 2026-06-30 05:05 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/7733119.shtml)
+- 2026-06-30 05:02 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/009142.shtml)
+- 2026-06-30 05:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/257101028.shtml)
+- 2026-06-30 05:27 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/28933449.shtml)
+- 2026-06-30 05:21 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/31595.shtml)
+- 2026-06-30 05:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/459094821610.shtml)
+- 2026-06-30 05:20 - [刘念回应](https://www.share.kurohicncr.top/Article/details/433507493.shtml)
+- 2026-06-30 05:28 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/574179.shtml)
+- 2026-06-30 05:10 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/512055111.shtml)
+- 2026-06-30 05:17 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/850062826556.shtml)
+- 2026-06-30 05:16 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/8490041613.shtml)
+- 2026-06-30 05:13 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/880732804.shtml)
+- 2026-06-30 05:24 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/205946.shtml)
+- 2026-06-30 05:07 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/14174871.shtml)
+- 2026-06-30 05:03 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/01126.shtml)
+- 2026-06-30 05:26 - [扬名立万](https://www.share.minike.top/Article/details/583683.shtml)

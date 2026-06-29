@@ -1,46 +1,47 @@
-# 新华图讯丨习近平为美国总统特朗普举行欢迎仪式
+# 华夏银行丽水分行被罚38.35万元：违反金融统计管理规定等
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-5月14日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的美国总统特朗普举行欢迎仪式。 摄影：黄敬文 谢环驰 李响 殷博古 李涛 饶爱民 翟健岚 编辑：赖向东 刘欣 毕晓洋 虞东升 许睿
+5月21日金融一线消息，中国人民银行丽水市分行行政处罚决定信息公示表显示，华夏银行股份有限公司丽水分行因违反金融统计管理规定、违反数据安全管理规定、违反网络安全管理规定，被给予警告，并处罚款38.35万元。此外，该行综合管理部林某因对该行违反数据安全管理规定的违法行为负有责任，被处以1.5万元罚款。 责任编辑：王馨茹
 
 ## 正文
 
-5月14日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的美国总统特朗普举行欢迎仪式。
+5月21日金融一线消息，中国人民银行丽水市分行行政处罚决定信息公示表显示，华夏银行股份有限公司丽水分行因违反金融统计管理规定、违反数据安全管理规定、违反网络安全管理规定，被给予警告，并处罚款38.35万元。
 
-摄影：黄敬文 谢环驰 李响 殷博古 李涛 饶爱民 翟健岚 编辑：赖向东 刘欣 毕晓洋 虞东升 许睿
+此外，该行综合管理部林某因对该行违反数据安全管理规定的违法行为负有责任，被处以1.5万元罚款。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 05:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 05:05 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 05:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 05:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 05:09 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 05:24 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 05:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 05:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 05:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 05:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 05:01 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 05:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 05:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 05:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 05:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 05:23 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 05:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 05:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 05:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 05:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 05:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 05:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/17281179.shtml)
-- 2026-06-30 05:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/6814951436.shtml)
-- 2026-06-30 05:08 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/854450357847.shtml)
-- 2026-06-30 05:13 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/3588673.shtml)
-- 2026-06-30 05:16 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/5176542.shtml)
-- 2026-06-30 05:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8570886.shtml)
-- 2026-06-30 05:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/885687.shtml)
-- 2026-06-30 05:16 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/200222755.shtml)
-- 2026-06-30 05:19 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/558995751.shtml)
-- 2026-06-30 04:58 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/7788254199.shtml)
-- 2026-06-30 04:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/4092488070.shtml)
-- 2026-06-30 05:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/4950999.shtml)
-- 2026-06-30 05:02 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/545910290.shtml)
-- 2026-06-30 05:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/490342.shtml)
-- 2026-06-30 05:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/56953375.shtml)
+- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/70365678.shtml)
+- 2026-06-30 05:06 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/38789753.shtml)
+- 2026-06-30 05:08 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/71337479924.shtml)
+- 2026-06-30 05:09 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/24953755.shtml)
+- 2026-06-30 05:06 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/04022242.shtml)
+- 2026-06-30 05:01 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/4349692.shtml)
+- 2026-06-30 05:26 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/76741992.shtml)
+- 2026-06-30 05:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/359646762.shtml)
+- 2026-06-30 05:21 - [周生如故](http://www.blog.minike.top/Article/details/40235.shtml)
+- 2026-06-30 05:26 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/03609.shtml)
+- 2026-06-30 05:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/567816954016.shtml)
+- 2026-06-30 05:21 - [85花告别古偶](https://www.blog.minike.top/Article/details/091267291.shtml)
+- 2026-06-30 05:20 - [起风了](https://www.blog.minike.top/Article/details/9763348858.shtml)
+- 2026-06-30 05:16 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/62083.shtml)
+- 2026-06-30 05:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/8553895.shtml)

@@ -1,58 +1,59 @@
-# 大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望
+# Energy Aspects：石油市场距离短缺还有大约一个半月的时间
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-当前，全球科技股在AI浪潮的推动下不断创下新高。从北美云厂商的资本开支狂飙，到国产算力需求的指数级增长，再到存储芯片的超级周期，一轮由真实盈利驱动的科技景气周期正在展开。热潮之下，哪些方向仍有确定性？ “和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金基金经理彭凌志分享了对于科技板块的投资展望。 海外算力 资本开支超预期，中国制造不可替代 海外算力方面，核心逻辑在于
+Energy Aspects联合创始人兼研究主管Amrita Sen在接受媒体电视采访时表示，石油市场目前正处于严重供应不足之中，但尚未面临重大短缺。 市场目前正在消耗库存和战略储备，但Energy Aspects估计，如果霍尔木兹海峡继续关闭，短缺可能会在6月底开始显现。 “我们现在真的是勉强维持，正在消耗那些库存。” 她表示，全球炼油商买入量偏低，如果它们重新开始买入，市场
 
 ## 正文
 
-当前，全球科技股在AI浪潮的推动下不断创下新高。
+Energy Aspects联合创始人兼研究主管Amrita Sen在接受媒体电视采访时表示，石油市场目前正处于严重供应不足之中，但尚未面临重大短缺。
 
-从北美云厂商的资本开支狂飙，到国产算力需求的指数级增长，再到存储芯片的超级周期，一轮由真实盈利驱动的科技景气周期正在展开。
+市场目前正在消耗库存和战略储备，但Energy Aspects估计，如果霍尔木兹海峡继续关闭，短缺可能会在6月底开始显现。
 
-热潮之下，哪些方向仍有确定性？
+“我们现在真的是勉强维持，正在消耗那些库存。
 
-“和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金基金经理彭凌志分享了对于科技板块的投资展望。
+” 她表示，全球炼油商买入量偏低，如果它们重新开始买入，市场价格可能会过度上涨。
 
-海外算力 资本开支超预期，中国制造不可替代 海外算力方面，核心逻辑在于，AI需求的指数级增长与物理受限的供给之间形成了持续的缺口。
+她表示，不会出现全球性的油罐见底，但部分地区肯定会出现这种情况。
 
-从资本开支数据来看，2024年北美四大云厂商资本开支约2400亿美元，2025年增至4100亿美元，2026年进一步攀升至7100亿美元，市场预期明年可能逼近万亿美元。
+原油方面是亚洲部分地区，而美国成品油市场目前正朝这个方向快速发展。
 
-资本开支持续超预期，是海外算力最坚实的基本面支撑。
-
-同时，随着多家AI应用公司在过去三年中的高速增长，此前市场担心的“缺乏爆款应用”问题也正在被证伪。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 05:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 05:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 05:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 05:21 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 04:54 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 05:04 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 05:11 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 05:22 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 04:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 05:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:07 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 05:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:02 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 05:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 05:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 05:25 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 05:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 05:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:07 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 05:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 05:01 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 05:12 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 05:05 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 05:02 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/883209435167.shtml)
-- 2026-06-30 05:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/0041056.shtml)
-- 2026-06-30 04:59 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/22253586.shtml)
-- 2026-06-30 04:56 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/294689901.shtml)
-- 2026-06-30 05:06 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/5292760435.shtml)
-- 2026-06-30 05:12 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/90614.shtml)
-- 2026-06-30 05:05 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/785507503.shtml)
-- 2026-06-30 04:55 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/98243847.shtml)
-- 2026-06-30 05:08 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/286459.shtml)
-- 2026-06-30 05:08 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/56605.shtml)
-- 2026-06-30 05:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/803086665667.shtml)
-- 2026-06-30 04:54 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/466130.shtml)
-- 2026-06-30 05:15 - [人类...完蛋了...](https://www.share.minike.top/Article/details/763014.shtml)
-- 2026-06-30 05:14 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/9683600.shtml)
-- 2026-06-30 04:59 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/307595689.shtml)
+- 2026-06-30 05:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/98517354.shtml)
+- 2026-06-30 05:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/2790316.shtml)
+- 2026-06-30 05:25 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/26637.shtml)
+- 2026-06-30 05:10 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/22056.shtml)
+- 2026-06-30 05:17 - [请回答王牌2019](https://www.blog.minike.top/Article/details/931693313.shtml)
+- 2026-06-30 05:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/820224357452.shtml)
+- 2026-06-30 05:11 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/983056206.shtml)
+- 2026-06-30 05:06 - [爱很美味](http://www.share.kurohicncr.top/Article/details/35605.shtml)
+- 2026-06-30 05:25 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/815398205.shtml)
+- 2026-06-30 05:03 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/54769389831.shtml)
+- 2026-06-30 05:09 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/6962507.shtml)
+- 2026-06-30 05:24 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/67417.shtml)
+- 2026-06-30 05:22 - [千与千寻](http://www.blog.minike.top/Article/details/52139459.shtml)
+- 2026-06-30 05:01 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/12864.shtml)
+- 2026-06-30 05:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/174973173.shtml)

@@ -1,60 +1,60 @@
-# Nexon一季度业绩创新高 《ARC Raiders》销量突破1600万份
+# 日本日经225指数收涨逾3% 受科技股热潮及中东局势缓解提振 软银涨停
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-日本游戏巨头Nexon于5月14日公布截至2026年3月31日的第一季度财报。得益于旗舰IP《冒险岛》系列与新作《ARC Raiders》的强劲表现，公司多项核心财务指标均创下历史新高。 创纪录的季度业绩 财报显示，Nexon第一季度营收达1522亿日元，约合1.42万亿韩元，同比增长34%；营业利润为582亿日元，约合5426亿韩元，同比增长40%；净利润达572亿日元，约合
+日本日经指数周四录得两周来最大涨幅，受科技股热情重燃以及与伊朗战争相关的地缘政治紧张局势缓解提振。日经225指数上涨3.14%，收于61，684.14点，创下自5月7日以来的最大单日涨幅。东证股价指数上涨1.64%，收于3，853.81点。 日经指数追随美股涨势，此前人工智能龙头企业英伟达公布财报，作出的第二季营收预期超出华尔街估计，并宣布一项800亿美元的股票回购计划。 美国
 
 ## 正文
 
-日本游戏巨头Nexon于5月14日公布截至2026年3月31日的第一季度财报。
+日本日经指数周四录得两周来最大涨幅，受科技股热情重燃以及与伊朗战争相关的地缘政治紧张局势缓解提振。
 
-得益于旗舰IP《冒险岛》系列与新作《ARC Raiders》的强劲表现，公司多项核心财务指标均创下历史新高。
+日经225指数上涨3.14%，收于61，684.14点，创下自5月7日以来的最大单日涨幅。
 
-创纪录的季度业绩 财报显示，Nexon第一季度营收达1522亿日元，约合1.42万亿韩元，同比增长34%；营业利润为582亿日元，约合5426亿韩元，同比增长40%；净利润达572亿日元，约合5338亿韩元，同比暴增118%。
+东证股价指数上涨1.64%，收于3，853.81点。
 
-营收、营业利润及净利润均刷新单季历史纪录。
+日经指数追随美股涨势，此前人工智能龙头企业英伟达公布财报，作出的第二季营收预期超出华尔街估计，并宣布一项800亿美元的股票回购计划。
 
-公司表示，净利润的大幅增长还受益于145亿日元的汇兑收益，而去年同期录得42亿日元汇兑损失。
+美国总统特朗普表示结束伊朗战争的谈判已进入最后阶段，这缓解了市场对供应的担忧，受此影响，隔夜油价大幅下跌。
 
-核心IP与新作双轮驱动 《冒险岛》系列一季度营收同比增长42%，其中《冒险岛：闲置RPG》与《冒险岛世界》表现尤为突出。
+三星电子成功避免了可能扰乱韩国经济及全球芯片供应的罢工行动，此外有报道称OpenAI正筹备上市，这些消息也提振了投资者情绪。
 
-由瑞典子公司Embark Studios开发的射击游戏《ARC Raiders》自去年10月发售以来，全球累计销量已突破1600万份，一季度新增销量460万份，超过半数活跃用户游戏时长超过100小时。
+作为OpenAI及其他人工智能初创企业的重要投资者，软银集团涨停。
 
-海外收入占比升至62% 受益于《ARC Raiders》在欧美市场的成功，公司北美和欧洲地区销售额同比猛增310%，东南亚地区增长111%。
+“在三星电子避免罢工以及Nvidia业绩等利好因素带动下，市场由人工智能和半导体相关股票领涨，”野村证券股票策略师Wataru Akiyama说。
 
 ## 相关推荐
 
-- 2026-06-30 05:15 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 05:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 05:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 05:15 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 05:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:09 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 05:22 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 05:06 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 05:13 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 05:20 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 05:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 04:55 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 05:08 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 05:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 05:25 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 05:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 05:15 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 05:02 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 05:13 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 05:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 05:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 05:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 05:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 05:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/1979426.shtml)
-- 2026-06-30 05:01 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/17328921.shtml)
-- 2026-06-30 05:23 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/867273.shtml)
-- 2026-06-30 05:08 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/4946913.shtml)
-- 2026-06-30 04:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/15199010.shtml)
-- 2026-06-30 04:58 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/86074.shtml)
-- 2026-06-30 04:55 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/0909113211.shtml)
-- 2026-06-30 04:58 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/400333.shtml)
-- 2026-06-30 05:10 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/280595097.shtml)
-- 2026-06-30 05:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/076500932949.shtml)
-- 2026-06-30 05:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/51405467.shtml)
-- 2026-06-30 05:05 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/96674.shtml)
-- 2026-06-30 05:05 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/092228837084.shtml)
-- 2026-06-30 05:20 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/9301233.shtml)
-- 2026-06-30 05:20 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/623084895982.shtml)
+- 2026-06-30 05:19 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/267384933072.shtml)
+- 2026-06-30 05:15 - [啊啊啊](https://www.share.minike.top/Article/details/359522917069.shtml)
+- 2026-06-30 05:10 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/930151.shtml)
+- 2026-06-30 05:17 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/12718684.shtml)
+- 2026-06-30 05:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/64260003.shtml)
+- 2026-06-30 05:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/7537351.shtml)
+- 2026-06-30 05:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/34876387628.shtml)
+- 2026-06-30 05:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/526804023178.shtml)
+- 2026-06-30 05:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/780073.shtml)
+- 2026-06-30 05:20 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/130259803448.shtml)
+- 2026-06-30 05:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/490094066.shtml)
+- 2026-06-30 05:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/067392804.shtml)
+- 2026-06-30 05:20 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/21647650.shtml)
+- 2026-06-30 05:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/22474023.shtml)
+- 2026-06-30 05:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/758320154.shtml)

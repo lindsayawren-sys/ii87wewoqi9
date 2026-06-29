@@ -1,61 +1,56 @@
-# 大咖研习社|国泰基金朱丹：2026全球资产配置策略
+# 黄金市场持续遭遇抛压，国际投行看法现明显分歧
 
-> 更新时间：2026-06-30 05:24:02 UTC+8
+> 更新时间：2026-06-30 05:30:04 UTC+8
 
 ## 摘要
 
-2026年即将行至中场，全球宏观格局正经历深刻重塑。国际货币秩序的重构，战略资源的重估，叠加高油价引发的通胀预期，给投资者带来了前所未有的挑战与机遇。 在近期举办的“和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金国际业务部负责人、基金经理朱丹，分享了2026全球资产配置策略观点： 市场主线切换 华尔街从“TACO”走向“NACHO” 我们认为，理解当前市场的关键在
+5月以来，国际黄金市场持续承压。现货黄金价格一度跌破4500美元/盎司关口，创年内新低，国内金饰价格同步大幅回落，部分品牌足金克价跌破1400元。 截至5月22日界面新闻发稿，伦敦金现报4526.58美元/盎司，下跌了0.34%。 回顾5月初的行情，金价已出现剧烈波动。5月4日，国际金价单日跌超90美元，跌幅超2%，伦敦现货黄金一度跌至4500.94美元/盎司；5月5日，国内黄
 
 ## 正文
 
-2026年即将行至中场，全球宏观格局正经历深刻重塑。
+5月以来，国际黄金市场持续承压。
 
-国际货币秩序的重构，战略资源的重估，叠加高油价引发的通胀预期，给投资者带来了前所未有的挑战与机遇。
+现货黄金价格一度跌破4500美元/盎司关口，创年内新低，国内金饰价格同步大幅回落，部分品牌足金克价跌破1400元。
 
-在近期举办的“和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金国际业务部负责人、基金经理朱丹，分享了2026全球资产配置策略观点： 市场主线切换 华尔街从“TACO”走向“NACHO” 我们认为，理解当前市场的关键在于认清叙事主线的根本转变。
+截至5月22日界面新闻发稿，伦敦金现报4526.58美元/盎司，下跌了0.34%。
 
-此前市场流行的叙事是“TACO交易”，本质上是基于地缘政治中特定决策者个人态度的预期博弈——即押注特定决策者会临阵退缩，从而引发风险资产的“深V”反弹。
+回顾5月初的行情，金价已出现剧烈波动。
 
-然而，进入二季度后，这一逻辑已不再适用。
+5月4日，国际金价单日跌超90美元，跌幅超2%，伦敦现货黄金一度跌至4500.94美元/盎司；5月5日，国内黄金实时大盘价格跌破1000元/克关口，重回“三位数”。
 
-取而代之的是“NACHO交易”。
+5月16日，国际现货黄金价格单日跌超120美元，跌幅超过2%，直接跌破4540美元/盎司关口。
 
-在华尔街的语境中，“NACHO”指代一个更严峻的现实：即霍尔木兹海峡短期内重开“绝无可能”。
+5月18日亚市早盘，现货黄金伦敦金一度失守4500美元/盎司，为3月底以来首次。
 
-自3月以来，承担全球近30%原油贸易量的霍尔木兹海峡已实质性断航超过两个月，所带来的冲击幅度超过上世纪70年代的石油危机。
+日内最多下跌约1.3%，下探到4480.01美元/盎司。
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:20 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 05:13 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 05:14 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 05:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 05:03 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 04:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 05:01 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:21 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 04:58 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 05:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 05:00 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:06 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 05:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 05:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 05:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 05:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 05:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 05:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 05:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [金牌调解](http://www.blog.minike.top/Article/details/424793967.shtml)
-- 2026-06-30 05:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/860596.shtml)
-- 2026-06-30 04:55 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/2217168.shtml)
-- 2026-06-30 05:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/273983855.shtml)
-- 2026-06-30 05:16 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/55804848.shtml)
-- 2026-06-30 05:13 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/0255156.shtml)
-- 2026-06-30 05:03 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/39009845.shtml)
-- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/124305828.shtml)
-- 2026-06-30 05:07 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/20785521771.shtml)
-- 2026-06-30 04:58 - [乔家的儿女](http://www.share.minike.top/Article/details/13403272163.shtml)
-- 2026-06-30 05:07 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/566168357.shtml)
-- 2026-06-30 04:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/657262641.shtml)
-- 2026-06-30 05:10 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/656204719.shtml)
-- 2026-06-30 05:23 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/171786.shtml)
-- 2026-06-30 05:04 - [刘念回应](http://www.share.kurohicncr.top/Article/details/5567212374.shtml)
+- 2026-06-30 05:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/35290932.shtml)
+- 2026-06-30 05:05 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/381017658.shtml)
+- 2026-06-30 05:08 - [日本淘汰](https://www.share.minike.top/Article/details/95448308523.shtml)
+- 2026-06-30 05:24 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/112339.shtml)
+- 2026-06-30 05:05 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/807610909.shtml)
+- 2026-06-30 05:03 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/68301273.shtml)
+- 2026-06-30 05:29 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/362278508.shtml)
+- 2026-06-30 05:26 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/753688693.shtml)
+- 2026-06-30 05:11 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/39446284.shtml)
+- 2026-06-30 05:00 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6919848.shtml)
+- 2026-06-30 05:18 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/92228.shtml)
+- 2026-06-30 05:27 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/661670593.shtml)
+- 2026-06-30 05:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/8951454074.shtml)
+- 2026-06-30 05:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/899208178.shtml)
+- 2026-06-30 05:12 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/817466772.shtml)
