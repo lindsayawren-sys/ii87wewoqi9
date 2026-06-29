@@ -1,56 +1,58 @@
-# 电影元素融入城乡街巷 “电影+”新场景提升消费新体验
+# 王充闾《平居日札》首发 记录91岁老作家四十余载心路
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-“电影+”新场景提升消费新体验 今年2月，国家电影局启动“2026电影经济促进年”，并联合各地推出“跟着电影去旅游”“跟着电影品美食”“跟着电影赏非遗”“跟着电影逛市集”等系列活动，推动“电影+”消费场景在全国落地，让电影流量转化为消费增量。在这场以电影为媒、以文化为核的消费升级中，各地将电影元素融入城乡街巷、植入日常生活，“电影+”成为拉动消费新动能。 升级硬件设施 在南京市
+中新网沈阳6月18日电 由人民文学出版社、辽宁省作家协会、辽宁出版集团联合主办的“史笔通心——《平居日札》新书发布暨王充闾作品研讨会”日前在沈阳举行。 王充闾是当代知名作家、学者。中国作家协会第五届、第六届主席团委员，中华诗词学会顾问，南开大学特聘教授。出版著作90余部，有《充闾文集》20卷。作品被译成英文、阿拉伯文、泰文、罗马尼亚文等。《平居日札》选录王充闾1980年至202
 
 ## 正文
 
-“电影+”新场景提升消费新体验 今年2月，国家电影局启动“2026电影经济促进年”，并联合各地推出“跟着电影去旅游”“跟着电影品美食”“跟着电影赏非遗”“跟着电影逛市集”等系列活动，推动“电影+”消费场景在全国落地，让电影流量转化为消费增量。
+中新网沈阳6月18日电 由人民文学出版社、辽宁省作家协会、辽宁出版集团联合主办的“史笔通心——《平居日札》新书发布暨王充闾作品研讨会”日前在沈阳举行。
 
-在这场以电影为媒、以文化为核的消费升级中，各地将电影元素融入城乡街巷、植入日常生活，“电影+”成为拉动消费新动能。
+王充闾是当代知名作家、学者。
 
-升级硬件设施 在南京市江北新区泰山街道桥北商圈，“电影+”的生动实践正焕发出蓬勃活力。
+中国作家协会第五届、第六届主席团委员，中华诗词学会顾问，南开大学特聘教授。
 
-作为中国全VIP主题影城开创运营商，至潮影城不久前在江北印象汇新装亮相，以先进的视听设备与全电动沙发座椅，为观众带来“坐躺自由”的观影体验。
+出版著作90余部，有《充闾文集》20卷。
 
-这不仅提升了影院自身的服务品质，更将电影院从单一的观影场所升级为集IP观影厅设计、游戏娱乐设施运营于一体的复合文化空间，成为区域文化消费升级的重要引擎。
+作品被译成英文、阿拉伯文、泰文、罗马尼亚文等。
 
-成都市简阳市引入了配备全国最大CINITY LED杜比全景声银幕的太平洋影城东来印象旗舰店。
+《平居日札》选录王充闾1980年至2025年近400则札记，总计65万字，记录了作者45载读书、创作、治学及交游中的所思所感和所见所闻，是其精神世界与治学心路的真实写照。
 
-该影城2025年推出的《阿凡达3》点映活动吸引全国多地游客前来观影。
+人民文学出版社社长臧永清梳理了王充闾历史文化散文、抒情纪游散文、域外文学评论和古典文史研究四大创作板块，并着重指出《平居日札》的独特价值：“在这部书中，充闾先生卸下问道历史的沉重铠甲，回归平居日常，从一饮一啄到故人往事，从草木闲情到人生彻悟，先生以润物细无声的笔触，展示了豪华落尽见真淳的意蕴。
 
-“点映活动当天，对屏幕质感、环境音响等硬件有着更高期待的资深影迷专程从北京、上海、厦门等地前来，CINITY LED影厅座无虚席。
+” 国际儒学联合会副会长李岩评价，《平居日札》具备勤读善思、学识广博、持之以恒三大特点。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 22:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 23:03 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 23:11 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 22:54 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 22:54 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 23:06 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 23:01 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 23:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 23:01 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 23:03 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 23:05 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 22:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 23:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 23:03 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 22:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 23:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 23:12 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:14 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 23:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 22:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 23:18 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/17694299384.shtml)
-- 2026-06-29 23:01 - [流金岁月](https://www.share.minike.top/Article/details/995538116505.shtml)
-- 2026-06-29 23:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/930228655.shtml)
-- 2026-06-29 23:06 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/58610.shtml)
-- 2026-06-29 22:50 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/03588574.shtml)
-- 2026-06-29 23:10 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/44579892.shtml)
-- 2026-06-29 22:48 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/11843.shtml)
-- 2026-06-29 23:08 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/5874322701.shtml)
-- 2026-06-29 23:05 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/8459422.shtml)
-- 2026-06-29 23:02 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/784800171998.shtml)
-- 2026-06-29 22:52 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/733633013.shtml)
-- 2026-06-29 23:17 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/5125874110.shtml)
-- 2026-06-29 23:07 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/8741429.shtml)
-- 2026-06-29 22:53 - [恋与深空致歉](https://www.blog.minike.top/Article/details/2893733.shtml)
-- 2026-06-29 22:48 - [新官上任三把火](https://www.blog.minike.top/Article/details/5659484150.shtml)
+- 2026-06-29 23:18 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/7257036407.shtml)
+- 2026-06-29 23:01 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/946045.shtml)
+- 2026-06-29 22:58 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/821349.shtml)
+- 2026-06-29 23:19 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/55763.shtml)
+- 2026-06-29 23:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/367272955.shtml)
+- 2026-06-29 23:21 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/526410496008.shtml)
+- 2026-06-29 23:00 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/8235109.shtml)
+- 2026-06-29 23:19 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/817215.shtml)
+- 2026-06-29 23:16 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/06876951368.shtml)
+- 2026-06-29 23:10 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/1823312171.shtml)
+- 2026-06-29 23:13 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/5442797.shtml)
+- 2026-06-29 23:05 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/668113.shtml)
+- 2026-06-29 23:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/58775160727.shtml)
+- 2026-06-29 23:01 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/280356.shtml)
+- 2026-06-29 23:18 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/3026589.shtml)

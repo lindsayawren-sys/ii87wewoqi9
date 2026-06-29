@@ -1,52 +1,47 @@
-# 美军称拦截一试图突破封锁的伊朗货船
+# 商务部：将对澳大利亚进口牛肉加征55%关税
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-中新网4月16日电 据外媒报道，美军中央司令部15日在社交媒体发布消息称，美军舰拦截了一艘试图突破美军封锁的伊朗货船，并迫使该船掉头返回伊朗。 据报道，美军中央司令部消息称，这艘货船悬挂伊朗国旗，驶离伊朗南部阿巴斯港，穿过霍尔木兹海峡，并沿伊朗海岸线航行，试图规避美军封锁。美海军“斯普鲁恩斯”号导弹驱逐舰成功迫使该船改变航向，目前该船正返航驶回伊朗。 美军中央司令部表示，自13
+中新网6月19日电 商务部19日在官网发布《关于2026年度牛肉保障措施执行提示信息(五)》，全文如下： 牛肉保障措施项下自澳大利亚进口的牛肉于2026年6月18日已达到商务部公告2025年第87号明确的该国家规定数量的100%。根据商务部公告2025年第87号，在澳大利亚牛肉进口数量达到规定数量100%的第3日起(6月20日零点起)，自该国进口牛肉将在现行适用关税税率基础上加
 
 ## 正文
 
-中新网4月16日电 据外媒报道，美军中央司令部15日在社交媒体发布消息称，美军舰拦截了一艘试图突破美军封锁的伊朗货船，并迫使该船掉头返回伊朗。
+中新网6月19日电 商务部19日在官网发布《关于2026年度牛肉保障措施执行提示信息(五)》，全文如下： 牛肉保障措施项下自澳大利亚进口的牛肉于2026年6月18日已达到商务部公告2025年第87号明确的该国家规定数量的100%。
 
-据报道，美军中央司令部消息称，这艘货船悬挂伊朗国旗，驶离伊朗南部阿巴斯港，穿过霍尔木兹海峡，并沿伊朗海岸线航行，试图规避美军封锁。
-
-美海军“斯普鲁恩斯”号导弹驱逐舰成功迫使该船改变航向，目前该船正返航驶回伊朗。
-
-美军中央司令部表示，自13日美军开始实施封锁以来，已有10艘船只被勒令返航，尚无船只突破封锁。
-
-美军中央司令部还发文称，对进出伊朗港口的船只实施封锁后，美军切断了经由海路进出伊朗的经济贸易往来。
-
-在阿拉伯海执行封锁任务的“的黎波里”号两栖攻击舰上，海军陆战队员还进行了近距离战斗战术训练，为执行拦截行动等任务做准备。
+根据商务部公告2025年第87号，在澳大利亚牛肉进口数量达到规定数量100%的第3日起(6月20日零点起)，自该国进口牛肉将在现行适用关税税率基础上加征55%关税。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 22:59 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 23:01 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 23:17 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 22:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 22:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 23:09 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 22:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 22:58 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 22:57 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 23:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 23:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 23:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 23:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 23:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:21 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 23:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 22:54 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 22:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 23:13 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:10 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 22:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/54714418333.shtml)
-- 2026-06-29 23:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/915716062942.shtml)
-- 2026-06-29 22:53 - [一生一世](https://www.blog.kurohicncr.top/Article/details/66269455576.shtml)
-- 2026-06-29 23:16 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/4031371.shtml)
-- 2026-06-29 23:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/4035996.shtml)
-- 2026-06-29 23:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/562635.shtml)
-- 2026-06-29 23:10 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/0842822318.shtml)
-- 2026-06-29 22:51 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/021813578198.shtml)
-- 2026-06-29 22:59 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/298076781.shtml)
-- 2026-06-29 23:00 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/2404008.shtml)
-- 2026-06-29 22:55 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/1578377.shtml)
-- 2026-06-29 23:00 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/38206361.shtml)
-- 2026-06-29 23:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/834476048439.shtml)
-- 2026-06-29 23:16 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/403165915837.shtml)
-- 2026-06-29 23:06 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/03800349441.shtml)
+- 2026-06-29 22:59 - [美人鱼](http://www.share.kurohicncr.top/Article/details/898150.shtml)
+- 2026-06-29 23:00 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/771170312.shtml)
+- 2026-06-29 23:00 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/70627913889.shtml)
+- 2026-06-29 23:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/32700967.shtml)
+- 2026-06-29 23:18 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/305345441.shtml)
+- 2026-06-29 23:05 - [一生一世](http://www.share.minike.top/Article/details/71477.shtml)
+- 2026-06-29 23:15 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/102436.shtml)
+- 2026-06-29 23:15 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/814108854.shtml)
+- 2026-06-29 23:12 - [毒液2](https://www.share.kurohicncr.top/Article/details/05999991065.shtml)
+- 2026-06-29 23:01 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/94598172485.shtml)
+- 2026-06-29 23:13 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/808370.shtml)
+- 2026-06-29 23:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/908473.shtml)
+- 2026-06-29 22:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/774785072.shtml)
+- 2026-06-29 23:00 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/2688969.shtml)
+- 2026-06-29 23:13 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/140160.shtml)

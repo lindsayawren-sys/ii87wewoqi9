@@ -1,59 +1,57 @@
-# 分红难换溢价 估值分化显著 上市银行市值管理实战调查
+# 李飞飞，投出了一个独角兽
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 “估值提升计划发布已满一年，为何市净率不升反降？后续有哪些措施来改善这一局面？”近日，有投资者在互动平台上向某国有大行提出了市值管理方面的疑问。 自六家国有大行集中发布估值提升计划至今已逾一年。这些以稳健经营、稳定分红为核心的承诺，并未给银行板块带来普涨行情，而且板块内部的估值分化有所加剧。业内人士表示，市场资金的差异化选择，本
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！学术界的女神，押注物理智能 作者 | 吕敬之 来源 | #融中财经 李飞飞，出手了。 美国具身智能公司Generalist AI宣布完成新一轮4亿美元（约合人民币27亿元）融资，目前融资总额超过5亿美元。 本轮本轮新增主要投资方：Radical Ventures（领投）、8VC、Union Square V
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 “估值提升计划发布已满一年，为何市净率不升反降？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-后续有哪些措施来改善这一局面？
+学术界的女神，押注物理智能 作者 | 吕敬之 来源 | #融中财经 李飞飞，出手了。
 
-”近日，有投资者在互动平台上向某国有大行提出了市值管理方面的疑问。
+美国具身智能公司Generalist AI宣布完成新一轮4亿美元（约合人民币27亿元）融资，目前融资总额超过5亿美元。
 
-自六家国有大行集中发布估值提升计划至今已逾一年。
+本轮本轮新增主要投资方：Radical Ventures（领投）、8VC、Union Square Ventures、Hanabi Capital、Norwest；原有头部投资方均大额跟投，包含英伟达旗下NVentures、Boldstart Ventures、Spark Capital、Bezos Expeditions、NFDG。
 
-这些以稳健经营、稳定分红为核心的承诺，并未给银行板块带来普涨行情，而且板块内部的估值分化有所加剧。
+新增天使投资人包括Eric Yuan、Bin Lin、Fei-Fei Li（李飞飞）、Naval Ravikant。
 
-业内人士表示，市场资金的差异化选择，本质上是对银行盈利稳定性、资产质量与发展潜力的不同定价。
+成立两年的机器人公司Generalist拿到4亿美元，投后估值20亿，跻身新晋独角兽。
 
-偏好银行股“类债”属性的资金，更青睐盈利稳健、资产质量扎实的银行；而关注低估值与股价增长空间的资金，更注重银行业绩的成长性。
+这次，被称为“AI教母”的斯坦福人工智能实验室的负责人、ImageNet的创建者，李飞飞，这次不是站在讲台前，而是以投资人的身份出现在了一个明星项目当中。
 
-多家银行已在现金分红、信息披露、可转债转股、引入中长期资金等方面展开实质性探索。
+她不是追逐风口的资本玩家，在人工智能领域已经奋斗了近30年的时间，经历了各种各样的兴衰成败。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 22:54 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 22:59 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 22:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 23:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 22:53 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:55 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 22:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 22:51 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 22:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 23:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 23:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 23:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 23:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 23:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 23:03 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 23:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:00 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:58 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 23:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/34728556.shtml)
-- 2026-06-29 23:08 - [炽夏](https://www.share.kurohicncr.top/Article/details/4425098451.shtml)
-- 2026-06-29 22:53 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/21517.shtml)
-- 2026-06-29 23:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/48670325.shtml)
-- 2026-06-29 22:58 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/7279422.shtml)
-- 2026-06-29 23:00 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/857145.shtml)
-- 2026-06-29 23:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/86665984159.shtml)
-- 2026-06-29 23:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/7111061929.shtml)
-- 2026-06-29 23:13 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/26670560903.shtml)
-- 2026-06-29 22:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1987787960.shtml)
-- 2026-06-29 23:00 - [锐评T1零封KC](https://www.share.minike.top/Article/details/26569111473.shtml)
-- 2026-06-29 23:01 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/3820969.shtml)
-- 2026-06-29 23:12 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/681348232.shtml)
-- 2026-06-29 23:03 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/37519896731.shtml)
-- 2026-06-29 23:04 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/29659.shtml)
+- 2026-06-29 23:02 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/874510.shtml)
+- 2026-06-29 23:06 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/1794724.shtml)
+- 2026-06-29 23:00 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/7731258.shtml)
+- 2026-06-29 22:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/59173.shtml)
+- 2026-06-29 23:16 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/399804.shtml)
+- 2026-06-29 23:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/522930740413.shtml)
+- 2026-06-29 23:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/638896962.shtml)
+- 2026-06-29 23:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/894201420831.shtml)
+- 2026-06-29 23:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/604286215.shtml)
+- 2026-06-29 23:00 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/78775797364.shtml)
+- 2026-06-29 23:06 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/903420152150.shtml)
+- 2026-06-29 22:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/145228831578.shtml)
+- 2026-06-29 22:58 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/0895129125.shtml)
+- 2026-06-29 22:54 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/940694676299.shtml)
+- 2026-06-29 22:54 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/202891.shtml)

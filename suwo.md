@@ -1,56 +1,60 @@
-# 盘前：美股指数期货小幅震荡，标普500距历史高点不足1%
+# 斯诺克武汉公开赛资格赛：中国军团5人率先晋级32强
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-标普 500 指数期货、纳斯达克 100 指数期货均在平盘线附近徘徊，道琼斯工业平均指数期货也基本持平。 截至发稿，道指期货涨0.08%，标普500指数期货涨0.03%，纳指期货跌0.05%。 盘前交易中，博通表现突出，涨幅超2%。此前，Meta 平台宣布扩大与博通的合作，将采用后者技术部署定制芯片。 前一交易日，标普 500 指数上涨 1.2%，纳斯达克综合指数上涨 2%，蓝
+中新社英国莱斯特6月19日电 当地时间6月18日，2026斯诺克武汉公开赛资格赛在英国莱斯特迎来阶段收官。当日64进32轮次的比赛中，中国军团8人出战，最终五胜三负，包括常冰玉、庞俊旭等在内的5位球手拿到正赛资格。作为上赛季世界斯诺克巡回赛年度突破选手奖的获得者，23岁的常冰玉继续出色发挥。面对实力不俗的英格兰球手乔·奥康纳，他在先失两局的情况下有效调整状态，以高质量的进攻和更
 
 ## 正文
 
-标普 500 指数期货、纳斯达克 100 指数期货均在平盘线附近徘徊，道琼斯工业平均指数期货也基本持平。
+中新社英国莱斯特6月19日电 当地时间6月18日，2026斯诺克武汉公开赛资格赛在英国莱斯特迎来阶段收官。
 
-截至发稿，道指期货涨0.08%，标普500指数期货涨0.03%，纳指期货跌0.05%。
+当日64进32轮次的比赛中，中国军团8人出战，最终五胜三负，包括常冰玉、庞俊旭等在内的5位球手拿到正赛资格。
 
-盘前交易中，博通表现突出，涨幅超2%。
+作为上赛季世界斯诺克巡回赛年度突破选手奖的获得者，23岁的常冰玉继续出色发挥。
 
-此前，Meta 平台宣布扩大与博通的合作，将采用后者技术部署定制芯片。
+面对实力不俗的英格兰球手乔·奥康纳，他在先失两局的情况下有效调整状态，以高质量的进攻和更好的机会把握能力连下五城，终以5比2淘汰对手顺利晋级。
 
-前一交易日，标普 500 指数上涨 1.2%，纳斯达克综合指数上涨 2%，蓝筹股道琼斯指数大涨超 300 点。
+同样发挥出色的还有姚朋成，在与世界排名第17位的英格兰实力球手杰克·利索夫斯基的较量中，中国球手展现出压迫感极强的进攻力，整场比赛打出单杆108分、52分、53分、57分和106分，几乎未给对手任何机会，以5比0完胜晋级。
 
-标普 500 指数正逼近 1 月 28 日创下的 7002.28 点历史高点。
+当日一场“中国德比”在周跃龙与贺国强之间展开，比赛中贺国强自开局便占据优势，排名更高的周跃龙仅在第三局和第五局以优质单杆取胜，贺国强凭借稳定的发挥最终以5比2拿下比赛，如愿收获正赛资格。
 
-周二是该指数 10 个交易日内第 9 次收涨，科技股密集的纳斯达克指数也连续第 10 个交易日上涨。
+该轮中国军团的另外两场胜利分别属于袁思俊和庞俊旭。
 
-周一，标普 500 的上涨已完全收复 2 月下旬美伊冲突爆发以来的全部跌幅。
+袁思俊以一个单杆破百和四个单杆50+，5比1轻松战胜英格兰的路易·希斯科特，庞俊旭以5比3淘汰另一位英格兰球手奥利弗·塞克斯晋级。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 22:52 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 22:51 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 22:52 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 23:10 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 22:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 23:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 23:05 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 22:59 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 22:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 23:21 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 23:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 22:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 23:06 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 23:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 23:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 23:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 23:22 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 23:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 23:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 23:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 23:12 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 23:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 22:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/795941152.shtml)
-- 2026-06-29 22:56 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/107778937.shtml)
-- 2026-06-29 23:01 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/225542194.shtml)
-- 2026-06-29 23:12 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/27594560.shtml)
-- 2026-06-29 23:10 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/899316271948.shtml)
-- 2026-06-29 23:12 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/44507.shtml)
-- 2026-06-29 23:05 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/585686056.shtml)
-- 2026-06-29 23:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6908643499.shtml)
-- 2026-06-29 22:56 - [一见倾心](http://www.blog.minike.top/Article/details/526074912450.shtml)
-- 2026-06-29 23:01 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/3082142.shtml)
-- 2026-06-29 23:15 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/76863248570.shtml)
-- 2026-06-29 22:55 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/2551230032.shtml)
-- 2026-06-29 23:04 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/2071840.shtml)
-- 2026-06-29 23:10 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/0966286.shtml)
-- 2026-06-29 23:00 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/531280029430.shtml)
+- 2026-06-29 23:02 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/0597210052.shtml)
+- 2026-06-29 22:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/43184140.shtml)
+- 2026-06-29 23:02 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/60743411769.shtml)
+- 2026-06-29 22:58 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/672585839690.shtml)
+- 2026-06-29 23:12 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/59089.shtml)
+- 2026-06-29 23:19 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/94763.shtml)
+- 2026-06-29 23:22 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/83337.shtml)
+- 2026-06-29 22:55 - [我和我的家乡](https://www.share.minike.top/Article/details/3572958.shtml)
+- 2026-06-29 23:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/63870411.shtml)
+- 2026-06-29 23:15 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/619341826.shtml)
+- 2026-06-29 23:19 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/135466923593.shtml)
+- 2026-06-29 23:11 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/09381.shtml)
+- 2026-06-29 23:14 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/0265105.shtml)
+- 2026-06-29 23:03 - [一见倾心](https://www.share.kurohicncr.top/Article/details/3252773262.shtml)
+- 2026-06-29 23:12 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/2638150.shtml)

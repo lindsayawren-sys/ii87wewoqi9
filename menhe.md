@@ -1,57 +1,56 @@
-# 沉浸式体验东南亚风情！广西高校泼水节欢乐上演
+# 高考招生季 警惕志愿填报骗局
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 16:00 来源：中国新闻网 4月14日，广西民族大学举办2026年国际文化节暨泼水节活动。来自泰国、老挝、柬埔寨、缅甸等国家的留学生与中国师生齐聚一堂，以泼水互送祝福，沉浸式体验这一极具东南亚风情的文化盛宴。 活动现场，《湄南舞韵》《泼水雨》《越韵飞扬》《山歌好比春江水》等节目表演赢得阵阵掌声。在泼水大战中，中外学子手持水枪、水盆，你追我赶，
+@家长考生 高考招生季 警惕志愿填报骗局 高考不久前落下帷幕，志愿填报又成为许多家庭的头等大事。但每到此时，随之出现的一些志愿填报相关的市场乱象，也可能给考生及家长造成困扰、财产损失，甚至对志愿填报产生误导。 以往常见的“内部名额”“低分补录”等骗局虽然已经被广泛揭露并依法打击，但类似的现象并没有消失。高考志愿填报市场的相关问题，更是近期消费投诉热点，相关话术如何精准“拿捏”考
 
 ## 正文
 
-发布时间：2026年04月15日 16:00 来源：中国新闻网 4月14日，广西民族大学举办2026年国际文化节暨泼水节活动。
+@家长考生 高考招生季 警惕志愿填报骗局 高考不久前落下帷幕，志愿填报又成为许多家庭的头等大事。
 
-来自泰国、老挝、柬埔寨、缅甸等国家的留学生与中国师生齐聚一堂，以泼水互送祝福，沉浸式体验这一极具东南亚风情的文化盛宴。
+但每到此时，随之出现的一些志愿填报相关的市场乱象，也可能给考生及家长造成困扰、财产损失，甚至对志愿填报产生误导。
 
-活动现场，《湄南舞韵》《泼水雨》《越韵飞扬》《山歌好比春江水》等节目表演赢得阵阵掌声。
+以往常见的“内部名额”“低分补录”等骗局虽然已经被广泛揭露并依法打击，但类似的现象并没有消失。
 
-在泼水大战中，中外学子手持水枪、水盆，你追我赶，尽情泼洒，校园瞬间化身“水上乐园”。
+高考志愿填报市场的相关问题，更是近期消费投诉热点，相关话术如何精准“拿捏”考生与家长的焦虑心理？
 
-当天还举行了剪纸、油茶、书画、投壶等文化展示体验活动。
+还有哪些骗局需要警惕？
 
-(黄艳梅 刘芷邑 制作 乐小敏） 责任编辑：【罗攀】
+根据网络搜索，记者联系到一家提供高考志愿咨询服务的培训机构。
+
+相关工作人员介绍，高考志愿咨询服务共分为三个档次，分别为一万多到两万多不等。
+
+而问到这些老师的资质，工作人员表示：线下给家长展示。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 23:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 22:58 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 23:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 22:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 23:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 22:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 22:59 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 23:05 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 23:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:48 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 23:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 22:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 23:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 23:13 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 23:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 23:09 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 22:56 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 23:08 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 22:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 23:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 22:58 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/06913179.shtml)
-- 2026-06-29 23:14 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/18535159.shtml)
-- 2026-06-29 22:56 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/0742736.shtml)
-- 2026-06-29 23:07 - [流金岁月](http://www.share.kurohicncr.top/Article/details/96702766.shtml)
-- 2026-06-29 23:01 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/57210165.shtml)
-- 2026-06-29 22:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/001215.shtml)
-- 2026-06-29 23:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/769573282002.shtml)
-- 2026-06-29 23:17 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/6252042.shtml)
-- 2026-06-29 23:10 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/25679.shtml)
-- 2026-06-29 23:13 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/1660624.shtml)
-- 2026-06-29 22:51 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/150745324294.shtml)
-- 2026-06-29 23:00 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/03563407442.shtml)
-- 2026-06-29 22:58 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/51026.shtml)
-- 2026-06-29 22:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/716987.shtml)
-- 2026-06-29 22:49 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0328240.shtml)
+- 2026-06-29 23:05 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/54539691.shtml)
+- 2026-06-29 23:07 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/83412074.shtml)
+- 2026-06-29 23:18 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/51101.shtml)
+- 2026-06-29 23:15 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/6816100.shtml)
+- 2026-06-29 23:20 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/32031.shtml)
+- 2026-06-29 23:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/49587.shtml)
+- 2026-06-29 23:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/904243194951.shtml)
+- 2026-06-29 23:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/3062890.shtml)
+- 2026-06-29 23:01 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/642805272663.shtml)
+- 2026-06-29 22:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/967626077.shtml)
+- 2026-06-29 23:19 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/694782.shtml)
+- 2026-06-29 23:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/871119917.shtml)
+- 2026-06-29 22:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/9596395.shtml)
+- 2026-06-29 23:20 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/9705969730.shtml)
+- 2026-06-29 23:13 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/390510.shtml)

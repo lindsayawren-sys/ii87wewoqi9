@@ -1,61 +1,56 @@
-# 跑腿取赃款被判刑 检察官提醒：切勿因小利沦为犯罪帮凶
+# 宁德时代枧下窝锂矿重获用地意见书，锂市供需格局影响几何？
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-接单跑腿取赃款 诈骗共犯判三年 北京朝阳检察院：切勿因小利沦为犯罪帮凶 随着国家对电信网络诈骗犯罪打击力度的不断加大，一些诈骗分子将黑手伸向了线下，他们企图通过现金交易隐匿资金追溯链条，由此催生了专门负责线下收取、转移赃款的下游“取现人”。 “取现人”，又称“车手”或“职业取款人”，是诈骗犯罪链条中的关键执行者。他们专门负责线下取现、转移赃款，以此帮助诈骗团伙切断资金追踪线索，
+端午节前的最后一个工作日，备受锂矿市场关注的宁德时代（300750.SZ/03750.HK）枧下窝矿项目迎来新进展。 6月18日，江西省自然资源厅发布了一条用地预审与选址行政许可事项，许可证书名称为《中华人民共和国建设项目用地预审与选址意见书》。行政相对人名称为宜春时代新能源矿业有限公司（下称“宜春时代”），即宁德时代的间接控股子公司。该许可决定自2026年6月17日起生效，有
 
 ## 正文
 
-接单跑腿取赃款 诈骗共犯判三年 北京朝阳检察院：切勿因小利沦为犯罪帮凶 随着国家对电信网络诈骗犯罪打击力度的不断加大，一些诈骗分子将黑手伸向了线下，他们企图通过现金交易隐匿资金追溯链条，由此催生了专门负责线下收取、转移赃款的下游“取现人”。
+端午节前的最后一个工作日，备受锂矿市场关注的宁德时代（300750.SZ/03750.HK）枧下窝矿项目迎来新进展。
 
-“取现人”，又称“车手”或“职业取款人”，是诈骗犯罪链条中的关键执行者。
+6月18日，江西省自然资源厅发布了一条用地预审与选址行政许可事项，许可证书名称为《中华人民共和国建设项目用地预审与选址意见书》。
 
-他们专门负责线下取现、转移赃款，以此帮助诈骗团伙切断资金追踪线索，从中获取佣金。
+行政相对人名称为宜春时代新能源矿业有限公司（下称“宜春时代”），即宁德时代的间接控股子公司。
 
-近日，《法治日报》记者从北京市朝阳区人民检察院获悉，在该院办理的一起诈骗案中，“取现人”林某伪装成多家证券公司职员，频繁穿梭于北京市的大街小巷，短短数十日内从不同被害人手中收取诈骗赃款共计60余万元。
+该许可决定自2026年6月17日起生效，有效期至2029年6月17日。
 
-今年1月，经朝阳区检察院依法提起公诉，法院以诈骗罪判处被告人林某有期徒刑三年，并处罚金两万元。
+这份行政许可对应的是江西省宜丰县圳口里-奉新县枧下窝锂矿采矿项目。
 
-目前该案判决已生效。
+值得注意的是，原意见书于6月8日被江西省自然资源厅公告注销，系宜春时代此前主动申请。
 
-在线引流下场“收割” “您这里是加工厂吗？
+《建设项目用地预审与选址意见书》是项目落地的法定前置文件。
 
-我们想采购8000台喂食器。
+枧下窝锂矿的停产风波始于近十个月前。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 22:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 22:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 23:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 22:57 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 23:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 23:00 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 23:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 23:09 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 23:14 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 23:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 23:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:06 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 22:48 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:58 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 23:09 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 23:11 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 23:23 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 23:17 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 23:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 23:11 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 22:56 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 23:15 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 22:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:16 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/268266989.shtml)
-- 2026-06-29 23:00 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/50677430.shtml)
-- 2026-06-29 23:17 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/154126677047.shtml)
-- 2026-06-29 22:51 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/58195.shtml)
-- 2026-06-29 23:02 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/1240337.shtml)
-- 2026-06-29 22:53 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/937972995.shtml)
-- 2026-06-29 23:03 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/31422273816.shtml)
-- 2026-06-29 23:01 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/07542.shtml)
-- 2026-06-29 22:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/714587315935.shtml)
-- 2026-06-29 22:52 - [乌克兰发广告全球征兵](http://www.share.kurohicncr.top/Article/details/9667225.shtml)
-- 2026-06-29 23:16 - [刘念回应](http://www.share.minike.top/Article/details/0645490.shtml)
-- 2026-06-29 23:09 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/567234.shtml)
-- 2026-06-29 22:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/186433351394.shtml)
-- 2026-06-29 23:10 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/5947665170.shtml)
-- 2026-06-29 22:59 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/271980454.shtml)
+- 2026-06-29 23:20 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/532146038.shtml)
+- 2026-06-29 23:00 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/832884.shtml)
+- 2026-06-29 23:18 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/658535.shtml)
+- 2026-06-29 23:15 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/572832286.shtml)
+- 2026-06-29 23:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/4708785.shtml)
+- 2026-06-29 23:11 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/619368.shtml)
+- 2026-06-29 23:17 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/513750045.shtml)
+- 2026-06-29 22:57 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/7233365679.shtml)
+- 2026-06-29 23:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/25440980990.shtml)
+- 2026-06-29 22:59 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/127069.shtml)
+- 2026-06-29 23:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/541729965.shtml)
+- 2026-06-29 23:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/62906736.shtml)
+- 2026-06-29 22:59 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/1325774347.shtml)
+- 2026-06-29 23:11 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/0187306.shtml)
+- 2026-06-29 23:16 - [请回答王牌2019](http://www.blog.minike.top/Article/details/04680567073.shtml)

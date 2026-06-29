@@ -1,56 +1,59 @@
-# “你又当又立”VS“你不讲体面”！格力海信爆发“铜铝大战”，两高管互揭老底
+# “大国剑锋”越磨越利 解码中国导弹部队“千里眼顺风耳”
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 丨 《BUG》栏目 周文猛 家电行业两大龙头格力电器与海信空调，因为“真铜实料”的事情怼起来了。 昨日晚间，格力电器CMO朱磊于社交平台喊话海信空调，直言其在上海家博会传播中盗用格力“真铜实料”营销主张，同时喊话海信自查旗下产品铝线电机、铝管应用情况。 随即，海信空调国内营销中心品牌总监杨万手火速回怼，
+在火箭军的战斗序列里，还有许多看不见的岗位，他们不直接按下发射按钮，却决定着导弹能否准时出鞘、精准到达。 在导弹作战体系中，通信被称为“千里眼顺风耳”，是指挥所与发射架之间最关键的纽带。如果说通信是神经，那测绘就是导弹的眼睛和风向标。在测绘岗位，一秒的误差都可能带来巨大偏差。 火箭军某部测绘兵 孟佳：我们平时在测量过程中是非常严谨的，能把它控制在0.01秒，绝对不会把它控制在0
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在火箭军的战斗序列里，还有许多看不见的岗位，他们不直接按下发射按钮，却决定着导弹能否准时出鞘、精准到达。
 
-文 丨 《BUG》栏目 周文猛 家电行业两大龙头格力电器与海信空调，因为“真铜实料”的事情怼起来了。
+在导弹作战体系中，通信被称为“千里眼顺风耳”，是指挥所与发射架之间最关键的纽带。
 
-昨日晚间，格力电器CMO朱磊于社交平台喊话海信空调，直言其在上海家博会传播中盗用格力“真铜实料”营销主张，同时喊话海信自查旗下产品铝线电机、铝管应用情况。
+如果说通信是神经，那测绘就是导弹的眼睛和风向标。
 
-随即，海信空调国内营销中心品牌总监杨万手火速回怼，搬出10年前行业报道反驳“真铜实料”非格力专有，格力拒绝“铝代铜”但公司又于去年3月加入“铝代铜工作组”，“又当又立”。
+在测绘岗位，一秒的误差都可能带来巨大偏差。
 
-今天下午，朱磊回应《BUG》栏目称：“我认为中国企业是应该讲点体面的。
+火箭军某部测绘兵 孟佳：我们平时在测量过程中是非常严谨的，能把它控制在0.01秒，绝对不会把它控制在0.1秒。
 
-刨出10年前的旧闻或许能找补回一点面子，但到底是先抄再找补，自己心里是有数的吧，不要欺心，这很重要。
+导弹能战，战车先动。
 
-” 对于被指“又当又立”一事，朱磊反驳称，“揣着明白装糊涂，研究铝代铜，和倡议‘铝代铜’是两件完全不同的事。
+修理兵，每天和油污、零件、故障打交道，他们把战车看得比自己的生命还重要。
 
-” 刚刚，海信空调总监回应《BUG》栏目称，“海信空调室内机室外机冷凝器和蒸发器以及内外机连接管均为铜管。
+有人负责把剑擦亮，还有人负责把剑磨快。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 22:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 23:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 23:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 22:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 22:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 23:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 23:00 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 22:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 23:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 22:59 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 23:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 23:10 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 23:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 23:12 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 23:08 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 23:14 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 23:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 23:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 23:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 23:05 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 23:13 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/660565359271.shtml)
-- 2026-06-29 23:10 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/65257.shtml)
-- 2026-06-29 23:02 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/01755.shtml)
-- 2026-06-29 23:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/71504971.shtml)
-- 2026-06-29 23:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/9484449771.shtml)
-- 2026-06-29 23:02 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/84142166.shtml)
-- 2026-06-29 22:57 - [炽夏](https://www.share.kurohicncr.top/Article/details/2486027.shtml)
-- 2026-06-29 23:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/95147601666.shtml)
-- 2026-06-29 23:01 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/45657.shtml)
-- 2026-06-29 23:03 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/9318141285.shtml)
-- 2026-06-29 23:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/70770722432.shtml)
-- 2026-06-29 23:06 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/43778441083.shtml)
-- 2026-06-29 23:11 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/48726.shtml)
-- 2026-06-29 22:49 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/36423.shtml)
-- 2026-06-29 22:49 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/246657324489.shtml)
+- 2026-06-29 23:15 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/9738956.shtml)
+- 2026-06-29 23:18 - [小娘惹](https://www.blog.minike.top/Article/details/571871.shtml)
+- 2026-06-29 23:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/874723.shtml)
+- 2026-06-29 22:57 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/35669530.shtml)
+- 2026-06-29 23:04 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/75533816052.shtml)
+- 2026-06-29 23:12 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/9730543.shtml)
+- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/0057808580.shtml)
+- 2026-06-29 23:00 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/702478875.shtml)
+- 2026-06-29 22:59 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/09781.shtml)
+- 2026-06-29 23:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/31986229337.shtml)
+- 2026-06-29 23:01 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/913952493282.shtml)
+- 2026-06-29 23:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/63366771530.shtml)
+- 2026-06-29 23:21 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/254618431295.shtml)
+- 2026-06-29 23:04 - [恋与深空回应争议](http://www.share.minike.top/Article/details/81472181415.shtml)
+- 2026-06-29 22:54 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/89127914.shtml)

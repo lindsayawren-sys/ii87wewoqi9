@@ -1,61 +1,56 @@
-# 能源危机波及全球，中国储能成为稳定器
+# 国科大校长寄语逾1.6万毕业生：引领时代变革并坚守不变的传承
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-4月13日晚，宁波舟山港梅山港区4号泊位，“马士基金诺斯”轮缓缓离港。 中国的镍氢气电池储能柜首次踏上了出海旅程。 就在此前一天，美国总统特朗普宣布美国海军将封锁霍尔木兹海峡。 一边是油轮排队，一边是货轮启程，两幅画面构成了一组耐人寻味的对照。 根据中国海关总署披露的最新数据：一季度，中国电动汽车、锂电池、风力发电机组及其零件等绿色产品出口分别增长77.5%、50.4%和45.
+中新网北京6月21日电 (记者 孙自法)中国科学院副院长、中国科学院大学(国科大)校长周琪院士6月21日寄语国科大2026年度逾1.6万名毕业生，在这个变革的时代，做时代变革的引领者，同时，坚守不变的传承。 国科大2026年度毕业典礼暨学位授予仪式当天在北京怀柔雁栖湖校区举行，共有7377名博士毕业生、8487名硕士毕业生、405名本科毕业生圆满完成学业，获授相应学位。 周琪在
 
 ## 正文
 
-4月13日晚，宁波舟山港梅山港区4号泊位，“马士基金诺斯”轮缓缓离港。
+中新网北京6月21日电 (记者 孙自法)中国科学院副院长、中国科学院大学(国科大)校长周琪院士6月21日寄语国科大2026年度逾1.6万名毕业生，在这个变革的时代，做时代变革的引领者，同时，坚守不变的传承。
 
-中国的镍氢气电池储能柜首次踏上了出海旅程。
+国科大2026年度毕业典礼暨学位授予仪式当天在北京怀柔雁栖湖校区举行，共有7377名博士毕业生、8487名硕士毕业生、405名本科毕业生圆满完成学业，获授相应学位。
 
-就在此前一天，美国总统特朗普宣布美国海军将封锁霍尔木兹海峡。
+周琪在毕业典礼上致辞说，毕业之际，他有两句话想与同学们共勉。
 
-一边是油轮排队，一边是货轮启程，两幅画面构成了一组耐人寻味的对照。
+第一句，希望同学们在这个变革的时代做时代变革的引领者。
 
-根据中国海关总署披露的最新数据：一季度，中国电动汽车、锂电池、风力发电机组及其零件等绿色产品出口分别增长77.5%、50.4%和45.2%。
+他指出，科技竞争已经成为大国博弈焦点，人才更是竞争核心。
 
-发电设备、输变电器材、储能设备等电力相关产品合计出口也实现两位数增长。
+“引领”这两个字不是口号，而是提醒同学们作为国科大人，骨子里就应有的品格和底气。
 
-能源危机下，中国的储能设备卖爆了。
+希望本年度毕业的16269名同学能够和母校一起，并肩努力，接续奋斗，以国家需求作为最高追求，始终坚持在变革时代做引领时代发展的人。
 
-背后的逻辑很简单：如果一场地缘冲突就能让全球能源供应链“宕机”，那么能源自主已经不仅仅是一个国家的经济账，更是安全账。
+第二句，希望同学们在变革的时代坚守不变的传承。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 23:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 22:52 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 23:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:04 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 23:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 22:51 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 22:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 22:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 23:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 22:49 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 23:13 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 23:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 23:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 23:09 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 22:58 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 23:12 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 23:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 22:59 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 23:21 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 22:54 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 23:17 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 23:08 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/1105001538.shtml)
-- 2026-06-29 23:07 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/8613515.shtml)
-- 2026-06-29 22:51 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/374734104698.shtml)
-- 2026-06-29 23:11 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/52519846514.shtml)
-- 2026-06-29 22:48 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/592538438164.shtml)
-- 2026-06-29 23:15 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/026352.shtml)
-- 2026-06-29 23:07 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/4200305.shtml)
-- 2026-06-29 23:08 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/9396527599.shtml)
-- 2026-06-29 22:58 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/74570750449.shtml)
-- 2026-06-29 22:48 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/44690231.shtml)
-- 2026-06-29 22:51 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/7174418176.shtml)
-- 2026-06-29 23:06 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/6865210614.shtml)
-- 2026-06-29 23:14 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/981567373.shtml)
-- 2026-06-29 23:01 - [扫黑风暴](http://www.blog.minike.top/Article/details/5396025.shtml)
-- 2026-06-29 22:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/05162.shtml)
+- 2026-06-29 23:20 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/209365.shtml)
+- 2026-06-29 23:01 - [存储三巨头被告了](https://www.share.minike.top/Article/details/587113.shtml)
+- 2026-06-29 23:03 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/023635184.shtml)
+- 2026-06-29 23:15 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/616700639237.shtml)
+- 2026-06-29 23:07 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/62907081.shtml)
+- 2026-06-29 22:56 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/92838662792.shtml)
+- 2026-06-29 23:15 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/946323934.shtml)
+- 2026-06-29 23:21 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/4477942.shtml)
+- 2026-06-29 23:13 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/419913777359.shtml)
+- 2026-06-29 23:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/98633502653.shtml)
+- 2026-06-29 22:55 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/14050006382.shtml)
+- 2026-06-29 23:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/0315622.shtml)
+- 2026-06-29 22:55 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/703160.shtml)
+- 2026-06-29 23:18 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/339176993.shtml)
+- 2026-06-29 23:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/466600.shtml)

@@ -1,60 +1,60 @@
-# 研究显示：“适量饮酒有益健康”或为误区
+# 婴儿纸尿裤“甲酰胺”风波未平，中国造纸学会力挺企业
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网长沙4月15日电 (记者 徐志雄)中南大学湘雅二医院14日发布了该院“中年人饮酒行为与死亡风险关系”的研究成果。研究显示，即便处于中等摄入水平，总酒精摄入仍与癌症死亡风险增加相关，这挑战了“适量饮酒有益健康”的观念。该研究基于英国生物样本库超过34万人的长期随访数据，从摄入量、酒类类型、饮酒时机三个维度，系统评估了酒精摄入与全因死亡、心血管死亡和癌症死亡之间的复杂关系；并
+21世纪经济报道记者 朱艺艺 “好奇”“碧芭宝贝”“Babycare”等知名母婴品牌的婴幼儿纸尿裤，被媒体质疑含毒性物质甲酰胺，但目前此风波尚未有定论。 21世纪经济报道记者关注到，6月18日-20日，涉事品牌纷纷回应，并进一步更新了检测报告进度。 6月20日，“碧芭宝贝”在官方微博更新称：“今日，碧芭宝贝大鱼经典等多个重点系列检测报告已陆续出具，结果显示：甲酰胺未检出。” 公
 
 ## 正文
 
-中新网长沙4月15日电 (记者 徐志雄)中南大学湘雅二医院14日发布了该院“中年人饮酒行为与死亡风险关系”的研究成果。
+21世纪经济报道记者 朱艺艺 “好奇”“碧芭宝贝”“Babycare”等知名母婴品牌的婴幼儿纸尿裤，被媒体质疑含毒性物质甲酰胺，但目前此风波尚未有定论。
 
-研究显示，即便处于中等摄入水平，总酒精摄入仍与癌症死亡风险增加相关，这挑战了“适量饮酒有益健康”的观念。
+21世纪经济报道记者关注到，6月18日-20日，涉事品牌纷纷回应，并进一步更新了检测报告进度。
 
-该研究基于英国生物样本库超过34万人的长期随访数据，从摄入量、酒类类型、饮酒时机三个维度，系统评估了酒精摄入与全因死亡、心血管死亡和癌症死亡之间的复杂关系；并在统计模型中综合考量年龄、性别、饮食质量、身体活动、教育、健康状况、社会经济等多种混杂因素，以此更精准地识别饮酒行为与健康风险之间的内在关联。
+6月20日，“碧芭宝贝”在官方微博更新称：“今日，碧芭宝贝大鱼经典等多个重点系列检测报告已陆续出具，结果显示：甲酰胺未检出。
 
-研究显示，首先，高剂量饮酒会显著升高全因死亡、心血管死亡与癌症死亡风险；即便是中等摄入量，总酒精摄入仍与癌症死亡风险增加相关。
+” 公司还强调，“同时，其他系列以及更多相关权威检测也会陆续更新，欢迎宝爸宝妈监督关注。
 
-其次，虽然任何酒类的高摄入均会升高癌症风险，但不同类型的酒对健康的影响也存在差异。
+” 此前的6月18日，碧芭宝贝运营团队也发布声明，“甲酰胺为明确管控有害物质，我司供应链体系明令禁止该类原料添加，将即刻对全部原材料、生产线开展全面筛查，杜绝风险隐患”，并“已主动联系涉事检测机构，同步申请第三方权威复检”。
 
-啤酒和烈酒与多种死亡风险呈线性正相关，而葡萄酒则呈现J型关联，即低至中等量饮用红葡萄酒与较低的心血管死亡风险相关，但这可能与葡萄酒饮用者更健康的生活方式有关。
+公开信息显示，“碧芭宝贝”商标归属于上海杰乔实业有限公司，由爱朵护理（浙江）股份有限公司全资持有，爱朵护理成立于2018年，公司研发运营总部位于上海，在浙江湖州与山东临沂布局护理用品制造基地。
 
-最后，餐前空腹饮酒风险明显高于餐中或餐后饮酒。
+该公司已完成四轮融资，于2022年12月启动上市辅导。
 
-这可能与饱腹状态影响乙醛的吸收和生物利用度，进而导致不同的器官特异性毒性有关。
+此前的6月18日，Babycare向21世纪经济报道记者回应称：“现行国标对甲酰胺未设定限量要求，前期公司已主动依据欧盟REACH法规中的SVHC（高关注物质）要求，对纸尿裤进行检测，甲酰胺项目检测结果均为‘未检出’。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 23:09 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 22:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 23:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 23:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 22:59 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 23:04 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 22:50 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 22:58 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 22:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 23:09 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:02 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 22:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 23:10 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 23:22 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 23:13 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 22:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 23:22 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 22:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 23:16 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 23:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 22:59 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 23:09 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 23:05 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 23:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 23:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 23:22 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 23:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/0297231.shtml)
-- 2026-06-29 23:00 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/892471185312.shtml)
-- 2026-06-29 23:02 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/4261889.shtml)
-- 2026-06-29 22:50 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/409679.shtml)
-- 2026-06-29 23:12 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/79498966.shtml)
-- 2026-06-29 23:04 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/8622670.shtml)
-- 2026-06-29 22:54 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/604338.shtml)
-- 2026-06-29 23:16 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/34172999110.shtml)
-- 2026-06-29 22:48 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/28009340.shtml)
-- 2026-06-29 23:08 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/800501937.shtml)
-- 2026-06-29 22:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/0945400639.shtml)
-- 2026-06-29 22:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/10950152199.shtml)
-- 2026-06-29 23:03 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/0543680.shtml)
-- 2026-06-29 22:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/875028547.shtml)
-- 2026-06-29 23:01 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/809236310.shtml)
+- 2026-06-29 23:20 - [锐评T1零封KC](https://www.share.minike.top/Article/details/295689614108.shtml)
+- 2026-06-29 23:16 - [速度与激情9](https://www.blog.minike.top/Article/details/811126592653.shtml)
+- 2026-06-29 23:08 - [世界杯](https://www.share.kurohicncr.top/Article/details/9883635.shtml)
+- 2026-06-29 23:11 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/21505370.shtml)
+- 2026-06-29 23:13 - [极限挑战第一季](https://www.share.minike.top/Article/details/826851918.shtml)
+- 2026-06-29 23:22 - [明星大侦探第一季](http://www.share.minike.top/Article/details/83439940.shtml)
+- 2026-06-29 22:55 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/178135418.shtml)
+- 2026-06-29 23:11 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/377530532.shtml)
+- 2026-06-29 23:01 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/721833.shtml)
+- 2026-06-29 23:13 - [速度与激情9](https://www.share.minike.top/Article/details/95244297.shtml)
+- 2026-06-29 23:11 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/59777645.shtml)
+- 2026-06-29 22:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/229373518.shtml)
+- 2026-06-29 23:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/312485200950.shtml)
+- 2026-06-29 23:23 - [东方风云榜](https://www.blog.minike.top/Article/details/747484692.shtml)
+- 2026-06-29 22:54 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/7580604967.shtml)

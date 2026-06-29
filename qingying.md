@@ -1,57 +1,51 @@
-# 习近平：面对变乱交织的国际形势 中俄关系的稳定性和确定性尤为宝贵
+# 郑丽文被张凌赫合照刷屏，笑称“我们要暴动了”
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-4月15日上午，国家主席习近平在北京人民大会堂会见俄罗斯外长拉夫罗夫。 习近平指出，今年是中俄战略协作伙伴关系建立30周年，也是《中俄睦邻友好合作条约》签署25周年，两国全面战略协作伙伴关系保持高水平发展，各领域合作成果丰硕。面对变乱交织的国际形势，中俄关系的稳定性和确定性尤为宝贵，《中俄睦邻友好合作条约》的强大生命力和示范意义更加凸显。 拉夫罗夫说：“尊敬的主席先生，此次会见
+发布时间：2026年06月18日 19:42 来源：中国新闻网 综合台媒报道，中国国民党籍民代陈玉珍近日出席海峡论坛期间，邀请一同参与论坛的大陆演员张凌赫赴金门访问，并与其合影，引发岛内热议。中国国民党主席郑丽文17日主持中常会时表示，国民党有很多同志在参加海峡论坛的时候，不断传回来他们跟张凌赫的合照，“所以我们就‘暴动’了，还展开了热烈讨论。”台湾时政评论员谢寒冰对此表示，大
 
 ## 正文
 
-4月15日上午，国家主席习近平在北京人民大会堂会见俄罗斯外长拉夫罗夫。
+发布时间：2026年06月18日 19:42 来源：中国新闻网 综合台媒报道，中国国民党籍民代陈玉珍近日出席海峡论坛期间，邀请一同参与论坛的大陆演员张凌赫赴金门访问，并与其合影，引发岛内热议。
 
-习近平指出，今年是中俄战略协作伙伴关系建立30周年，也是《中俄睦邻友好合作条约》签署25周年，两国全面战略协作伙伴关系保持高水平发展，各领域合作成果丰硕。
+中国国民党主席郑丽文17日主持中常会时表示，国民党有很多同志在参加海峡论坛的时候，不断传回来他们跟张凌赫的合照，“所以我们就‘暴动’了，还展开了热烈讨论。
 
-面对变乱交织的国际形势，中俄关系的稳定性和确定性尤为宝贵，《中俄睦邻友好合作条约》的强大生命力和示范意义更加凸显。
+”台湾时政评论员谢寒冰对此表示，大陆展现出开放交流的氛围，台湾艺人与大陆之间保持正常往来与互动；反观民进党当局此前面对胡歌访台等事件时采取限制措施，反而暴露出其“逢中必怕”的心态。
 
-拉夫罗夫说：“尊敬的主席先生，此次会见体现了您对俄中新时代全面战略协作伙伴关系的重视。
-
-俄中在贸易、经济、投资、人道主义、文化等领域的合作发展势头良好，您和普京总统给我们未来合作擘画了蓝图。
-
-” 总监制丨申勇 监制丨龚雪辉 记者丨史伟 王鹏飞 杨紫童 王晓东 马喆 摄像丨李铮 钟锐 李辉 范一鸣 张垚 录音丨程爱华 翻译丨张明帅
+(策划/制作：燕新台 君言晚 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 22:51 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 23:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 23:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 23:07 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 23:08 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 23:08 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 22:53 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 23:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 22:53 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 23:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 22:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 22:52 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 23:01 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 23:08 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 22:59 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 23:01 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 23:00 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 23:12 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 23:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 22:56 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 23:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 23:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 23:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 23:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 23:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 23:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/537996678124.shtml)
-- 2026-06-29 22:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/83513214.shtml)
-- 2026-06-29 23:02 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/245519.shtml)
-- 2026-06-29 23:17 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/236879635953.shtml)
-- 2026-06-29 23:06 - [东方风云榜](https://www.share.minike.top/Article/details/25315588.shtml)
-- 2026-06-29 23:13 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/160518637.shtml)
-- 2026-06-29 22:50 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/3540764862.shtml)
-- 2026-06-29 23:01 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/061263271180.shtml)
-- 2026-06-29 23:02 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/1804715257.shtml)
-- 2026-06-29 23:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/767700165024.shtml)
-- 2026-06-29 22:57 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/0210832314.shtml)
-- 2026-06-29 22:53 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/2827612774.shtml)
-- 2026-06-29 23:14 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/6051303594.shtml)
-- 2026-06-29 23:03 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/5737481804.shtml)
-- 2026-06-29 22:57 - [斗破苍穹](https://www.blog.minike.top/Article/details/5876458434.shtml)
+- 2026-06-29 23:13 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/884348649050.shtml)
+- 2026-06-29 23:22 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/83610032.shtml)
+- 2026-06-29 22:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/8525250.shtml)
+- 2026-06-29 23:02 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/10915806356.shtml)
+- 2026-06-29 23:22 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/138049.shtml)
+- 2026-06-29 23:09 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/53972.shtml)
+- 2026-06-29 23:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/4792174.shtml)
+- 2026-06-29 23:02 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/165621654.shtml)
+- 2026-06-29 22:55 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/53617574.shtml)
+- 2026-06-29 23:13 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/623812265468.shtml)
+- 2026-06-29 23:17 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/75891478.shtml)
+- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/24728.shtml)
+- 2026-06-29 23:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/677758288.shtml)
+- 2026-06-29 23:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/49878.shtml)
+- 2026-06-29 23:03 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/683641859.shtml)

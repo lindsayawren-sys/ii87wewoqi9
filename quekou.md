@@ -1,53 +1,61 @@
-# 贝森特预计今年美国经济增速仍有望超过3-3.5%
+# 郑丽文笑称国民党中常会因张凌赫“暴动”
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特表示，尽管受到伊朗战争影响，他认为今年美国经济增速仍有望超过3-3.5%。 贝森特表示，战争结束后会有“补偿性”增长。 他还指出，目前无法“给出战争结束的确切时间”。责任编辑：丁文武
+中新网6月18日电(燕新台)综合台媒报道，中国国民党籍民代陈玉珍近日出席海峡论坛期间，邀请一同参与论坛的大陆演员张凌赫赴金门访问，并与其合影，引发岛内热议。 据台湾“中央社”报道，陈玉珍15日在其社交平台上发布她与张凌赫合照，说她诚挚邀请张凌赫到金门，亲身感受金门独特的人文风情与观光魅力，也期待通过名人效应，共同带动观光发展与地方经济。 而针对民进党当局今年变本加厉限制阻挠岛内
 
 ## 正文
 
-美国财政部长斯科特·贝森特表示，尽管受到伊朗战争影响，他认为今年美国经济增速仍有望超过3-3.5%。
+中新网6月18日电(燕新台)综合台媒报道，中国国民党籍民代陈玉珍近日出席海峡论坛期间，邀请一同参与论坛的大陆演员张凌赫赴金门访问，并与其合影，引发岛内热议。
 
-贝森特表示，战争结束后会有“补偿性”增长。
+据台湾“中央社”报道，陈玉珍15日在其社交平台上发布她与张凌赫合照，说她诚挚邀请张凌赫到金门，亲身感受金门独特的人文风情与观光魅力，也期待通过名人效应，共同带动观光发展与地方经济。
 
-他还指出，目前无法“给出战争结束的确切时间”。
+而针对民进党当局今年变本加厉限制阻挠岛内各界人士参加海峡论坛，陈玉珍则批评是限制两岸交流。
 
-责任编辑：丁文武
+中国国民党主席郑丽文17日主持中常会时表示，国民党有很多同志在参加海峡论坛的时候，不断传回来他们跟张凌赫的合照，“所以我们就‘暴动’了，还展开了热烈讨论。
+
+” 台湾时政评论员谢寒冰对此表示，大陆展现出开放交流的氛围，台湾艺人与大陆之间保持正常往来与互动；反观民进党当局此前面对胡歌访台等事件时采取限制措施，反而暴露出其“逢中必怕”的心态。
+
+国台办发言人陈斌华17日表示，我们乐见大陆演艺人员赴台交流，愿意为两岸文艺工作者交流往来提供有力支持。
+
+当前大陆演艺人员赴台的主要障碍在于民进党当局的阻挠禁限。
+
+民进党当局应顺应岛内民意，撤除人为壁垒，为两岸正常交流创造条件。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:50 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 22:59 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 22:55 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:50 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 22:49 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 22:57 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 22:56 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 22:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 23:17 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 23:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 22:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 22:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 23:13 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 22:54 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 23:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 23:22 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 23:20 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 23:20 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 23:18 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:23 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 23:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 23:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 23:09 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 22:58 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 23:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 23:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:58 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/157900263446.shtml)
-- 2026-06-29 23:00 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/38143452744.shtml)
-- 2026-06-29 23:00 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/64013700771.shtml)
-- 2026-06-29 23:12 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/8825339613.shtml)
-- 2026-06-29 23:03 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/126293.shtml)
-- 2026-06-29 22:53 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/454193695.shtml)
-- 2026-06-29 23:13 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/009361.shtml)
-- 2026-06-29 23:14 - [千与千寻](http://www.share.minike.top/Article/details/6922705.shtml)
-- 2026-06-29 23:15 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/08957.shtml)
-- 2026-06-29 23:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/38338575.shtml)
-- 2026-06-29 22:54 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/94925.shtml)
-- 2026-06-29 22:52 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/7358184538.shtml)
-- 2026-06-29 23:01 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/111055368979.shtml)
-- 2026-06-29 22:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/8755630.shtml)
-- 2026-06-29 22:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/9604270190.shtml)
+- 2026-06-29 23:20 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/24829880.shtml)
+- 2026-06-29 23:06 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/685241338163.shtml)
+- 2026-06-29 23:05 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/504682051613.shtml)
+- 2026-06-29 22:55 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/879518363880.shtml)
+- 2026-06-29 23:08 - [扬名立万](https://www.share.kurohicncr.top/Article/details/450218917.shtml)
+- 2026-06-29 23:06 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/7689824.shtml)
+- 2026-06-29 23:03 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/47769626238.shtml)
+- 2026-06-29 23:15 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0098633.shtml)
+- 2026-06-29 23:18 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/7262264345.shtml)
+- 2026-06-29 23:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/7374085965.shtml)
+- 2026-06-29 23:15 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/41297630.shtml)
+- 2026-06-29 23:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/6134656526.shtml)
+- 2026-06-29 23:21 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/275989829171.shtml)
+- 2026-06-29 22:59 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/635335.shtml)
+- 2026-06-29 23:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/34876350359.shtml)

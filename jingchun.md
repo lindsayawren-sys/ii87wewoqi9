@@ -1,61 +1,56 @@
-# 机器人半马即将开跑，五大看点早知道
+# 受中东危机影响，韩国5月PPI连续九个月上涨
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电(记者 吴家驹)2026人形机器人半程马拉松将于4月19日在北京亦庄开跑，五大看点值得关注。 第一：谁更能跑？ 去年4月的人形机器人半马，天工机器人一骑绝尘夺冠，宇树官方并未派队参赛。当时有第三方队伍使用宇树机器人参赛，结果在起点就直接摔倒，成绩不佳，一时让宇树机器人的跑步能力备受质疑。 到了8月的2025世界人形机器人运动会，情况出现反转。宇树机器人在1
+韩国央行周五公布的数据显示，受持续的中东危机导致石油和原材料价格上涨的影响，韩国5月份生产者价格指数（PPI）连续第九个月上涨。 韩国央行初步数据显示，作为衡量未来消费者通胀的关键指标，5月份PPI环比上涨0.8%，较前一月的2.8%涨幅有所收窄。 今年4月份，韩国生产者价格指数环比上涨2.5%，创下自1998年2月以来的最高月度涨幅。 周五的数据显示，5月份生产者价格指数同比
 
 ## 正文
 
-中新网北京4月15日电(记者 吴家驹)2026人形机器人半程马拉松将于4月19日在北京亦庄开跑，五大看点值得关注。
+韩国央行周五公布的数据显示，受持续的中东危机导致石油和原材料价格上涨的影响，韩国5月份生产者价格指数（PPI）连续第九个月上涨。
 
-第一：谁更能跑？
+韩国央行初步数据显示，作为衡量未来消费者通胀的关键指标，5月份PPI环比上涨0.8%，较前一月的2.8%涨幅有所收窄。
 
-去年4月的人形机器人半马，天工机器人一骑绝尘夺冠，宇树官方并未派队参赛。
+今年4月份，韩国生产者价格指数环比上涨2.5%，创下自1998年2月以来的最高月度涨幅。
 
-当时有第三方队伍使用宇树机器人参赛，结果在起点就直接摔倒，成绩不佳，一时让宇树机器人的跑步能力备受质疑。
+周五的数据显示，5月份生产者价格指数同比上涨8.5%。
 
-到了8月的2025世界人形机器人运动会，情况出现反转。
+生产者价格是未来通胀趋势的关键指标，因为它们影响企业在未来几个月向消费者收取的价格。
 
-宇树机器人在1500米、400米、4×100米接力多个跑步项目中，面对面击败天工机器人，完成“复仇”。
+受煤炭和石油产品价格上涨的推动，5月份工业品价格环比上涨0.7%。
 
-不过在备受瞩目的100米“飞机器人大战”中，宇树机器人率先冲线，而天工机器人凭借自主跑步的系数加成最终夺冠。
+农产品、畜产品和渔业产品价格环比下降0.8%，而服务价格则上涨1.2%。
 
-两家已经“卯上”的机器人公司，4月19日谁能笑到最后？
+数据显示，反映生产者和进口价格的国内供应价格指数5月份环比持平。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 22:55 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 23:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 23:11 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 23:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 22:48 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 22:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 22:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 22:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 23:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 22:48 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 23:16 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:53 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 23:08 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:56 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 23:10 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 23:15 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 23:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 23:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 23:14 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 23:23 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 23:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 23:21 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/83020075.shtml)
-- 2026-06-29 23:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/64107.shtml)
-- 2026-06-29 22:56 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/922818257551.shtml)
-- 2026-06-29 23:04 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/71067955339.shtml)
-- 2026-06-29 22:48 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/200892.shtml)
-- 2026-06-29 23:07 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/1923263.shtml)
-- 2026-06-29 23:04 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/131793.shtml)
-- 2026-06-29 23:16 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/51273048.shtml)
-- 2026-06-29 23:11 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/97240.shtml)
-- 2026-06-29 22:55 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/148529740.shtml)
-- 2026-06-29 23:13 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/97221.shtml)
-- 2026-06-29 23:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/980722676930.shtml)
-- 2026-06-29 23:14 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/288718094537.shtml)
-- 2026-06-29 23:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/305316.shtml)
-- 2026-06-29 23:08 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/30380204711.shtml)
+- 2026-06-29 23:21 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/983438525.shtml)
+- 2026-06-29 23:04 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/70579822.shtml)
+- 2026-06-29 22:58 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/8811841.shtml)
+- 2026-06-29 22:54 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/0373968.shtml)
+- 2026-06-29 23:11 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/216983820.shtml)
+- 2026-06-29 22:59 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/62601988.shtml)
+- 2026-06-29 22:59 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/080828441.shtml)
+- 2026-06-29 23:22 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/617869.shtml)
+- 2026-06-29 22:58 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/99078841292.shtml)
+- 2026-06-29 23:14 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/7002930.shtml)
+- 2026-06-29 23:15 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/8923633004.shtml)
+- 2026-06-29 23:00 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/45418.shtml)
+- 2026-06-29 23:10 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/2755080490.shtml)
+- 2026-06-29 23:16 - [请回答王牌2019](http://www.share.minike.top/Article/details/74002271536.shtml)
+- 2026-06-29 23:20 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/6981666.shtml)

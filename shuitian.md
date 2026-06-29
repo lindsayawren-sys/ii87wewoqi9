@@ -1,56 +1,58 @@
-# 财通证券：维持金蝶国际“买入”评级 订阅ARR稳定增长
+# 查五粮液扣茅台，警方发声难解四大疑问
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-财通证券发布研报称，预计金蝶国际（00268）2026-2028年实现营业收入79.4/90.4/102.7亿元，现价对应PS分别为3.1/2.7/2.4X。考虑到公司续费与ARR表现保持韧性，AI原生产品顺利推进，维持“买入”评级。 财通证券主要观点如下： 事件 2026年4月13日，金蝶国际发布一季度经营数据，截至2026年3月31日，公司订阅ARR约为42.2亿元，星瀚/
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 要撇清“逐利执法”嫌疑，还需更多清晰且有说服力的证明。 近日，一起跨省打假案引发公众关注。据华商报大风新闻报道，2023年5月，四川宜宾珙县警方为查办假五粮液（维权）案远赴辽宁沈阳，却在未查获假五粮液的情况下，扣走了何先生店内159瓶茅台。在警方安排下，何先生向五粮液公司支付22万元达成和解，但过了两年仍被起诉。案件审理
 
 ## 正文
 
-财通证券发布研报称，预计金蝶国际（00268）2026-2028年实现营业收入79.4/90.4/102.7亿元，现价对应PS分别为3.1/2.7/2.4X。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 要撇清“逐利执法”嫌疑，还需更多清晰且有说服力的证明。
 
-考虑到公司续费与ARR表现保持韧性，AI原生产品顺利推进，维持“买入”评级。
+近日，一起跨省打假案引发公众关注。
 
-财通证券主要观点如下： 事件 2026年4月13日，金蝶国际发布一季度经营数据，截至2026年3月31日，公司订阅ARR约为42.2亿元，星瀚/星空/星辰NDR分别为103%/96%/94%，AI套件签约金额2.3亿元。
+据华商报大风新闻报道，2023年5月，四川宜宾珙县警方为查办假五粮液（维权）案远赴辽宁沈阳，却在未查获假五粮液的情况下，扣走了何先生店内159瓶茅台。
 
-订阅ARR新签趋势向上 截至1Q26，公司订阅ARR同比增长18.5%至42.4亿元，单季度净新增1.3亿元。
+在警方安排下，何先生向五粮液公司支付22万元达成和解，但过了两年仍被起诉。
 
-该行进一步按照存量净留存和新签两部分来分解ARR的增长：1）续费部分，星空和星辰稳中向好，NDR同比均改善2pct至96%/94%。
+案件审理期间，何先生多次申请查验并鉴定被扣酒品，均被驳回。
 
-2）新签趋势向上，期内签约客户包括双汇发展、面壁智能等。
+直到今年5月，何先生终于获准进入警方库房查验，却发现被扣茅台有近三分之一已经缺失或开盖少酒。
 
-AI套件需求强劲，新签合同额达2.3亿元 AI套件为公司新推出的以自然语言入口交互、底层SaaS能力沉淀为Skills和Agents的AI原生ERP产品，目前主要面向中大型客群。
+更令何先生惊讶的是，参与办案的辅警竟坦言，当年其实是“逐利执法”，背后有警方的“KPI考核”。
 
-据2025年业绩会交流，公司指引2026年AI套件收入将达到10亿元。
+对此，宜宾市公安局很快发布情况通报，表示已成立专项工作组展开调查。
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 23:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:17 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 23:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 23:09 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 23:16 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 23:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 22:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 23:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 23:14 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 23:02 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 23:16 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 23:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 23:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 22:59 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 23:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 22:57 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 22:57 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 23:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 23:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:10 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 23:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/6752373.shtml)
-- 2026-06-29 22:55 - [世界杯](https://www.blog.kurohicncr.top/Article/details/4698965.shtml)
-- 2026-06-29 23:14 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/18906.shtml)
-- 2026-06-29 23:11 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/8472006536.shtml)
-- 2026-06-29 23:09 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/3804905604.shtml)
-- 2026-06-29 23:06 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/872503853.shtml)
-- 2026-06-29 23:06 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/256063.shtml)
-- 2026-06-29 23:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/845559.shtml)
-- 2026-06-29 22:51 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/2769868608.shtml)
-- 2026-06-29 23:10 - [沙丘](http://www.share.minike.top/Article/details/29167173296.shtml)
-- 2026-06-29 22:48 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/77719.shtml)
-- 2026-06-29 23:01 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/3697798120.shtml)
-- 2026-06-29 23:05 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/770384.shtml)
-- 2026-06-29 23:07 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/713779743511.shtml)
-- 2026-06-29 22:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/52477930.shtml)
+- 2026-06-29 23:05 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/144103.shtml)
+- 2026-06-29 22:55 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/222660200427.shtml)
+- 2026-06-29 22:57 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/2685032.shtml)
+- 2026-06-29 23:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/900028.shtml)
+- 2026-06-29 23:19 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/514812.shtml)
+- 2026-06-29 23:11 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/315316174.shtml)
+- 2026-06-29 23:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/832915857.shtml)
+- 2026-06-29 23:05 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/67091.shtml)
+- 2026-06-29 23:17 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/1624597567.shtml)
+- 2026-06-29 22:56 - [东方风云榜](http://www.share.minike.top/Article/details/12501152.shtml)
+- 2026-06-29 23:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/992853174.shtml)
+- 2026-06-29 23:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/396897093.shtml)
+- 2026-06-29 23:17 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/9425477191.shtml)
+- 2026-06-29 23:16 - [月亮](http://www.blog.kurohicncr.top/Article/details/92006.shtml)
+- 2026-06-29 23:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/92922702724.shtml)

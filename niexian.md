@@ -1,56 +1,61 @@
-# 国联民生证券：持续高分红回馈股东 维持中国宏桥“推荐”评级
+# 美国首次申请失业救济人数下降 表明劳动力市场具有韧性
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-国联民生证券发布研报称，铝行业紧平衡格局持续，铝价中枢上移，绿色能源转型助力长远发展。预计中国宏桥（01378）2026-2028年公司将实现归母净利368.5亿元、377.4亿元和390.3亿元，对应现价的PE分别为8、8和8倍，维持“推荐”评级。 国联民生证券主要观点如下： 公司发布2025年年报 1）业绩：2025年公司实现营收1623.5亿元，同比增加4.0%，归母净利
+美国上周首次申领失业救济申请人数下降，表明劳动力市场仍处于“低解雇”状态。 根据美国劳工部周四公布的数据，在截至6月13日当周，首次申请失业救济人数减少4000人，降至22.6万人。机构对经济学家进行调查得到的预测中值为22.5万人。然而，持续申领失业救济人数（可作为领取救济金人数的参考指标）在前一周上升至181万人。 上述数据显示，尽管伊朗战争引发了能源价格冲击，但劳动力市场
 
 ## 正文
 
-国联民生证券发布研报称，铝行业紧平衡格局持续，铝价中枢上移，绿色能源转型助力长远发展。
+美国上周首次申领失业救济申请人数下降，表明劳动力市场仍处于“低解雇”状态。
 
-预计中国宏桥（01378）2026-2028年公司将实现归母净利368.5亿元、377.4亿元和390.3亿元，对应现价的PE分别为8、8和8倍，维持“推荐”评级。
+根据美国劳工部周四公布的数据，在截至6月13日当周，首次申请失业救济人数减少4000人，降至22.6万人。
 
-国联民生证券主要观点如下： 公司发布2025年年报 1）业绩：2025年公司实现营收1623.5亿元，同比增加4.0%，归母净利润226.4亿，同比增加1.2%；25H2营收813.1亿元，环比+0.3%，归母净利102.8亿元；2）分红：2025年拟派发股息每股165港仙，现金分红约144.2亿元，分红率63.7%，对应3月24日股价的股息率4.8%。
+机构对经济学家进行调查得到的预测中值为22.5万人。
 
-电解铝：产销稳定，铝价上涨盈利提升 1）量：25年公司电解铝销量582.4万吨，同比基本持平，其中25H2销量291.8万吨，环比基本持平；2）价：25年铝价20721元/吨，同比+4.0%，其中25Q4铝价21534元/吨，环比+4.0%；3）本&利：2025年吨铝生产成本1.30万元，单吨毛利0.52万元，同比+0.09万元，其中25H2吨铝生产成本1.27万元，单吨毛利0.59万元，环比+0.14万元。
+然而，持续申领失业救济人数（可作为领取救济金人数的参考指标）在前一周上升至181万人。
 
-核心看点 1）产业链一体化布局完善。
+上述数据显示，尽管伊朗战争引发了能源价格冲击，但劳动力市场依然保持韧性。
 
-公司电解铝合规产能645.9万吨，截至2025年5月，山东产能497.1万吨，云南产能148.8万吨；氧化铝产能2100万吨，其中国内产能1900万吨，印尼产能200万吨；公司联营的几内亚铝土矿项目产能5000万吨，公司持股22.5%，折算权益产能1125万吨。
+5月份强于预期的就业报告也印证了这一观点，该报告显示当月雇主新增加了17.2万个工作岗位。
 
-公司铝土矿、氧化铝、电解铝一体化布局完善，原料保障能力强。
+这一数据缓解了人们对招聘速度急剧放缓的担忧，并促使投资者增加对美联储加息的押注。
 
-2）电解铝产能向云南转移，绿电助力长远发展。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 23:10 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 23:13 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 23:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 23:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 23:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 23:06 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 23:05 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 23:11 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 23:12 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 23:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 23:21 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 23:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 23:14 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 23:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 23:03 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 23:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 23:06 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 23:05 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 23:09 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 23:15 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 23:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 22:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 23:18 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/324834.shtml)
-- 2026-06-29 23:05 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/8619821729.shtml)
-- 2026-06-29 23:10 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/6448952029.shtml)
-- 2026-06-29 23:12 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/3957322675.shtml)
-- 2026-06-29 22:59 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/640631.shtml)
-- 2026-06-29 22:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/78938816.shtml)
-- 2026-06-29 23:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/151531414.shtml)
-- 2026-06-29 22:50 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/39237887.shtml)
-- 2026-06-29 23:06 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/3292761.shtml)
-- 2026-06-29 23:15 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/492123.shtml)
-- 2026-06-29 22:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/290709803.shtml)
-- 2026-06-29 22:58 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/5060140.shtml)
-- 2026-06-29 23:14 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/0650107.shtml)
-- 2026-06-29 23:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/654417.shtml)
-- 2026-06-29 22:55 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/74186770402.shtml)
+- 2026-06-29 23:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/800550566.shtml)
+- 2026-06-29 23:12 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/3957273.shtml)
+- 2026-06-29 23:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/8514528.shtml)
+- 2026-06-29 22:57 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3344856335.shtml)
+- 2026-06-29 22:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2433158548.shtml)
+- 2026-06-29 23:20 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/2810204.shtml)
+- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/57041301.shtml)
+- 2026-06-29 23:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/9391358.shtml)
+- 2026-06-29 23:14 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/10956393652.shtml)
+- 2026-06-29 23:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/971398.shtml)
+- 2026-06-29 23:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5382206.shtml)
+- 2026-06-29 23:00 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/262800731436.shtml)
+- 2026-06-29 23:15 - [急先锋](https://www.blog.kurohicncr.top/Article/details/402633.shtml)
+- 2026-06-29 22:54 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/21438046382.shtml)
+- 2026-06-29 23:21 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/2457873.shtml)

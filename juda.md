@@ -1,56 +1,58 @@
-# 尾盘：标普500继续走高，已抹平伊朗战争以来跌幅
+# 韩国股市小幅收跌结束六连涨，盘中一度站上9300点
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-北京时间4月15日凌晨，美股周二尾盘延续涨势。此前一个交易日，交易员们对美伊和平谈判破裂不以为意，同时对两国仍可能达成协议持乐观态度。白宫周二称美伊第二轮谈判正在讨论中。 道指涨258.12点，涨幅为0.54%，报48476.37点；纳指涨368.76点，涨幅为1.59%，报23552.49点；标普500指数涨62.83点，涨幅为0.91%，报6949.07点。 科技股再次为大
+韩国股市在连续六个交易日上涨后，周五出现回调。受伊朗局势不确定性再度升温影响，投资者纷纷兑现人工智能板块行情带来的收益 韩国综合股价指数（KOSPI）在经历震荡后，最终收跌11.42点，跌幅0.13%，报9052.42点，盘中最高触及9385.59点。 当天成交量达5.111亿股，成交额达65.3万亿韩元（约合427亿美元）。散户投资者净买入1.7万亿韩元，机构投资者和外国投资
 
 ## 正文
 
-北京时间4月15日凌晨，美股周二尾盘延续涨势。
+韩国股市在连续六个交易日上涨后，周五出现回调。
 
-此前一个交易日，交易员们对美伊和平谈判破裂不以为意，同时对两国仍可能达成协议持乐观态度。
+受伊朗局势不确定性再度升温影响，投资者纷纷兑现人工智能板块行情带来的收益 韩国综合股价指数（KOSPI）在经历震荡后，最终收跌11.42点，跌幅0.13%，报9052.42点，盘中最高触及9385.59点。
 
-白宫周二称美伊第二轮谈判正在讨论中。
+当天成交量达5.111亿股，成交额达65.3万亿韩元（约合427亿美元）。
 
-道指涨258.12点，涨幅为0.54%，报48476.37点；纳指涨368.76点，涨幅为1.59%，报23552.49点；标普500指数涨62.83点，涨幅为0.91%，报6949.07点。
+散户投资者净买入1.7万亿韩元，机构投资者和外国投资者合计净卖出1.6万亿韩元。
 
-科技股再次为大盘提供支撑。
+受芯片股上涨带动，KOSPI指数开盘大幅走高，但午后因美伊后续谈判推迟的消息而一度下跌。
 
-甲骨文上涨5%，延续了前一交易日逾12%的涨幅。
+此前，白宫宣布副总统万斯将推迟原定前往瑞士与伊朗直接会谈的行程。
 
-英伟达和Palantir Technologies也继续攀升。
+个股方面，三星电子股价下跌2.34%，收于35.4万韩元；其竞争对手SK海力士股价上涨2.94%，收于276.4万韩元。
 
-面对日益加剧的地缘政治不确定性，华尔街再次展现出韧性。
+现代汽车股价上涨2%，收于61.3万韩元；电池制造商LG新能源股价上涨1.12%，收于40.45万韩元；国防巨头韩华航天股价下跌5.63%，收于112.2万韩元。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 22:54 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 22:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 23:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:49 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 23:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 22:51 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 23:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 23:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 23:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 22:54 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 23:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 23:15 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 23:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 23:20 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 23:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 23:20 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:54 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 23:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 23:00 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 23:05 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/2810015.shtml)
-- 2026-06-29 23:05 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/453285756.shtml)
-- 2026-06-29 22:57 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/49462.shtml)
-- 2026-06-29 23:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/9429821393.shtml)
-- 2026-06-29 23:17 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/70130774.shtml)
-- 2026-06-29 22:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/2889398.shtml)
-- 2026-06-29 23:05 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/2812023.shtml)
-- 2026-06-29 23:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/046358979962.shtml)
-- 2026-06-29 23:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/631673.shtml)
-- 2026-06-29 23:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/576845.shtml)
-- 2026-06-29 22:49 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/384856957.shtml)
-- 2026-06-29 23:14 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/7987637701.shtml)
-- 2026-06-29 23:07 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/82843301390.shtml)
-- 2026-06-29 22:51 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/896393120455.shtml)
-- 2026-06-29 23:11 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/10056.shtml)
+- 2026-06-29 23:23 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/724714234.shtml)
+- 2026-06-29 23:06 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/721663288640.shtml)
+- 2026-06-29 23:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/79355293.shtml)
+- 2026-06-29 22:59 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/285903982008.shtml)
+- 2026-06-29 23:10 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/5781754.shtml)
+- 2026-06-29 23:19 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/61944500883.shtml)
+- 2026-06-29 23:11 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/566012.shtml)
+- 2026-06-29 22:59 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/520031.shtml)
+- 2026-06-29 22:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/526596511251.shtml)
+- 2026-06-29 23:08 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/119995909599.shtml)
+- 2026-06-29 23:22 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/026840.shtml)
+- 2026-06-29 23:03 - [世界杯](http://www.blog.kurohicncr.top/Article/details/60746758759.shtml)
+- 2026-06-29 22:55 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/81456.shtml)
+- 2026-06-29 22:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/53090345047.shtml)
+- 2026-06-29 23:12 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/424934443.shtml)

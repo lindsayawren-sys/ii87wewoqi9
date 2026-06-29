@@ -1,58 +1,56 @@
-# 诺奖得主克鲁格曼：中东危机将进一步加强中国在可再生能源领域的主导地位
+# 2026年“桂BA”揭幕
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-诺贝尔经济学奖得主保罗·克鲁格曼认为，伊朗冲突正在重塑全球能源市场，而这将有利于中国。 克鲁格曼在自己的博客Substack上写道：“特朗普对能源革命的敌视态度，最大的赢家将是中国，中国主导着可再生能源基础设施的生产。此外，由于伊朗局势的失控，中国主导的能源未来将提前到来。” 由于霍尔木兹海峡持续关闭，油价飙升。专家预测，这场混乱将促使各国加速向可再生能源转型，从而加速清洁能源
+中新网来宾6月21日电 (黄令妍)6月20日晚，2026年广西城市篮球联赛(简称“桂BA”)开幕式暨揭幕战在来宾市体育馆举办。东道主来宾市队迎战百色市队，最终后者以87:63客场取胜，斩获赛事开门红。 据介绍，“桂BA”是广西首个实现14个设区市全覆盖、政府主导、多部门协同、社会全民参与的自治区级城市篮球自主品牌赛事。赛事设置男子篮球竞赛组别，参赛选手以本地务工、就学、常住人口
 
 ## 正文
 
-诺贝尔经济学奖得主保罗·克鲁格曼认为，伊朗冲突正在重塑全球能源市场，而这将有利于中国。
+中新网来宾6月21日电 (黄令妍)6月20日晚，2026年广西城市篮球联赛(简称“桂BA”)开幕式暨揭幕战在来宾市体育馆举办。
 
-克鲁格曼在自己的博客Substack上写道：“特朗普对能源革命的敌视态度，最大的赢家将是中国，中国主导着可再生能源基础设施的生产。
+东道主来宾市队迎战百色市队，最终后者以87:63客场取胜，斩获赛事开门红。
 
-此外，由于伊朗局势的失控，中国主导的能源未来将提前到来。
+据介绍，“桂BA”是广西首个实现14个设区市全覆盖、政府主导、多部门协同、社会全民参与的自治区级城市篮球自主品牌赛事。
 
-” 由于霍尔木兹海峡持续关闭，油价飙升。
+赛事设置男子篮球竞赛组别，参赛选手以本地务工、就学、常住人口为主，开放高中及高校学子参赛通道，拓宽青训选材路径。
 
-专家预测，这场混乱将促使各国加速向可再生能源转型，从而加速清洁能源的普及。
+比赛采用主客场制，设分区赛、半决赛、总决赛三个阶段。
 
-克鲁格曼强调了对“电气技术”的新关注，例如太阳能、风能和电池等储能技术。
+竞赛时间为6月至9月。
 
-他认为，得益于中国推行的产业政策，中国已成为制造业强国，因此完全有能力继续为那些努力摆脱化石燃料依赖的国家提供能源。
+2026年“桂BA”首场赛事特邀知名广西籍球员许钟豪担任现场解说。
 
-“中国在许多行业实力雄厚，而在电气技术领域，尤其是太阳能电池板、风力涡轮机、电池和电动汽车等产业集群——可再生能源革命的核心——中国拥有绝对的主导地位，”他补充道。
+他表示，特别期待有球员从“桂BA”起步，走出广西，走向更高平台。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 23:10 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 22:51 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 23:15 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 23:17 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 23:11 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 22:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 23:01 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 22:48 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 22:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 22:48 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 22:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 23:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 23:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 23:03 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 23:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 23:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 23:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 23:16 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 23:07 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 23:13 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/47957.shtml)
-- 2026-06-29 22:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/700542.shtml)
-- 2026-06-29 22:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/25246.shtml)
-- 2026-06-29 23:00 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/550572.shtml)
-- 2026-06-29 23:07 - [沙丘](https://www.share.kurohicncr.top/Article/details/19345402.shtml)
-- 2026-06-29 23:00 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/2222193.shtml)
-- 2026-06-29 23:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/9972078936.shtml)
-- 2026-06-29 23:02 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/89368769.shtml)
-- 2026-06-29 23:11 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/99312.shtml)
-- 2026-06-29 22:54 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/65327.shtml)
-- 2026-06-29 22:52 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/628797.shtml)
-- 2026-06-29 23:12 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/90470755.shtml)
-- 2026-06-29 23:00 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/050765.shtml)
-- 2026-06-29 23:17 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/063556.shtml)
-- 2026-06-29 23:15 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/31843778290.shtml)
+- 2026-06-29 22:56 - [金牌调解](http://www.blog.minike.top/Article/details/30214.shtml)
+- 2026-06-29 23:08 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/0530598700.shtml)
+- 2026-06-29 23:21 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/9514549.shtml)
+- 2026-06-29 23:12 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/1067419.shtml)
+- 2026-06-29 23:08 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/724970578091.shtml)
+- 2026-06-29 22:58 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/67344475508.shtml)
+- 2026-06-29 23:06 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/3270123.shtml)
+- 2026-06-29 22:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/503276.shtml)
+- 2026-06-29 23:06 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/94881977.shtml)
+- 2026-06-29 23:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/71210.shtml)
+- 2026-06-29 23:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/949970.shtml)
+- 2026-06-29 23:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/63985308.shtml)
+- 2026-06-29 23:19 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/219653284040.shtml)
+- 2026-06-29 22:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/3271814.shtml)
+- 2026-06-29 23:00 - [斛珠夫人](https://www.blog.minike.top/Article/details/565306.shtml)

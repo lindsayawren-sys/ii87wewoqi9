@@ -1,48 +1,60 @@
-# 苏林：越南愿同中国在多边机制中深化合作，维护地区和平稳定
+# 首届马来西亚榴莲节在南宁举办 实现“树上熟+空运直达”
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 16:38 来源：中国新闻网 4月14日上午，越共中央总书记、国家主席苏林抵达北京，开始对中国进行为期四天的国事访问。当天下午，苏林率团来到清华大学，出席中国-越南高等教育合作与科技创新论坛并发表了约20分钟的主旨演讲。他表示，越南愿同中国在多边机制中深化合作，维护地区和平、稳定与发展。 (记者 李佳悦 曾玥 让宝奎 制作 齐艺玲） 责任编辑：
+中新网南宁6月19日电(林浩 俞靖)“近年来，中国持续保持全球最大的榴莲消费市场地位，越来越多东盟国家希望分享这一庞大市场的发展机遇。我们将不断探索创新方式，将马来西亚猫山王和黑刺等高品质榴莲带给中国消费者，打造‘榴莲界的爱马仕’。”马来西亚驻南宁总领事馆总领事法蒂尔·伊斯迈尔18日晚在广西南宁表示。 中马榴莲日暨第一届马来西亚榴莲节(南宁站)活动当晚在南宁市启动，法蒂尔·伊斯
 
 ## 正文
 
-发布时间：2026年04月15日 16:38 来源：中国新闻网 4月14日上午，越共中央总书记、国家主席苏林抵达北京，开始对中国进行为期四天的国事访问。
+中新网南宁6月19日电(林浩 俞靖)“近年来，中国持续保持全球最大的榴莲消费市场地位，越来越多东盟国家希望分享这一庞大市场的发展机遇。
 
-当天下午，苏林率团来到清华大学，出席中国-越南高等教育合作与科技创新论坛并发表了约20分钟的主旨演讲。
+我们将不断探索创新方式，将马来西亚猫山王和黑刺等高品质榴莲带给中国消费者，打造‘榴莲界的爱马仕’。
 
-他表示，越南愿同中国在多边机制中深化合作，维护地区和平、稳定与发展。
+”马来西亚驻南宁总领事馆总领事法蒂尔·伊斯迈尔18日晚在广西南宁表示。
 
-(记者 李佳悦 曾玥 让宝奎 制作 齐艺玲） 责任编辑：【罗攀】
+中马榴莲日暨第一届马来西亚榴莲节(南宁站)活动当晚在南宁市启动，法蒂尔·伊斯迈尔在活动致辞中介绍，对马来西亚人而言，榴莲不仅仅是一种水果，更承载着深厚的文化内涵。
+
+每年榴莲季，家人和朋友们欢聚，共同品尝榴莲，增进了彼此情谊。
+
+他希望更多中国消费者赴马来西亚旅游，感受当地独特的榴莲文化。
+
+广西壮族自治区商务厅二级巡视员杨勇介绍，广西是东盟水果进入中国市场的“主通道”和“集散地”。
+
+今年1月至5月，经广西口岸进口榴莲货值约105.4亿元人民币，同比增长114.1%。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 23:17 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 23:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 22:59 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 22:50 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 23:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 22:49 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 23:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 23:08 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 23:11 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 23:06 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 23:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 23:11 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 23:01 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 22:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 23:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 23:01 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 23:06 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 22:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 23:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 23:16 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 23:18 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/768634.shtml)
-- 2026-06-29 22:58 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/25800.shtml)
-- 2026-06-29 23:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/441572.shtml)
-- 2026-06-29 23:09 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/17212.shtml)
-- 2026-06-29 22:50 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/112591.shtml)
-- 2026-06-29 23:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/1404193.shtml)
-- 2026-06-29 23:07 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/1325696.shtml)
-- 2026-06-29 23:15 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/73944632.shtml)
-- 2026-06-29 23:11 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/60387.shtml)
-- 2026-06-29 23:14 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/967201713.shtml)
-- 2026-06-29 23:11 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/1903034.shtml)
-- 2026-06-29 23:08 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/746319470.shtml)
-- 2026-06-29 22:55 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/068285.shtml)
-- 2026-06-29 22:55 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/063017112.shtml)
-- 2026-06-29 23:15 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/576564226765.shtml)
+- 2026-06-29 23:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/1710668434.shtml)
+- 2026-06-29 23:05 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/210578721.shtml)
+- 2026-06-29 23:15 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/19177185.shtml)
+- 2026-06-29 23:18 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/46973.shtml)
+- 2026-06-29 23:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/56244053619.shtml)
+- 2026-06-29 22:56 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/11955694451.shtml)
+- 2026-06-29 23:08 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/97684.shtml)
+- 2026-06-29 23:01 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/26928626.shtml)
+- 2026-06-29 23:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/4549218.shtml)
+- 2026-06-29 23:03 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/68928090660.shtml)
+- 2026-06-29 23:23 - [美人鱼](https://www.share.minike.top/Article/details/121593127.shtml)
+- 2026-06-29 23:02 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/618888.shtml)
+- 2026-06-29 23:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/080114096.shtml)
+- 2026-06-29 22:56 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/25798385862.shtml)
+- 2026-06-29 23:19 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/54205212.shtml)

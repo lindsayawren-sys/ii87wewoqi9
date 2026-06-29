@@ -1,58 +1,60 @@
-# 美国副总统称对当前美伊局势进展“感到乐观”
+# “农头”链“工尾” 甘肃民勤打通产业致富全链条
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-当地时间4月14日，美国副总统万斯就伊朗问题表示，对当前局势进展“感到乐观”。他同时提到，美国与伊朗之间存在大量不信任，这无法在一夜之间解决。 14日，央视记者获悉，美国方面有消息称，万斯预计将牵头可能举行的第二轮美伊谈判。消息人士称，特朗普特使威特科夫及其女婿库什纳也将参与。特朗普已将推动外交解决方案的任务交由三人负责，并持续与伊朗及中间方保持接触。目前美方正内部讨论第二轮会
+中新网兰州6月18日电 (马爱彬)连日来，甘肃省武威市民勤同泽农业有限公司高端肉羊加工车间内，自动化生产线满负荷运转。身着防护服的技术人员手法利落，将屠宰后的羊只精细分割成全排、法式小切等十余款精品鲜肉，经真空封装、速冻仓储后销往全国，一条从牧场到餐桌的产业流水线高速运转。 “我们统筹肉羊繁育、养殖、加工、冷链、销售全链条，构建起源头直达餐桌的完整产业体系与成熟运营模式。”民勤
 
 ## 正文
 
-当地时间4月14日，美国副总统万斯就伊朗问题表示，对当前局势进展“感到乐观”。
+中新网兰州6月18日电 (马爱彬)连日来，甘肃省武威市民勤同泽农业有限公司高端肉羊加工车间内，自动化生产线满负荷运转。
 
-他同时提到，美国与伊朗之间存在大量不信任，这无法在一夜之间解决。
+身着防护服的技术人员手法利落，将屠宰后的羊只精细分割成全排、法式小切等十余款精品鲜肉，经真空封装、速冻仓储后销往全国，一条从牧场到餐桌的产业流水线高速运转。
 
-14日，央视记者获悉，美国方面有消息称，万斯预计将牵头可能举行的第二轮美伊谈判。
+“我们统筹肉羊繁育、养殖、加工、冷链、销售全链条，构建起源头直达餐桌的完整产业体系与成熟运营模式。
 
-消息人士称，特朗普特使威特科夫及其女婿库什纳也将参与。
+”民勤县农业农村局副局长张辉明介绍说，前端抓实良种繁育、标准化养殖和疫病防控，中端依托现代化屠宰线开展精细化分割加工，后端配套冷链物流拓宽销售渠道，各环节闭环管控守住羊源品质与食品安全，既让食客吃上安全鲜美的羊肉，也为民勤肉羊产业长效发展夯实产业底座。
 
-特朗普已将推动外交解决方案的任务交由三人负责，并持续与伊朗及中间方保持接触。
+肉羊精深加工为畜牧产业串起增值链条，激活产业内生动力；而特色果蔬产业则乘云驾“数”，搭乘数字电商东风，解锁增收新路径，双轮驱动赋能乡村振兴。
 
-目前美方正内部讨论第二轮会谈安排，但尚未确定是否举行或具体时间。
+在民勤县大坝镇六沟村，“90后”张煜文在温室大棚架起直播间。
 
-（央视记者 刘骁骞） ©2026中央广播电视总台版权所有。
+镜头前，他生动讲解人参果生长特性、食用益处，以鲜活形式带网友云游园、品鲜果，积累数万粉丝。
 
-未经许可，请勿转载使用。
+自称为“潮农”的他每日直播八小时，完整展示果蔬管护、分拣包装、冷链储运全过程，拓宽农产品销路，持续凝聚消费群体、提升产品复购率。
 
 ## 相关推荐
 
-- 2026-06-29 23:09 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 23:11 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 22:58 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 23:15 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 23:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 23:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 23:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 22:51 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 23:09 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 22:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 22:50 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 23:13 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 22:55 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 23:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 23:11 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 23:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 23:09 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 23:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 23:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 23:02 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 22:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 23:10 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 23:10 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 22:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 23:20 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/922193553670.shtml)
-- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/06862.shtml)
-- 2026-06-29 23:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/897237.shtml)
-- 2026-06-29 23:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/34364115.shtml)
-- 2026-06-29 23:09 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/12801827.shtml)
-- 2026-06-29 22:54 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/086421929.shtml)
-- 2026-06-29 23:04 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/3872721844.shtml)
-- 2026-06-29 22:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/170753903.shtml)
-- 2026-06-29 22:58 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/577514909.shtml)
-- 2026-06-29 22:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/71957424.shtml)
-- 2026-06-29 22:55 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/5067042.shtml)
-- 2026-06-29 23:13 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/02536101887.shtml)
-- 2026-06-29 22:52 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/379768411.shtml)
-- 2026-06-29 23:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/650618100763.shtml)
-- 2026-06-29 23:17 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/2601898.shtml)
+- 2026-06-29 23:06 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/307692696.shtml)
+- 2026-06-29 23:20 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/4348926818.shtml)
+- 2026-06-29 23:19 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/121339498644.shtml)
+- 2026-06-29 23:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/23170797.shtml)
+- 2026-06-29 23:18 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/48595138.shtml)
+- 2026-06-29 22:54 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/033772428.shtml)
+- 2026-06-29 23:13 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/09365.shtml)
+- 2026-06-29 22:59 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/9858377103.shtml)
+- 2026-06-29 23:19 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/2578938302.shtml)
+- 2026-06-29 23:10 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/277688.shtml)
+- 2026-06-29 22:58 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/169332280.shtml)
+- 2026-06-29 23:11 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/402530646.shtml)
+- 2026-06-29 22:54 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/73162516.shtml)
+- 2026-06-29 23:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/4156164730.shtml)
+- 2026-06-29 22:56 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/16728385.shtml)

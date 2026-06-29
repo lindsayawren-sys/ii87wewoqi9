@@ -1,46 +1,61 @@
-# 中远海能：约3.47亿股A股限售股将于4月22日上市流通
+# 服役35年，美国“空军一号”总统专机退役
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中远海能（01138）发布公告，约3.47亿股A股限售股将于2026年4月22日上市流通。责任编辑：卢昱君
+中新网6月19日电 据美国《华盛顿邮报》报道，当地时间18日，美国白宫高级官员向一架服役35年的总统专机告别，特朗普政府准备用卡塔尔捐赠的波音747飞机取代它。 报道称，18日凌晨，美国总统特朗普和他的团队从法国返回白宫。有团队成员在社交媒体上发布了一张照片向总统专机告别，照片中是一架经过高度定制和重度加固的波音747飞机，这架飞机在搭载美国总统时被称为“空军一号”。 美国空军
 
 ## 正文
 
-中远海能（01138）发布公告，约3.47亿股A股限售股将于2026年4月22日上市流通。
+中新网6月19日电 据美国《华盛顿邮报》报道，当地时间18日，美国白宫高级官员向一架服役35年的总统专机告别，特朗普政府准备用卡塔尔捐赠的波音747飞机取代它。
 
-责任编辑：卢昱君
+报道称，18日凌晨，美国总统特朗普和他的团队从法国返回白宫。
+
+有团队成员在社交媒体上发布了一张照片向总统专机告别，照片中是一架经过高度定制和重度加固的波音747飞机，这架飞机在搭载美国总统时被称为“空军一号”。
+
+美国空军在5月曾宣布，卡塔尔捐赠的飞机已完成改装和飞行测试。
+
+目前尚不清楚新的“空军一号”是否会获准搭载总统进行海外访问。
+
+两位美国官员表示，虽然卡塔尔捐赠的飞机外观焕然一新，但空军并没有改变其豪华的内部装饰，保留了为卡塔尔王室设计的休息区，而不是像目前的空军一号那样，采用更偏向办公和工作空间的设计。
+
+此前，波音公司一直在努力将另外两架747飞机改装成新的“空军一号”，但由于生产延误和成本上涨，特朗普对此越来越不满。
+
+飞机的交付进度已经严重延误，可能在特朗普第二个任期结束前都无法交付。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 22:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 22:59 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 22:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 22:58 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 23:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 22:57 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 23:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 22:50 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 23:13 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 23:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 23:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 23:21 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 22:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 23:19 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 23:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 23:13 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 23:12 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 23:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 23:18 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 23:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:06 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 23:20 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 23:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/219758845.shtml)
-- 2026-06-29 23:08 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/11770350.shtml)
-- 2026-06-29 22:54 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/49663983778.shtml)
-- 2026-06-29 23:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/94821238388.shtml)
-- 2026-06-29 22:52 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/303499738622.shtml)
-- 2026-06-29 23:17 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/64427329.shtml)
-- 2026-06-29 22:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/3313569553.shtml)
-- 2026-06-29 22:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/53917086195.shtml)
-- 2026-06-29 22:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/64335233.shtml)
-- 2026-06-29 22:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/67981727176.shtml)
-- 2026-06-29 22:53 - [千与千寻](https://www.share.kurohicncr.top/Article/details/96636060786.shtml)
-- 2026-06-29 22:52 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/393986142439.shtml)
-- 2026-06-29 22:59 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/588102851.shtml)
-- 2026-06-29 23:03 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/869172.shtml)
-- 2026-06-29 23:01 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/8250682897.shtml)
+- 2026-06-29 23:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/2277842513.shtml)
+- 2026-06-29 23:18 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/6532287761.shtml)
+- 2026-06-29 23:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/03705296025.shtml)
+- 2026-06-29 23:17 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/8151253.shtml)
+- 2026-06-29 23:05 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/03954406.shtml)
+- 2026-06-29 22:56 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/648596355.shtml)
+- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/4894008.shtml)
+- 2026-06-29 23:05 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/7833288.shtml)
+- 2026-06-29 23:07 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/699661989567.shtml)
+- 2026-06-29 23:18 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/283455.shtml)
+- 2026-06-29 23:00 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/31173.shtml)
+- 2026-06-29 22:56 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/222313287567.shtml)
+- 2026-06-29 23:01 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/670264.shtml)
+- 2026-06-29 23:20 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/73325.shtml)
+- 2026-06-29 23:04 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/2458776.shtml)

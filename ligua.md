@@ -1,54 +1,60 @@
-# 台湾特色展区首秀消博会 台商紧抓机遇拓市场
+# “AI 教父”痛批马斯克旗下xAI堪称失败，警示AI将迎巨大泡沫破裂
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 10:21 来源：中国新闻网 4月13日至18日，第六届中国国际消费品博览会在海南举行。本届消博会增设台湾特色展区，20家台湾企业24个参展品牌共同出展。记者在现场看到，展区内汇聚了高粱酒、文创陶瓷、糕点、保健食品、台湾高山茶等优质商品，吸引众多观众驻足咨询。 台商希望借助消博会提升品牌知名度，开拓大陆市场和国际市场。 台湾商业总会理事长许舒博
+核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。 勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。 曾任 Meta 首席人工智能科学家的勒丘恩，过去
 
 ## 正文
 
-发布时间：2026年04月15日 10:21 来源：中国新闻网 4月13日至18日，第六届中国国际消费品博览会在海南举行。
+核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。
 
-本届消博会增设台湾特色展区，20家台湾企业24个参展品牌共同出展。
+他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。
 
-记者在现场看到，展区内汇聚了高粱酒、文创陶瓷、糕点、保健食品、台湾高山茶等优质商品，吸引众多观众驻足咨询。
+勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。
 
-台商希望借助消博会提升品牌知名度，开拓大陆市场和国际市场。
+曾任 Meta 首席人工智能科学家的勒丘恩，过去数年多次和马斯克产生观点交锋，争论话题既有人工智能技术路线，也包括他口中这位特斯拉 CEO 在社交媒体上宣扬的各类 “阴谋论”。
 
-台湾商业总会理事长许舒博表示，近日大陆新发布惠台十条政策措施，对于台湾优质产品进驻大陆有很大的帮助。
+而马斯克则反击称，勒丘恩早已脱离人工智能行业一线，对行业现状缺乏认知。
 
-消博会汇聚全球消费领域知名品牌和高质量专业买家，此次台湾商业总会首次组团参展，不仅能让更多消费者认识台湾产品，也有助于台企拓展业务、建立合作伙伴关系，台商参展意愿很高。
+凭借在人工智能早期发展阶段做出的开创性贡献，勒丘恩被业界冠以 “AI 教父” 的称号。
 
-记者 李宇凡 符宇群 海口报道 责任编辑：【周驰】
+“坦白来说，xAI 算是一次失败，核心原因就是创始团队成员相继离职。
+
+” 勒丘恩表示。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 22:53 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 23:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 22:57 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 23:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 23:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 22:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 23:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 22:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 22:57 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:21 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:01 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 23:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:09 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 23:11 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 23:10 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 23:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 23:09 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 23:20 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 23:07 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 23:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 23:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/327184724.shtml)
-- 2026-06-29 23:11 - [炽夏](http://www.share.kurohicncr.top/Article/details/236082955323.shtml)
-- 2026-06-29 23:13 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/073314608039.shtml)
-- 2026-06-29 22:54 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/75365396728.shtml)
-- 2026-06-29 23:06 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/37222.shtml)
-- 2026-06-29 23:00 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/5194055147.shtml)
-- 2026-06-29 23:17 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/39724029205.shtml)
-- 2026-06-29 23:12 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/466216.shtml)
-- 2026-06-29 22:50 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/56075635338.shtml)
-- 2026-06-29 23:08 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/674718.shtml)
-- 2026-06-29 23:01 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/383908669.shtml)
-- 2026-06-29 23:09 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/11546.shtml)
-- 2026-06-29 23:15 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/541802314589.shtml)
-- 2026-06-29 23:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/63118.shtml)
-- 2026-06-29 22:55 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/31420801.shtml)
+- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/89038.shtml)
+- 2026-06-29 22:56 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/16041998.shtml)
+- 2026-06-29 23:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/010190.shtml)
+- 2026-06-29 22:57 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/13497600.shtml)
+- 2026-06-29 22:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/29778.shtml)
+- 2026-06-29 23:06 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/1392634554.shtml)
+- 2026-06-29 23:03 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/42291205320.shtml)
+- 2026-06-29 23:14 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/251199613300.shtml)
+- 2026-06-29 23:23 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/39947119834.shtml)
+- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/603087163.shtml)
+- 2026-06-29 23:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/939928.shtml)
+- 2026-06-29 23:01 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/9975280.shtml)
+- 2026-06-29 23:16 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/15719619271.shtml)
+- 2026-06-29 23:11 - [世界杯](http://www.share.kurohicncr.top/Article/details/392634635672.shtml)
+- 2026-06-29 22:57 - [一生一世](http://www.share.minike.top/Article/details/8352109667.shtml)

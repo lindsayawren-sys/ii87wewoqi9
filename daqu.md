@@ -1,55 +1,49 @@
-# 美国财长称中国是“不可靠伙伴” 中方回应
+# 进度条刷新 三峡枢纽新通道先行开挖区开挖进度过半
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：美国财长贝森特周二表示，中国在中东问题上是“不可靠伙伴”。这是否会对美国总统特朗普访华造成影响？ 郭嘉昆：关于伊朗局势，中方已经多次表明了严正立场。关于美国总统特朗普访华，双方就此事保持着沟通。(完)
+记者从三峡集团了解到，截至目前，三峡枢纽新通道先行开挖区已完成总开挖量的56%，预计今年10月份完成开挖任务。新通道建成后，三峡枢纽年双向总通过能力可达3.36亿吨。 来源：央视新闻客户端
 
 ## 正文
 
-中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。
+记者从三峡集团了解到，截至目前，三峡枢纽新通道先行开挖区已完成总开挖量的56%，预计今年10月份完成开挖任务。
 
-有记者提问：美国财长贝森特周二表示，中国在中东问题上是“不可靠伙伴”。
+新通道建成后，三峡枢纽年双向总通过能力可达3.36亿吨。
 
-这是否会对美国总统特朗普访华造成影响？
-
-郭嘉昆：关于伊朗局势，中方已经多次表明了严正立场。
-
-关于美国总统特朗普访华，双方就此事保持着沟通。
-
-(完)
+来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 23:12 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 22:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 23:02 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 23:14 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 23:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 23:10 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 23:10 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 22:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 23:15 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 22:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 23:00 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 23:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 22:57 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 22:55 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 23:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 23:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 23:10 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:55 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 22:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:14 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 23:15 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 23:12 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/32202555079.shtml)
-- 2026-06-29 23:15 - [东方风云榜](http://www.share.minike.top/Article/details/854227.shtml)
-- 2026-06-29 23:16 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/8177175.shtml)
-- 2026-06-29 22:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/304948.shtml)
-- 2026-06-29 23:14 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/545104991751.shtml)
-- 2026-06-29 22:58 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/5502180338.shtml)
-- 2026-06-29 22:57 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/87878.shtml)
-- 2026-06-29 22:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/4228682.shtml)
-- 2026-06-29 22:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/072222.shtml)
-- 2026-06-29 23:09 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/21383.shtml)
-- 2026-06-29 23:00 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/389365.shtml)
-- 2026-06-29 22:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/81681.shtml)
-- 2026-06-29 22:56 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/5207794.shtml)
-- 2026-06-29 23:06 - [美股](http://www.blog.minike.top/Article/details/31168.shtml)
-- 2026-06-29 23:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/29930588.shtml)
+- 2026-06-29 23:09 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/149071.shtml)
+- 2026-06-29 23:00 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/29809.shtml)
+- 2026-06-29 23:16 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/0763773811.shtml)
+- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/147224015.shtml)
+- 2026-06-29 22:55 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/16031353521.shtml)
+- 2026-06-29 23:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/67138536220.shtml)
+- 2026-06-29 23:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/288569023934.shtml)
+- 2026-06-29 23:18 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/756374.shtml)
+- 2026-06-29 23:19 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/23965.shtml)
+- 2026-06-29 23:03 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/500704.shtml)
+- 2026-06-29 23:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/88523620014.shtml)
+- 2026-06-29 23:20 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/85032583617.shtml)
+- 2026-06-29 23:08 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/43994858.shtml)
+- 2026-06-29 23:23 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/514374416.shtml)
+- 2026-06-29 23:06 - [炽夏](https://www.share.minike.top/Article/details/6804517280.shtml)

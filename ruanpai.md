@@ -1,59 +1,59 @@
-# 以“质量意识”抓落实（大家谈·树立和践行正确政绩观②）
+# 人民论坛网评 | 让田埂上的“村播”持续火下去
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。”抓好落实，容不得半点马虎，必须真刀真枪干。本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。与此同时，也需警惕“重速度，轻质量”的情况。 没有一定的发展速度，就难以实现既定的
+在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。《规划》提出，实施农村电商高质量
 
 ## 正文
 
-习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。
+在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。
 
-”抓好落实，容不得半点马虎，必须真刀真枪干。
+随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。
 
-本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。
+近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。
 
-——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。
+《规划》提出，实施农村电商高质量发展工程，加快农村电商迭代升级，规范发展农产品直播带货，开展“数商兴农”。
 
-与此同时，也需警惕“重速度，轻质量”的情况。
+商务部数据显示，截至2025年底，全国农村网商数为2007.4万家，同比增长4.6%；全国农村“直播+社交”网商数为747.7万家，同比增长5.1%。
 
-没有一定的发展速度，就难以实现既定的目标；不把控好质量，即便速度上去了，发展也会难以为继。
+数字的背后，是一批爱农村、懂电商的“新农人”扎根田野，用镜头把优质农产品带出大山、推向全国。
 
-中部地区某市为开发温泉景区，不加论证就盲目引进打着生态发展旗号的“特色小镇”项目，结果项目大面积烂尾，造成土地闲置、资金浪费。
+“村播”入门不难，难在长足发展。
 
-这正说明，只有把速度和质量统一起来，发展才能可持续、没水分，避免留下“后遗症”。
+如何把手机“新农具”用好，把直播“新农活”干好？
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 23:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 23:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 23:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 22:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 23:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 23:02 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 23:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 22:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 22:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 23:10 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 22:54 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 23:19 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 23:12 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 22:59 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 23:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 22:56 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 22:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 23:17 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 23:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 23:20 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 23:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 22:55 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [周生如故](http://www.blog.kurohicncr.top/Article/details/075898662.shtml)
-- 2026-06-29 22:51 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/722801593.shtml)
-- 2026-06-29 22:55 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/534877.shtml)
-- 2026-06-29 23:00 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/98206.shtml)
-- 2026-06-29 23:09 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/27217641.shtml)
-- 2026-06-29 22:52 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/45739.shtml)
-- 2026-06-29 23:14 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/00091075028.shtml)
-- 2026-06-29 22:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/08207617.shtml)
-- 2026-06-29 22:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/58704.shtml)
-- 2026-06-29 23:06 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/74991190287.shtml)
-- 2026-06-29 23:09 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/737770801548.shtml)
-- 2026-06-29 23:07 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/57491025659.shtml)
-- 2026-06-29 22:55 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/512588631.shtml)
-- 2026-06-29 23:02 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/262441.shtml)
-- 2026-06-29 22:57 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/77073.shtml)
+- 2026-06-29 23:03 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/37058.shtml)
+- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/22307363.shtml)
+- 2026-06-29 23:05 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/702547.shtml)
+- 2026-06-29 23:11 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/68522372517.shtml)
+- 2026-06-29 23:23 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/7162408779.shtml)
+- 2026-06-29 23:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/65382.shtml)
+- 2026-06-29 23:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/388598145764.shtml)
+- 2026-06-29 23:22 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/19152235562.shtml)
+- 2026-06-29 23:01 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/64633159.shtml)
+- 2026-06-29 23:14 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/0423201039.shtml)
+- 2026-06-29 23:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/279633191.shtml)
+- 2026-06-29 23:02 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/2016819876.shtml)
+- 2026-06-29 23:21 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/25510175309.shtml)
+- 2026-06-29 23:06 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/9260947.shtml)
+- 2026-06-29 23:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/72917521.shtml)

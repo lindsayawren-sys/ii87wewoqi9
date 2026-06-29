@@ -1,57 +1,54 @@
-# 中国南水北调集团原副总经济师樊新中受贿、行贿、洗钱，一审获刑17年
+# 警方通报：黄子韬违停、非法改装车辆被罚
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-新京报讯 据铜仁法院官微消息，2026年4月15日，贵州省铜仁市中级人民法院一审公开宣判中国南水北调集团有限公司原副总经济师、中原区域总部原总经理樊新中受贿、行贿、洗钱一案，对被告人樊新中以受贿罪判处有期徒刑十五年，并处罚金人民币五百万元；以行贿罪判处有期徒刑四年，并处罚金人民币三十万元；以洗钱罪判处有期徒刑六个月，并处罚金人民币一万元，决定执行有期徒刑十七年，并处罚金人民币五
+据@新华社，北京警方通报黄子韬违停，查处其交通违法和非法改装车行为。 近日，@北京交警接到群众举报，在朝阳区将台西路，一辆悬挂外埠号牌的小客车涉嫌违法停车。接到举报后，北京交警迅速开展工作，将该车及驾驶人查获。经查，驾驶人黄某某（男，33岁）因违反停车规定、违反禁令标志指示及改变车身颜色未按照规定时限办理变更登记的违法行为，已被交管部门依法给予行政处罚。针对现场附近其他车辆交通
 
 ## 正文
 
-新京报讯 据铜仁法院官微消息，2026年4月15日，贵州省铜仁市中级人民法院一审公开宣判中国南水北调集团有限公司原副总经济师、中原区域总部原总经理樊新中受贿、行贿、洗钱一案，对被告人樊新中以受贿罪判处有期徒刑十五年，并处罚金人民币五百万元；以行贿罪判处有期徒刑四年，并处罚金人民币三十万元；以洗钱罪判处有期徒刑六个月，并处罚金人民币一万元，决定执行有期徒刑十七年，并处罚金人民币五百三十一万元；对樊新中犯罪所得财物及孳息依法予以追缴，上缴国库。
+据@新华社，北京警方通报黄子韬违停，查处其交通违法和非法改装车行为。
 
-经审理查明，2017年至2023年，被告人樊新中利用担任贵州省人民政府副秘书长，贵州省水利投资（集团）有限责任公司副董事长、总经理，贵州乌江能源集团有限责任公司董事长、总经理，贵州省水利厅厅长，中国南水北调集团水务投资有限公司董事长、中国南水北调集团有限公司副总经济师、中原区域总部总经理等职务上的便利以及本人职权或地位形成的便利条件，为有关单位和个人在工程项目承揽、项目工程款拨付、职务提拔等事项上提供帮助，非法收受财物共计折合人民币7521万余元，其中部分未实际取得。
+近日，@北京交警接到群众举报，在朝阳区将台西路，一辆悬挂外埠号牌的小客车涉嫌违法停车。
 
-2018年，樊新中为谋取职务提拔调整，给予国家工作人员共计200万元。
+接到举报后，北京交警迅速开展工作，将该车及驾驶人查获。
 
-2022年，樊新中为掩饰、隐瞒受贿犯罪所得及其产生收益的来源和性质，将其中20万元转换为现金并以他人名义购买不动产。
+经查，驾驶人黄某某（男，33岁）因违反停车规定、违反禁令标志指示及改变车身颜色未按照规定时限办理变更登记的违法行为，已被交管部门依法给予行政处罚。
 
-铜仁市中级人民法院认为，被告人樊新中的行为构成受贿罪、行贿罪、洗钱罪。
+针对现场附近其他车辆交通违法情况，交管部门正在调查，将依法予以处理。
 
-樊新中受贿数额特别巨大，身为国家工作人员，为谋取职务提拔调整，使用违法所得向他人行贿，情节严重，应依法惩处。
+请广大交通参与者自觉遵规守法、文明驾车、规范停车，共同创造安全、有序、畅通的交通环境。
 
-鉴于其受贿犯罪有未遂情节，到案后如实供述罪行，主动交代办案机关尚未掌握的行贿事实和大部分受贿事实，行贿罪具有自首情节；部分赃款赃物已追缴到案，具有法定、酌定从轻处罚情节，依法可对其从轻处罚。
-
-法庭遂作出上述判决。
+来源：@北京交警 @新华社责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 22:55 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 22:59 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 23:08 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 23:03 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 22:50 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:52 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 23:16 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 23:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 22:59 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 23:24 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 22:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 22:57 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 23:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 22:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 23:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 23:19 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/09286928.shtml)
-- 2026-06-29 22:58 - [一生一世](https://www.blog.kurohicncr.top/Article/details/77123.shtml)
-- 2026-06-29 23:05 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/6895666104.shtml)
-- 2026-06-29 22:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/42239351164.shtml)
-- 2026-06-29 22:56 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/60117621814.shtml)
-- 2026-06-29 22:53 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/746393126004.shtml)
-- 2026-06-29 23:00 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/15908160.shtml)
-- 2026-06-29 22:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/284446809789.shtml)
-- 2026-06-29 22:53 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/037479115.shtml)
-- 2026-06-29 22:52 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/09234853.shtml)
-- 2026-06-29 22:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/5532992.shtml)
-- 2026-06-29 22:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/49911987.shtml)
-- 2026-06-29 22:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/798606859.shtml)
-- 2026-06-29 22:57 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/9063815190.shtml)
-- 2026-06-29 23:16 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/0037113.shtml)
+- 2026-06-29 23:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/127894764.shtml)
+- 2026-06-29 22:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/62777.shtml)
+- 2026-06-29 23:18 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/312299.shtml)
+- 2026-06-29 23:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0263605884.shtml)
+- 2026-06-29 23:16 - [女心理师](http://www.blog.minike.top/Article/details/251546600163.shtml)
+- 2026-06-29 23:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/2468666013.shtml)
+- 2026-06-29 23:13 - [女心理师](https://www.blog.minike.top/Article/details/3735352.shtml)
+- 2026-06-29 23:14 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/5976956789.shtml)
+- 2026-06-29 23:21 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/59225.shtml)
+- 2026-06-29 22:58 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/5828319.shtml)
+- 2026-06-29 23:11 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/61919.shtml)
+- 2026-06-29 23:01 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/01203498158.shtml)
+- 2026-06-29 23:00 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/814665459.shtml)
+- 2026-06-29 23:16 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/0656518899.shtml)
+- 2026-06-29 23:22 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/52508.shtml)

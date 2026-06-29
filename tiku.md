@@ -1,57 +1,59 @@
-# Moneta Markets亿汇:金银多因素驱动走强
+# SpaceX行情降温两连跌 本周仍累涨约15%
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-4月15日，黄金与白银价格在周二午盘时段走高，主要受到美元指数走弱的推动，其一度跌至近六周低位。与此同时，市场风险偏好回升在一定程度上反而利好避险金属，背后逻辑在于消费与商业需求预期改善，以及通胀压力可能缓解。Moneta Markets亿汇认为，在多重宏观因素交织的背景下，贵金属不仅受避险情绪驱动，也逐渐体现出对经济预期变化的敏感性。数据显示，6月黄金期货上涨约63美元至48
+受上周创纪录IPO后本轮股价上涨行情降温影响，SpaceX股票周四美股收盘下跌3.57%。 埃隆・马斯克旗下这家兼具航天与人工智能业务的企业上市后跻身全球市值最高企业行列，周二其总市值一度超越亚马逊，还短暂超过微软。 经历周四下跌后，SpaceX收盘总市值报2.44万亿美元，落后于当日收盘市值2.62万亿美元的亚马逊，位列美国头部高市值企业梯队。 该股周三曾大跌5%。 由于美国
 
 ## 正文
 
-4月15日，黄金与白银价格在周二午盘时段走高，主要受到美元指数走弱的推动，其一度跌至近六周低位。
+受上周创纪录IPO后本轮股价上涨行情降温影响，SpaceX股票周四美股收盘下跌3.57%。
 
-与此同时，市场风险偏好回升在一定程度上反而利好避险金属，背后逻辑在于消费与商业需求预期改善，以及通胀压力可能缓解。
+埃隆・马斯克旗下这家兼具航天与人工智能业务的企业上市后跻身全球市值最高企业行列，周二其总市值一度超越亚马逊，还短暂超过微软。
 
-Moneta Markets亿汇认为，在多重宏观因素交织的背景下，贵金属不仅受避险情绪驱动，也逐渐体现出对经济预期变化的敏感性。
+经历周四下跌后，SpaceX收盘总市值报2.44万亿美元，落后于当日收盘市值2.62万亿美元的亚马逊，位列美国头部高市值企业梯队。
 
-数据显示，6月黄金期货上涨约63美元至4830美元附近，5月白银上涨约3.5美元至79美元上方。
+该股周三曾大跌5%。
 
-最新公布的生产者价格指数显示，3月环比增长0.5%，与前值持平，但低于市场预期的约1.0%。
+由于美国六月节休市，本周仅四个交易日，SpaceX本周股价累计上涨约15%。
 
-能源成本上涨约8.0%，主要受到地缘冲突影响；同比来看，生产者价格上涨约4.0%，虽为阶段高位，但仍低于预期水平。
+该股自上周里程碑式上市以来依旧累计上涨37%，本次IPO发行价定为每股135美元。
 
-Moneta Markets亿汇表示，核心PPI环比仅增长约0.2%，同比约3.6%，反映出通胀压力边际缓解。
+这家火箭制造企业于周三宣布，邀请马斯克多年挚友与合作伙伴罗洛夫・博萨加入公司董事会。
 
-整体来看，该数据对贵金属价格影响相对有限，但为市场提供了关于通胀趋势的重要参考。
+博萨即刻就任独立董事，同时进入公司审计委员会。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 23:07 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:05 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 23:14 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 23:01 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 22:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 23:09 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 23:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 23:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 23:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 22:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 23:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 23:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 22:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 23:18 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 23:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 23:02 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 23:04 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 23:22 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 22:56 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 23:14 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 23:02 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 23:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 23:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/817620.shtml)
-- 2026-06-29 22:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/67146325655.shtml)
-- 2026-06-29 22:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/217332133718.shtml)
-- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/302816506.shtml)
-- 2026-06-29 23:06 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/406566988469.shtml)
-- 2026-06-29 22:53 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/438422941464.shtml)
-- 2026-06-29 22:54 - [周生如故](https://www.share.minike.top/Article/details/44761799597.shtml)
-- 2026-06-29 23:04 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/193138.shtml)
-- 2026-06-29 23:08 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/9677074.shtml)
-- 2026-06-29 22:58 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/43039.shtml)
-- 2026-06-29 23:17 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/283582915.shtml)
-- 2026-06-29 22:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/71136615.shtml)
-- 2026-06-29 22:53 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/692370671.shtml)
-- 2026-06-29 22:54 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/439711972649.shtml)
-- 2026-06-29 23:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/350887130676.shtml)
+- 2026-06-29 23:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/458203.shtml)
+- 2026-06-29 23:16 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/8815894.shtml)
+- 2026-06-29 23:17 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/98438.shtml)
+- 2026-06-29 23:13 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/589662063.shtml)
+- 2026-06-29 23:09 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/2085921038.shtml)
+- 2026-06-29 22:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/309226420.shtml)
+- 2026-06-29 23:03 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/85158262.shtml)
+- 2026-06-29 23:01 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/67561937.shtml)
+- 2026-06-29 23:06 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/306934864.shtml)
+- 2026-06-29 23:15 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/48325744444.shtml)
+- 2026-06-29 22:54 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/290131900530.shtml)
+- 2026-06-29 23:13 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/869320.shtml)
+- 2026-06-29 23:04 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/92568873.shtml)
+- 2026-06-29 23:11 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/3968158.shtml)
+- 2026-06-29 23:09 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/52542417789.shtml)

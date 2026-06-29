@@ -1,61 +1,60 @@
-# Palantir股价无视估值担忧，"特朗普效应"压倒空头
+# 1分钱外卖要凉了
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-Palantir Technologies股价周二上涨约3%，延续了近期获得政府合同以及前总统唐纳德·特朗普公开背书所带来的积极情绪。 这家数据分析公司近几周已与美国国防机构签署了多项大规模协议。其中包括与美国陆军签订的一项为期10年的软件合同，据称是该军种历史上规模最大的合同，以及与国土安全部签订的一项多年期协议。 特朗普在4月10日的讲话中称赞了Palantir的国防能力，
+监管思路转向盯住外卖平台背后的“唯低价”商业模式本身。 “0元购”“满18减18”“1分钱买外卖”……外卖平台脱离正常促销范畴的长期、大额补贴活动，将迎来监管红线。 6月17日，市场监管总局发布《外卖平台补贴行为规范十条（征求意见稿）》（以下简称“外卖十条”）。 “外卖十条”明确：外卖平台不得以长期、大额补贴扰乱市场秩序，不得强制或者变相强制平台内经营者参加平台开展的补贴活动，
 
 ## 正文
 
-Palantir Technologies股价周二上涨约3%，延续了近期获得政府合同以及前总统唐纳德·特朗普公开背书所带来的积极情绪。
+监管思路转向盯住外卖平台背后的“唯低价”商业模式本身。
 
-这家数据分析公司近几周已与美国国防机构签署了多项大规模协议。
+“0元购”“满18减18”“1分钱买外卖”……外卖平台脱离正常促销范畴的长期、大额补贴活动，将迎来监管红线。
 
-其中包括与美国陆军签订的一项为期10年的软件合同，据称是该军种历史上规模最大的合同，以及与国土安全部签订的一项多年期协议。
+6月17日，市场监管总局发布《外卖平台补贴行为规范十条（征求意见稿）》（以下简称“外卖十条”）。
 
-特朗普在4月10日的讲话中称赞了Palantir的国防能力，这一表态似乎强化了投资者对该公司在军用人工智能生态系统中根深蒂固地位的看法。
+“外卖十条”明确：外卖平台不得以长期、大额补贴扰乱市场秩序，不得强制或者变相强制平台内经营者参加平台开展的补贴活动，不得利用资本优势实施垄断、不正当竞争等行为。
 
-此外，ARK Invest增持了Palantir的头寸，这一举动可能有助于抵消该股早些时候面临的抛售压力。
+回顾近年来外卖行业的补贴大战，各大平台宣布投入百亿甚至上千亿元。
 
-分析师对Palantir的 sentiment 总体保持积极，共识评级为“中度买入”，目标价高达260美元。
+然而，在平台“烧钱”、消费者“薅羊毛”的热闹表象下，深层隐患急剧凸显。
 
-不过，对于估值水平和来自新兴AI竞争对手的竞争压力，仍存在一些谨慎情绪。
+中小餐饮商户被剥夺定价自主权，被迫卷入低效内卷竞争，利润被压榨，甚至出现倒贴钱的负收入订单；骑手则在订单洪峰与算法极限压缩下疲于奔命，交通违法成为普遍现象。
 
-责任编辑：张俊 SF065
+疯狂的“补贴”扭曲了正常的市场价格形成机制，扰乱了正常的市场秩序。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 22:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 23:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 22:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:10 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 23:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 23:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 23:11 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 22:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 23:06 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 22:49 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 23:10 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 23:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 23:08 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 22:56 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 23:18 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 22:55 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 23:12 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 22:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 23:13 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 23:23 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 23:03 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 23:17 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 23:19 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 23:19 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 23:13 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/7198513203.shtml)
-- 2026-06-29 23:17 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/5247686.shtml)
-- 2026-06-29 23:15 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/82634703.shtml)
-- 2026-06-29 23:01 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/66335.shtml)
-- 2026-06-29 23:07 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/0281209.shtml)
-- 2026-06-29 23:11 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/136237.shtml)
-- 2026-06-29 22:59 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/8648180121.shtml)
-- 2026-06-29 22:56 - [炽夏](http://www.blog.kurohicncr.top/Article/details/79647139541.shtml)
-- 2026-06-29 23:16 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/95763.shtml)
-- 2026-06-29 22:51 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/71410591.shtml)
-- 2026-06-29 23:02 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/031629948344.shtml)
-- 2026-06-29 22:54 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/31479421.shtml)
-- 2026-06-29 23:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/955389004.shtml)
-- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/227092179.shtml)
-- 2026-06-29 23:05 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/14458421.shtml)
+- 2026-06-29 23:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/92189104.shtml)
+- 2026-06-29 23:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/311340.shtml)
+- 2026-06-29 23:07 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/319084388897.shtml)
+- 2026-06-29 22:58 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/5987095.shtml)
+- 2026-06-29 23:04 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/418375.shtml)
+- 2026-06-29 23:06 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/456127753843.shtml)
+- 2026-06-29 23:10 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/670476177464.shtml)
+- 2026-06-29 23:16 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/6019084.shtml)
+- 2026-06-29 23:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/71995684.shtml)
+- 2026-06-29 23:09 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/161687202.shtml)
+- 2026-06-29 23:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/8563032.shtml)
+- 2026-06-29 23:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/640983714.shtml)
+- 2026-06-29 23:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/272971673.shtml)
+- 2026-06-29 23:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/94977.shtml)
+- 2026-06-29 23:14 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/99262858998.shtml)

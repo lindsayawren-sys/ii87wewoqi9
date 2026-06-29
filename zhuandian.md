@@ -1,57 +1,58 @@
-# 拉来华晨宇卖护手霜，“参半”牙膏母公司背负5.8亿对赌冲IPO
+# 三艘载油600万桶的沙特油轮穿越霍尔木兹海峡
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-来源：风云IPO 港交所 25亿营收，六成花在推广上。 作者|刘俊群 编辑|刘钦文 在抖音和小红书上，你可能刷到过这样一支牙膏：白色简约包装，9.9元包邮，评论区里有人说“平价好物”，也有人追问“真的能美白吗”。这支牙膏背后的公司叫小阔科技，品牌名“参半”。 如今，这家公司正在冲刺港交所。近日，深圳小阔科技股份有限公司（下称“小阔科技”）正式向港交所递交上市申请，剑指港股“口腔
+核心要点 全球航运情报机构克普勒的数据显示，三艘满载原油的沙特超大型油轮已顺利通过霍尔木兹海峡，合计运载原油 600 万桶。 这几艘沙特油轮此前在阿曼湾隐匿航行位置长达两个多月，于周四开启船舶应答器公开航线信息。本次通航发生在美伊两国签署停战协议之后，该协议旨在恢复霍尔木兹海峡的航运通行。 不过自协议签署后的数小时内，霍尔木兹海峡的船舶通行量并未出现大幅增长。在伊朗冲突爆发前，
 
 ## 正文
 
-来源：风云IPO 港交所 25亿营收，六成花在推广上。
+核心要点 全球航运情报机构克普勒的数据显示，三艘满载原油的沙特超大型油轮已顺利通过霍尔木兹海峡，合计运载原油 600 万桶。
 
-作者|刘俊群 编辑|刘钦文 在抖音和小红书上，你可能刷到过这样一支牙膏：白色简约包装，9.9元包邮，评论区里有人说“平价好物”，也有人追问“真的能美白吗”。
+这几艘沙特油轮此前在阿曼湾隐匿航行位置长达两个多月，于周四开启船舶应答器公开航线信息。
 
-这支牙膏背后的公司叫小阔科技，品牌名“参半”。
+本次通航发生在美伊两国签署停战协议之后，该协议旨在恢复霍尔木兹海峡的航运通行。
 
-如今，这家公司正在冲刺港交所。
+不过自协议签署后的数小时内，霍尔木兹海峡的船舶通行量并未出现大幅增长。
 
-近日，深圳小阔科技股份有限公司（下称“小阔科技”）正式向港交所递交上市申请，剑指港股“口腔护理第一股”。
+在伊朗冲突爆发前，该海峡每日有超百艘船舶通航，其中数十艘为原油运输船。
 
-图源：罐头图库 据“弗若斯特沙利文”数据显示，参半2025年在中国口腔护理市场排名第三，市场份额6.5%；在线上口腔护理市场排名第一。
+克普勒大宗商品研究总监马特・史密斯表示：“航运闸门并未全面打开，目前尚未出现船舶大规模集中驶出的情况，航运企业对途经霍尔木兹海峡仍心存顾虑。
 
-2023年至2025年，公司营收从10.96亿元增至24.99亿元，毛利率稳定在70%左右。
+” 本次通航的三艘船舶均为超大型原油运输船（VLCC），单船最大载油量约 200 万桶。
 
-然而，光鲜数据的另一面是：销售费用率长期超过60%，三年累计营销开支超30亿元；研发团队仅27人，研发费用率不足1%。
+据克普勒数据，“沙登号” 驶往日本喜入港，“奥瓦德号” 前往韩国蔚山港，“贾哈姆号” 的目的地目前尚未明确。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 22:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 23:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:12 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 23:02 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 22:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 22:56 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 23:04 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 23:14 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 23:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 23:03 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 22:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 23:19 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 23:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 23:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 22:54 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 23:22 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 23:19 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 23:03 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 23:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 23:08 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 23:07 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/726756.shtml)
-- 2026-06-29 23:11 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/56594595.shtml)
-- 2026-06-29 22:51 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/96469750.shtml)
-- 2026-06-29 23:09 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/194906.shtml)
-- 2026-06-29 23:02 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/39725431.shtml)
-- 2026-06-29 23:10 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/60737053126.shtml)
-- 2026-06-29 22:58 - [房价什么时候能涨](https://www.share.minike.top/Article/details/633879.shtml)
-- 2026-06-29 23:16 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/17427608205.shtml)
-- 2026-06-29 23:01 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/185683983351.shtml)
-- 2026-06-29 23:13 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/849515997.shtml)
-- 2026-06-29 22:58 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/559819293.shtml)
-- 2026-06-29 22:50 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/29440823.shtml)
-- 2026-06-29 23:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/32198297.shtml)
-- 2026-06-29 23:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/234041832386.shtml)
-- 2026-06-29 23:07 - [乔家的儿女](http://www.blog.minike.top/Article/details/6234528.shtml)
+- 2026-06-29 23:21 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/51057.shtml)
+- 2026-06-29 23:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/9671230525.shtml)
+- 2026-06-29 22:55 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/16264.shtml)
+- 2026-06-29 23:23 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/47947552831.shtml)
+- 2026-06-29 23:10 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/721422598.shtml)
+- 2026-06-29 23:01 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/71466.shtml)
+- 2026-06-29 23:10 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/323664.shtml)
+- 2026-06-29 23:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/25822.shtml)
+- 2026-06-29 23:06 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/671751.shtml)
+- 2026-06-29 23:22 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/39551920989.shtml)
+- 2026-06-29 23:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/32074642782.shtml)
+- 2026-06-29 23:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/910004051191.shtml)
+- 2026-06-29 22:59 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/853879510.shtml)
+- 2026-06-29 23:18 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/19964.shtml)
+- 2026-06-29 23:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/856924293.shtml)

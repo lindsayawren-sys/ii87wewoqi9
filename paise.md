@@ -1,57 +1,55 @@
-# 汇丰私人银行紧急调仓：减持印度，加码黄金！
+# 黑河口岸端午假期迎来跨境旅游小高峰 单日出入境突破三千人次
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 中东地缘政治局势的持续升级，正迫使全球顶尖资管机构重塑其亚洲投资版图。汇丰私人银行及卓越理财宣布，由于伊朗战争风险及潜在的油价冲击，决定下调亚洲新兴市场股票评级，并大幅削减对印度市场的配置，转而增持黄金、现金及对冲基金。 汇丰私人银行北亚区首席投资官Patrick Ho表示，为限制过度风险敞口，团队已对资产配置进行了全面审查。他指出，中东局势的极高不确定性引
+发布时间：2026年06月19日 13:12 来源：中国新闻网 端午小长假期间，黑河口岸出入境游客数量显著攀升，迎来跨境旅游小高峰。据黑河出入境边防检查站统计，口岸单日出入境游客突破三千人次，较上月同期增长50%。 在黑河口岸出境大厅，中外游客有序排起长队，开启跨境之旅。不少南方游客专程前来体验异国风情，许多俄罗斯游客也带着家人孩子跨越国界来到黑河，在游玩中感受中国传统节日的浓
 
 ## 正文
 
-文章来源：金十数据 中东地缘政治局势的持续升级，正迫使全球顶尖资管机构重塑其亚洲投资版图。
+发布时间：2026年06月19日 13:12 来源：中国新闻网 端午小长假期间，黑河口岸出入境游客数量显著攀升，迎来跨境旅游小高峰。
 
-汇丰私人银行及卓越理财宣布，由于伊朗战争风险及潜在的油价冲击，决定下调亚洲新兴市场股票评级，并大幅削减对印度市场的配置，转而增持黄金、现金及对冲基金。
+据黑河出入境边防检查站统计，口岸单日出入境游客突破三千人次，较上月同期增长50%。
 
-汇丰私人银行北亚区首席投资官Patrick Ho表示，为限制过度风险敞口，团队已对资产配置进行了全面审查。
+在黑河口岸出境大厅，中外游客有序排起长队，开启跨境之旅。
 
-他指出，中东局势的极高不确定性引发了对能源安全及全球资金流向的担忧，该行正密切关注“若风险情景成为现实，哪些市场或板块将首当其冲”。
+不少南方游客专程前来体验异国风情，许多俄罗斯游客也带着家人孩子跨越国界来到黑河，在游玩中感受中国传统节日的浓厚氛围。
 
-在汇丰的情景风险管理模型中，高油价与强美元被视为新兴市场面临的“双重打击”。
-
-特别是对于严重依赖能源进口和外部资金驱动的国家而言，这种组合将产生极大的负面效应。
-
-在此次调整中，印度股市首当其冲。
-
-汇丰将其评级从中性直接下调至“减持”，称其为亚洲新兴市场中“最脆弱”的一环。
+(孟莉莉 洪峰制作 姜禹帆 视频来源 黑河市融媒体中心） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 23:12 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 22:52 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 23:09 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 22:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 23:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 23:17 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 23:11 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 22:59 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 23:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 23:10 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 23:07 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 23:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 22:59 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 23:19 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 23:14 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 23:14 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:20 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 23:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:16 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 23:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 23:12 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 23:23 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 22:55 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:13 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/59751626401.shtml)
-- 2026-06-29 22:55 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/27461113563.shtml)
-- 2026-06-29 23:14 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/91180389.shtml)
-- 2026-06-29 23:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/6397011.shtml)
-- 2026-06-29 22:55 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/315930.shtml)
-- 2026-06-29 23:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/477114105.shtml)
-- 2026-06-29 22:48 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/732515682658.shtml)
-- 2026-06-29 23:06 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/7392202312.shtml)
-- 2026-06-29 22:49 - [毒液2](https://www.blog.kurohicncr.top/Article/details/3724715.shtml)
-- 2026-06-29 23:15 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/3879935.shtml)
-- 2026-06-29 22:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/8774134843.shtml)
-- 2026-06-29 23:15 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/236411875.shtml)
-- 2026-06-29 23:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/502084.shtml)
-- 2026-06-29 23:01 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/62835.shtml)
-- 2026-06-29 22:48 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/437558455.shtml)
+- 2026-06-29 23:22 - [勇敢的心第二部](http://www.share.minike.top/Article/details/87249192074.shtml)
+- 2026-06-29 23:06 - [东方风云榜](https://www.share.minike.top/Article/details/608889.shtml)
+- 2026-06-29 23:06 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/86435336313.shtml)
+- 2026-06-29 23:18 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/8215324262.shtml)
+- 2026-06-29 23:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/31173665.shtml)
+- 2026-06-29 23:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/424905.shtml)
+- 2026-06-29 22:57 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/44895487378.shtml)
+- 2026-06-29 23:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/79147199.shtml)
+- 2026-06-29 23:04 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/60492703881.shtml)
+- 2026-06-29 23:18 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/498197348962.shtml)
+- 2026-06-29 23:14 - [85花告别古偶](http://www.share.minike.top/Article/details/158296673.shtml)
+- 2026-06-29 23:09 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/70241161.shtml)
+- 2026-06-29 23:20 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/0131263.shtml)
+- 2026-06-29 23:15 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/97204881.shtml)
+- 2026-06-29 23:09 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/8587571.shtml)

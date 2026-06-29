@@ -1,56 +1,53 @@
-# 经纬度：外贸强劲开局，中国经济的韧性真实可感
+# 加快下达“两新”项目资金 持续释放政策效能
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-澎湃特约评论员 熊志 海关总署4月14日发布数据显示，2026年一季度我国货物贸易进出口总值11.84万亿元，历史同期首次超过11万亿元，同比增速保持两位数增长，达到15%。 出口6.85万亿元，同比增长11.9%；进口4.99万亿元，规模创历史同期新高，增速更是达到19.6%……这份亮眼的外贸成绩单，无疑给“十五五”开局之年的中国经济，注入了强劲动力。 当前，国际局势纷繁复杂
+央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。 今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。此外，今
 
 ## 正文
 
-澎湃特约评论员 熊志 海关总署4月14日发布数据显示，2026年一季度我国货物贸易进出口总值11.84万亿元，历史同期首次超过11万亿元，同比增速保持两位数增长，达到15%。
+央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。
 
-出口6.85万亿元，同比增长11.9%；进口4.99万亿元，规模创历史同期新高，增速更是达到19.6%……这份亮眼的外贸成绩单，无疑给“十五五”开局之年的中国经济，注入了强劲动力。
+今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。
 
-当前，国际局势纷繁复杂，贸易保护主义抬头，地缘冲突不断，许多国家和地区都面临着外贸承压的严峻挑战。
+目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。
 
-在这样的背景下，中国的进出口规模却跑出了两位数的加速度，实属不易。
-
-它传递出一个清晰信号：中国坚持高水平对外开放的决心没有动摇，而且开放的质量在不断提升。
-
-一 相较于单纯的外贸规模增长，更要看到背后的结构性优化。
-
-数据显示，我国对欧盟等发达经济体的进出口，整体继续保持增长。
-
-这说明，在传统的外贸优势市场中，中国产品依旧保持着充分的竞争力和吸引力。
+此外，今年1—5月，国家已下达今年前两批消费品以旧换新资金1250亿元，已累计带动相关商品销售额超过8200亿元，惠及超过1.1亿人次。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 23:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 23:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 23:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 23:14 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 23:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 22:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 23:11 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 23:01 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 22:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 23:12 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 23:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:06 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 23:09 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 23:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 23:06 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 23:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 22:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 23:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 23:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 23:17 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/79995.shtml)
-- 2026-06-29 23:04 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/854596231.shtml)
-- 2026-06-29 23:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/545368434849.shtml)
-- 2026-06-29 23:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/11974.shtml)
-- 2026-06-29 22:48 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/21663901187.shtml)
-- 2026-06-29 23:09 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/09912913485.shtml)
-- 2026-06-29 23:16 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/8191726002.shtml)
-- 2026-06-29 22:56 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/070554519397.shtml)
-- 2026-06-29 22:56 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/545437418.shtml)
-- 2026-06-29 23:14 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/550477893.shtml)
-- 2026-06-29 23:11 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/0056789492.shtml)
-- 2026-06-29 23:05 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/9440225.shtml)
-- 2026-06-29 23:12 - [沙丘](http://www.blog.kurohicncr.top/Article/details/63324384457.shtml)
-- 2026-06-29 23:03 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/952931.shtml)
-- 2026-06-29 23:05 - [东方风云榜直播](http://www.share.minike.top/Article/details/808410.shtml)
+- 2026-06-29 23:02 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/98892794.shtml)
+- 2026-06-29 23:05 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/050033474.shtml)
+- 2026-06-29 23:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/696450300.shtml)
+- 2026-06-29 23:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/437584774044.shtml)
+- 2026-06-29 23:05 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/317821601.shtml)
+- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/94319646240.shtml)
+- 2026-06-29 22:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/04654696.shtml)
+- 2026-06-29 22:58 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/22979788764.shtml)
+- 2026-06-29 23:03 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/10649648481.shtml)
+- 2026-06-29 22:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/87854657.shtml)
+- 2026-06-29 23:23 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/94163413.shtml)
+- 2026-06-29 23:00 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/2727423.shtml)
+- 2026-06-29 23:07 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/73591374915.shtml)
+- 2026-06-29 23:00 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/073511867098.shtml)
+- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/745162191791.shtml)

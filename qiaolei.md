@@ -1,57 +1,61 @@
-# “挂床住院”现象近年来时有发生 专家：完善相关制度
+# 俄罗斯摄影师重庆跨界：从“陪读者”到“策展人”
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-“挂床住院”现象近年来时有发生 专家建议 完善相关制度防止借“挂床住院”不当获利 近日，湖北一起机动车交通事故责任纠纷案件引发社会广泛关注，男子赵某因车祸头部受伤住院429天，后起诉至法院索要赔偿。法院核查发现，其中371天无有效治疗，用药及体温监测记录属于典型的“挂床住院”行为。法院仅支持其实际治疗期间的合理损失赔偿，明确不合理部分费用由其自行承担。 记者通过采访和公开信息发
+中新网重庆6月18日电 题：俄罗斯摄影师重庆跨界：从“陪读者”到“策展人” 作者 张旭 三年前第一次来中国时，俄罗斯人叶巴沙(Pavel Smirnov)只是陪老婆到重庆读研。三年后，他“跨界”多个角色：平面设计师、摄影师、摄影作品展策展人…… “跨界只是因为兴趣，在这里收获了平静、和谐，以及发自内心的开心。”近日，叶巴沙在重庆接受中新网采访时表示，从“陪读者”到“策展人”，他
 
 ## 正文
 
-“挂床住院”现象近年来时有发生 专家建议 完善相关制度防止借“挂床住院”不当获利 近日，湖北一起机动车交通事故责任纠纷案件引发社会广泛关注，男子赵某因车祸头部受伤住院429天，后起诉至法院索要赔偿。
+中新网重庆6月18日电 题：俄罗斯摄影师重庆跨界：从“陪读者”到“策展人” 作者 张旭 三年前第一次来中国时，俄罗斯人叶巴沙(Pavel Smirnov)只是陪老婆到重庆读研。
 
-法院核查发现，其中371天无有效治疗，用药及体温监测记录属于典型的“挂床住院”行为。
+三年后，他“跨界”多个角色：平面设计师、摄影师、摄影作品展策展人…… “跨界只是因为兴趣，在这里收获了平静、和谐，以及发自内心的开心。
 
-法院仅支持其实际治疗期间的合理损失赔偿，明确不合理部分费用由其自行承担。
+”近日，叶巴沙在重庆接受中新网采访时表示，从“陪读者”到“策展人”，他早已爱上中国，并不断深入了解中国。
 
-记者通过采访和公开信息发现，“挂床住院”现象近年来时有发生。
+叶巴沙来自俄罗斯的下诺夫哥罗德，此前曾从事文化、体育相关的活动策划工作，也是一名平面设计师。
 
-受访专家认为，“挂床住院”违背诊疗规范和诚信原则，司法实践中对“挂床住院”的认定已形成底层客观数据穿透审查的共识，并对“挂床住院”作出否定性评价。
+他的妻子是一位有中文情缘的俄罗斯人，14年间三次赴华求学、一次在俄罗斯教授汉语。
 
-治理“挂床住院”现象，需要构建协同监管共治格局，建立卫生健康委、医保等信息共享与联合惩戒机制，打通病历、医保、理赔数据壁垒，将“挂床住院”骗赔主体记入失信档案。
+2023年，妻子到位于重庆的四川外国语大学读研，他随之“陪读”。
 
-住院期间没有治疗记录 经过两年的诉讼，江西人何女士等来了法院的判决。
+来渝之前，叶巴沙对重庆知之甚少，甚至做好了深居简出的准备。
 
-这场因自建住房雇佣泥工引发的纠纷，让何女士一家身心俱疲，而纠纷背后暗藏的“挂床住院”行为，则让她感慨不已。
+“但这座城市的精彩程度，远超我的想象。
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 22:59 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:53 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 22:55 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 23:08 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 23:06 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 22:49 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 23:00 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 23:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 23:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 23:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 23:08 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 23:22 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 23:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 23:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 23:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 23:10 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 23:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 23:06 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 23:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 23:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/8125542.shtml)
-- 2026-06-29 23:11 - [恋与深空致歉](http://www.share.minike.top/Article/details/438826801.shtml)
-- 2026-06-29 23:12 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/51148990351.shtml)
-- 2026-06-29 22:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/81359.shtml)
-- 2026-06-29 23:08 - [乔家的儿女](https://www.share.minike.top/Article/details/43462.shtml)
-- 2026-06-29 23:01 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/92264774.shtml)
-- 2026-06-29 23:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/3115493349.shtml)
-- 2026-06-29 22:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/835884207.shtml)
-- 2026-06-29 22:51 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/120867.shtml)
-- 2026-06-29 23:04 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/7457727.shtml)
-- 2026-06-29 22:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/074169805683.shtml)
-- 2026-06-29 23:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/66021925698.shtml)
-- 2026-06-29 22:57 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/4311950.shtml)
-- 2026-06-29 22:55 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/5811827462.shtml)
-- 2026-06-29 22:51 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/926250.shtml)
+- 2026-06-29 23:00 - [金刚川](http://www.share.kurohicncr.top/Article/details/962942.shtml)
+- 2026-06-29 22:54 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/756599252.shtml)
+- 2026-06-29 23:19 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/8451772.shtml)
+- 2026-06-29 23:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/43306.shtml)
+- 2026-06-29 22:55 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/729984294.shtml)
+- 2026-06-29 22:58 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/58966321610.shtml)
+- 2026-06-29 23:00 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/597259.shtml)
+- 2026-06-29 23:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/433029037.shtml)
+- 2026-06-29 23:13 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/15761.shtml)
+- 2026-06-29 22:59 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/48321718.shtml)
+- 2026-06-29 23:13 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/86375.shtml)
+- 2026-06-29 23:08 - [起风了](https://www.share.kurohicncr.top/Article/details/65560.shtml)
+- 2026-06-29 23:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/61195.shtml)
+- 2026-06-29 23:08 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/030994147187.shtml)
+- 2026-06-29 23:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/113907303602.shtml)

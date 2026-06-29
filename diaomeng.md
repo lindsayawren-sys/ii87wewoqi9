@@ -1,59 +1,57 @@
-# 驻外人员为“讲课费”出卖国家秘密 国安机关披露详情
+# 香港发布精准扶贫成果报告 所有关键绩效指标均已达成
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-真实案例 | 为了所谓的“讲课费”，孟某某出卖国家秘密，最终走上间谍犯罪“不归路” 在国外的一次酒会上，我驻外人员孟某某结识了外籍人员玛丽。此后，玛丽以请教中国历史人文、学习中文为由频繁邀约孟某某，每次见面，玛丽总是给孟某某带一些小礼物，并给予几句“贴心”的恭维。孟某某自觉在异国他乡遇到了知音，爽快答应玛丽每次的邀约。在一次常规的交流后，玛丽执意要给孟某某一笔“讲课费”和一些“
+中新网香港6月18日电 香港特区政府扶贫委员会18日发布《香港精准扶贫成果报告》(下称“报告”)指出，特区政府投放大量资源提供教育、医疗、房屋和社会福利，保障香港市民的基本生活；在政、商、民三方合力推动和实践下，精准扶贫项目的所有关键绩效指标均已达成。 报告全文超过220页，分为5章，图文并茂。报告提到，2026/2027财政年度，特区政府投放于教育、医疗卫生和社会福利方面的预
 
 ## 正文
 
-真实案例 | 为了所谓的“讲课费”，孟某某出卖国家秘密，最终走上间谍犯罪“不归路” 在国外的一次酒会上，我驻外人员孟某某结识了外籍人员玛丽。
+中新网香港6月18日电 香港特区政府扶贫委员会18日发布《香港精准扶贫成果报告》(下称“报告”)指出，特区政府投放大量资源提供教育、医疗、房屋和社会福利，保障香港市民的基本生活；在政、商、民三方合力推动和实践下，精准扶贫项目的所有关键绩效指标均已达成。
 
-此后，玛丽以请教中国历史人文、学习中文为由频繁邀约孟某某，每次见面，玛丽总是给孟某某带一些小礼物，并给予几句“贴心”的恭维。
+报告全文超过220页，分为5章，图文并茂。
 
-孟某某自觉在异国他乡遇到了知音，爽快答应玛丽每次的邀约。
+报告提到，2026/2027财政年度，特区政府投放于教育、医疗卫生和社会福利方面的预算经常开支逾3500亿元(港元，下同)，约占特区政府整体经常开支的六成；房屋方面的公共开支预算则为645亿元。
 
-在一次常规的交流后，玛丽执意要给孟某某一笔“讲课费”和一些“出租车费”，孟某某收下了这笔钱。
+报告详细介绍了“共创明‘Teen’计划”“社区客厅试行计划”“在校课后托管服务计划”及“地区服务及关爱队伍——支援长者及照顾者计划”四个精准扶贫项目，数据显示上述项目均令大量服务对象感到满意。
 
-有了那次“讲课费”后，玛丽学习的兴趣似乎也有了变化，两人交流的话题逐渐敏感。
+“我们要知道哪些人、哪些群组最需要帮助，他们具体需要什么、应如何协助他们。
 
-玛丽更想知道我内部对相关经济、政治问题的深层考虑。
+”香港特区政府政务司司长陈国基当天在《香港精准扶贫成果报告》记者会上表示，未来将以社区为主场、以家庭为载体，加强跨界别、跨专业、跨世代的协作，推出更多项目，扩大服务覆盖面，适时考虑辨别多元目标群组、推出针对性服务，让精准的帮助延伸到每一个有需要的角落。
 
-对玛丽毫无防备的孟某某，很随意地把他知道的一些情况都告诉了玛丽。
-
-面对孟某某的和盘托出，玛丽继续以“讲课费”等名义支付孟某某报酬。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 23:12 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 23:01 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 23:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 23:16 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 23:08 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 23:04 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 22:48 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 22:52 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 22:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 23:14 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 23:15 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 22:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 22:59 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 23:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 23:02 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 23:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 23:21 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 23:09 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 22:57 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 22:54 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 23:00 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 23:20 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 23:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 23:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [炽夏](http://www.share.kurohicncr.top/Article/details/914091532579.shtml)
-- 2026-06-29 23:16 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/20468723595.shtml)
-- 2026-06-29 23:04 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/73433.shtml)
-- 2026-06-29 23:12 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/4925343.shtml)
-- 2026-06-29 23:11 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/635007.shtml)
-- 2026-06-29 23:07 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/681421.shtml)
-- 2026-06-29 23:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4142779191.shtml)
-- 2026-06-29 23:01 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/69981532567.shtml)
-- 2026-06-29 22:51 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/9586874904.shtml)
-- 2026-06-29 23:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/580261040057.shtml)
-- 2026-06-29 23:01 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/8185285011.shtml)
-- 2026-06-29 22:56 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/839060.shtml)
-- 2026-06-29 22:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/50255958307.shtml)
-- 2026-06-29 22:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/60636.shtml)
-- 2026-06-29 23:11 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/5288515.shtml)
+- 2026-06-29 23:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/0615486.shtml)
+- 2026-06-29 23:09 - [田曦薇没招了](https://www.share.minike.top/Article/details/7567873.shtml)
+- 2026-06-29 23:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/966673901.shtml)
+- 2026-06-29 23:21 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/631839307666.shtml)
+- 2026-06-29 23:02 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/777556.shtml)
+- 2026-06-29 23:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/505542.shtml)
+- 2026-06-29 22:54 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/121056753248.shtml)
+- 2026-06-29 23:08 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/15673790203.shtml)
+- 2026-06-29 23:21 - [美股](https://www.blog.minike.top/Article/details/369113742742.shtml)
+- 2026-06-29 22:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/9982069883.shtml)
+- 2026-06-29 23:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/04767807498.shtml)
+- 2026-06-29 23:04 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/5898494642.shtml)
+- 2026-06-29 23:00 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/637782374696.shtml)
+- 2026-06-29 23:10 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/261931.shtml)
+- 2026-06-29 23:17 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/951376.shtml)

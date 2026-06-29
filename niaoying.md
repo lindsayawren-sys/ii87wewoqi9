@@ -1,60 +1,43 @@
-# 东方甄选6款自营保健食品获国家“蓝帽子”认证，跨境营养品将“全程可追溯”
+# 伊美谈判第一轮已结束
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月15日，东方甄选举办保健食品发布会，正式官宣旗下6款自营保健食品获得国家“蓝帽子”认证。发布会上东方甄选公布，发展4年，已打磨出800多款自营产品，累计服务超过3086万用户，其耗时2年打造的6款“蓝帽子”认证产品，每一款都经过层层审核。 研发环节，东方甄选产品团队从配方到原料，必须都要有实验室的数据，
+新华社瑞士比尔根山6月21日电 据外媒21日报道，伊美谈判第一轮已结束。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-4月15日，东方甄选举办保健食品发布会，正式官宣旗下6款自营保健食品获得国家“蓝帽子”认证。
-
-发布会上东方甄选公布，发展4年，已打磨出800多款自营产品，累计服务超过3086万用户，其耗时2年打造的6款“蓝帽子”认证产品，每一款都经过层层审核。
-
-研发环节，东方甄选产品团队从配方到原料，必须都要有实验室的数据，有临床文献的支持。
-
-同时，保健食品的安全、功效、稳定性，必须也经过实验验证。
-
-生产环节，东方甄选对合作工厂进行严格的资质、环境、卫生及技术审查，要求生产线全程视频监控，并进行“一镜到底”拍摄记录，确保每一个环节都有据可查。
-
-质检环节，东方甄选首次披露，目前质检团队每年超过200天驻守在实验室和工厂，公司投入数千万元质检费用，对原料和成品实行全项检测，部分项目检测要求严于国家标准。
-
-宣传环节，东方甄选表示，严格遵循国家规定，仅标注国家允许的24项保健功能，不夸大、不模糊，以透明化信息，倡导用户理性选择。
+新华社瑞士比尔根山6月21日电 据外媒21日报道，伊美谈判第一轮已结束。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 22:53 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 23:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 22:57 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 22:58 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 23:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 23:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 22:56 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 22:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:58 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 23:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 22:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 22:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 22:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 22:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 23:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 23:05 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 23:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 23:05 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 22:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 23:15 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 23:09 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 23:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 23:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/66806564.shtml)
-- 2026-06-29 23:09 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/814473.shtml)
-- 2026-06-29 23:07 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/16503977304.shtml)
-- 2026-06-29 23:16 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/983527.shtml)
-- 2026-06-29 22:50 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/25727.shtml)
-- 2026-06-29 22:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/424380829823.shtml)
-- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/575310197.shtml)
-- 2026-06-29 23:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/9466706.shtml)
-- 2026-06-29 22:53 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/584215100546.shtml)
-- 2026-06-29 23:06 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/01531.shtml)
-- 2026-06-29 22:53 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/358416046382.shtml)
-- 2026-06-29 23:00 - [逃狱兄弟](http://www.share.minike.top/Article/details/8369575.shtml)
-- 2026-06-29 22:58 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/42129993.shtml)
-- 2026-06-29 23:07 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/82053454510.shtml)
-- 2026-06-29 23:17 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/274988.shtml)
+- 2026-06-29 23:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/06056621.shtml)
+- 2026-06-29 23:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/1250081434.shtml)
+- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/357266.shtml)
+- 2026-06-29 23:16 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/15926.shtml)
+- 2026-06-29 23:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/27543364.shtml)
+- 2026-06-29 23:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/109836.shtml)
+- 2026-06-29 23:00 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/80248.shtml)
+- 2026-06-29 23:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/970152257.shtml)
+- 2026-06-29 22:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/218680360409.shtml)
+- 2026-06-29 23:19 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/72985.shtml)
+- 2026-06-29 23:14 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/769419944333.shtml)
+- 2026-06-29 23:18 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/936148049.shtml)
+- 2026-06-29 23:23 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/1608189.shtml)
+- 2026-06-29 23:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/474438378224.shtml)
+- 2026-06-29 23:05 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/28752152.shtml)

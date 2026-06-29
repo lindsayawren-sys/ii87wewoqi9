@@ -1,57 +1,61 @@
-# 外交部驻港公署举办全国两会精神专题宣介会
+# 再涨3%！近1年跑赢科创50的“宽基”科技ETF继续新高！光纤概念引爆AI算力，长飞光纤强势涨停
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网香港4月15日电 (记者 戴小橦)中国外交部驻香港特别行政区特派员公署(简称“外交部驻港公署”)14日举办全国两会精神专题宣介会，来自44个国家的外国驻港总领事、代总领事出席。 外交部驻港公署特派员崔建春，以及全国政协常委廖长江、蔡冠深，港区全国人大代表陈振英，港区全国政协委员苏绍聪、任咏华等5位港区全国两会代表、委员，从不同角度作主旨宣讲。 会上，崔建春重点围绕中国外交
+6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！ 成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。 中信建投表示，在全球AI算力产业蓬勃发展
 
 ## 正文
 
-中新网香港4月15日电 (记者 戴小橦)中国外交部驻香港特别行政区特派员公署(简称“外交部驻港公署”)14日举办全国两会精神专题宣介会，来自44个国家的外国驻港总领事、代总领事出席。
+6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！
 
-外交部驻港公署特派员崔建春，以及全国政协常委廖长江、蔡冠深，港区全国人大代表陈振英，港区全国政协委员苏绍聪、任咏华等5位港区全国两会代表、委员，从不同角度作主旨宣讲。
+成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。
 
-会上，崔建春重点围绕中国外交政策宣讲两会精神，从中国是维护和平的中坚力量、完善全球治理的稳定力量、推动合作的建设性力量、地区安全的稳定锚、发展振兴的同行者、开放合作的引领者等6个方面进行介绍，并表示香港必将在融入和服务国家高水平对外开放和世界互利共赢中发挥更大作用。
+中信建投表示，在全球AI算力产业蓬勃发展，泛AI行业和传统产业景气分化加剧的当下，我们继续看好AI算力作为本轮牛市中长期核心主线的后续表现。
 
-5位港区全国两会代表、委员分别从全局宏观视角和经贸、金融、法律、科技等专业角度，结合参加全国两会亲身感受和香港实际宣讲两会精神。
+从短期来看，陆家嘴金融论坛等国内政策红利有望继续推动双创板块上涨，美联储加息预期也未阻挡全球科技股上行，预计创业板和科创板将继续保持强势。
 
-宣讲后，崔建春和港区代表、委员同外国驻港总领事进行座谈交流。
+中泰证券也认为，就后续市场风格而言，我们认为科技行情或将持续，价值反转不具备条件。
 
-与会外国驻港总领事认为宣介会形式创新、内容丰富，有助于其全面准确理解全国两会精神和“十五五”规划，并表示愿继续用好香港平台的独特优势，进一步深化对华、对港合作。
+我们预计即将召开的会议仍将围绕新质生产力与科技创新展开部署，政策重心短期内不会偏移。
 
-(完)
+就后续而言，长鑫科技上市在即或构成新一轮上涨催化。
+
+科技牛，买龙头！
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 23:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 22:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:03 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 22:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 22:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 22:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 22:57 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 23:13 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 23:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 23:05 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 22:49 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 23:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 22:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:18 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 23:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 23:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 23:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 23:04 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 22:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 23:14 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 22:55 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 23:22 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 22:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 23:18 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 23:14 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 23:14 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/86794.shtml)
-- 2026-06-29 22:54 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/94016.shtml)
-- 2026-06-29 23:09 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/945100368730.shtml)
-- 2026-06-29 23:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/899844084260.shtml)
-- 2026-06-29 22:51 - [起风了](https://www.share.minike.top/Article/details/4213057677.shtml)
-- 2026-06-29 23:12 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/98189378351.shtml)
-- 2026-06-29 23:12 - [《贺子珍》](http://www.blog.minike.top/Article/details/31070.shtml)
-- 2026-06-29 22:59 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/22712165753.shtml)
-- 2026-06-29 23:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/021631.shtml)
-- 2026-06-29 23:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/6859127929.shtml)
-- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/298941403720.shtml)
-- 2026-06-29 23:05 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/770261055794.shtml)
-- 2026-06-29 23:13 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/49341506897.shtml)
-- 2026-06-29 22:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/0510768225.shtml)
-- 2026-06-29 23:09 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/071262006433.shtml)
+- 2026-06-29 23:08 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/63402.shtml)
+- 2026-06-29 23:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/268506486.shtml)
+- 2026-06-29 23:07 - [爱很美味](https://www.blog.minike.top/Article/details/4664036.shtml)
+- 2026-06-29 23:19 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/22202.shtml)
+- 2026-06-29 23:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5104190.shtml)
+- 2026-06-29 23:17 - [起风了](http://www.blog.minike.top/Article/details/22772589.shtml)
+- 2026-06-29 22:56 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/58088578609.shtml)
+- 2026-06-29 23:15 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/197632843.shtml)
+- 2026-06-29 23:17 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/93191346.shtml)
+- 2026-06-29 23:03 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/5837089330.shtml)
+- 2026-06-29 23:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4070296.shtml)
+- 2026-06-29 22:54 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/366243014.shtml)
+- 2026-06-29 23:04 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/698913465116.shtml)
+- 2026-06-29 23:04 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/52445734.shtml)
+- 2026-06-29 23:00 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/2055012026.shtml)

@@ -1,58 +1,61 @@
-# 激进投资机构埃利奥特入股 大金工业股价大涨14%
+# 中信证券：今年AI驱动的行情不是互联网泡沫行情，加息很难影响“AI类周期股”的估值
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-大金工业株式会社股价创下2009年以来最大涨幅，原因是埃利奥特投资管理公司入股这家日本空调制造商，并表示其股价被市场“严重低估”，同时呼吁该公司提升盈利能力、改善股东回报并剥离非核心业务。 周四东京早盘交易中，在这家激进投资者披露已持有大金工业大量股份后，其股价一度上涨14%。埃利奥特表示：“我们致力于与公司开展建设性合作。” 不久前，埃利奥特刚成功推动丰田集团提高对丰田自动织
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！策略聚焦|“加息”涨科技？ 来源：中信证券研究文|裘翔 张铭楷 陈峰 高玉森 陈泽平 今年以来AI驱动的行情是由庞大的基础设施投资驱动的“瓶颈交易”，更像是2006~07年由投资和重资产公司推动的牛市，而非互联网泡沫行情，加息很难影响“AI类周期股”的估值，除非加息真的影响到AI的终端需求、商业化假设和资本
 
 ## 正文
 
-大金工业株式会社股价创下2009年以来最大涨幅，原因是埃利奥特投资管理公司入股这家日本空调制造商，并表示其股价被市场“严重低估”，同时呼吁该公司提升盈利能力、改善股东回报并剥离非核心业务。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-周四东京早盘交易中，在这家激进投资者披露已持有大金工业大量股份后，其股价一度上涨14%。
+策略聚焦|“加息”涨科技？
 
-埃利奥特表示：“我们致力于与公司开展建设性合作。
+来源：中信证券研究文|裘翔 张铭楷 陈峰 高玉森 陈泽平 今年以来AI驱动的行情是由庞大的基础设施投资驱动的“瓶颈交易”，更像是2006~07年由投资和重资产公司推动的牛市，而非互联网泡沫行情，加息很难影响“AI类周期股”的估值，除非加息真的影响到AI的终端需求、商业化假设和资本开支增速。
 
-” 不久前，埃利奥特刚成功推动丰田集团提高对丰田自动织机的收购报价，如今正加大在日本市场的投资动作。
+全球范围内的加息进程率先影响到的是需求增长相对偏弱的板块，AI与非AI的K型分化在全球都成立；不过，由于强势美元叙事同时开始回归，以及市场整体呈现存量资金调结构的格局，A股的非AI周期板块相比海外的对标公司明显更弱；同样是K型分化，A股行情的宽度相对海外有所不足。
 
-上月，该机构宣布入股航运企业商船三井，这也是日本企业界掀起的激进投资热潮的一部分——当前市场正不断施压，要求企业将股东回报放在优先位置。
+改变非AI板块的弱势还需要自身叙事在未来出现一些积极变化，或者资金面发生改变，而非等AI调整。
 
-SMBC日兴证券分析师在报告中写道：“我们认为，在埃利奥特投资的助力下，大金工业需加强与资本市场的沟通互动，以吸引投资者重新关注其股票。
+如果把此轮AI驱动的行情 类比中国2006~07牛市行情， 那“加息”不会是行情结束的转折 1）此轮行情是庞大的投资驱动的“瓶颈交易”，更像是2006~07年的牛市，而非互联网泡沫行情。
 
-” 大金工业方面已确认埃利奥特的入股事宜，但拒绝置评。
+全球AI行情在今年已极其清晰地演绎为“瓶颈交易”。
 
-责任编辑：王永生
+美股硬件端存储、光通信、半导体设备龙头表现优异，而传统平台公司和AI应用旗手普遍表现不佳。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 23:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 22:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 23:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 23:03 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 23:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 22:58 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 22:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 23:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 23:10 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 23:14 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 22:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 23:00 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 23:14 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 23:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 22:56 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 23:21 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 23:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 23:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 23:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 23:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 22:56 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 23:10 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 23:00 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:59 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:13 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/78833430826.shtml)
-- 2026-06-29 22:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/866492793.shtml)
-- 2026-06-29 22:59 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/590501.shtml)
-- 2026-06-29 23:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/77650.shtml)
-- 2026-06-29 23:08 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/46049.shtml)
-- 2026-06-29 22:58 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/41091755.shtml)
-- 2026-06-29 23:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/3398609891.shtml)
-- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/56943021.shtml)
-- 2026-06-29 23:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/993114417.shtml)
-- 2026-06-29 22:56 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/22511621.shtml)
-- 2026-06-29 23:07 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/7829746.shtml)
-- 2026-06-29 22:51 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/215350669352.shtml)
-- 2026-06-29 22:57 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/357719720817.shtml)
-- 2026-06-29 22:57 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/96512111102.shtml)
-- 2026-06-29 22:57 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/0877461406.shtml)
+- 2026-06-29 23:00 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/5005019345.shtml)
+- 2026-06-29 23:06 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/402647.shtml)
+- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/1708508.shtml)
+- 2026-06-29 23:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/924136139.shtml)
+- 2026-06-29 22:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/63209.shtml)
+- 2026-06-29 23:18 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/664942.shtml)
+- 2026-06-29 23:16 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/70606136.shtml)
+- 2026-06-29 23:02 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/96318.shtml)
+- 2026-06-29 23:04 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/22546.shtml)
+- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/96948.shtml)
+- 2026-06-29 23:01 - [电影后室值得看吗](https://www.share.minike.top/Article/details/07797653758.shtml)
+- 2026-06-29 23:19 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/698430448.shtml)
+- 2026-06-29 23:14 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/59319552518.shtml)
+- 2026-06-29 23:19 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/98183.shtml)
+- 2026-06-29 23:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/4956280.shtml)

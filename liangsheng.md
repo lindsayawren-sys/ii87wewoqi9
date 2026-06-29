@@ -1,61 +1,56 @@
-# 国台办新闻发布会聚焦郑丽文访陆、大陆方面释放“和平利好”等热点
+# 苏州两岸家庭端午包粽子话融合
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)国务院台办例行新闻发布会15日在北京举行，发言人陈斌华就中国国民党主席郑丽文应邀率团参访大陆、大陆方面发布十项促进两岸交流合作的政策措施等近期热点作出回应。应中共中央和习近平总书记邀请，中国国民党主席郑丽文率中国国民党访问团于4月7日至12日到大陆参观访问。10日上午，习近平总书记在北京会见了郑丽文并发表重要讲话。郑丽文此行，尤其
+中新社苏州6月19日电 (记者 徐珊珊)6月19日，农历五月初五端午节。苏州近150位两岸婚姻家庭成员聚在一起，包粽子、做香囊、赛旱地龙舟，在艾草的芬芳与粽子的甜香中庆祝中华民族的传统佳节。 祖籍苏州的台北女生陈晓文还记得：“小时候，每到端午节家里常去台北的南门市场买湖州粽。” 成年后，陈晓文回到祖辈生活的苏州才知道，原来湖州就在苏州旁边。重新吃到湖州粽，令她感慨万千，“和在台
 
 ## 正文
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)国务院台办例行新闻发布会15日在北京举行，发言人陈斌华就中国国民党主席郑丽文应邀率团参访大陆、大陆方面发布十项促进两岸交流合作的政策措施等近期热点作出回应。
+中新社苏州6月19日电 (记者 徐珊珊)6月19日，农历五月初五端午节。
 
-应中共中央和习近平总书记邀请，中国国民党主席郑丽文率中国国民党访问团于4月7日至12日到大陆参观访问。
+苏州近150位两岸婚姻家庭成员聚在一起，包粽子、做香囊、赛旱地龙舟，在艾草的芬芳与粽子的甜香中庆祝中华民族的传统佳节。
 
-10日上午，习近平总书记在北京会见了郑丽文并发表重要讲话。
+祖籍苏州的台北女生陈晓文还记得：“小时候，每到端午节家里常去台北的南门市场买湖州粽。
 
-郑丽文此行，尤其是国共两党领导人时隔10年再次会面备受关注，发布会上两岸记者就此密集发问。
+” 成年后，陈晓文回到祖辈生活的苏州才知道，原来湖州就在苏州旁边。
 
-陈斌华表示，郑丽文主席率团访问大陆，顺应了岛内要和平、要发展、要交流、要合作的主流民意，对推动两岸关系和平发展、维护台湾同胞利益福祉具有积极、重要的意义。
+重新吃到湖州粽，令她感慨万千，“和在台湾吃的味道一样。
 
-谈及此次国共领导人会面，他认为这“开启了国共两党交往的新篇章”。
+祖辈们在台湾吃湖州粽是思念家乡，我在苏州吃湖州粽也是思念家乡”。
 
-陈斌华在回答相关问题时还多次表示，坚持“九二共识”、反对“台独”是两岸沟通对话的基础。
+如今，陈晓文和一位苏州男生组成了幸福的家庭。
 
-大陆方面愿在此基础上，加强同台湾各政党、团体和各界人士交流沟通。
+父母也从台湾到苏州定居，还学会了包苏式粽子。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 22:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 23:17 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 22:54 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 23:04 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 23:17 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 23:14 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 23:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 23:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 23:15 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 23:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 23:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 23:13 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:03 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 23:08 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 23:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 23:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 23:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 23:23 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 23:14 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 23:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 22:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 23:13 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 22:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 23:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/467770676299.shtml)
-- 2026-06-29 22:58 - [起风了](https://www.share.kurohicncr.top/Article/details/94905.shtml)
-- 2026-06-29 23:14 - [急先锋](http://www.share.kurohicncr.top/Article/details/28527876.shtml)
-- 2026-06-29 23:17 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/5655038833.shtml)
-- 2026-06-29 22:50 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/8750057597.shtml)
-- 2026-06-29 22:49 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/844405258.shtml)
-- 2026-06-29 23:16 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/6366626110.shtml)
-- 2026-06-29 23:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/3121661.shtml)
-- 2026-06-29 23:11 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4966213709.shtml)
-- 2026-06-29 23:17 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/984367.shtml)
-- 2026-06-29 22:48 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/89408.shtml)
-- 2026-06-29 23:13 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/0259306.shtml)
-- 2026-06-29 22:52 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/24534231757.shtml)
-- 2026-06-29 23:01 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/1630216520.shtml)
-- 2026-06-29 23:07 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/964850.shtml)
+- 2026-06-29 23:06 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/203708496529.shtml)
+- 2026-06-29 23:01 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/30800.shtml)
+- 2026-06-29 23:02 - [斗破苍穹](https://www.blog.minike.top/Article/details/640624.shtml)
+- 2026-06-29 23:11 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/30025754.shtml)
+- 2026-06-29 22:58 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/27264173.shtml)
+- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/09756.shtml)
+- 2026-06-29 23:17 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/61769.shtml)
+- 2026-06-29 23:05 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/506603.shtml)
+- 2026-06-29 22:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/15661641.shtml)
+- 2026-06-29 22:56 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/95434406282.shtml)
+- 2026-06-29 23:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/28125055.shtml)
+- 2026-06-29 23:07 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/004886256828.shtml)
+- 2026-06-29 22:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/1905540.shtml)
+- 2026-06-29 23:12 - [送你一朵小红花](https://www.share.minike.top/Article/details/79040.shtml)
+- 2026-06-29 23:10 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/85929.shtml)

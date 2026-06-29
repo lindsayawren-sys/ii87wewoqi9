@@ -1,53 +1,60 @@
-# Allbirds宣布惊人转型：从鞋厂转向AI，股价暴涨160%
+# 长江中下游雨势再度增强 华南等地高温成片暑热全天在线
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-Allbirds周三开盘大涨160%，此前发布了一项令人意外的声明，宣布公司将转型进军人工智能领域。 据公开资料，该公司的介绍资料是“一个全球性的生活方式品牌，该品牌采用天然材料进行创新，以更环保的方式生产鞋类和服装产品，同时减少对地球的影响。”其产品包括男鞋、女鞋、男装、女装、袜子和礼品卡等。 该公司股价在盘前交易中一度上涨高达200%。责任编辑：张俊 SF065
+中国天气网讯 今明两天(6月21日至22日)，长江中下游一带的降雨会再度增强，多地将迎来暴雨到大暴雨；同时，东北地区的降雨仍将持续。而在华南和江南南部一带，明天起会迎来成片的高温天气，体感十分闷热，需注意防暑。 长江中下游雨势将再度增强 东北降雨仍然频繁 昨天，长江中下游一带强降雨有所减少，但广西、贵州等地雨势仍强；此外，东北地区和内蒙古一带出现明显降雨。监测显示，广西北部、贵
 
 ## 正文
 
-Allbirds周三开盘大涨160%，此前发布了一项令人意外的声明，宣布公司将转型进军人工智能领域。
+中国天气网讯 今明两天(6月21日至22日)，长江中下游一带的降雨会再度增强，多地将迎来暴雨到大暴雨；同时，东北地区的降雨仍将持续。
 
-据公开资料，该公司的介绍资料是“一个全球性的生活方式品牌，该品牌采用天然材料进行创新，以更环保的方式生产鞋类和服装产品，同时减少对地球的影响。
+而在华南和江南南部一带，明天起会迎来成片的高温天气，体感十分闷热，需注意防暑。
 
-”其产品包括男鞋、女鞋、男装、女装、袜子和礼品卡等。
+长江中下游雨势将再度增强 东北降雨仍然频繁 昨天，长江中下游一带强降雨有所减少，但广西、贵州等地雨势仍强；此外，东北地区和内蒙古一带出现明显降雨。
 
-该公司股价在盘前交易中一度上涨高达200%。
+监测显示，广西北部、贵州南部、云南东部、四川南部、湖南中北部等地部分地区出现暴雨或大暴雨，广西河池、贵州黔南等局地特大暴雨；内蒙古东部、黑龙江西部、吉林西部、辽宁中北部及新疆和田地区等地部分地区出现大到暴雨。
 
-责任编辑：张俊 SF065
+今明两天，长江中下游一带降雨将再度增强，多地有暴雨、大暴雨，后天雨势有所减弱，但仍多大到暴雨。
+
+在广西、贵州等地，今天强降雨将明显减少，明后两天雨势陆续增强。
+
+此外，未来三天东北地区和内蒙古东部一带降雨仍然频繁，大部地区以小到中雨为主，局地有大到暴雨。
+
+具体来看，中央气象台预计，今天广西北部、贵州北部和东南部、重庆南部、湖南北部和西南部、湖北东部、江西西北部、安徽南部、江苏南部、浙江西北部以及四川东北部、陕西南部、山西东南部、河南北部、内蒙古东北部、黑龙江西部、云南西部和南部、西藏东南部、新疆南部等地有大到暴雨，其中，贵州北部、重庆南部、湖南北部、湖北东南部、江西西北部等地的部分地区有大暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 23:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 23:02 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 22:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 23:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 23:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 23:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 23:02 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 22:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 22:56 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 23:13 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 22:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 23:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:17 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 23:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 23:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 23:07 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 23:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 23:12 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 23:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 23:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 23:02 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:05 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:15 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 23:07 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/484935638.shtml)
-- 2026-06-29 23:13 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/571651.shtml)
-- 2026-06-29 23:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/17788.shtml)
-- 2026-06-29 22:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/21682.shtml)
-- 2026-06-29 23:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/7646094621.shtml)
-- 2026-06-29 22:48 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/43423.shtml)
-- 2026-06-29 22:48 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/452092.shtml)
-- 2026-06-29 23:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/5966376.shtml)
-- 2026-06-29 22:50 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/2471452.shtml)
-- 2026-06-29 22:57 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/861720.shtml)
-- 2026-06-29 22:55 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/0158840742.shtml)
-- 2026-06-29 22:58 - [第一炉香](https://www.blog.minike.top/Article/details/59793124.shtml)
-- 2026-06-29 22:51 - [美人鱼](http://www.blog.minike.top/Article/details/6615282.shtml)
-- 2026-06-29 23:10 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/658574499.shtml)
-- 2026-06-29 22:50 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/053578980833.shtml)
+- 2026-06-29 23:12 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/0901245.shtml)
+- 2026-06-29 22:57 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/86239.shtml)
+- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/40755.shtml)
+- 2026-06-29 22:56 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/18021.shtml)
+- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/7796628.shtml)
+- 2026-06-29 23:14 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/55298672.shtml)
+- 2026-06-29 23:12 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/361724705.shtml)
+- 2026-06-29 22:56 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/029389398983.shtml)
+- 2026-06-29 23:00 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/35889517.shtml)
+- 2026-06-29 23:04 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/175272894048.shtml)
+- 2026-06-29 23:04 - [TOP Prada](http://www.share.minike.top/Article/details/389345.shtml)
+- 2026-06-29 23:16 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/6623462716.shtml)
+- 2026-06-29 23:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/6440321970.shtml)
+- 2026-06-29 23:12 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/16905.shtml)
+- 2026-06-29 23:20 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/117812.shtml)

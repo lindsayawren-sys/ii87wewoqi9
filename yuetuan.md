@@ -1,58 +1,49 @@
-# 华勤技术于4月15日至4月20日招股 拟全球发售5854.82万股H股
+# 共享电单车公司Lime据悉拟将优步列为其IPO的基石投资者
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-华勤技术（03296）于2026年4月15日至4月20日招股，公司拟全球发售5854.82万股H股，其中，香港发售占10%，国际发售占90%，另有超额配股权15%。发售价将不超过每股发售股份77.70港元，每手100股H股，预期H股将于2026年4月23日（星期四）上午九时正开始在联交所买卖。 公司是深耕智能产品领域20余年的智能产品平台型公司，智能产品集人工智能、物联网、大数
+据知情人士称，电动自行车和滑板车运营商Lime计划在其首次公开募股（IPO）中将网约车巨头优步（Uber）列为基石投资者。 据报道，Lime预计将于本周启动路演，与IPO投资者洽谈，计划以约18亿美元的估值筹集约2亿美元资金。责任编辑：于健 SF069
 
 ## 正文
 
-华勤技术（03296）于2026年4月15日至4月20日招股，公司拟全球发售5854.82万股H股，其中，香港发售占10%，国际发售占90%，另有超额配股权15%。
+据知情人士称，电动自行车和滑板车运营商Lime计划在其首次公开募股（IPO）中将网约车巨头优步（Uber）列为基石投资者。
 
-发售价将不超过每股发售股份77.70港元，每手100股H股，预期H股将于2026年4月23日（星期四）上午九时正开始在联交所买卖。
+据报道，Lime预计将于本周启动路演，与IPO投资者洽谈，计划以约18亿美元的估值筹集约2亿美元资金。
 
-公司是深耕智能产品领域20余年的智能产品平台型公司，智能产品集人工智能、物联网、大数据及通信技术等核心技术为一体且融合多项智能功能。
-
-凭藉发展历程中汲取的经验，公司推动移动通讯、互联网、云计算和人工智能时代下产品和技术的开发和应用，为全球科技公司提供涵盖移动终端、计算及数据中心业务、AIoT和创新业务领域的智能产品。
-
-公司在主要产品领域确立了稳固的领先地位，根据灼识咨询的资料，公司是全栈智能产品ODM平台，在多个智能产品品类实现了全球第一。
-
-假设发售量调整权及超额配股权未获行使，并假设发售价为每股发售股份77.70港元，公司估计将自全球发售收取所得款项净额约44.63亿港元。
-
-其中，约40.0%将用于以产品为核心的研发投入，增强技术实力；约35.0%将用于扩大及优化公司的製造体系；约15.0%将用于战略投资与垂直整合；及约10.0%将用于营运资金及一般公司用途。
-
-责任编辑：卢昱君
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 23:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 23:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 22:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 23:05 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 23:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 22:52 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 23:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 23:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 23:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 23:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 23:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 23:09 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 23:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 22:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 23:08 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 22:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 23:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 23:09 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 22:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 23:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 23:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/56284.shtml)
-- 2026-06-29 23:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/257829.shtml)
-- 2026-06-29 23:07 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/562459421.shtml)
-- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/037210299.shtml)
-- 2026-06-29 23:05 - [国际清算银行警告AI投资热潮](https://www.blog.minike.top/Article/details/749215551.shtml)
-- 2026-06-29 23:15 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/80599299294.shtml)
-- 2026-06-29 23:16 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/906016642549.shtml)
-- 2026-06-29 22:53 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/7073785491.shtml)
-- 2026-06-29 22:52 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/31459.shtml)
-- 2026-06-29 23:15 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/13455411268.shtml)
-- 2026-06-29 23:06 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/427453109729.shtml)
-- 2026-06-29 22:56 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/091193266413.shtml)
-- 2026-06-29 23:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/4440388880.shtml)
-- 2026-06-29 22:55 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/17646007.shtml)
-- 2026-06-29 22:48 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/124001.shtml)
+- 2026-06-29 23:17 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/789532.shtml)
+- 2026-06-29 23:00 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/589076.shtml)
+- 2026-06-29 23:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/147016440035.shtml)
+- 2026-06-29 23:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/24056346.shtml)
+- 2026-06-29 23:04 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/161021.shtml)
+- 2026-06-29 23:02 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/3949985.shtml)
+- 2026-06-29 23:23 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/887140.shtml)
+- 2026-06-29 22:56 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/75620096264.shtml)
+- 2026-06-29 23:10 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/4868017217.shtml)
+- 2026-06-29 23:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/07170183108.shtml)
+- 2026-06-29 22:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/006060066862.shtml)
+- 2026-06-29 23:05 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/617575567.shtml)
+- 2026-06-29 23:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/3183881.shtml)
+- 2026-06-29 23:01 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/67044960473.shtml)
+- 2026-06-29 23:02 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/48397.shtml)

@@ -1,60 +1,57 @@
-# 谷歌再次面临应用商店诉讼 Aptoide挑战安卓生态系统控制权
+# 俄央行宣布下调基准利率至14.25%
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:02 UTC+8
 
 ## 摘要
 
-在一家规模较小的竞争对手指控其加强对安卓应用生态系统的控制后，谷歌（GOOG）再次成为法律焦点。 这起诉讼来自Aptoide，该公司声称谷歌利用其对安卓和Google Play的控制，阻止竞争对手的应用商店获得真正的市场牵引力。该案件已提交至旧金山联邦法院，并由路透社首次报道，Aptoide正在寻求禁令以及三倍损害赔偿。Aptoide辩称，即使它为开发者提供更低的佣金和更便宜的
+中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。 俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。可持续通胀率将在2026年下半年达到4%左右。 俄央行表示，中期内，通胀风险
 
 ## 正文
 
-在一家规模较小的竞争对手指控其加强对安卓应用生态系统的控制后，谷歌（GOOG）再次成为法律焦点。
+中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。
 
-这起诉讼来自Aptoide，该公司声称谷歌利用其对安卓和Google Play的控制，阻止竞争对手的应用商店获得真正的市场牵引力。
+俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。
 
-该案件已提交至旧金山联邦法院，并由路透社首次报道，Aptoide正在寻求禁令以及三倍损害赔偿。
+可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。
 
-Aptoide辩称，即使它为开发者提供更低的佣金和更便宜的分发渠道，它仍然无法在公平的竞争环境中竞争。
+俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。
 
-使这起诉讼不仅仅是一家小公司抱怨的原因在于Aptoide所指出的规模。
+可持续通胀率将在2026年下半年达到4%左右。
 
-该公司表示，它已经拥有约43.6万款应用，每年服务超过2亿用户，将自己定位为第三大安卓应用商店。
+俄央行表示，中期内，通胀风险将继续超过通缩风险。
 
-多年来，它一直在提出类似的担忧，包括早在2014年向欧盟监管机构提出的投诉。
+通胀风险主要与高通胀预期、工资增长长期超过生产率增长、全球经济前景恶化以及地缘政治紧张局势下全球物价压力上升有关。
 
-在Alphabet持续应对更广泛的反垄断审查之际，这段历史为其主张增添了分量。
+俄央行行长纳比乌琳娜当天在新闻发布会上表示，受一次性因素影响，当前物价上涨速度明显放缓，持续通胀预期也略有下降。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 22:55 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 22:52 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 23:05 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 22:49 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 23:13 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 22:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 22:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 23:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 23:06 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:09 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 23:17 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 22:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 23:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 22:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 22:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 23:13 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 23:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 23:16 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 23:13 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 23:04 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 23:06 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 23:06 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 23:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/106039090305.shtml)
-- 2026-06-29 23:04 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/8787534.shtml)
-- 2026-06-29 23:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/86520362652.shtml)
-- 2026-06-29 22:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/7386212136.shtml)
-- 2026-06-29 23:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/73408012334.shtml)
-- 2026-06-29 23:15 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/997222.shtml)
-- 2026-06-29 23:17 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/675515661.shtml)
-- 2026-06-29 22:54 - [世界杯](http://www.blog.minike.top/Article/details/589622080.shtml)
-- 2026-06-29 23:02 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/08281.shtml)
-- 2026-06-29 23:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/60104226.shtml)
-- 2026-06-29 23:16 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/18016.shtml)
-- 2026-06-29 23:01 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/290036245183.shtml)
-- 2026-06-29 22:53 - [锐评T1零封KC](https://www.share.minike.top/Article/details/5227014757.shtml)
-- 2026-06-29 23:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/52452176689.shtml)
-- 2026-06-29 23:14 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/231565.shtml)
+- 2026-06-29 23:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/20358.shtml)
+- 2026-06-29 23:08 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/445007681781.shtml)
+- 2026-06-29 23:12 - [逃狱兄弟](http://www.blog.minike.top/Article/details/127689676.shtml)
+- 2026-06-29 23:15 - [一见倾心](https://www.share.kurohicncr.top/Article/details/146889787789.shtml)
+- 2026-06-29 23:13 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/7007778.shtml)
+- 2026-06-29 23:21 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/8257540290.shtml)
+- 2026-06-29 23:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/0484861.shtml)
+- 2026-06-29 23:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/8461700420.shtml)
+- 2026-06-29 23:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/63636383.shtml)
+- 2026-06-29 23:01 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/31211577.shtml)
+- 2026-06-29 23:22 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/9163695.shtml)
+- 2026-06-29 23:09 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4280475312.shtml)
+- 2026-06-29 23:21 - [第一炉香](https://www.share.minike.top/Article/details/86222.shtml)
+- 2026-06-29 23:23 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/335989772179.shtml)
+- 2026-06-29 22:59 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/362703895.shtml)

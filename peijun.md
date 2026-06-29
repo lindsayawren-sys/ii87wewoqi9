@@ -1,51 +1,56 @@
-# 司徒建国：用真实故事架起中外理解之桥
+# 华文作家戴小华携力作北京分享两岸故事
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 21:36 来源：中国新闻网 4月15日，第三届兰花奖全球征集启动仪式在北京举行。作为第二届兰花奖友好使者奖获得者，英国籍自媒体创作者司徒建国在现场分享，获颁兰花奖是莫大鼓励，其核心价值在于推动中外民间交流，他将继续以真实日常故事为桥，展现客观中国、拉近不同文化间的距离。(记者 董泽宇 韩浩天） 责任编辑：【罗攀】
+中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。 2017年，《忽如归》即已在中国大陆文学界引起关注。 戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。她说，因三地都有亲人，对“家”的理解更为深刻。“家不是地域的概念，它属于精神范畴。”她认为，中华文化
 
 ## 正文
 
-发布时间：2026年04月15日 21:36 来源：中国新闻网 4月15日，第三届兰花奖全球征集启动仪式在北京举行。
+中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。
 
-作为第二届兰花奖友好使者奖获得者，英国籍自媒体创作者司徒建国在现场分享，获颁兰花奖是莫大鼓励，其核心价值在于推动中外民间交流，他将继续以真实日常故事为桥，展现客观中国、拉近不同文化间的距离。
+2017年，《忽如归》即已在中国大陆文学界引起关注。
 
-(记者 董泽宇 韩浩天） 责任编辑：【罗攀】
+戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。
+
+她说，因三地都有亲人，对“家”的理解更为深刻。
+
+“家不是地域的概念，它属于精神范畴。
+
+”她认为，中华文化是可以连结全球华人的精神纽带。
+
+戴小华回忆，童年时期，母亲常与同样从大陆迁台的邻里相聚，众人凭借手中发黄的旧照片遥寄对大陆亲人的思念。
+
+1999年母亲在台去世后，戴小华经多方努力，将她安葬于河北沧州。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 22:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 23:13 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 23:15 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 22:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 22:54 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 22:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 23:01 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 22:59 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 22:56 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 22:50 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:56 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 22:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 23:09 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 23:17 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 23:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 23:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:02 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 23:19 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 23:22 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:56 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 23:23 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 23:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 23:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/00880868045.shtml)
-- 2026-06-29 22:51 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/846372.shtml)
-- 2026-06-29 22:50 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/0136956.shtml)
-- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/73056092784.shtml)
-- 2026-06-29 23:06 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/35243119857.shtml)
-- 2026-06-29 22:50 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/69450791.shtml)
-- 2026-06-29 23:13 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/567927159.shtml)
-- 2026-06-29 22:54 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/522748442.shtml)
-- 2026-06-29 22:51 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/18022736204.shtml)
-- 2026-06-29 22:58 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/417654.shtml)
-- 2026-06-29 22:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/12898137740.shtml)
-- 2026-06-29 23:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/928510376434.shtml)
-- 2026-06-29 23:04 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/243590706.shtml)
-- 2026-06-29 22:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/52082086505.shtml)
-- 2026-06-29 23:17 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/31643221672.shtml)
+- 2026-06-29 23:03 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/8084779.shtml)
+- 2026-06-29 23:19 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/94146.shtml)
+- 2026-06-29 22:55 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/132965.shtml)
+- 2026-06-29 22:58 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/9810726.shtml)
+- 2026-06-29 23:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/542710133388.shtml)
+- 2026-06-29 22:59 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/799668896878.shtml)
+- 2026-06-29 23:06 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9676093.shtml)
+- 2026-06-29 22:54 - [第一炉香](https://www.blog.minike.top/Article/details/7173104.shtml)
+- 2026-06-29 22:55 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/2160189581.shtml)
+- 2026-06-29 22:54 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/91981057.shtml)
+- 2026-06-29 23:06 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/791056081.shtml)
+- 2026-06-29 23:01 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/667286.shtml)
+- 2026-06-29 23:21 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/6744878.shtml)
+- 2026-06-29 23:01 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/36339462644.shtml)
+- 2026-06-29 23:12 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/87297060.shtml)

@@ -1,56 +1,50 @@
-# 文化观察：金华影视产业如何持续生长？
+# 交通运输部：7省份地区连续降雨，公路交通存在高风险
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网金华4月15日电(林波 孙琳茹)当前，中国影视产业正经历深刻变革。传统剧集在多重挑战下深耕内容，微短剧赛道快速进化，人工智能技术以前所未有的成熟度融入创作生产。 在这一背景下，作为浙江乃至全国影视产业重镇的金华，如何持续生长，实现高质量发展？ “本土人才是金华影视产业发展的秘籍。”近日，金华市电影电视艺术家协会常务副主席兼秘书长、一级导演陈建平受访时指出，金华影视文化产业
+中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。 交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控
 
 ## 正文
 
-中新网金华4月15日电(林波 孙琳茹)当前，中国影视产业正经历深刻变革。
+中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。
 
-传统剧集在多重挑战下深耕内容，微短剧赛道快速进化，人工智能技术以前所未有的成熟度融入创作生产。
+交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控工作，严格落实灾害风险隐患排查和公路巡查要求，提高力量预置的精准性和针对性，细化主动防御管控措施，切实保障连续降雨期间人民群众公路出行安全。
 
-在这一背景下，作为浙江乃至全国影视产业重镇的金华，如何持续生长，实现高质量发展？
+交通运输部提醒，近期，上述地区出现连续降雨，公路沿线灾害风险较高，如您有上述地区出行计划，请提前关注天气及路况信息，合理规划路线，尽量避让灾害易发路段。
 
-“本土人才是金华影视产业发展的秘籍。
+驾车出行时，请谨慎驾驶、观察路况，注意公路沿线情报板、告警阻拦设施等提示信息。
 
-”近日，金华市电影电视艺术家协会常务副主席兼秘书长、一级导演陈建平受访时指出，金华影视文化产业发展秉持全域化战略，不仅要实现影视拍摄基地的全域化，还要抓紧培养本地影视人才，加速推动影视人才的全域化。
-
-在他看来，这正是金华影视的核心竞争力所在。
-
-相比硬件和资金，真正不可替代的是那些从小浸润在横店影视氛围中、对这片土地怀有深厚情感与深刻理解的本土创作者。
-
-“他们有情怀、懂技术、更熟悉影视生产的每一个毛细血管。
+如遇灾害突发事件，第一时间及时停靠安全区域并拨打救援电话，等待专业处置。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 22:48 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 23:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 22:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 23:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 23:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 23:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 23:03 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 23:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 23:11 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 23:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 23:04 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 23:03 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 23:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 23:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 23:09 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 22:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 23:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/345315.shtml)
-- 2026-06-29 23:13 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/140009347605.shtml)
-- 2026-06-29 23:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/41559381.shtml)
-- 2026-06-29 22:50 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/135881194130.shtml)
-- 2026-06-29 23:04 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/6745818.shtml)
-- 2026-06-29 23:05 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/563687162069.shtml)
-- 2026-06-29 22:55 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/546363.shtml)
-- 2026-06-29 23:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/91602916.shtml)
-- 2026-06-29 23:02 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/584061219.shtml)
-- 2026-06-29 23:04 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/773714200016.shtml)
-- 2026-06-29 22:54 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/27922009798.shtml)
-- 2026-06-29 23:05 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/492945212.shtml)
-- 2026-06-29 23:11 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/420726874.shtml)
-- 2026-06-29 23:08 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/198586.shtml)
-- 2026-06-29 23:13 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/874484777.shtml)
+- 2026-06-29 23:11 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/916974838487.shtml)
+- 2026-06-29 23:17 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/35965440284.shtml)
+- 2026-06-29 22:56 - [月亮](https://www.share.minike.top/Article/details/6879969.shtml)
+- 2026-06-29 23:11 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/895932.shtml)
+- 2026-06-29 23:23 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/0250080.shtml)
+- 2026-06-29 23:06 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/02993377241.shtml)
+- 2026-06-29 22:59 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/38279562956.shtml)
+- 2026-06-29 23:09 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/2736663.shtml)
+- 2026-06-29 23:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/8611931.shtml)
+- 2026-06-29 23:13 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/5326205.shtml)
+- 2026-06-29 22:54 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/71395.shtml)
+- 2026-06-29 23:01 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/19487682687.shtml)
+- 2026-06-29 22:56 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/9098427.shtml)
+- 2026-06-29 22:58 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/0347380.shtml)
+- 2026-06-29 22:57 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/5465111365.shtml)

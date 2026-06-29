@@ -1,56 +1,58 @@
-# 锂矿概念股爆发！盛新锂能涨超7%，华宝基金有色ETF（159876）强势拉升2.6%！机构：上行动能依然充足！
+# 艾柯医疗IPO：主导产品单价腰斩，营收增速面临放缓风险
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-今日（4月26日）有色金属板块表现活跃，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）场内涨幅盘中上探2.66%，现涨2.47%，实时成交额超6000万元，交投火热！ 成份股方面，钨业龙头厦门钨业、黄金龙头恒邦股份涨停，锂业龙头盛新锂能涨超7%，天齐锂业涨逾4%，稀土龙头中稀有色涨超5%，铝业龙头神火股份、云铝股份、天山铝业携手涨逾3%。 宏观层面，美国称有望
+来源：雷达Finance 雷达财经出品 文|李亦辉 编|深海 艾柯医疗正在进行IPO二次闯关。3月24日晚间，上交所官网显示，艾柯医疗器械（北京）股份有限公司（以下简称“艾柯医疗”）科创板IPO获受理，公司拟募集资金11亿元。 回顾艾柯医疗闯关科创板的历程，早在2023年4月20日，该公司曾向上交所递交招股说明书拟登陆科创板，拟募集资金10.39亿元，但在2024年4月公司及其
 
 ## 正文
 
-今日（4月26日）有色金属板块表现活跃，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）场内涨幅盘中上探2.66%，现涨2.47%，实时成交额超6000万元，交投火热！
+来源：雷达Finance 雷达财经出品 文|李亦辉 编|深海 艾柯医疗正在进行IPO二次闯关。
 
-成份股方面，钨业龙头厦门钨业、黄金龙头恒邦股份涨停，锂业龙头盛新锂能涨超7%，天齐锂业涨逾4%，稀土龙头中稀有色涨超5%，铝业龙头神火股份、云铝股份、天山铝业携手涨逾3%。
+3月24日晚间，上交所官网显示，艾柯医疗器械（北京）股份有限公司（以下简称“艾柯医疗”）科创板IPO获受理，公司拟募集资金11亿元。
 
-宏观层面，美国称有望与伊朗达成协议。
+回顾艾柯医疗闯关科创板的历程，早在2023年4月20日，该公司曾向上交所递交招股说明书拟登陆科创板，拟募集资金10.39亿元，但在2024年4月公司及其保荐人又撤回了发行上市申请。
 
-美国总统特朗普称伊朗战争“非常接近结束”，暗示本周可能达成协议。
+招股书显示，艾柯医疗是一家已进入商业化阶段的专注于神经介入领域的创新医疗（维权）器械企业。
 
-产业层面，受国内整改停产叠加海外进口受限等因素影响，碳酸锂供应短期面临挤压。
+截至招股书签署日，旗下已有包括Lattice®血流导向密网支架、Grism®远端闭合颅内取栓支架、Attractor®颅内血栓抽吸导管等在内的十款第三类医疗器械在中国获批，并有产品陆续于美国、东南亚等海外市场获批或提交注册。
 
-碳酸锂期货主力合约走强，4月15日盘中一度突破17万元/吨。
+其中，于2022年获批上市的Lattice®系列血流导向密网支架是公司营业收入主要来源，在2022年至2025年1-9月份，该产品占主营业务收入比重为68.79%、95.39%、95.59%及95.17%。
 
-业绩层面，截至4月14日，有色ETF华宝60只成份股中，已有30家发布2025年年报，其中，28家上市公司实现盈利，21家归母净利同比正增长，其中，赣锋锂业、中稀有色等5家上市公司归母净利同比三位数大增，业绩表现亮眼。
+但随着国内推动高价值医用耗材集中带量采购常态化制度化发展，虽然目前国家层面的带量采购尚未覆盖神经介入医疗器械领域，但在各省各地，包括河南省公立医院联盟、安徽、北京、河北和广东已将血流导向密网支架纳入集采。
 
-德邦证券指出，有色金属板块表现亮眼，整体走强。
+集采政策陆续落地后，艾柯医疗血流导向密网支架销售价格逐年下降，在2022年至2025年1-9月各期内的单位价格分别为4.72万元/套、4.27万元/套、3.54万元/套、2.16万元/套，单价近乎腰斩，这也导致公司整体毛利率从2023年起逐渐下滑。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 23:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 23:09 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 23:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 23:13 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 23:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 22:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 23:01 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 23:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 23:10 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:12 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 23:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 23:09 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 23:01 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 23:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 22:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 23:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 23:13 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 23:15 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 23:18 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 22:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/018287415.shtml)
-- 2026-06-29 23:09 - [流金岁月](http://www.share.kurohicncr.top/Article/details/45198031.shtml)
-- 2026-06-29 22:59 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/16557771.shtml)
-- 2026-06-29 22:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/7338834804.shtml)
-- 2026-06-29 23:05 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/09891849.shtml)
-- 2026-06-29 23:06 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/7319155.shtml)
-- 2026-06-29 22:48 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/3385684.shtml)
-- 2026-06-29 23:07 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/5308443796.shtml)
-- 2026-06-29 23:07 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/46809654.shtml)
-- 2026-06-29 23:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/08357941.shtml)
-- 2026-06-29 23:06 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/317506635502.shtml)
-- 2026-06-29 23:13 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/147081.shtml)
-- 2026-06-29 23:13 - [我和我的家乡](http://www.blog.minike.top/Article/details/1787955.shtml)
-- 2026-06-29 23:09 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/71842418780.shtml)
-- 2026-06-29 22:57 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/92143721129.shtml)
+- 2026-06-29 23:16 - [我和我的家乡](https://www.blog.minike.top/Article/details/567735249686.shtml)
+- 2026-06-29 23:22 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/849490.shtml)
+- 2026-06-29 23:13 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/43830.shtml)
+- 2026-06-29 23:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/7435219446.shtml)
+- 2026-06-29 23:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/96958632.shtml)
+- 2026-06-29 23:17 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/864285072.shtml)
+- 2026-06-29 23:03 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/45945118.shtml)
+- 2026-06-29 23:09 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/5226359.shtml)
+- 2026-06-29 23:03 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/99873765.shtml)
+- 2026-06-29 23:21 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/26788998463.shtml)
+- 2026-06-29 22:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/498272.shtml)
+- 2026-06-29 23:16 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/0654219663.shtml)
+- 2026-06-29 23:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/3993367.shtml)
+- 2026-06-29 23:21 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/15140350058.shtml)
+- 2026-06-29 23:19 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/106321099210.shtml)

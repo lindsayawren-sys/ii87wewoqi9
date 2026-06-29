@@ -1,56 +1,58 @@
-# 中国驻洛杉矶总领馆提醒谨防护照旅行证代办风险
+# 四川茂县举办国家级非遗名录“瓦尔俄足节”民俗活态展示活动
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网4月15日电 据中国驻洛杉矶总领馆微信公众号消息，驻洛杉矶总领馆日前发布关于谨防护照旅行证代办风险的提醒。全文如下： 为便利领区内中国公民申办护照、旅行证，谨防代办风险，切实维护大家合法权益，请申请人在申办有关证件时注意以下事宜： 一、如申办护照、旅行证，请务必先访问总领馆网页：https://losangeles.china-consulate.gov.cn/lbqw/
+五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一
 
 ## 正文
 
-中新网4月15日电 据中国驻洛杉矶总领馆微信公众号消息，驻洛杉矶总领馆日前发布关于谨防护照旅行证代办风险的提醒。
+五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
 
-全文如下： 为便利领区内中国公民申办护照、旅行证，谨防代办风险，切实维护大家合法权益，请申请人在申办有关证件时注意以下事宜： 一、如申办护照、旅行证，请务必先访问总领馆网页：https://losangeles.china-consulate.gov.cn/lbqw/lszj/hzlxz/，仔细阅读相应办证须知，并据此准备申请材料。
+高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
 
-请在手机上安装中国领事APP(可在办证须知中获取APP下载途径)，通过该APP上传材料并在线提交申请。
+评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
 
-APP客户端将根据申请处理进度依次显示“初审中”—“待视频见面”(部分有)—“复审中”—“待制证”—“已寄出”。
+孔子为什么说“温故而知新”？
 
-如选择“邮寄递交材料”，当客户端反馈信息进展至“复审中”时，请申请人即按要求将旧护照或旅行证、信用卡授权表和回邮信封邮寄至总领馆(邮寄地址：443 Shatto Place, Los Angeles, CA 90020)。
+喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
 
-如选择“到馆递交材料”，经过初审后，APP客户端会提示预约到馆时间，预约后请携带有关材料按时到馆办理(证件大厅地址：Third floor,500 Shatto Place, LosAngeles,CA90020)。
+特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
 
-二、关于总领馆护照、旅行证办理时限、收费标准和付款方式，请访问：https://losangeles.china-consulate.gov.cn/lbqw/lszj/sfbz/202312/t20231229_11214632.htm。
+十届南博会，一叶清茶何以架起文明对话之桥？
 
-三、所有申请人均可自行或委托亲友在中国领事APP上提交护照旅行证申请并完成后续程序。
+中国沙漠治理经验，如何与世界共享？
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 22:52 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 22:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 23:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 23:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 23:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 22:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 22:55 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 23:23 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 23:12 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 23:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 23:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 23:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 23:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 23:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 23:04 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 23:17 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 23:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 23:15 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/4277113725.shtml)
-- 2026-06-29 22:49 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/542791042.shtml)
-- 2026-06-29 23:16 - [沙丘](https://www.share.minike.top/Article/details/754851.shtml)
-- 2026-06-29 23:16 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/59102236.shtml)
-- 2026-06-29 22:56 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/9801349.shtml)
-- 2026-06-29 22:54 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/5883271.shtml)
-- 2026-06-29 23:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/670774.shtml)
-- 2026-06-29 22:54 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/08677479.shtml)
-- 2026-06-29 23:17 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/189278658314.shtml)
-- 2026-06-29 22:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/78375200.shtml)
-- 2026-06-29 23:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/025481676284.shtml)
-- 2026-06-29 22:54 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/589641.shtml)
-- 2026-06-29 23:00 - [急先锋](http://www.blog.kurohicncr.top/Article/details/288378730611.shtml)
-- 2026-06-29 23:06 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/164562.shtml)
-- 2026-06-29 23:14 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/553482.shtml)
+- 2026-06-29 23:09 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/189911599.shtml)
+- 2026-06-29 22:56 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/777918224.shtml)
+- 2026-06-29 23:14 - [月亮](https://www.share.minike.top/Article/details/2494466838.shtml)
+- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/9664123881.shtml)
+- 2026-06-29 23:16 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/077540352.shtml)
+- 2026-06-29 22:58 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/3126169.shtml)
+- 2026-06-29 23:00 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/85366.shtml)
+- 2026-06-29 23:19 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/45148716.shtml)
+- 2026-06-29 23:06 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/0779419387.shtml)
+- 2026-06-29 23:04 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/18197264589.shtml)
+- 2026-06-29 23:06 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/944602346421.shtml)
+- 2026-06-29 22:55 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/1768461755.shtml)
+- 2026-06-29 23:06 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/424625722919.shtml)
+- 2026-06-29 23:05 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/07987355.shtml)
+- 2026-06-29 23:01 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/53280.shtml)

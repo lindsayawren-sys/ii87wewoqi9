@@ -1,53 +1,60 @@
-# 极视角盘中涨逾12% 公司深耕AI计算器视觉解决方案
+# 缤纷文旅活动激发消费新动能 文化之美添彩“端午”假期
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-极视角（06636）早盘涨逾12%，截至发稿，股价上涨8.17%，现报101.90港元，成交额4157.82万港元。 公开资料显示，极视角专注于为企业提供AI计算机视觉解决方案，并已成功拓展至具备商业可行性的AI大模型解决方案领域。根据弗若斯特沙利文的数据，按2024年收入计，极视角在中国新兴企业级计算机视觉解决方案市场中排名第八，市场份额为1.6%。 公司业务主要分为两个部分
+央视网消息：6月19日我们就将迎来端午节。记者从北京市公园管理中心了解，端午假期，北京市属13家公园及中国园林博物馆将围绕非遗传承、公园经济焕新及晚间游览体验三大主线，集中推出60余项夏日特色文化活动，丰富市民游客端午假期。 据介绍，各公园已进入活动筹备最后阶段，市民游客可关注公园官方平台获取具体预约等相关信息。 山西：逛晋祠 云冈石窟等 出行提示请收好 端午假期，山西云冈石窟
 
 ## 正文
 
-极视角（06636）早盘涨逾12%，截至发稿，股价上涨8.17%，现报101.90港元，成交额4157.82万港元。
+央视网消息：6月19日我们就将迎来端午节。
 
-公开资料显示，极视角专注于为企业提供AI计算机视觉解决方案，并已成功拓展至具备商业可行性的AI大模型解决方案领域。
+记者从北京市公园管理中心了解，端午假期，北京市属13家公园及中国园林博物馆将围绕非遗传承、公园经济焕新及晚间游览体验三大主线，集中推出60余项夏日特色文化活动，丰富市民游客端午假期。
 
-根据弗若斯特沙利文的数据，按2024年收入计，极视角在中国新兴企业级计算机视觉解决方案市场中排名第八，市场份额为1.6%。
+据介绍，各公园已进入活动筹备最后阶段，市民游客可关注公园官方平台获取具体预约等相关信息。
 
-公司业务主要分为两个部分，首先是AI计算器视觉解决方案，公司提供标准AI计算器视觉解决方案、定制AI计算器视觉解决方案及软件定义的一体化AI解决方案。
+山西：逛晋祠 云冈石窟等 出行提示请收好 端午假期，山西云冈石窟景区实行线上提前15天实名预约购票，线下每日提供3000张当日应急票。
 
-其次是大模型解决方案，公司利用多智能体优化、RAG及基于场景的算法等先进技术，提供为企业专业用途设计的定制化大模型解决方案。
+目前端午假期线上门票尚未约满。
 
-责任编辑：卢昱君
+为分流游客，景区将开放时间调整为7点至18点，较平日延长3小时。
+
+山西博物院需通过官方微信公众号实名预约，18日下午时段预约名额紧张，6月19日、20日门票已全部约满，建议计划前往的游客错峰安排行程。
+
+太原晋祠博物馆线上线下均可购票，端午假期门票尚有富余，假期期间，景区将根据客流情况动态开通应急检票通道，提升游览舒适度。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 23:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 23:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:13 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 22:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 23:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 23:14 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 23:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 23:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 23:07 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 22:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 23:01 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 22:57 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 23:07 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 23:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 23:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 23:13 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 23:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:22 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 23:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:10 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 23:20 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 23:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 23:09 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 23:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/9005111.shtml)
-- 2026-06-29 23:10 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/6077977.shtml)
-- 2026-06-29 23:00 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/2384164.shtml)
-- 2026-06-29 23:13 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/7473710.shtml)
-- 2026-06-29 22:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/601106864436.shtml)
-- 2026-06-29 22:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/932166100664.shtml)
-- 2026-06-29 23:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/300076.shtml)
-- 2026-06-29 23:12 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/929665744.shtml)
-- 2026-06-29 22:58 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/9524596185.shtml)
-- 2026-06-29 22:57 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/955119.shtml)
-- 2026-06-29 23:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/33002712.shtml)
-- 2026-06-29 22:51 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/147784445179.shtml)
-- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/33612996766.shtml)
-- 2026-06-29 22:54 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/4115833689.shtml)
-- 2026-06-29 23:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/4521127361.shtml)
+- 2026-06-29 23:04 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/017016785166.shtml)
+- 2026-06-29 23:04 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/730437789946.shtml)
+- 2026-06-29 23:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2827181436.shtml)
+- 2026-06-29 22:54 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/336219.shtml)
+- 2026-06-29 23:00 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/140671.shtml)
+- 2026-06-29 23:11 - [扬名立万](https://www.blog.minike.top/Article/details/13659379055.shtml)
+- 2026-06-29 23:04 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/020786.shtml)
+- 2026-06-29 23:01 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/77546789034.shtml)
+- 2026-06-29 23:09 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/8777953476.shtml)
+- 2026-06-29 23:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/367243.shtml)
+- 2026-06-29 22:58 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/092817.shtml)
+- 2026-06-29 23:12 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/195615.shtml)
+- 2026-06-29 23:20 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/0276422.shtml)
+- 2026-06-29 23:20 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/08847.shtml)
+- 2026-06-29 23:13 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/187163816933.shtml)

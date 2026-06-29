@@ -1,43 +1,50 @@
-# 伊朗驻巴基斯坦大使：伊斯兰堡是与美国进行谈判的唯一地点
+# 西班牙队迎战沙特队，若再被爆冷将失去晋级主动权
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-新华社伊斯兰堡4月16日电 伊朗驻巴基斯坦大使穆加达姆16日说，巴基斯坦首都伊斯兰堡是伊朗与美国进行谈判的唯一地点。
+中新网6月21日电 北京时间22日，美加墨世界杯将迎来四场小组赛争夺，分别为H组西班牙队对阵沙特队、乌拉圭队迎战佛得角队，G组比利时队对阵伊朗队、新西兰队迎战埃及队。 作为夺冠热门，首战“捧红”了佛得角门将沃津尼亚的西班牙队已不容有失，若再被爆冷将失去晋级主动权。(完)
 
 ## 正文
 
-新华社伊斯兰堡4月16日电 伊朗驻巴基斯坦大使穆加达姆16日说，巴基斯坦首都伊斯兰堡是伊朗与美国进行谈判的唯一地点。
+中新网6月21日电 北京时间22日，美加墨世界杯将迎来四场小组赛争夺，分别为H组西班牙队对阵沙特队、乌拉圭队迎战佛得角队，G组比利时队对阵伊朗队、新西兰队迎战埃及队。
+
+作为夺冠热门，首战“捧红”了佛得角门将沃津尼亚的西班牙队已不容有失，若再被爆冷将失去晋级主动权。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 22:48 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 23:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 23:00 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 22:55 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 23:17 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 23:14 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 23:04 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 22:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 23:05 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 23:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 23:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 22:56 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 23:13 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 23:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 23:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 23:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 23:06 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 23:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 23:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 23:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 23:22 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 23:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 23:13 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:10 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/32950263288.shtml)
-- 2026-06-29 22:53 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/091761361.shtml)
-- 2026-06-29 23:10 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/845300.shtml)
-- 2026-06-29 23:15 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/006754692.shtml)
-- 2026-06-29 23:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/59837.shtml)
-- 2026-06-29 23:00 - [流金岁月](https://www.blog.minike.top/Article/details/35025.shtml)
-- 2026-06-29 22:48 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/799789431967.shtml)
-- 2026-06-29 22:59 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/32286735.shtml)
-- 2026-06-29 23:09 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/403391208.shtml)
-- 2026-06-29 22:54 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/7778098.shtml)
-- 2026-06-29 23:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/0200004237.shtml)
-- 2026-06-29 23:09 - [一生一世](https://www.blog.kurohicncr.top/Article/details/228183178161.shtml)
-- 2026-06-29 22:58 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/24732703.shtml)
-- 2026-06-29 22:50 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/67628301760.shtml)
-- 2026-06-29 23:17 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/324399.shtml)
+- 2026-06-29 22:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/19228128.shtml)
+- 2026-06-29 23:18 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/33483523947.shtml)
+- 2026-06-29 23:11 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/64206827774.shtml)
+- 2026-06-29 23:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/487319.shtml)
+- 2026-06-29 23:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/395306.shtml)
+- 2026-06-29 23:10 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/21639917098.shtml)
+- 2026-06-29 23:12 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/765112377805.shtml)
+- 2026-06-29 23:03 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/798924902327.shtml)
+- 2026-06-29 23:20 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/03675214.shtml)
+- 2026-06-29 23:16 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/66866.shtml)
+- 2026-06-29 23:15 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/30968941.shtml)
+- 2026-06-29 23:21 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/88272900879.shtml)
+- 2026-06-29 22:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/14211601.shtml)
+- 2026-06-29 23:14 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/456919.shtml)
+- 2026-06-29 23:04 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/17980690.shtml)

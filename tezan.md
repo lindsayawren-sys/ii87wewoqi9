@@ -1,61 +1,58 @@
-# 小米改款热度下降，吉利稳住第二，国产新能源等待新一轮爆发
+# 广州今年荔枝产量预计6万吨 启动荔枝文化推广活动
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-34分钟内锁单量突破1.5万台，这是小米新一代Su7的成绩。小米毫无疑问还是十分能打，但跟过去的自己比，已经下滑。回到2024年初代SU7上市，27分钟大定5万台。一场发布会锁定一年的产能，这样的盛况已经不复存在。曾经红得发紫的小米，回到同一起跑线。3月，随着车辆购置税减免政策落地，国际环境变迁，国产新能源启动新一年的增长。Part.01静待新一轮爆发第一季度往往是新能源汽车的
+中新网广州6月18日电 (记者 程景伟)“又是一年荔枝红”——2026广州荔枝文化推广暨营销活动启动仪式18日在广州粤剧艺术博物馆举行。 荔枝是岭南农耕文明的活态记忆载体，也是广州最具代表性的特色农产品之一。2026年，广州荔枝产量预计6万吨，增城挂绿、仙进奉、糯米糍、桂味等名优品种6月中下旬起集中上市。 启动仪式上，广州市文化广电旅游局发布20条“荔枝+端午+文旅”精品旅游线
 
 ## 正文
 
-34分钟内锁单量突破1.5万台，这是小米新一代Su7的成绩。
+中新网广州6月18日电 (记者 程景伟)“又是一年荔枝红”——2026广州荔枝文化推广暨营销活动启动仪式18日在广州粤剧艺术博物馆举行。
 
-小米毫无疑问还是十分能打，但跟过去的自己比，已经下滑。
+荔枝是岭南农耕文明的活态记忆载体，也是广州最具代表性的特色农产品之一。
 
-回到2024年初代SU7上市，27分钟大定5万台。
+2026年，广州荔枝产量预计6万吨，增城挂绿、仙进奉、糯米糍、桂味等名优品种6月中下旬起集中上市。
 
-一场发布会锁定一年的产能，这样的盛况已经不复存在。
+启动仪式上，广州市文化广电旅游局发布20条“荔枝+端午+文旅”精品旅游线路，串联全市11个区的荔枝种植基地、龙舟民俗、古村古镇等多元文旅资源。
 
-曾经红得发紫的小米，回到同一起跑线。
+20条线路中，既有“西关甜蜜暴击”“老广识荔图鉴”等城市漫步线路，也有“珠江国际龙舟盛宴”“十乡龙船探亲”等端午观龙舟线路，构建全域覆盖的荔枝文旅生态系统。
 
-3月，随着车辆购置税减免政策落地，国际环境变迁，国产新能源启动新一年的增长。
+广州市农业农村部门现场发布的《2026广州荔枝赏味图》，依托数字化手段，精准标注全市荔枝产区分布、品种特性及上市周期，旨在打通产销对接“最后一公里”，让消费者按图索“荔”，实现从“枝头”到“舌尖”的无缝衔接。
 
-Part.01静待新一轮爆发第一季度往往是新能源汽车的淡季。
+此次活动以守正创新的表达方式，让非遗“潮”起来、荔枝“活”起来。
 
-结束了年终促销，市场处在以旧换新政策、购置税减免政策尚未全面出台的空窗期，多数车主处于观望状态，因此1月、2月厂商销量往往并不理想。
+其中，“胖虎在广东”“莉莉听不懂”等外籍网络达人作为广州荔枝文化推广达人，现场分享相关主题视频，以国际化视野讲述广州荔枝故事；本土跨界节目《荔枝颂·仲夏》惊艳亮相，由新生代粤语说唱歌手携手粤剧演员联袂呈现，通过年轻化表达，展现荔枝文化与粤剧的独特魅力。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 22:56 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 23:04 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:11 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 22:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 23:14 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 23:04 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 22:55 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 23:09 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 23:13 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 22:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 23:14 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 22:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 22:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 23:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 23:09 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 22:58 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 23:20 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 22:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 23:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 23:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 23:05 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 23:09 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 22:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 23:04 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 23:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:13 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/103632159.shtml)
-- 2026-06-29 23:13 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/975937178.shtml)
-- 2026-06-29 22:58 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/1939301.shtml)
-- 2026-06-29 23:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/294599901959.shtml)
-- 2026-06-29 22:56 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/010140650.shtml)
-- 2026-06-29 22:59 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/99560.shtml)
-- 2026-06-29 22:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/76310.shtml)
-- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/7979341.shtml)
-- 2026-06-29 23:17 - [女心理师](http://www.share.minike.top/Article/details/922179.shtml)
-- 2026-06-29 23:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/568553356.shtml)
-- 2026-06-29 23:05 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/64831541.shtml)
-- 2026-06-29 22:58 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/18628.shtml)
-- 2026-06-29 22:56 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/80170.shtml)
-- 2026-06-29 23:07 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/108203993694.shtml)
-- 2026-06-29 22:54 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/766466503516.shtml)
+- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/690506626898.shtml)
+- 2026-06-29 23:19 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/71344894504.shtml)
+- 2026-06-29 23:17 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/68772004282.shtml)
+- 2026-06-29 23:01 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/289993.shtml)
+- 2026-06-29 23:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/4297098.shtml)
+- 2026-06-29 23:23 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/63843814.shtml)
+- 2026-06-29 23:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/53615326065.shtml)
+- 2026-06-29 23:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/498136284.shtml)
+- 2026-06-29 23:16 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/833314895.shtml)
+- 2026-06-29 23:19 - [乔家的儿女](https://www.share.minike.top/Article/details/14881.shtml)
+- 2026-06-29 23:16 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/8886019547.shtml)
+- 2026-06-29 23:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/020766284.shtml)
+- 2026-06-29 23:00 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/418438.shtml)
+- 2026-06-29 23:24 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/300241.shtml)
+- 2026-06-29 22:55 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/6534625.shtml)

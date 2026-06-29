@@ -1,54 +1,61 @@
-# 佳鑫国际资源午前涨超11% 机构指公司成本结构有望进一步改善
+# 供应链公司：已向苹果首款折叠屏iPhone小批量供货
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-佳鑫国际资源（03858）盘中拉升超12%，截至发稿，股价上涨11.35%，现报124.60港元，成交额3.48亿港元。 佳鑫国际资源2025年实现收入10.63亿港元；利润3.05亿港元，同比扭亏为盈。国信证券指出，公司收入全部来源于白钨精矿。自2025年4月启动商业生产及销售后，全年生产白钨精矿5008吨，销售4879吨。随着产能爬坡和运营优化，公司成本结构有望进一步改善。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。按照公司收到的目标指引，该款产品将于9月发布。 近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指
 
 ## 正文
 
-佳鑫国际资源（03858）盘中拉升超12%，截至发稿，股价上涨11.35%，现报124.60港元，成交额3.48亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-佳鑫国际资源2025年实现收入10.63亿港元；利润3.05亿港元，同比扭亏为盈。
+日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。
 
-国信证券指出，公司收入全部来源于白钨精矿。
+按照公司收到的目标指引，该款产品将于9月发布。
 
-自2025年4月启动商业生产及销售后，全年生产白钨精矿5008吨，销售4879吨。
+近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。
 
-随着产能爬坡和运营优化，公司成本结构有望进一步改善。
+对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指引是，首款折叠屏iPhone将于2026年秋季发布。
 
-预计2026年产量能增长至9000吨左右，2027年有望随着二期抛废项目的投运，设计年处理能力达到495万吨/年，完全达产后年产量稳定在1.3万吨以上。
+对于首款折叠屏iPhone具体发布时间，截至记者发稿，苹果方面暂无公开回应。
 
-责任编辑：卢昱君
+今年4月初，本报曾独家报道，富士康正试产折叠屏iPhone手机。
+
+详见文章：独家！
 
 ## 相关推荐
 
-- 2026-06-29 23:08 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 22:55 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 22:54 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 22:53 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 23:05 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 23:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 22:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 23:19 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 23:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 23:10 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 23:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 23:12 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 23:13 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 23:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 23:20 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 22:57 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 22:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 22:56 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 23:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 23:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/369158605.shtml)
-- 2026-06-29 22:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/43386339.shtml)
-- 2026-06-29 22:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/9589027.shtml)
-- 2026-06-29 22:57 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/7189517756.shtml)
-- 2026-06-29 22:53 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/991311935588.shtml)
-- 2026-06-29 23:17 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/52659657.shtml)
-- 2026-06-29 23:14 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/98933191007.shtml)
-- 2026-06-29 22:52 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/2838755548.shtml)
-- 2026-06-29 22:59 - [蔚来车主罚站](https://www.share.minike.top/Article/details/224734.shtml)
-- 2026-06-29 22:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/2965898.shtml)
-- 2026-06-29 23:12 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/676159052825.shtml)
-- 2026-06-29 22:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/036721250.shtml)
-- 2026-06-29 22:48 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/174848.shtml)
-- 2026-06-29 22:48 - [扫黑风暴](https://www.blog.minike.top/Article/details/96247852.shtml)
-- 2026-06-29 23:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/72142608.shtml)
+- 2026-06-29 23:08 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/2786267376.shtml)
+- 2026-06-29 23:08 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/6811884.shtml)
+- 2026-06-29 23:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/022630.shtml)
+- 2026-06-29 23:16 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/53401.shtml)
+- 2026-06-29 22:59 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/70787209899.shtml)
+- 2026-06-29 23:07 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/146438364.shtml)
+- 2026-06-29 23:04 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/758663156.shtml)
+- 2026-06-29 23:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/4194729486.shtml)
+- 2026-06-29 23:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/061222.shtml)
+- 2026-06-29 23:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/064977.shtml)
+- 2026-06-29 23:22 - [送你一朵小红花](http://www.blog.minike.top/Article/details/62831.shtml)
+- 2026-06-29 23:21 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/06038502.shtml)
+- 2026-06-29 23:16 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/04384446.shtml)
+- 2026-06-29 23:21 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/82897309863.shtml)
+- 2026-06-29 23:05 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/579060.shtml)

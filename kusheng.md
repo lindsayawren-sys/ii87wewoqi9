@@ -1,57 +1,57 @@
-# 中东能源危机推动美国原油出口大增，接近历史最高水平
+# *ST集友：拟收购慧聚药业控制权 预计构成重大资产重组
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-据报道，上周，随着亚洲和欧洲买家为满足需求而争相替代因伊朗冲突而中断的中东供应，美国原油出口量飙升至接近历史最高水平，几乎自二战以来首次成为原油净出口国。 美国和以色列与伊朗的战争引发了全球能源市场有史以来最大的动荡，伊朗对航运的威胁导致全球约五分之一的石油和天然气供应无法通过霍尔木兹海峡。 依赖这些供应的亚洲和欧洲炼油商已从各地购入替代原油，这大幅推高了对全球最大产油国之一美
+人民财讯6月18日电，*ST集友（603429）6月18日公告，公司拟以现金方式购买江苏慧聚药业股份有限公司（简称“慧聚药业”）超过50%的股份并取得慧聚药业的控制权。交易完成后，慧聚药业将成为公司的控股子公司。 公司控股股东、实控人徐善水与慧聚药业股东黄华、毕伟国18日签订《股份转让协议》，徐善水拟将持有的公司股份5300万股（占公司总股本的10.1051%）通过协议方式分别
 
 ## 正文
 
-据报道，上周，随着亚洲和欧洲买家为满足需求而争相替代因伊朗冲突而中断的中东供应，美国原油出口量飙升至接近历史最高水平，几乎自二战以来首次成为原油净出口国。
+人民财讯6月18日电，*ST集友（603429）6月18日公告，公司拟以现金方式购买江苏慧聚药业股份有限公司（简称“慧聚药业”）超过50%的股份并取得慧聚药业的控制权。
 
-美国和以色列与伊朗的战争引发了全球能源市场有史以来最大的动荡，伊朗对航运的威胁导致全球约五分之一的石油和天然气供应无法通过霍尔木兹海峡。
+交易完成后，慧聚药业将成为公司的控股子公司。
 
-依赖这些供应的亚洲和欧洲炼油商已从各地购入替代原油，这大幅推高了对全球最大产油国之一美国的石油需求。
+公司控股股东、实控人徐善水与慧聚药业股东黄华、毕伟国18日签订《股份转让协议》，徐善水拟将持有的公司股份5300万股（占公司总股本的10.1051%）通过协议方式分别转让给黄华和毕伟国。
 
-然而，分析师和交易员表示，美国的石油出口能力正迅速接近极限。
+此次交易预计构成重大资产重组但不构成重组上市，亦不会导致公司控股股东和实控人发生变更。
 
-根据美国政府周三公布的数据，上周原油净进口量（即进口量与出口量之差）收窄至6.6万桶/日，创下自2001年有记录以来的每周最低水平；与此同时，出口量攀升至520万桶/日，达到七个月来的最高水平，接近2023年创下的560万桶/日的纪录。
+慧聚药业主营业务为复杂小分子化学药物的原料药、中间体及制剂的研发、生产和销售，以及为客户提供CDMO服务等业务。
 
-数据显示，美国上一次成为原油净出口国还是在1943年。
-
-Rystad Energy的石油市场副总裁贾尼夫·沙阿表示，美国原油出口量的增长表明，大西洋盆地和亚洲的买家正在扩大采购范围，区域油价差异弥补了运输成本， 近几个月来，希腊等国首次大量购买美国原油。
-
-据船舶追踪服务公司Kpler的数据显示，上周约有240万桶/日（约占美国原油出口总量的47%）的原油运往欧洲。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 23:14 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 23:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 22:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 23:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 22:54 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 22:53 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 22:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 22:50 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 23:04 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 23:06 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 23:06 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 22:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 23:21 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 22:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 22:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 23:11 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 22:57 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 22:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 23:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 23:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 23:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 23:16 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 23:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/409213715.shtml)
-- 2026-06-29 22:57 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/879719059.shtml)
-- 2026-06-29 22:51 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/3416003745.shtml)
-- 2026-06-29 23:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/0846558.shtml)
-- 2026-06-29 23:04 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/32563239641.shtml)
-- 2026-06-29 23:17 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/3950025007.shtml)
-- 2026-06-29 23:07 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/89671436111.shtml)
-- 2026-06-29 23:00 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/9372744556.shtml)
-- 2026-06-29 22:55 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/53437743.shtml)
-- 2026-06-29 22:54 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/74822.shtml)
-- 2026-06-29 22:51 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/90390888237.shtml)
-- 2026-06-29 23:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/30145.shtml)
-- 2026-06-29 23:04 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/82064348714.shtml)
-- 2026-06-29 23:02 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/938138.shtml)
-- 2026-06-29 23:08 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/7906333179.shtml)
+- 2026-06-29 23:08 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/622354.shtml)
+- 2026-06-29 23:04 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/4038806536.shtml)
+- 2026-06-29 22:59 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/326594337700.shtml)
+- 2026-06-29 22:56 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/97108442015.shtml)
+- 2026-06-29 23:12 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/1858690132.shtml)
+- 2026-06-29 22:54 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/28199156.shtml)
+- 2026-06-29 23:07 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/59224.shtml)
+- 2026-06-29 23:20 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/89048.shtml)
+- 2026-06-29 23:17 - [东方风云榜直播](https://www.blog.minike.top/Article/details/725285.shtml)
+- 2026-06-29 23:13 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/9739352142.shtml)
+- 2026-06-29 23:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/67343.shtml)
+- 2026-06-29 23:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/829248.shtml)
+- 2026-06-29 23:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/817319.shtml)
+- 2026-06-29 23:10 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/250624.shtml)
+- 2026-06-29 22:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/206096.shtml)

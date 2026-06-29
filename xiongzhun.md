@@ -1,56 +1,51 @@
-# Uber确认将投资超100亿美元布局无人驾驶出租车
+# 万斯警告以色列官员：不要攻击仅存的强大盟友
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-优步（Uber）正彻底告别其标志性的“轻资产”零工经济模式。据英国某媒体4月15日报道，这家网约车巨头已承诺投入超过100亿美元，用于大规模采购自动驾驶汽车并收购相关开发商的股权，旨在应对无人驾驶出租车带来的行业颠覆。 投资构成与市场布局 报道指出，这笔巨额投资将主要用于两个方向：在未来几年内投入超过25亿美元用于收购自动驾驶技术公司的股权，并支出超过75亿美元用于组建和扩充无
+美国副总统万斯回应以色列官员对美伊协议的批评时表示，总统特朗普“是全世界目前唯一一位同情以色列的国家领导人”。 万斯在记者会上表示：“如果我是以色列政府内阁成员，我或许不会攻击我在全世界仅存的一个强大盟友”。责任编辑：丁文武
 
 ## 正文
 
-优步（Uber）正彻底告别其标志性的“轻资产”零工经济模式。
+美国副总统万斯回应以色列官员对美伊协议的批评时表示，总统特朗普“是全世界目前唯一一位同情以色列的国家领导人”。
 
-据英国某媒体4月15日报道，这家网约车巨头已承诺投入超过100亿美元，用于大规模采购自动驾驶汽车并收购相关开发商的股权，旨在应对无人驾驶出租车带来的行业颠覆。
+万斯在记者会上表示：“如果我是以色列政府内阁成员，我或许不会攻击我在全世界仅存的一个强大盟友”。
 
-投资构成与市场布局 报道指出，这笔巨额投资将主要用于两个方向：在未来几年内投入超过25亿美元用于收购自动驾驶技术公司的股权，并支出超过75亿美元用于组建和扩充无人驾驶出租车车队。
-
-具体的合作取决于合作伙伴能否达到特定的技术部署里程碑。
-
-优步将自己定位为多家无人驾驶出租车运营商的市场平台，目前已与百度、Rivian以及Lucid等多家行业关键企业建立了合作关系。
-
-优步计划到2028年，在至少28个城市推出无人驾驶出租车服务。
-
-战略背景与市场反应 此次战略大转弯的背景是，随着人工智能技术的突破，投资者长期以来担心特斯拉、Waymo等竞争对手可能通过无人驾驶技术直接取代优步的中介地位。
-
-值得注意的是，优步曾在2020年出售了自己的自动驾驶研发部门以专注于盈利，而此次超过100亿美元的投入几乎是当年出售所得的四倍。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 23:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 22:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 22:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 22:53 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 23:07 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 23:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:49 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 23:11 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 23:16 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 23:21 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 22:56 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 23:03 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 23:23 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 23:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 23:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 23:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 23:04 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 23:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 22:55 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 23:17 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 22:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 22:59 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/14685580667.shtml)
-- 2026-06-29 22:54 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/4191714622.shtml)
-- 2026-06-29 23:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/99277.shtml)
-- 2026-06-29 23:01 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/0642545210.shtml)
-- 2026-06-29 22:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/6098557182.shtml)
-- 2026-06-29 22:52 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/48603110278.shtml)
-- 2026-06-29 22:55 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/0398506.shtml)
-- 2026-06-29 22:49 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/7652724773.shtml)
-- 2026-06-29 23:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/1614300.shtml)
-- 2026-06-29 23:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/537559336244.shtml)
-- 2026-06-29 22:54 - [斛珠夫人](https://www.share.minike.top/Article/details/893437.shtml)
-- 2026-06-29 23:14 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/962576.shtml)
-- 2026-06-29 23:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0364807559.shtml)
-- 2026-06-29 22:56 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/678102229.shtml)
-- 2026-06-29 22:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/2488388128.shtml)
+- 2026-06-29 23:12 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/33635852.shtml)
+- 2026-06-29 23:11 - [美股](http://www.blog.minike.top/Article/details/143620209.shtml)
+- 2026-06-29 23:00 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/009842007.shtml)
+- 2026-06-29 23:12 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/82436.shtml)
+- 2026-06-29 23:04 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/861684305.shtml)
+- 2026-06-29 23:00 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/645291754345.shtml)
+- 2026-06-29 22:58 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/56483.shtml)
+- 2026-06-29 23:03 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/8896729184.shtml)
+- 2026-06-29 23:18 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/038932321036.shtml)
+- 2026-06-29 23:04 - [东方风云榜](https://www.blog.minike.top/Article/details/750284786.shtml)
+- 2026-06-29 23:12 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/08199776.shtml)
+- 2026-06-29 23:00 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/38785419.shtml)
+- 2026-06-29 23:06 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/44373.shtml)
+- 2026-06-29 23:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/405376.shtml)
+- 2026-06-29 23:04 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/8577990026.shtml)

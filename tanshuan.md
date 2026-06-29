@@ -1,59 +1,51 @@
-# 软银集团将发行35.6亿美元外币计价票据
+# 光大证券：美图公司维持“买入”评级 影像节发布8款AI产品
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 软银集团计划发行35.6亿美元的外币计价优先票据，用于偿还债务。这家日本科技投资公司周四表示，将出售价值15亿美元的美元计价债券，以及总计17.5亿欧元（相当于20.6亿美元）的欧元计价票据。软银将把此次发债所得用于偿还债务，包括为投资OpenAI而获得的一笔过渡性贷款。 该公司表示，对于美元计价债券，3.5年期票据将支
+光大证券发布研报称，维持美图公司（01357）“买入”评级，26-28年经调整归母净利润预测13.5 /16.8/20.0亿元不变。2026年美图影像节期间，美图公司对其战略布局进行了更新，同时发布8款AI产品（包括4款全新产品以及4款老产品升级版）。美图公司影像APP产品推进Agent化改造，服务逻辑从交付功能向交付成果升级，并依托AI算力点付费商业模式打开长期商业增长空间。
 
 ## 正文
 
-专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 软银集团计划发行35.6亿美元的外币计价优先票据，用于偿还债务。
+光大证券发布研报称，维持美图公司（01357）“买入”评级，26-28年经调整归母净利润预测13.5 /16.8/20.0亿元不变。
 
-这家日本科技投资公司周四表示，将出售价值15亿美元的美元计价债券，以及总计17.5亿欧元（相当于20.6亿美元）的欧元计价票据。
+2026年美图影像节期间，美图公司对其战略布局进行了更新，同时发布8款AI产品（包括4款全新产品以及4款老产品升级版）。
 
-软银将把此次发债所得用于偿还债务，包括为投资OpenAI而获得的一笔过渡性贷款。
+美图公司影像APP产品推进Agent化改造，服务逻辑从交付功能向交付成果升级，并依托AI算力点付费商业模式打开长期商业增长空间。
 
-该公司表示，对于美元计价债券，3.5年期票据将支付7.625%的利率，5.5年期债券将支付8.250%的利率，10年期债券将支付8.500%的利率。
-
-对于欧元计价债券，4年期票据将支付6.375%的利率，6年期债券将支付7.000%的利率，8年期债券将支付7.375%的利率。
-
-这些票据已被Standard & Poor‘s Financial Services评为BB+级。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 22:52 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 23:00 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 23:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 22:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 23:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 22:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 23:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 22:55 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 23:16 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 22:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 23:15 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 23:11 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 23:07 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 23:02 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 23:12 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:06 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 23:22 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 23:10 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 23:05 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 23:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 22:54 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 23:21 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 23:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 23:11 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/0081102.shtml)
-- 2026-06-29 22:50 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/18302.shtml)
-- 2026-06-29 23:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/65239820771.shtml)
-- 2026-06-29 23:07 - [周生如故](https://www.share.minike.top/Article/details/35858502548.shtml)
-- 2026-06-29 23:07 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/42423650.shtml)
-- 2026-06-29 23:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/941681328558.shtml)
-- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/32550817610.shtml)
-- 2026-06-29 23:16 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/54704272112.shtml)
-- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/737912.shtml)
-- 2026-06-29 23:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/212169057031.shtml)
-- 2026-06-29 23:00 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/24699.shtml)
-- 2026-06-29 23:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/0375885.shtml)
-- 2026-06-29 22:49 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/792873.shtml)
-- 2026-06-29 23:07 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/57756.shtml)
-- 2026-06-29 23:02 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/54538812635.shtml)
+- 2026-06-29 23:11 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/512289283.shtml)
+- 2026-06-29 23:21 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/14452727701.shtml)
+- 2026-06-29 23:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/647818402845.shtml)
+- 2026-06-29 22:59 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/68610986887.shtml)
+- 2026-06-29 23:14 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/82025153772.shtml)
+- 2026-06-29 23:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/8349121571.shtml)
+- 2026-06-29 22:54 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/5595209.shtml)
+- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/77978898.shtml)
+- 2026-06-29 22:59 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/9739733578.shtml)
+- 2026-06-29 22:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/868339.shtml)
+- 2026-06-29 23:15 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/62165.shtml)
+- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/724313940464.shtml)
+- 2026-06-29 23:23 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/046516534028.shtml)
+- 2026-06-29 23:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/254832948713.shtml)
+- 2026-06-29 23:18 - [世界杯](https://www.blog.minike.top/Article/details/38283918.shtml)

@@ -1,56 +1,60 @@
-# “高铁+研学”热度攀升 国铁太原局定制服务护航研学之旅
+# 10年，10.8倍！中欧班列运输网络基本覆盖亚欧全境 催生“班列+”新业态
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-中新网太原4月15日电(范丽芳 任丽娜)4月13日至14日，山西晋中800余名师生分两批次从太原南站出发，搭乘高铁前往济南东站，开启为期3天的研学之旅。 随着春日经济蓬勃向好，“高铁+研学”热度持续攀升。国铁太原局推出特色客运服务产品，为研学出行提供运输保障。 此次研学，师生将走进孔庙体验拜师礼，感受中华优秀传统文化，并围绕泉城文化与自然生态开展主题研学。针对研学师生较多、集中
+央视网消息：2016年6月，渝新欧、蓉新欧、义新欧、汉新欧等各地开行的跨境运输国际班列，正式启用中欧班列这个统一的品牌。10年来，中欧班列开行规模、通达范围、服务品质、辐射效应大幅提升，运输网络基本覆盖亚欧全境。国铁集团6月19日发布的数据显示，中欧班列年开行数量十年间增长了10.8倍。中欧班列年开行量由2016年的1702列增长到2025年的20022列，10年增长了10.8
 
 ## 正文
 
-中新网太原4月15日电(范丽芳 任丽娜)4月13日至14日，山西晋中800余名师生分两批次从太原南站出发，搭乘高铁前往济南东站，开启为期3天的研学之旅。
+央视网消息：2016年6月，渝新欧、蓉新欧、义新欧、汉新欧等各地开行的跨境运输国际班列，正式启用中欧班列这个统一的品牌。
 
-随着春日经济蓬勃向好，“高铁+研学”热度持续攀升。
+10年来，中欧班列开行规模、通达范围、服务品质、辐射效应大幅提升，运输网络基本覆盖亚欧全境。
 
-国铁太原局推出特色客运服务产品，为研学出行提供运输保障。
+国铁集团6月19日发布的数据显示，中欧班列年开行数量十年间增长了10.8倍。
 
-此次研学，师生将走进孔庙体验拜师礼，感受中华优秀传统文化，并围绕泉城文化与自然生态开展主题研学。
+中欧班列年开行量由2016年的1702列增长到2025年的20022列，10年增长了10.8倍，年均增长31.5%。
 
-针对研学师生较多、集中出行、安全要求高等特点，太原南站开辟专属进站绿色通道，设置专属候车区域，安排专人全程跟进引导，实现进站、安检、候车、检票、登乘全环节闭环服务。
+自2020年以来年运量始终保持在万列以上。
 
-此外，研学列车上还开展形式多样的互动活动。
+在湖南长沙，中欧班列年开行数量由2016年的112列增加到2025年的589列，年出口货值超23亿美元。
 
-担任研学运输任务的D1634次列车长陈宙介绍，将通过列车广播，适时播报研学目的地文化介绍与出行安全提示，让师生在旅途中提前了解泉城历史文化，真正实现“旅途即课堂”。
+国铁广州局长沙铁路物流中心长沙北营业部集装箱负责人徐文斌介绍，目前，湖南中欧班列累计开行已突破4080列，每天稳定开行2列，高峰期能达到3到4列，连续7年稳居全国第一方阵。
 
-后续，国铁太原局将根据市场需求开行研学、银发、歌迷等定制化主题列车，以高效铁路运力赋能文旅融合高质量发展。
+最新统计显示，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家236个城市，较2016年分别增加113、216个城市，服务范围基本覆盖亚欧全境。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 23:03 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 22:55 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 22:52 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 23:12 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 23:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 23:14 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 23:12 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 23:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 23:17 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 23:13 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 23:20 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 23:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 23:04 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 23:07 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 22:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 23:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 23:05 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 23:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 23:07 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 23:17 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 22:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/49464163678.shtml)
-- 2026-06-29 23:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/490276923475.shtml)
-- 2026-06-29 23:17 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/4684765962.shtml)
-- 2026-06-29 22:56 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/355778216.shtml)
-- 2026-06-29 23:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/012536.shtml)
-- 2026-06-29 23:01 - [流金岁月](http://www.share.kurohicncr.top/Article/details/08633.shtml)
-- 2026-06-29 22:57 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/19435488033.shtml)
-- 2026-06-29 23:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/72873946.shtml)
-- 2026-06-29 23:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/002696.shtml)
-- 2026-06-29 22:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/82572.shtml)
-- 2026-06-29 23:03 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/9628504.shtml)
-- 2026-06-29 23:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/047510412.shtml)
-- 2026-06-29 23:03 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/75691614738.shtml)
-- 2026-06-29 22:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/575671.shtml)
-- 2026-06-29 23:08 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/7962730.shtml)
+- 2026-06-29 23:07 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/8544833010.shtml)
+- 2026-06-29 23:07 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/3822460.shtml)
+- 2026-06-29 23:08 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/79645752031.shtml)
+- 2026-06-29 23:15 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/19883100.shtml)
+- 2026-06-29 23:10 - [周生如故](http://www.blog.kurohicncr.top/Article/details/181779355634.shtml)
+- 2026-06-29 23:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/921875974657.shtml)
+- 2026-06-29 22:58 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/23781039409.shtml)
+- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/427653.shtml)
+- 2026-06-29 23:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/920942965687.shtml)
+- 2026-06-29 23:09 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/20820840082.shtml)
+- 2026-06-29 23:19 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/33282.shtml)
+- 2026-06-29 23:12 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/922291868.shtml)
+- 2026-06-29 23:20 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/682509969.shtml)
+- 2026-06-29 23:15 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/954394.shtml)
+- 2026-06-29 23:22 - [扫黑风暴](http://www.share.minike.top/Article/details/70895.shtml)

@@ -1,61 +1,46 @@
-# 摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲
+# 华联股份：目前北京元创联商业企业管理中心（有限合伙）已收到60%股权转让对价款
 
-> 更新时间：2026-06-29 23:18:02 UTC+8
+> 更新时间：2026-06-29 23:24:03 UTC+8
 
 ## 摘要
 
-摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。几小时前，该行公布其第一季度股票交易收入创纪录。 这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。在战争推动下，融资成本上月跃升，如今已回落。 知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，华联股份在互动平台回答投资者提问时表示，目前北京元创联商业企业管理中心（有限合伙）已收到60%股权转让对价款，并将于收到全部股权转让对价款后向合伙人进行分配，具体内容详见公司已披露的公告。如涉及《估值提升计划》中应披露的情形，公司将严格按照相关法律法规要求履行信息披露义务，请关注公司届时发布的公告。（文
 
 ## 正文
 
-摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月18日，华联股份在互动平台回答投资者提问时表示，目前北京元创联商业企业管理中心（有限合伙）已收到60%股权转让对价款，并将于收到全部股权转让对价款后向合伙人进行分配，具体内容详见公司已披露的公告。
 
-几小时前，该行公布其第一季度股票交易收入创纪录。
+如涉及《估值提升计划》中应披露的情形，公司将严格按照相关法律法规要求履行信息披露义务，请关注公司届时发布的公告。
 
-这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。
-
-在战争推动下，融资成本上月跃升，如今已回落。
-
-知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。
-
-该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分点的指引。
-
-募集资金将用于一般企业用途。
-
-汇编数据显示，自2025年初以来，摩根士丹利在财报发布后进行的四次债券发行均分为四个部分，每次筹资80亿美元。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 23:16 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 23:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 23:00 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 23:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 23:05 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 22:54 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:07 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 23:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 23:14 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 22:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 23:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 22:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 23:13 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 23:03 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 23:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 23:18 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 23:03 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 23:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 23:21 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 23:05 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/122177352620.shtml)
-- 2026-06-29 23:02 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/68729635.shtml)
-- 2026-06-29 23:03 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/7462471.shtml)
-- 2026-06-29 22:57 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/649402949697.shtml)
-- 2026-06-29 22:48 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4819684498.shtml)
-- 2026-06-29 23:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/500164519894.shtml)
-- 2026-06-29 23:02 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/02043334.shtml)
-- 2026-06-29 23:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/138234077.shtml)
-- 2026-06-29 23:14 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/790686.shtml)
-- 2026-06-29 22:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/16284685723.shtml)
-- 2026-06-29 23:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/21626801.shtml)
-- 2026-06-29 22:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/7297090122.shtml)
-- 2026-06-29 22:59 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/712987.shtml)
-- 2026-06-29 22:53 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/1066790634.shtml)
-- 2026-06-29 23:16 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/453442673328.shtml)
+- 2026-06-29 23:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/95235.shtml)
+- 2026-06-29 23:10 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/3848879.shtml)
+- 2026-06-29 23:20 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/591096404.shtml)
+- 2026-06-29 22:58 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/3728949498.shtml)
+- 2026-06-29 23:12 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/6239993710.shtml)
+- 2026-06-29 23:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/284168.shtml)
+- 2026-06-29 23:17 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/58151888699.shtml)
+- 2026-06-29 23:18 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/5479938047.shtml)
+- 2026-06-29 22:59 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/877592522.shtml)
+- 2026-06-29 23:08 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/668400.shtml)
+- 2026-06-29 22:59 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/1820790761.shtml)
+- 2026-06-29 23:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/92060524.shtml)
+- 2026-06-29 23:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/3845245289.shtml)
+- 2026-06-29 23:09 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/63613610.shtml)
+- 2026-06-29 23:11 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/839195634679.shtml)
