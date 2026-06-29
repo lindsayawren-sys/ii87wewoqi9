@@ -1,56 +1,49 @@
-# 周一，A股，两大好消息！
+# 国务院国资委成立境外国资工作局
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|赵云 每经编辑|彭水萍 4月27日，三大指数涨跌不一，创业板指走势较弱，科创50指数高开高走涨超3.5%。截至收盘，沪指涨0.16%，深成指涨0.37%，创业板指跌0.52%。 板块来看，芯片产业链爆发，CPO概念震荡拉升，PCB概念反复活跃，锂电产业链表现活跃。下跌方面，算力租赁概念表现较弱。
+记者从国务院国资委获悉，国务院国资委新设境外国资工作局。（记者：王希）责任编辑：刘万里 SF014
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者从国务院国资委获悉，国务院国资委新设境外国资工作局。
 
-每经记者|赵云 每经编辑|彭水萍 4月27日，三大指数涨跌不一，创业板指走势较弱，科创50指数高开高走涨超3.5%。
-
-截至收盘，沪指涨0.16%，深成指涨0.37%，创业板指跌0.52%。
-
-板块来看，芯片产业链爆发，CPO概念震荡拉升，PCB概念反复活跃，锂电产业链表现活跃。
-
-下跌方面，算力租赁概念表现较弱。
-
-全市场超3200只个股上涨，中小盘股走势较强。
-
-沪深两市成交额2.59万亿元，较上一个交易日缩量524亿元。
-
-如标题所说，今天A股有两个好消息。
+（记者：王希）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 18:08 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 18:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 18:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 18:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 17:57 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 18:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 17:55 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 17:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 18:14 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 18:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 18:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 18:19 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 18:10 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 18:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 18:03 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 18:02 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 18:03 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 18:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 18:23 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 18:15 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 18:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 18:25 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:02 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [第一炉香](http://www.share.minike.top/Article/details/265592136.shtml)
-- 2026-06-29 18:03 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/27786.shtml)
-- 2026-06-29 18:02 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/48471628773.shtml)
-- 2026-06-29 18:14 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/43947.shtml)
-- 2026-06-29 18:08 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/355652695485.shtml)
-- 2026-06-29 18:17 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2395544.shtml)
-- 2026-06-29 18:06 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/4976804.shtml)
-- 2026-06-29 17:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/003251.shtml)
-- 2026-06-29 18:14 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/96222637909.shtml)
-- 2026-06-29 17:56 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/264066737.shtml)
-- 2026-06-29 18:15 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/3889677481.shtml)
-- 2026-06-29 17:58 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/398158921.shtml)
-- 2026-06-29 17:58 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/265107886.shtml)
-- 2026-06-29 18:02 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/8034552566.shtml)
-- 2026-06-29 18:07 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/754736592.shtml)
+- 2026-06-29 18:20 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/530598609.shtml)
+- 2026-06-29 18:26 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/79097079725.shtml)
+- 2026-06-29 18:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/40435.shtml)
+- 2026-06-29 18:24 - [青春环游记第三季](http://www.share.minike.top/Article/details/55268922017.shtml)
+- 2026-06-29 18:05 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/69986.shtml)
+- 2026-06-29 18:11 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/9229868379.shtml)
+- 2026-06-29 18:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/789708250.shtml)
+- 2026-06-29 18:11 - [明星大侦探第一季](http://www.share.minike.top/Article/details/822407596.shtml)
+- 2026-06-29 18:04 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/5506851.shtml)
+- 2026-06-29 18:18 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/30516757045.shtml)
+- 2026-06-29 18:24 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/062417217.shtml)
+- 2026-06-29 18:17 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/01281.shtml)
+- 2026-06-29 18:08 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/37738103.shtml)
+- 2026-06-29 18:16 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/072452.shtml)
+- 2026-06-29 18:07 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/778318.shtml)

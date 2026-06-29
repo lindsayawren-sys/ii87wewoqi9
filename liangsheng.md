@@ -1,56 +1,44 @@
-# 依法保障国家通用语言文字的全面推广普及
+# 李大霄：重磅利好或暴力反弹
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-十四届全国人大四次会议审议通过的民族团结进步促进法明确规定，“国家全面推广普及国家通用语言文字。任何组织和个人不得妨碍公民学习和使用国家通用语言文字。”这不仅明确了国家通用语言文字的法律地位，而且规定了国家对“通用语言文字”承担“全面推广普及”的责任。 现代国家高度重视通用语言文字的推广普及 在多民族、多语言、多文字的国家，国家通用语言文字事关国家历史文化传承、国家认同和民族认
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-十四届全国人大四次会议审议通过的民族团结进步促进法明确规定，“国家全面推广普及国家通用语言文字。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-任何组织和个人不得妨碍公民学习和使用国家通用语言文字。
-
-”这不仅明确了国家通用语言文字的法律地位，而且规定了国家对“通用语言文字”承担“全面推广普及”的责任。
-
-现代国家高度重视通用语言文字的推广普及 在多民族、多语言、多文字的国家，国家通用语言文字事关国家历史文化传承、国家认同和民族认同，事关国家统一、民族团结和社会和谐，事关国民教育普及和国家现代化事业，事关经济社会进步和人的全面发展。
-
-历史上很多国家高度重视这项工作，近代以来现代国家也把它作为推进民族团结、国家建设和现代化进程的一般惯例。
-
-根据对100个联合国会员国官方语言立法的不完全统计，约80个国家规定了一种官方语言作为全国通用语言文字，其余20多个国家规定了两种或两种以上的官方语言。
-
-也就是说，当今世界四分之三甚至五分之四(75%-80%)左右的国家，通过宪法或专门的语言法(案)，确定某种语言文字作为全国唯一的通用语言文字。
-
-比如，美国通过总统行政命令规定英语为联邦的官方语言，法国宪法明确规定“法国的国家语言是法语”，日本、德国、韩国、匈牙利等，都规定了本国使用的官方语言。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 18:20 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 18:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 18:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 18:04 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 18:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 18:12 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 18:01 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 18:05 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 18:22 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 18:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 18:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 18:29 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 18:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 18:14 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 18:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 18:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 18:18 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 18:05 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 18:07 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/41170.shtml)
-- 2026-06-29 18:20 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/13305.shtml)
-- 2026-06-29 18:11 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/182535081278.shtml)
-- 2026-06-29 18:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/9997456.shtml)
-- 2026-06-29 18:10 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/2103007.shtml)
-- 2026-06-29 18:07 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/06824838.shtml)
-- 2026-06-29 18:10 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/8083236779.shtml)
-- 2026-06-29 17:57 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/5863295613.shtml)
-- 2026-06-29 18:02 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/04184400266.shtml)
-- 2026-06-29 18:06 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/6370456.shtml)
-- 2026-06-29 18:19 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/55105085.shtml)
-- 2026-06-29 17:57 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/8084924.shtml)
-- 2026-06-29 18:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/443367644423.shtml)
-- 2026-06-29 17:54 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/76600.shtml)
-- 2026-06-29 17:56 - [扬名立万](http://www.share.kurohicncr.top/Article/details/5236013.shtml)
+- 2026-06-29 18:28 - [青春环游记第三季](http://www.blog.minike.top/Article/details/08702043.shtml)
+- 2026-06-29 18:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/17969.shtml)
+- 2026-06-29 18:04 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/86515.shtml)
+- 2026-06-29 18:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/7152539768.shtml)
+- 2026-06-29 18:04 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/04217.shtml)
+- 2026-06-29 18:10 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/85695.shtml)
+- 2026-06-29 18:21 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/382244.shtml)
+- 2026-06-29 18:01 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/440159560.shtml)
+- 2026-06-29 18:21 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/5415940.shtml)
+- 2026-06-29 18:26 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/39938539697.shtml)
+- 2026-06-29 18:08 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/840936.shtml)
+- 2026-06-29 18:07 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/535280789699.shtml)
+- 2026-06-29 18:22 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/84946919372.shtml)
+- 2026-06-29 18:24 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/82005.shtml)
+- 2026-06-29 18:01 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/318651.shtml)

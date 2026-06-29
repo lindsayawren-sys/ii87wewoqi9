@@ -1,56 +1,59 @@
-# 散户大举进场！ETF个人持有比例飙升，多只产品超九成
+# 爱彼迎推出覆盖125个城市的机场接机服务，意在全球扩张
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-近期上市的ETF，个人投资者成为绝对认购主力。 以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。 时间拉长看，这种情况在今年和去年同样存在。他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过4
+爱彼迎正进一步拓展其核心住宿模式之外的服务，在亚洲、欧洲和拉丁美洲的125个城市推出私人机场接机服务，覆盖巴黎、巴厘岛和墨西哥城等地。该公司正持续构建一个更为整合的旅游生态系统。该服务通过与总部位于英国的Welcome Pickups合作推出，在用户预订住宿后直接显示在爱彼迎应用内，让用户能够安排前往住所的车辆，在某些情况下还可请求到达时的迎宾服务。此次扩张可能表明爱彼迎正持续
 
 ## 正文
 
-近期上市的ETF，个人投资者成为绝对认购主力。
+爱彼迎正进一步拓展其核心住宿模式之外的服务，在亚洲、欧洲和拉丁美洲的125个城市推出私人机场接机服务，覆盖巴黎、巴厘岛和墨西哥城等地。
 
-以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。
+该公司正持续构建一个更为整合的旅游生态系统。
 
-时间拉长看，这种情况在今年和去年同样存在。
+该服务通过与总部位于英国的Welcome Pickups合作推出，在用户预订住宿后直接显示在爱彼迎应用内，让用户能够安排前往住所的车辆，在某些情况下还可请求到达时的迎宾服务。
 
-他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。
+此次扩张可能表明爱彼迎正持续努力，在保持其轻资产市场平台结构的同时，复制传统酒店所具备的全流程便利体验。
 
-截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过42%。
+此项服务的推出属于爱彼迎更广泛的“服务”计划的一部分，该计划已允许旅客预订私人厨师、按摩、健身课程和美容护理等附加服务。
 
-在参与更广泛的ETF联接基金方面，个人持有比例则超过了85%，2024年至今逐步提升。
+首席执行官布莱恩·切斯基曾表示，从长远来看，“服务”板块与“体验”板块每年可能带来10亿美元或更多的收入，不过他提醒称，这些较新的业务可能需要数年时间才能成为公司重要的业务驱动力。
 
-受访人士对券商中国记者称，个人投资者持续转向ETF，意味着他们逐步认可指数化工具产品，且呈现出了组合配置和风险分散意识。
+机场接送功能也正式规范化了此前零散的局面，之前部分房东会通过平台外的推荐链接或折扣独立提供Welcome Pickups服务。
 
-但从广泛参与到成为中长期耐心资本，他们还需要长期持续的良性引导。
+在新架构下，旅客可以直接在爱彼迎应用内安排和修改行程，无需支付额外的爱彼迎费用，而Welcome Pickups负责定价和客户支持。
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 18:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 17:55 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 18:05 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 18:03 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 18:21 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 18:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 18:07 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 18:08 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 18:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 18:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 18:16 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 18:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 18:15 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:12 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 18:01 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 18:10 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 18:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 18:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:04 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 18:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 18:17 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 18:19 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/7217288.shtml)
-- 2026-06-29 18:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/757277675078.shtml)
-- 2026-06-29 18:12 - [NBA交易](https://www.share.minike.top/Article/details/51991.shtml)
-- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/380955137728.shtml)
-- 2026-06-29 18:03 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/5689994471.shtml)
-- 2026-06-29 18:05 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/9924683.shtml)
-- 2026-06-29 18:12 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/471136.shtml)
-- 2026-06-29 18:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/165831.shtml)
-- 2026-06-29 18:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/783851.shtml)
-- 2026-06-29 18:13 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/67469945898.shtml)
-- 2026-06-29 18:16 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/235688.shtml)
-- 2026-06-29 18:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/876406.shtml)
-- 2026-06-29 18:14 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/820136.shtml)
-- 2026-06-29 18:10 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/24644.shtml)
-- 2026-06-29 18:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/682560237.shtml)
+- 2026-06-29 18:11 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/278130037.shtml)
+- 2026-06-29 18:20 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/12400685255.shtml)
+- 2026-06-29 18:25 - [第一炉香](http://www.share.kurohicncr.top/Article/details/50269.shtml)
+- 2026-06-29 18:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/46706347.shtml)
+- 2026-06-29 18:09 - [《贺子珍》](https://www.share.minike.top/Article/details/18205090883.shtml)
+- 2026-06-29 18:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/46572.shtml)
+- 2026-06-29 18:00 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/4264140169.shtml)
+- 2026-06-29 18:07 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/1281582140.shtml)
+- 2026-06-29 18:06 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/429726516.shtml)
+- 2026-06-29 18:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/87712103.shtml)
+- 2026-06-29 18:22 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/5322768811.shtml)
+- 2026-06-29 18:18 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/189114781.shtml)
+- 2026-06-29 18:18 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/734661191.shtml)
+- 2026-06-29 18:25 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/419561157.shtml)
+- 2026-06-29 18:19 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/1880800.shtml)

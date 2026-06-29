@@ -1,54 +1,58 @@
-# 中俄最大界湖兴凯湖进入明水捕捞期
+# 理财吸金大战升级：两万亿俱乐部扩容 代销渠道成胜负手
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网鸡西4月26日电(郑成金 李敬宇 王世兴)26日零时起，中俄最大界湖兴凯湖进入明水捕捞期。 兴凯湖位于黑龙江省东南部，是中俄最大界湖。湖内鱼类资源丰富，共有鱼类6目12科65种，其中最为著名的是兴凯湖“大白鱼”和白虾。兴凯湖冬捕历史悠久，肃慎人6000多年前就在这里以捕鱼为生。 “兴凯湖已全面进入明水期，我们前期对渔船渔民进行审核，发放生产作业许可证件，下一步我们将持续加
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，理财公司陆续发布2025年下半年理财业务报告，结合上市银行公布的2025年年报，中国证券报记者发现，去年多家理财公司的管理规模实现较大幅度增长，两万亿俱乐部扩容至招银理财、兴银理财、信银理财、农银理财、工银理财五家公司。复盘规模增长原因，代销渠道拓展和产品布局优化被多家理财公司提及。 面对居民定期存款再配置的机遇，理财行业
 
 ## 正文
 
-中新网鸡西4月26日电(郑成金 李敬宇 王世兴)26日零时起，中俄最大界湖兴凯湖进入明水捕捞期。
+登录新浪财经APP 搜索【信披】查看更多考评等级 近日，理财公司陆续发布2025年下半年理财业务报告，结合上市银行公布的2025年年报，中国证券报记者发现，去年多家理财公司的管理规模实现较大幅度增长，两万亿俱乐部扩容至招银理财、兴银理财、信银理财、农银理财、工银理财五家公司。
 
-兴凯湖位于黑龙江省东南部，是中俄最大界湖。
+复盘规模增长原因，代销渠道拓展和产品布局优化被多家理财公司提及。
 
-湖内鱼类资源丰富，共有鱼类6目12科65种，其中最为著名的是兴凯湖“大白鱼”和白虾。
+面对居民定期存款再配置的机遇，理财行业发展前景良好。
 
-兴凯湖冬捕历史悠久，肃慎人6000多年前就在这里以捕鱼为生。
+努力做好客户服务，提高投资者的持有体验和获得感，是理财公司的必答题。
 
-“兴凯湖已全面进入明水期，我们前期对渔船渔民进行审核，发放生产作业许可证件，下一步我们将持续加大边境管控力度，严查越界捕捞和非法作业等违法犯罪行为，确保边境地区持续安全稳定。
+信银理财管理规模跃居第三 中国理财网数据显示，2025年末理财公司存续规模30.71万亿元，同比增长16.72%。
 
-”鸡西边境管理支队兴凯湖边境派出所民警刘雨洋表示，明水捕捞期间，白鱼湾边境派出所、兴凯湖边境派出所民警将采取步巡、车巡、视频巡等方式，加强兴凯湖边境管理。
+从理财公司管理规模来看，招银理财、兴银理财、信银理财分别位列2025年末前三名，管理资产规模分别为2.64万亿元、2.43万亿元、2.30万亿元。
 
-(完)
+同时，农银理财和工银理财的管理规模也突破了2万亿元，理财公司两万亿俱乐部扩容至前述五家公司。
+
+其中，信银理财的管理规模在2025年增长较快，居第三名。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 17:55 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 18:12 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 18:14 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 18:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 18:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 18:11 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 17:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 18:03 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 18:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 18:13 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 18:19 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 18:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 18:29 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 18:10 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 18:03 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 18:28 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 18:02 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 18:01 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 18:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 18:09 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 18:17 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/674361057.shtml)
-- 2026-06-29 18:15 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/2218573373.shtml)
-- 2026-06-29 18:21 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/11975709264.shtml)
-- 2026-06-29 18:12 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/67923362095.shtml)
-- 2026-06-29 17:57 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/2389265648.shtml)
-- 2026-06-29 18:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/11269.shtml)
-- 2026-06-29 17:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/0197361.shtml)
-- 2026-06-29 17:58 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/693510616.shtml)
-- 2026-06-29 18:04 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/2200593013.shtml)
-- 2026-06-29 18:17 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/32383838.shtml)
-- 2026-06-29 18:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/772350127241.shtml)
-- 2026-06-29 18:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/360694.shtml)
-- 2026-06-29 18:10 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/02486.shtml)
-- 2026-06-29 18:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/340087.shtml)
-- 2026-06-29 18:00 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/7348065246.shtml)
+- 2026-06-29 18:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/99391.shtml)
+- 2026-06-29 18:22 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/71447259.shtml)
+- 2026-06-29 18:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/1668885.shtml)
+- 2026-06-29 18:28 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/518489.shtml)
+- 2026-06-29 18:04 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/833856.shtml)
+- 2026-06-29 18:04 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/697702.shtml)
+- 2026-06-29 18:03 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/756793918.shtml)
+- 2026-06-29 18:13 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/094293.shtml)
+- 2026-06-29 18:08 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/497864082488.shtml)
+- 2026-06-29 18:04 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/709960.shtml)
+- 2026-06-29 18:25 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/0651174420.shtml)
+- 2026-06-29 18:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/28015560111.shtml)
+- 2026-06-29 18:15 - [V8](https://www.share.minike.top/Article/details/3412322.shtml)
+- 2026-06-29 18:03 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/531572624608.shtml)
+- 2026-06-29 18:28 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/603609.shtml)

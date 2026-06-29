@@ -1,59 +1,53 @@
-# Pimco的“海湾豪赌”：百亿美元私募贷款撑起中东战时融资
+# 伊朗与阿曼将收取霍尔木兹海峡通行费？中方回应
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中东战火不仅封锁了霍尔木兹海峡，也关上了海湾主权国家在公开市场的融资大门。在这个“有钱也借不到钱”的非常时期，全球最大债券基金管理公司太平洋投资管理公司（Pimco）悄然入场，充当起海湾富国的“战时提款机”。 Pimco“抄底”海湾，百亿私募撑起流动性 据报道，自2月28日伊朗战争爆发导致公开债务市场冻结以来，Pimco已通过私募债券市场向阿布扎比、卡塔尔、科威特三国政府及卡塔
+中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？ 毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。我们希望各方共同努力，推动海峡早日恢复正常通行。(完)
 
 ## 正文
 
-中东战火不仅封锁了霍尔木兹海峡，也关上了海湾主权国家在公开市场的融资大门。
+中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
 
-在这个“有钱也借不到钱”的非常时期，全球最大债券基金管理公司太平洋投资管理公司（Pimco）悄然入场，充当起海湾富国的“战时提款机”。
+有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？
 
-Pimco“抄底”海湾，百亿私募撑起流动性 据报道，自2月28日伊朗战争爆发导致公开债务市场冻结以来，Pimco已通过私募债券市场向阿布扎比、卡塔尔、科威特三国政府及卡塔尔国家银行提供了约100亿美元的融资。
+毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。
 
-这些交易以一种极为隐蔽的方式进行。
+我们希望各方共同努力，推动海峡早日恢复正常通行。
 
-对海湾国家而言，私募不仅能快速获得资金，还能避免在债券价格处于历史低位时被迫“割肉”发债，同时保持融资行动的私密性。
-
-作为交换，Pimco索取了高价。
-
-以卡塔尔的一笔私募债为例，票息定为4.8%，比其公开交易债务的隐含收益率高出约0.3个百分点。
-
-专家指出，借钱的正是资产负债表最稳健的三个国家，这说明它们无法按合理利率在公开市场借到钱。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 18:08 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 18:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 18:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 18:05 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 18:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 17:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 18:06 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 18:11 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 18:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 18:01 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 18:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 18:08 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 18:16 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 18:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 18:10 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 18:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 18:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 18:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 18:05 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 18:07 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 18:29 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 18:16 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 18:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 18:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [一见倾心](http://www.share.minike.top/Article/details/7523023659.shtml)
-- 2026-06-29 18:04 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/43775390366.shtml)
-- 2026-06-29 18:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/234717255079.shtml)
-- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/1207149.shtml)
-- 2026-06-29 18:08 - [爱很美味](https://www.blog.minike.top/Article/details/6399006160.shtml)
-- 2026-06-29 18:21 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/68705266542.shtml)
-- 2026-06-29 17:55 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/344711676.shtml)
-- 2026-06-29 17:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/064352.shtml)
-- 2026-06-29 18:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/30857337410.shtml)
-- 2026-06-29 18:13 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/75536.shtml)
-- 2026-06-29 18:22 - [人形机器人](http://www.share.kurohicncr.top/Article/details/213958.shtml)
-- 2026-06-29 18:16 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/724172.shtml)
-- 2026-06-29 17:59 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/387438958.shtml)
-- 2026-06-29 18:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/172350369.shtml)
-- 2026-06-29 18:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/68033550.shtml)
+- 2026-06-29 18:22 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/02999.shtml)
+- 2026-06-29 18:17 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/7410668654.shtml)
+- 2026-06-29 18:05 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/77490292754.shtml)
+- 2026-06-29 18:19 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/5074465060.shtml)
+- 2026-06-29 18:05 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/0658173203.shtml)
+- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/49224.shtml)
+- 2026-06-29 18:14 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/354083.shtml)
+- 2026-06-29 18:20 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/97675.shtml)
+- 2026-06-29 18:20 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/73837541.shtml)
+- 2026-06-29 18:04 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/47759.shtml)
+- 2026-06-29 18:07 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/12807317.shtml)
+- 2026-06-29 18:08 - [起风了](http://www.share.kurohicncr.top/Article/details/5962010832.shtml)
+- 2026-06-29 18:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/08322944652.shtml)
+- 2026-06-29 18:28 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/1621762.shtml)
+- 2026-06-29 18:00 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/3132833393.shtml)

@@ -1,60 +1,53 @@
-# 霍尔木兹海峡冲击持续发酵，高盛再度上调油价预期
+# 工程机械出口增长强劲，工程机械ETF富国（516250）盘中涨幅超5%
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-受霍尔木兹海峡长期封航引发极端库存锐减影响，高盛集团再度上调油价预测。 包括达安・斯崔文、尤利娅・热斯特科娃・格里格斯比在内的分析师在 4 月 27 日研报中指出，将四季度布伦特原油均价预期从此前的 80 美元 / 桶上调至 90 美元 / 桶。该价位较霍尔木兹危机爆发前高出近 30 美元 / 桶，也是近期连续第二次修正上调。 团队表示：“目前波斯湾每日原油产能锐减 1450
+4月8日，工程机械板块表现强势，工程机械ETF富国（516250）盘中涨幅超5%，截至发稿的最新涨幅为4.88%。 标的指数成分股中，联德股份10CM涨停，尤洛卡、海南华铁吧、光力科技等强势上涨，98%个股飘红。 消息面上，今年前两个月，我国工程机械产品对非洲、大洋洲、欧洲的出口增幅分别为77%、50.6%、28.1%。 研究机构指出，本轮高增长的原因可归结为三点：一是全球基建
 
 ## 正文
 
-受霍尔木兹海峡长期封航引发极端库存锐减影响，高盛集团再度上调油价预测。
+4月8日，工程机械板块表现强势，工程机械ETF富国（516250）盘中涨幅超5%，截至发稿的最新涨幅为4.88%。
 
-包括达安・斯崔文、尤利娅・热斯特科娃・格里格斯比在内的分析师在 4 月 27 日研报中指出，将四季度布伦特原油均价预期从此前的 80 美元 / 桶上调至 90 美元 / 桶。
+标的指数成分股中，联德股份10CM涨停，尤洛卡、海南华铁吧、光力科技等强势上涨，98%个股飘红。
 
-该价位较霍尔木兹危机爆发前高出近 30 美元 / 桶，也是近期连续第二次修正上调。
+消息面上，今年前两个月，我国工程机械产品对非洲、大洋洲、欧洲的出口增幅分别为77%、50.6%、28.1%。
 
-团队表示：“目前波斯湾每日原油产能锐减 1450 万桶，致使 4 月全球原油库存以每日 1100 万至 1200 万桶的创纪录速度消耗。
+研究机构指出，本轮高增长的原因可归结为三点：一是全球基建与矿业投资进入新一轮活跃期，特别是能源转型带动锂、铜、镍等关键矿产开采需求激增；二是国内企业经过多年深耕，海外渠道和本地化服务能力显著增强；三是中国供应链的稳定性和高性价比，在全球供应链重构中承接了部分国际订单转移。
 
-极端去库存状态难以长期维系，若供给冲击持续发酵，全球需求或将出现更剧烈萎缩。
+工程机械ETF富国（516250）覆盖整机、核心零部件及产业链上下游，具备较强行业代表性，有望精准把握板块结构性行情，成为投资者布局工程机械赛道的高效选择。
 
-” 伊美冲突彻底打乱全球原油格局，双向封锁导致霍尔木兹海峡这一能源咽喉航运近乎停滞。
-
-海湾地区日均数百万桶原油供应被迫中断，自 2 月末冲突爆发以来，布伦特原油涨幅接近 50%，既加剧全球通胀压力，又拖累经济增长。
-
-分析师调整基准预判： 海湾原油出口恢复正常的时间，从此前预估的 5 月中旬推迟至 6 月底，同时下调海湾产油国产能复苏速度。
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 18:21 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 18:15 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 18:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 18:05 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 17:54 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 18:16 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 17:57 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 18:07 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 17:59 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 18:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:18 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 18:11 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 17:54 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 18:16 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 18:12 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 18:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 18:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 18:17 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:13 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 18:18 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 18:29 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 18:24 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/53381790.shtml)
-- 2026-06-29 18:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/631162020046.shtml)
-- 2026-06-29 18:23 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/68893.shtml)
-- 2026-06-29 18:13 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/998240.shtml)
-- 2026-06-29 18:23 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/3699706413.shtml)
-- 2026-06-29 17:56 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/3430480.shtml)
-- 2026-06-29 18:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/172647031.shtml)
-- 2026-06-29 18:01 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/62308886.shtml)
-- 2026-06-29 18:16 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/0245591359.shtml)
-- 2026-06-29 18:17 - [急先锋](https://www.share.minike.top/Article/details/566532.shtml)
-- 2026-06-29 18:01 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/328858717.shtml)
-- 2026-06-29 17:56 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/398489.shtml)
-- 2026-06-29 18:11 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/14488.shtml)
-- 2026-06-29 18:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/359207585.shtml)
-- 2026-06-29 18:04 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8742133672.shtml)
+- 2026-06-29 18:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/610141868.shtml)
+- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/37576796525.shtml)
+- 2026-06-29 18:06 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/355343.shtml)
+- 2026-06-29 18:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/9210581.shtml)
+- 2026-06-29 18:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/4897139705.shtml)
+- 2026-06-29 18:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/15417392793.shtml)
+- 2026-06-29 18:07 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/29765958758.shtml)
+- 2026-06-29 18:13 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/087617625.shtml)
+- 2026-06-29 18:00 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/748753.shtml)
+- 2026-06-29 18:04 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/0923494168.shtml)
+- 2026-06-29 18:16 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/68854522.shtml)
+- 2026-06-29 18:04 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/118095960789.shtml)
+- 2026-06-29 18:18 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/1257968887.shtml)
+- 2026-06-29 18:08 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/542035938.shtml)
+- 2026-06-29 18:01 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/48760855424.shtml)

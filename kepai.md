@@ -1,60 +1,60 @@
-# “上海论坛2026”年会开幕
+# 三峡人寿再度亏损1.97亿，股权频遭流拍，新掌门人能否破局？
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。 开幕式上，上海市人
+来源：燕梳师院 成立第九个年头，三峡人寿依旧在亏损的泥潭中艰难跋涉。初创之时，民营资本云集，股权结构相对均衡。然而，命运弄人。成立以来，不仅持续亏损，风险综合评级也一度被评为D类，甚至沦为监管“重点关照对象”。同时股权之殇，亦令人唏嘘。 为挽救危局，重庆国资火速驰援，对公司进行大规模增资“输血”，资本实力跻身中小保险公司第一梯队。但是，沉疴积重，非一日可愈。如今，股权屡次流拍，
 
 ## 正文
 
-专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。
+来源：燕梳师院 成立第九个年头，三峡人寿依旧在亏损的泥潭中艰难跋涉。
 
-本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。
+初创之时，民营资本云集，股权结构相对均衡。
 
-开幕式上，上海市人大常委会副主任、上海市人民对外友好协会会长陈靖，复旦大学校长金力，韩国SK集团董事长兼首席执行官崔泰源致辞，复旦大学党委书记裘新主持开幕式。
+然而，命运弄人。
 
-博鳌亚洲论坛理事长、联合国第八任秘书长潘基文发表特别演讲。
+成立以来，不仅持续亏损，风险综合评级也一度被评为D类，甚至沦为监管“重点关照对象”。
 
-美国前助理国务卿、斯坦福大学弗里曼·斯伯格利国际研究所研究员冯稼时（Thomas Fingar），稀宇科技（MiniMax）副总裁、资本市场负责人薛子钊，马克斯-普朗克气象研究所所长、美国地球物理联合会会士比约恩·史蒂文斯（Bjorn Stevens），复旦大学技术创新战略研究中心教授、华为技术有限公司前常务董事徐文伟发表主旨演讲，韩国崔钟贤学术院院长金裕锡主持主旨演讲。
+同时股权之殇，亦令人唏嘘。
 
-西班牙IE大学政治经济与全球事务学院院长、意大利前总理恩里克·莱塔（Enrico Letta），联合国环境规划署数字办公室司长萨里·拉德万（Golestan Sally Radwan），韩国前驻联合国大使金塾，SK中国董事长朴成泽、联席总裁崔东昱，国际关系学院院长胡继平，上海市友协副会长傅继红，复旦大学副校长陈志敏等出席开幕式。
+为挽救危局，重庆国资火速驰援，对公司进行大规模增资“输血”，资本实力跻身中小保险公司第一梯队。
 
-创新与共治：于不确定性中寻找创新锚点 潘基文指出，我们正生活在一个深刻的全球重构时代：单边主义抬头，保护主义加剧，信任不断侵蚀，气候变化也在加速。
+但是，沉疴积重，非一日可愈。
 
-与此同时，人工智能和生物技术带来希望，但也带来了深刻的不确定性。
+如今，股权屡次流拍，盈利遥遥无期，三峡人寿的破局之路，道阻且长。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 18:13 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 18:22 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 18:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 18:02 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 18:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 17:57 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 18:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 18:16 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 18:18 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 18:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 18:22 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 18:21 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:01 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 18:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 18:20 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 18:21 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 18:01 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 18:01 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 18:12 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 18:00 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 18:22 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 18:15 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 18:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 18:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:17 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 18:27 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 18:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/760334.shtml)
-- 2026-06-29 18:18 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4015914603.shtml)
-- 2026-06-29 18:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/09685916.shtml)
-- 2026-06-29 18:02 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/6002609.shtml)
-- 2026-06-29 17:54 - [小娘惹](https://www.share.minike.top/Article/details/694549651.shtml)
-- 2026-06-29 18:09 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/4354493550.shtml)
-- 2026-06-29 18:20 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/6497864874.shtml)
-- 2026-06-29 18:17 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/89579120830.shtml)
-- 2026-06-29 18:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/25963928896.shtml)
-- 2026-06-29 18:07 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/443488048890.shtml)
-- 2026-06-29 18:00 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/125449322.shtml)
-- 2026-06-29 18:09 - [中国战机大片上新](https://www.blog.minike.top/Article/details/55466369.shtml)
-- 2026-06-29 18:06 - [沉睡花园](http://www.share.minike.top/Article/details/7029922001.shtml)
-- 2026-06-29 18:09 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/226394.shtml)
-- 2026-06-29 18:21 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/612693572177.shtml)
+- 2026-06-29 18:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8193412406.shtml)
+- 2026-06-29 18:00 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/6593435575.shtml)
+- 2026-06-29 18:17 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/56493.shtml)
+- 2026-06-29 18:13 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/87541.shtml)
+- 2026-06-29 18:20 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/69518966.shtml)
+- 2026-06-29 18:04 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.kurohicncr.top/Article/details/6509269.shtml)
+- 2026-06-29 18:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/88922804686.shtml)
+- 2026-06-29 18:23 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/33545389.shtml)
+- 2026-06-29 18:24 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/222018589.shtml)
+- 2026-06-29 18:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/88164.shtml)
+- 2026-06-29 18:22 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/62660.shtml)
+- 2026-06-29 18:11 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/221643079.shtml)
+- 2026-06-29 18:26 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/01722.shtml)
+- 2026-06-29 18:16 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/087945.shtml)
+- 2026-06-29 18:08 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/705367096676.shtml)

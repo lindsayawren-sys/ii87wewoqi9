@@ -1,56 +1,55 @@
-# 欧洲央行表示3月消费者通胀预期上升
+# 特朗普：美国撤离后霍尔木兹海峡将“自动”开放
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-欧元区3月消费者的通胀预期全面上升，这对正在评估伊朗战争连锁反应的欧洲央行而言是一个令人担忧的信号。 根据欧洲央行周二发布的月度消费者调查显示，未来12个月物价预计将上升4%，高于2月的2.5%。对未来三年的通胀预期从2.5%升至3.0%，略低于2022年10月上次物价飙升时达到的3.1%峰值。 五年的通胀预期从2.3%小幅升至2.4%，进一步偏离欧洲央行2%的中期通胀目标。
+在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。 特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进
 
 ## 正文
 
-欧元区3月消费者的通胀预期全面上升，这对正在评估伊朗战争连锁反应的欧洲央行而言是一个令人担忧的信号。
+在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。
 
-根据欧洲央行周二发布的月度消费者调查显示，未来12个月物价预计将上升4%，高于2月的2.5%。
+” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。
 
-对未来三年的通胀预期从2.5%升至3.0%，略低于2022年10月上次物价飙升时达到的3.1%峰值。
+他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。
 
-五年的通胀预期从2.3%小幅升至2.4%，进一步偏离欧洲央行2%的中期通胀目标。
+因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。
 
-欧洲央行正密切关注能源成本高企是否会促使工人要求加薪，并导致企业上调售价。
+特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进攻能力、无论他们还剩下什么进攻能力方面，我们还有更多工作要做”。
 
-除汽油等商品之外的第二轮通胀效应可能会引发加息，尽管周四政策会议料将维持利率不变。
-
-彭博调查的市场参与者和经济学家预测，6月会议将加息25个基点。
-
-交易员预计年底前还将有一次加息。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 18:08 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 18:07 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 18:18 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 18:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 17:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 18:09 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 18:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 18:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 18:21 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 18:11 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 18:19 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 18:10 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 18:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 18:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 18:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 18:28 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 18:27 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 18:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 18:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 18:13 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 18:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/5428617.shtml)
-- 2026-06-29 18:16 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/873281.shtml)
-- 2026-06-29 18:10 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/415538.shtml)
-- 2026-06-29 17:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/94260972245.shtml)
-- 2026-06-29 18:06 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/149923830673.shtml)
-- 2026-06-29 17:59 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/42689347.shtml)
-- 2026-06-29 18:14 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/0045595.shtml)
-- 2026-06-29 17:55 - [王楚钦开门红](http://www.blog.minike.top/Article/details/49119362.shtml)
-- 2026-06-29 18:20 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/204064446.shtml)
-- 2026-06-29 18:18 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/959610820172.shtml)
-- 2026-06-29 18:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/433018.shtml)
-- 2026-06-29 18:11 - [王楚钦开门红](https://www.blog.minike.top/Article/details/10888.shtml)
-- 2026-06-29 17:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/33828.shtml)
-- 2026-06-29 18:02 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/62677060.shtml)
-- 2026-06-29 18:13 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/511584767844.shtml)
+- 2026-06-29 18:19 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/30276514.shtml)
+- 2026-06-29 18:21 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/17949637085.shtml)
+- 2026-06-29 18:16 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/3302383152.shtml)
+- 2026-06-29 18:12 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/281923978142.shtml)
+- 2026-06-29 18:06 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/469496662.shtml)
+- 2026-06-29 18:23 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/94392130183.shtml)
+- 2026-06-29 18:10 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/71561714.shtml)
+- 2026-06-29 18:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/3208338770.shtml)
+- 2026-06-29 18:10 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/009913726.shtml)
+- 2026-06-29 18:22 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/45563.shtml)
+- 2026-06-29 18:15 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/806978563.shtml)
+- 2026-06-29 18:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/0810180839.shtml)
+- 2026-06-29 18:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/5006318.shtml)
+- 2026-06-29 18:06 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/385787.shtml)
+- 2026-06-29 18:22 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/89625347.shtml)

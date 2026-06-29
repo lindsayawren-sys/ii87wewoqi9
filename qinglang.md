@@ -1,60 +1,59 @@
-# 野村股价下挫 第四财季利润不及分析师预期
+# 全国社保基金副理事长王文灵被查，长期在金融领域任职
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-野村控股股价下跌，此前该公司公布的第四财季利润低于分析师预期，原因是资产减记和欧洲业务亏损。 这份业绩报告在上周五收盘后公布，抵消了这家日本最大券商连续第二年净利润创纪录的积极表现。股价周一早盘在东京股市一度下跌6.5%，今年以来累计下跌超过4%，与基准东证指数9.7%的涨幅形成鲜明对比。 截至3月31日的三个月，净利润同比增长2.7%至739亿日元（4.63亿美元），低于分析
+据界面新闻查询中央纪委国家监委网站获悉，全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，王文灵‌于1966年10月出生，江西上高人，经济学博士。他长期在金融与社会保障领域任职，2002年进入全国社会保障基金理事会，历任法规及监管部主任、党组成员，2015年8月起任副理事长。 根据2018年国务院机构改
 
 ## 正文
 
-野村控股股价下跌，此前该公司公布的第四财季利润低于分析师预期，原因是资产减记和欧洲业务亏损。
+据界面新闻查询中央纪委国家监委网站获悉，全国社会保障基金理事会党组成员、副理事长王文灵涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-这份业绩报告在上周五收盘后公布，抵消了这家日本最大券商连续第二年净利润创纪录的积极表现。
+公开资料显示，王文灵‌于1966年10月出生，江西上高人，经济学博士。
 
-股价周一早盘在东京股市一度下跌6.5%，今年以来累计下跌超过4%，与基准东证指数9.7%的涨幅形成鲜明对比。
+他长期在金融与社会保障领域任职，2002年进入全国社会保障基金理事会，历任法规及监管部主任、党组成员，2015年8月起任副理事长。
 
-截至3月31日的三个月，净利润同比增长2.7%至739亿日元（4.63亿美元），低于分析师预期的989亿日元。
+根据2018年国务院机构改革方案，全国社会保障基金理事会由原国务院直属的正部级事业单位，调整为由财政部管理的事业单位。
 
-尽管野村全年利润创下3621亿日元的历史新高，但季度业绩可能再次引发人们对其持续盈利能力的质疑。
+副理事长‌属于中央管理的干部，由国务院任命。
 
-野村一直受益于全球市场的波动以及国内投资和并购活动的蓬勃发展。
+作为曾主管社保基金法规与监管、后任副理事长的人物，王文灵掌握着国家养老储备资金的运作话语权。
 
-随着伊朗战争给全球经济带来压力，未来几个季度可能对首席执行官Kentaro Okuda构成考验。
+截至2025年底，全国基本养老、失业、工伤保险参保人数分别为10.76亿人、2.49亿人、3.05亿人，分别比上年底增加316万人、329万人、102万人。
 
-责任编辑：王永生
+全年三项社会保险基金总收入9.1万亿元、总支出8.1万亿元，年底累计结余10.2万亿元，基金运行总体平稳。
 
 ## 相关推荐
 
-- 2026-06-29 18:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 17:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 18:12 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 18:17 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 18:04 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 18:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 18:02 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 18:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 18:19 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 18:21 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 18:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 18:07 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 18:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 18:05 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 18:11 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 18:23 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 18:20 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 18:18 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 18:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 18:22 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 18:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 18:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 18:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 18:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 18:17 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 18:28 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 18:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/15079168.shtml)
-- 2026-06-29 18:09 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/579635020.shtml)
-- 2026-06-29 18:14 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/50903.shtml)
-- 2026-06-29 18:22 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/589527.shtml)
-- 2026-06-29 18:00 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/80602010913.shtml)
-- 2026-06-29 17:55 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/09950059143.shtml)
-- 2026-06-29 17:54 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/0369536506.shtml)
-- 2026-06-29 18:18 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/913661.shtml)
-- 2026-06-29 18:15 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/148090333944.shtml)
-- 2026-06-29 18:01 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/044888.shtml)
-- 2026-06-29 18:12 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/2441842.shtml)
-- 2026-06-29 18:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/683006.shtml)
-- 2026-06-29 17:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/2173158.shtml)
-- 2026-06-29 18:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/9162027.shtml)
-- 2026-06-29 17:55 - [女心理师](https://www.share.kurohicncr.top/Article/details/27463249985.shtml)
+- 2026-06-29 18:23 - [小娘惹](https://www.blog.minike.top/Article/details/24485.shtml)
+- 2026-06-29 18:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/464360.shtml)
+- 2026-06-29 18:08 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/255420.shtml)
+- 2026-06-29 18:21 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/218781574374.shtml)
+- 2026-06-29 18:26 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/11069501561.shtml)
+- 2026-06-29 18:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/546066641602.shtml)
+- 2026-06-29 18:12 - [AG 宫斗](https://www.share.minike.top/Article/details/490853352934.shtml)
+- 2026-06-29 18:07 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/161045252399.shtml)
+- 2026-06-29 18:25 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/0293649524.shtml)
+- 2026-06-29 18:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/2100133169.shtml)
+- 2026-06-29 18:04 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/8571260.shtml)
+- 2026-06-29 18:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/6888823.shtml)
+- 2026-06-29 18:16 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/20462137890.shtml)
+- 2026-06-29 18:19 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/66143722089.shtml)
+- 2026-06-29 18:08 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/76447980.shtml)

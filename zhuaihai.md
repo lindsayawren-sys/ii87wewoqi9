@@ -1,55 +1,58 @@
-# 大和证券将斥资23亿美元收购欧力士银行 拓展贷款业务
+# 加州理工学院研究人员声称可对高保真AI模型进行颠覆性压缩
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。 该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。交易预计将于10月底前完成。 大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。这一数字超过五位分析师平均预期的420亿日元
+加州理工学院的电脑科学家兼数学家巴巴克·哈西比（Babak Hassibi）领导的一个研究团队表示，他们已经创建了一款大语言模型，可以在不影响性能的情况下大幅压缩模型大小。 这家名为PrismML的公司周二结束隐身模式，并将其1-bit技术模型开源，供他人使用。 哈西比表示，PrismML开发了一种极致的压缩技术，既能让AI在手机、笔记本电脑和其他设备上本地运行，也能助力数据中
 
 ## 正文
 
-大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。
+加州理工学院的电脑科学家兼数学家巴巴克·哈西比（Babak Hassibi）领导的一个研究团队表示，他们已经创建了一款大语言模型，可以在不影响性能的情况下大幅压缩模型大小。
 
-该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。
+这家名为PrismML的公司周二结束隐身模式，并将其1-bit技术模型开源，供他人使用。
 
-交易预计将于10月底前完成。
+哈西比表示，PrismML开发了一种极致的压缩技术，既能让AI在手机、笔记本电脑和其他设备上本地运行，也能助力数据中心的建设，使其能用更少的资源完成更多任务，并避免能源成本的急剧膨胀。
 
-大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。
+该公司的首席执行官哈西比说：“我们花费了数年时间来发展压缩神经网络而不损失其推理能力所需的数学理论。
 
-这一数字超过五位分析师平均预期的420亿日元。
+”他还说：“我们正在为AI创造一种新的范式：一种能够适应不同硬件环境，并在每单位计算和能源下提供最大智能的范式。
 
-责任编辑：刘明亮
+” 其他同样来自加州理工学院的联合创始人包括萨欣·拉莱（Sahin Lale）、奥米德·普拉赞迪（Omead Pooladzandi）和雷扎·萨德里（Reza Sadri），后者同时也是公司战略副总裁。
+
+哈西比说，该知识产权归加州理工学院所有，PrismML是唯一的独家被许可方。
+
+该公司在SAFE和种子轮融资中筹集了1625万美元，投资者包括Khosla Ventures、Cerberus Capital和加州理工学院。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 18:18 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 18:07 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 18:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 18:18 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 18:00 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 18:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 18:11 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 17:56 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:55 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:04 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 17:57 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 18:18 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 18:24 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 18:29 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 18:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 18:03 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 18:17 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 18:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 18:28 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 18:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 18:13 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 18:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/95189.shtml)
-- 2026-06-29 18:01 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/2424696.shtml)
-- 2026-06-29 18:13 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/398612733.shtml)
-- 2026-06-29 18:23 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/9558483.shtml)
-- 2026-06-29 18:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/25894461631.shtml)
-- 2026-06-29 18:18 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/58368479.shtml)
-- 2026-06-29 18:12 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/33255533.shtml)
-- 2026-06-29 18:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/9515853.shtml)
-- 2026-06-29 17:59 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/991271405.shtml)
-- 2026-06-29 17:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/22334140876.shtml)
-- 2026-06-29 18:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/199937.shtml)
-- 2026-06-29 17:57 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/4007727.shtml)
-- 2026-06-29 18:15 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/950416034.shtml)
-- 2026-06-29 18:10 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/1154713740.shtml)
-- 2026-06-29 18:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/13676.shtml)
+- 2026-06-29 18:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/835935881661.shtml)
+- 2026-06-29 18:06 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/08470020483.shtml)
+- 2026-06-29 18:28 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/307413553918.shtml)
+- 2026-06-29 18:28 - [TTG KSG](https://www.share.minike.top/Article/details/190503094.shtml)
+- 2026-06-29 18:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/23953509.shtml)
+- 2026-06-29 18:17 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/355433880706.shtml)
+- 2026-06-29 18:18 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/6453115.shtml)
+- 2026-06-29 18:19 - [中国战机大片上新](http://www.blog.minike.top/Article/details/986316806178.shtml)
+- 2026-06-29 18:26 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/05941.shtml)
+- 2026-06-29 18:08 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/62739796.shtml)
+- 2026-06-29 18:26 - [叠纸](http://www.blog.kurohicncr.top/Article/details/134957662.shtml)
+- 2026-06-29 18:29 - [一见倾心](http://www.share.minike.top/Article/details/2546266121.shtml)
+- 2026-06-29 18:09 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/765754821166.shtml)
+- 2026-06-29 18:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/94912014558.shtml)
+- 2026-06-29 18:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/4570223240.shtml)

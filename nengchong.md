@@ -1,52 +1,61 @@
-# 南苏丹一架飞机在朱巴附近坠毁 14人遇难
+# 中国“两高”发文 依法惩治民航“机闹”犯罪行为
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网4月28日电 据路透社报道，当地时间27日，南苏丹民航局表示，一架飞机在南苏丹首都朱巴西南方向坠毁，机上14人全部遇难。 南苏丹民航局在一份声明中说，这架由CityLink航空公司运营的塞斯纳208“大篷车”飞机，在从耶伊飞往朱巴国际机场的途中失去联系。 声明称，飞机于当地时间9时15分起飞，并于9时43分失去联系。机上共有13名乘客和1名飞行员，其中包括2名肯尼亚公民和
+中新社北京4月8日电 (记者 张素)中国最高人民法院、最高人民检察院8日联合发布关于办理危害民航飞行安全刑事案件适用法律若干问题的解释。 司法解释共7条，其中明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为。 根据司法解释，并非所有违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以
 
 ## 正文
 
-中新网4月28日电 据路透社报道，当地时间27日，南苏丹民航局表示，一架飞机在南苏丹首都朱巴西南方向坠毁，机上14人全部遇难。
+中新社北京4月8日电 (记者 张素)中国最高人民法院、最高人民检察院8日联合发布关于办理危害民航飞行安全刑事案件适用法律若干问题的解释。
 
-南苏丹民航局在一份声明中说，这架由CityLink航空公司运营的塞斯纳208“大篷车”飞机，在从耶伊飞往朱巴国际机场的途中失去联系。
+司法解释共7条，其中明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为。
 
-声明称，飞机于当地时间9时15分起飞，并于9时43分失去联系。
+根据司法解释，并非所有违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
 
-机上共有13名乘客和1名飞行员，其中包括2名肯尼亚公民和12名南苏丹公民。
+对于飞机尚未依靠自身动力移动等情况下违规开启舱门的行为，可以根据有关规定给予行政处罚，并由行为人承担相应的民事赔偿责任。
 
-声明还说，初步报告表明，飞机可能是在恶劣天气，特别是低能见度的情况下坠毁的。
+最高人民法院刑事审判第四庭庭长罗国良介绍，司法解释采用列举式规定，对在飞行中的民航飞机上使用暴力行为构成暴力危及飞行安全罪的定罪量刑标准作出了规定，特别明确乘务员属于“飞行安全保障人员”，对飞机乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
+
+实践中，部分行为人编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序。
+
+罗国良说，司法解释进一步突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的惩治力度。
+
+其中规定，行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 18:00 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 17:55 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 18:23 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 18:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 18:05 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 18:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:11 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 18:19 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 18:01 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 17:57 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 18:05 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 18:11 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 18:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:10 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:19 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 18:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 18:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 18:29 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 18:28 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 18:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 18:20 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 18:08 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 18:02 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 18:28 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 18:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 18:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/65995.shtml)
-- 2026-06-29 18:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/9788262436.shtml)
-- 2026-06-29 17:58 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/130056364818.shtml)
-- 2026-06-29 18:13 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/58578.shtml)
-- 2026-06-29 17:57 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/5736622102.shtml)
-- 2026-06-29 18:12 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/13156510.shtml)
-- 2026-06-29 18:01 - [乔家的儿女](https://www.share.minike.top/Article/details/032078833.shtml)
-- 2026-06-29 17:55 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/863661990529.shtml)
-- 2026-06-29 17:57 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/043596066.shtml)
-- 2026-06-29 18:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/598219893356.shtml)
-- 2026-06-29 18:18 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/3224800063.shtml)
-- 2026-06-29 18:00 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/35335470642.shtml)
-- 2026-06-29 18:07 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/823136.shtml)
-- 2026-06-29 18:00 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/770676062.shtml)
-- 2026-06-29 17:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/540880709850.shtml)
+- 2026-06-29 18:07 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/66621315.shtml)
+- 2026-06-29 18:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/862115947.shtml)
+- 2026-06-29 18:19 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/022256660244.shtml)
+- 2026-06-29 18:14 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/43785319161.shtml)
+- 2026-06-29 18:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/378408.shtml)
+- 2026-06-29 18:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/58100334.shtml)
+- 2026-06-29 18:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/7069236.shtml)
+- 2026-06-29 18:23 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/8533676.shtml)
+- 2026-06-29 18:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/06135.shtml)
+- 2026-06-29 18:23 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/502560.shtml)
+- 2026-06-29 18:23 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/934442760950.shtml)
+- 2026-06-29 18:06 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/2356821222.shtml)
+- 2026-06-29 18:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/90544595.shtml)
+- 2026-06-29 18:23 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/355727.shtml)
+- 2026-06-29 18:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/57100.shtml)

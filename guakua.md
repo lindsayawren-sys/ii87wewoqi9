@@ -1,59 +1,47 @@
-# 罗杰斯通信向半数员工提供买断计划，电信行业增长放缓助推成本调整
+# 新秀丽授出受限制股份单位
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-加拿大电信运营商罗杰斯通信公司周一宣布，将向约半数员工提供自愿离职买断计划。这是近年来加拿大电信行业规模最大的买断计划之一，正值行业增长放缓和竞争加剧之际。 买断计划覆盖约1.25万名员工 据《环球邮报》报道，罗杰斯通信约2.5万名员工中，约有50%将获得自愿离职或提前退休方案。该公司尚未透露具体的裁员目标人数。罗杰斯发言人在一份声明中表示：“我们正在采取措施调整成本结构，以适
+新秀丽（01910）发布公告，于2026年4月2日，公司根据2022年股份奖励计划向公司及其附属公司的新雇员授出时间挂钩受限制股份单位。与所授出时间挂钩受限制股份单位有关的公司股本中的普通股数目为78.94万股。责任编辑：卢昱君
 
 ## 正文
 
-加拿大电信运营商罗杰斯通信公司周一宣布，将向约半数员工提供自愿离职买断计划。
+新秀丽（01910）发布公告，于2026年4月2日，公司根据2022年股份奖励计划向公司及其附属公司的新雇员授出时间挂钩受限制股份单位。
 
-这是近年来加拿大电信行业规模最大的买断计划之一，正值行业增长放缓和竞争加剧之际。
+与所授出时间挂钩受限制股份单位有关的公司股本中的普通股数目为78.94万股。
 
-买断计划覆盖约1.25万名员工 据《环球邮报》报道，罗杰斯通信约2.5万名员工中，约有50%将获得自愿离职或提前退休方案。
-
-该公司尚未透露具体的裁员目标人数。
-
-罗杰斯发言人在一份声明中表示：“我们正在采取措施调整成本结构，以适应当前环境的业务现实。
-
-作为其中的一部分，一些团队选择提供自愿离职和退休计划，让员工可以选择是继续留在公司还是开启新的篇章。
-
-” 据报道，包括在播人才、Sportsnet员工及工会雇员在内的部分团队不在此次买断计划的适用范围内。
-
-行业增长放缓驱动成本调整 此次买断计划正值加拿大电信行业增长放缓之际。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 18:05 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 17:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 18:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 18:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 18:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 17:59 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 17:56 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 17:58 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:57 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 18:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 18:06 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 18:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 18:27 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 18:15 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 18:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 18:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 18:18 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 18:26 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 18:16 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:28 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 18:27 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/39817354.shtml)
-- 2026-06-29 18:12 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/89198304140.shtml)
-- 2026-06-29 18:23 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4214759.shtml)
-- 2026-06-29 18:16 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/155936540657.shtml)
-- 2026-06-29 18:01 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/59462.shtml)
-- 2026-06-29 18:19 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/910300612571.shtml)
-- 2026-06-29 18:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/00545026645.shtml)
-- 2026-06-29 18:01 - [黄金也扛不住了](http://www.share.minike.top/Article/details/0624313.shtml)
-- 2026-06-29 18:18 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/548372.shtml)
-- 2026-06-29 18:04 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/9570717296.shtml)
-- 2026-06-29 18:18 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/920792406.shtml)
-- 2026-06-29 18:21 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/52222977.shtml)
-- 2026-06-29 18:14 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/48048.shtml)
-- 2026-06-29 17:55 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/7143491.shtml)
-- 2026-06-29 17:57 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/80041377.shtml)
+- 2026-06-29 18:21 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/36597506.shtml)
+- 2026-06-29 18:03 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/67348.shtml)
+- 2026-06-29 18:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/31372850.shtml)
+- 2026-06-29 18:24 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/393847.shtml)
+- 2026-06-29 18:21 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/3563442.shtml)
+- 2026-06-29 18:04 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/6080319866.shtml)
+- 2026-06-29 18:08 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/4255473.shtml)
+- 2026-06-29 18:22 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/8776598804.shtml)
+- 2026-06-29 18:26 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/76227.shtml)
+- 2026-06-29 18:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/63912.shtml)
+- 2026-06-29 18:01 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/39428381.shtml)
+- 2026-06-29 18:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/795037.shtml)
+- 2026-06-29 18:05 - [中国战机大片上新](https://www.blog.minike.top/Article/details/3926039.shtml)
+- 2026-06-29 18:03 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/73376122815.shtml)
+- 2026-06-29 18:02 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/3418935021.shtml)

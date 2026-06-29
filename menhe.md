@@ -1,59 +1,57 @@
-# 英国AI初创公司Ineffable完成11亿美元种子轮融资，创欧洲纪录
+# 韩国前总理韩德洙涉内乱案二审被求刑23年
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-由前DeepMind顶尖研究员大卫·西尔弗联合创立的英国人工智能公司Ineffable Intelligence周一宣布，已完成11亿美元的种子轮融资，创下欧洲有史以来最大种子轮融资纪录，公司估值达51亿美元。 本轮融资由红杉资本和光速资本联合领投，英伟达、谷歌、DST Global、Index Ventures、EQT Ventures等硅谷重量级投资机构参与。英国政府也通过
+新华社首尔4月7日电(记者黄莹莹)据韩联社7日报道，韩国前国务总理韩德洙涉内乱案二审庭审当天在首尔高等法院举行，负责调查紧急戒严事件的特检组提出要求判处其23年有期徒刑的量刑建议。 2025年11月，特检组以涉嫌“协同内乱”等罪行向法院求处韩德洙15年有期徒刑。1月21日，首尔中央地方法院就该案作出一审判决，判处韩德洙有期徒刑23年，远超特检组求刑刑期。但随后，特检组仍就该案一
 
 ## 正文
 
-由前DeepMind顶尖研究员大卫·西尔弗联合创立的英国人工智能公司Ineffable Intelligence周一宣布，已完成11亿美元的种子轮融资，创下欧洲有史以来最大种子轮融资纪录，公司估值达51亿美元。
+新华社首尔4月7日电(记者黄莹莹)据韩联社7日报道，韩国前国务总理韩德洙涉内乱案二审庭审当天在首尔高等法院举行，负责调查紧急戒严事件的特检组提出要求判处其23年有期徒刑的量刑建议。
 
-本轮融资由红杉资本和光速资本联合领投，英伟达、谷歌、DST Global、Index Ventures、EQT Ventures等硅谷重量级投资机构参与。
+2025年11月，特检组以涉嫌“协同内乱”等罪行向法院求处韩德洙15年有期徒刑。
 
-英国政府也通过其主权AI基金和英国商业银行参与投资，后者单独投入了2000万美元。
+1月21日，首尔中央地方法院就该案作出一审判决，判处韩德洙有期徒刑23年，远超特检组求刑刑期。
 
-Ineffable由西尔弗于2025年底创立。
+但随后，特检组仍就该案一审判决结果中无罪判决部分提起抗诉。
 
-西尔弗是强化演进领域的全球顶尖专家，在DeepMind期间主导了AlphaGo、AlphaZero、AlphaFold等里程碑式项目的研发。
+2024年12月3日晚，韩国时任总统尹锡悦以铲除“从北势力”为由发布紧急戒严令。
 
-该公司致力于构建一种名为“超级演进器”的AI系统——该技术无需依赖人类生成的数据，能够通过自身经验自主演进，从基础运动技能到重大知识突破，自主发现新知识。
+次日凌晨，韩国国会通过要求解除戒严令的决议案。
 
-西尔弗表示：“世界需要一个能够让强化演进范式充分发展的理想之地。
+此后，尹锡悦先后被停职、逮捕、弹劾。
 
-我拥有独特的机会来打造这个地方，依托我的领导力、愿景、过往成就和团队实力。
+2025年8月，特检组以涉嫌协助内乱、制造虚假公文、损坏公共文件、作伪证等罪名对韩德洙提起公诉。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 17:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 18:21 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 18:07 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 18:03 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 18:13 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 17:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 18:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 17:57 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 18:10 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 18:17 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 18:09 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 18:23 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 18:21 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:16 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 18:12 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 18:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 18:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 18:15 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 18:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 18:13 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:03 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 18:15 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/980829.shtml)
-- 2026-06-29 18:11 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/31931.shtml)
-- 2026-06-29 18:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/954496.shtml)
-- 2026-06-29 18:10 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/34052027.shtml)
-- 2026-06-29 18:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/68955.shtml)
-- 2026-06-29 18:02 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/312769817.shtml)
-- 2026-06-29 18:13 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/343970359236.shtml)
-- 2026-06-29 18:20 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/38762.shtml)
-- 2026-06-29 17:56 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/0501918865.shtml)
-- 2026-06-29 18:06 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/49276.shtml)
-- 2026-06-29 17:59 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/389340.shtml)
-- 2026-06-29 18:23 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/84899.shtml)
-- 2026-06-29 18:11 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/28010176837.shtml)
-- 2026-06-29 18:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/63385531087.shtml)
-- 2026-06-29 18:11 - [人形机器人](https://www.share.kurohicncr.top/Article/details/26031522871.shtml)
+- 2026-06-29 18:08 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/7450169772.shtml)
+- 2026-06-29 18:04 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/82703603.shtml)
+- 2026-06-29 18:11 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/206406.shtml)
+- 2026-06-29 18:23 - [请回答王牌2019](https://www.share.minike.top/Article/details/05988884.shtml)
+- 2026-06-29 18:17 - [斗破苍穹](http://www.share.minike.top/Article/details/7201956294.shtml)
+- 2026-06-29 18:04 - [东方风云榜](http://www.blog.minike.top/Article/details/94618453355.shtml)
+- 2026-06-29 18:11 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/6733171687.shtml)
+- 2026-06-29 18:15 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/32330774.shtml)
+- 2026-06-29 18:01 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/81427.shtml)
+- 2026-06-29 18:05 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/365887565939.shtml)
+- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/5860907.shtml)
+- 2026-06-29 18:22 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/329416.shtml)
+- 2026-06-29 18:10 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/399145558.shtml)
+- 2026-06-29 18:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/2351148689.shtml)
+- 2026-06-29 18:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/47857.shtml)

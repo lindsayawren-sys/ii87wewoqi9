@@ -1,59 +1,58 @@
-# 8000美元金价？德银给出五年目标价，底气来自哪里？
+# 中信建投期货：4月8日农产品早报
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-来源：金十 据德意志银行分析，随着各国央行将黄金在储备资产中的比重不断提高，这种贵金属仍有进一步上涨的空间。 该行策略师马利卡·萨奇德瓦（Mallika Sachdeva）在周一发布的一份报告中指出，由于货币政策制定者需要寻求对冲地缘政治动荡的工具，黄金在全球央行储备中的占比已从1990年代的约10%上升至如今的30%。与此同时，美元在外国央行储备中的占比已从60%以上下降至4
+玉米：中性 1．市场关注：隔夜受燃料题材牵引，美玉米明显回调，或带动内盘小幅下跌；猪粮比加速恶化，4月第一周已跌至3.57：1，连续8周处于过度下跌一级预警区间；玉米淀粉行业利润有所好转，企业开机率逐步升高，不过目前深加工企业库存已经回归安全线，4月下旬之前暂无大规模补库需求出现的可能。 2．观点总结：下游与渠道库存放量达成阶段性平衡，周内横盘判断，下方支撑2330元/吨，上方
 
 ## 正文
 
-来源：金十 据德意志银行分析，随着各国央行将黄金在储备资产中的比重不断提高，这种贵金属仍有进一步上涨的空间。
+玉米：中性 1．市场关注：隔夜受燃料题材牵引，美玉米明显回调，或带动内盘小幅下跌；猪粮比加速恶化，4月第一周已跌至3.57：1，连续8周处于过度下跌一级预警区间；玉米淀粉行业利润有所好转，企业开机率逐步升高，不过目前深加工企业库存已经回归安全线，4月下旬之前暂无大规模补库需求出现的可能。
 
-该行策略师马利卡·萨奇德瓦（Mallika Sachdeva）在周一发布的一份报告中指出，由于货币政策制定者需要寻求对冲地缘政治动荡的工具，黄金在全球央行储备中的占比已从1990年代的约10%上升至如今的30%。
+2．观点总结：下游与渠道库存放量达成阶段性平衡，周内横盘判断，下方支撑2330元/吨，上方2380元/吨，关注4-6月种植季天气演变及成本传导的实际影响。
 
-与此同时，美元在外国央行储备中的占比已从60%以上下降至40%。
+策略上以区间操作对待，不宜追高。
 
-萨奇德瓦表示： “美元与黄金在储备中的占比差距现在仅有10个百分点，这一点极其值得关注。
+豆粕：中性 1．美伊双方阶段性接受停火提议，地缘叙事降温，隔夜CBOT大豆震荡收跌。
 
-” 这位驻伦敦的策略师认为，各国央行似乎正在逆转1990年代的趋势——当时它们将资产配置从黄金转向美元。
+随着种植意向报告以及美国生物燃料掺混目标相继落地，海外市场等待北美新季种植进度给予新的指引； 2．国内市场对前期围绕到港延迟题材的交易持续纠偏，叠加成本端支撑不足，连盘豆粕基本回吐此前涨幅，短期关注巴西大豆实际到港节奏。
 
-萨奇德瓦也承认，黄金在央行储备中占比上升的部分，约有80%是由于金价本身的上涨而非新增购买。
+观点总结：观望为主，预计09合约日内运行区间2900-3000元/吨。
 
-去年，黄金录得了自1979年以来的最强年度涨幅，颇具讽刺意味的是，那一年正是伊朗革命发生之年。
+鸡蛋：中性 主产区现货价格震荡，河北馆陶现货报价3.07元/斤，较上一日持平。
 
-过去12个月里，金价已累计上涨超过40%。
+养殖利润由亏转微利，约 +0.1-0.2元/斤。
 
 ## 相关推荐
 
-- 2026-06-29 17:55 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 18:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 17:54 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 17:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 18:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 18:02 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 18:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 18:19 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 18:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 18:11 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 18:14 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 18:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 18:13 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 18:04 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 18:03 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 18:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 18:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 18:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 18:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:14 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 18:09 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 18:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 18:18 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 18:23 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 18:21 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/129161.shtml)
-- 2026-06-29 18:17 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/95215.shtml)
-- 2026-06-29 18:07 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/11688.shtml)
-- 2026-06-29 18:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/87478.shtml)
-- 2026-06-29 18:15 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/7294140671.shtml)
-- 2026-06-29 17:59 - [一生一世](http://www.blog.kurohicncr.top/Article/details/012741134.shtml)
-- 2026-06-29 18:08 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/065226639856.shtml)
-- 2026-06-29 18:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/898314812938.shtml)
-- 2026-06-29 18:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/455687032.shtml)
-- 2026-06-29 17:58 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/109367202.shtml)
-- 2026-06-29 18:13 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/3061854519.shtml)
-- 2026-06-29 18:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/2320095762.shtml)
-- 2026-06-29 18:20 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/24329045.shtml)
-- 2026-06-29 18:23 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/48593573636.shtml)
-- 2026-06-29 18:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/4624764606.shtml)
+- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/509151975.shtml)
+- 2026-06-29 18:01 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/8474838276.shtml)
+- 2026-06-29 18:02 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/6702906992.shtml)
+- 2026-06-29 18:07 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/8280805383.shtml)
+- 2026-06-29 18:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/628047.shtml)
+- 2026-06-29 18:07 - [请回答王牌2019](http://www.blog.minike.top/Article/details/68179948710.shtml)
+- 2026-06-29 18:01 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/177511.shtml)
+- 2026-06-29 18:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/13110812.shtml)
+- 2026-06-29 18:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/92436178009.shtml)
+- 2026-06-29 18:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/50597782260.shtml)
+- 2026-06-29 18:12 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/667055.shtml)
+- 2026-06-29 18:12 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/206511276.shtml)
+- 2026-06-29 18:08 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/2469870088.shtml)
+- 2026-06-29 18:15 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/38783938.shtml)
+- 2026-06-29 18:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/76954.shtml)

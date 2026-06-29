@@ -1,56 +1,44 @@
-# 海口海关303会议室扩声系统更新项目比选公告
+# 密码学者Adam Back否认自己是中本聪
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-一、采购条件 海口海关303会议室扩声系统更新项目已获批准实施，项目业主为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关303会议室扩声系统更新项目；(二)为确保关区日常会议需求，拟采购海口海关303会议室扩声系统更新项目。项目具体内容及需求请
+《纽约时报》一篇文章将他与比特币创始人联系起来后，密码学家、密码朋克邮件列表的活跃成员、Hashcash工作量证明系统的发明者Adam Back否认了自己是中本聪；这一被《纽约时报》强调的重新出现的猜测引发了新的关注。责任编辑：张俊 SF065
 
 ## 正文
 
-一、采购条件 海口海关303会议室扩声系统更新项目已获批准实施，项目业主为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关。
+《纽约时报》一篇文章将他与比特币创始人联系起来后，密码学家、密码朋克邮件列表的活跃成员、Hashcash工作量证明系统的发明者Adam Back否认了自己是中本聪；这一被《纽约时报》强调的重新出现的猜测引发了新的关注。
 
-项目已具备采购条件，现对该项目进行比选采购。
-
-二、项目概况与采购范围 (一)项目名称：海口海关303会议室扩声系统更新项目；(二)为确保关区日常会议需求，拟采购海口海关303会议室扩声系统更新项目。
-
-项目具体内容及需求请参考《海口海关303会议室扩声系统更新项目采购需求书》； (三)交货期：合同签订之日起25日内交货并安装完毕可投入使用； (四)质保期：产品安装调试经用户验收合格当天起计算，质保期3年； (五)质量要求：达到国家及相关行业的合格标准； (六)最高限价：人民币95188.00元； (七)交货地点：海口市滨海大道61号。
-
-三、比选申请人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)； (二)具备能承办本项目的有效合法证照(证照中营业范围、业务范围与本项目相关)； (三)截至报名截止之日未被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单(需提供书面承诺函并加盖供应商公章，并且单位负责人签字或盖章)； (四)具有履行合同所必需的设备和专业技术能力(需提供书面承诺函并加盖供应商公章，并且单位负责人签字或盖章)； (五)参加本项目比选活动前三年内，在经营活动中没有重大违法记录(需提供书面声明函并加盖供应商公章，并且单位负责人签字或盖章)； (六)本次比选不接受联合体参加。
-
-四、报名及比选文件获取 (一)报名时间：2026年4月27日至2026年4月30日，上午8:30至12:00，下午14:30至17:00(北京时间，下同)； (二)报名地点：海口海关办公楼九楼904房(地址：海口市滨海大道61号海口海关)； (三)报名时须递交以下报名材料(材料均须加盖单位公章)： 1.介绍报名人前来报名的单位介绍信(含报名人手机号码及电子邮箱等)； 2.单位营业执照复印件或事业单位法人证书复印件； 3.报名人身份证复印件； (四)采购人根据报名情况，另行通知报名单位领取比选文件。
-
-五、响应文件递交 (一)响应文件递交的截止时间为2026年5月13日17:00，地点为海口海关办公楼九楼904房(海口市滨海大道61号海口海关)； (二)逾期送达的或者未送达指定地点的响应文件，采购人一律拒收。
-
-六、发布公告媒介 海口海关门户网。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 18:00 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 18:20 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 18:23 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 18:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 18:06 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 18:20 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 18:22 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 18:21 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 18:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:18 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 18:16 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:19 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 18:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 18:19 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 18:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 18:03 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 18:22 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 18:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/298337.shtml)
-- 2026-06-29 18:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/4014388597.shtml)
-- 2026-06-29 18:07 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/56110422.shtml)
-- 2026-06-29 18:16 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/869599979.shtml)
-- 2026-06-29 17:54 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/01245726.shtml)
-- 2026-06-29 18:00 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/162278919.shtml)
-- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/2931066920.shtml)
-- 2026-06-29 18:15 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/2464844.shtml)
-- 2026-06-29 18:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/659138.shtml)
-- 2026-06-29 18:12 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/685710942425.shtml)
-- 2026-06-29 18:14 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/580277.shtml)
-- 2026-06-29 18:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/3719961539.shtml)
-- 2026-06-29 17:56 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/962907719.shtml)
-- 2026-06-29 18:12 - [沙丘](https://www.blog.kurohicncr.top/Article/details/2935445140.shtml)
-- 2026-06-29 18:16 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/397014721.shtml)
+- 2026-06-29 18:13 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/3697978424.shtml)
+- 2026-06-29 18:07 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/870412.shtml)
+- 2026-06-29 18:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/7121454.shtml)
+- 2026-06-29 18:21 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/9577542.shtml)
+- 2026-06-29 18:29 - [小娘惹](http://www.blog.minike.top/Article/details/30088752517.shtml)
+- 2026-06-29 18:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/520997.shtml)
+- 2026-06-29 18:15 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/261631.shtml)
+- 2026-06-29 18:15 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/241050.shtml)
+- 2026-06-29 18:11 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/5606675787.shtml)
+- 2026-06-29 18:29 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/031960073.shtml)
+- 2026-06-29 18:23 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/395827.shtml)
+- 2026-06-29 18:03 - [《贺子珍》](https://www.share.minike.top/Article/details/097566139.shtml)
+- 2026-06-29 18:17 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/6178219.shtml)
+- 2026-06-29 18:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/812810918.shtml)
+- 2026-06-29 18:15 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/802011243.shtml)

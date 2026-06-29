@@ -1,56 +1,57 @@
-# 中信建投策略周思考：外部风险可控 聚焦三条景气主线
+# 高盛告知急于做空杠杆贷款的客户 其产品尚未准备就绪
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信建投 美伊谈判目前陷入反复拉扯的僵局，油价波动加剧重回105 美元上方。 虽然会构成持续的市场扰动因子，但局势失控并剧烈恶化的尾部风险相对有限，同时A 股也对地缘恐慌有所脱敏。AI 算力板块业绩出现一定扰动，但横向来看仍属于稀缺的高景气方向。财报答卷交出后的市场表现，也反映了AI 算力产业从“主题
+高盛集团告知急于做空杠杆贷款的客户，该行正在开发的一种用于做空这个规模1.4万亿美元市场的产品尚未就绪。 高盛一直在向对冲基金推销总收益互换（TRS），这种衍生品可以让客户从贷款价格下跌中获利，而无需实际持有标的债务。随着市场对人工智能（AI）可能颠覆行业的担忧加剧，软件行业债务遭到抛售，投资者正积极寻找赚钱机会。 据知情人士透露，高盛已告知客户，由于仍在权衡其他因素，目前尚未
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+高盛集团告知急于做空杠杆贷款的客户，该行正在开发的一种用于做空这个规模1.4万亿美元市场的产品尚未就绪。
 
-来源：中信建投 美伊谈判目前陷入反复拉扯的僵局，油价波动加剧重回105 美元上方。
+高盛一直在向对冲基金推销总收益互换（TRS），这种衍生品可以让客户从贷款价格下跌中获利，而无需实际持有标的债务。
 
-虽然会构成持续的市场扰动因子，但局势失控并剧烈恶化的尾部风险相对有限，同时A 股也对地缘恐慌有所脱敏。
+随着市场对人工智能（AI）可能颠覆行业的担忧加剧，软件行业债务遭到抛售，投资者正积极寻找赚钱机会。
 
-AI 算力板块业绩出现一定扰动，但横向来看仍属于稀缺的高景气方向。
+据知情人士透露，高盛已告知客户，由于仍在权衡其他因素，目前尚未准备好推出该产品。
 
-财报答卷交出后的市场表现，也反映了AI 算力产业从“主题概念”向“业绩兑现”阶段过渡的特征。
+知情人士称，高盛可能需要暂停该计划以进一步修订相关文件。
 
-在景气稀缺的环境下，市场资金选择向高景气赛道集中。
+他们还表示，该产品尚未在任何交易中使用。
 
-整体而言，当前市场正处于景气验证的关键窗口，重点关注三条逻辑主线：AI 算力板块、煤炭煤化工等能源安全板块、中游制造尤其是新能源板块。
+“我们的做市业务以客户需求为导向，”一位高盛发言人表示。
 
-行业重点关注：AI 算力（半导体、光通信等）、油气生产、煤炭、煤化工、电力设备、机械设备等。
+“我们将继续倾听客户的声音，并在各类资产和策略方面与他们保持沟通。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 17:56 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 18:12 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:56 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 17:56 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 18:06 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 18:23 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 18:10 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 18:01 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 18:16 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 18:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 18:01 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 18:27 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 18:16 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 18:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 18:00 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 18:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 18:10 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [AG 宫斗](https://www.blog.minike.top/Article/details/36270887.shtml)
-- 2026-06-29 18:22 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/596520801890.shtml)
-- 2026-06-29 17:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/23367000015.shtml)
-- 2026-06-29 18:20 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/036615265646.shtml)
-- 2026-06-29 18:08 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/27829170224.shtml)
-- 2026-06-29 18:06 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/01957346176.shtml)
-- 2026-06-29 17:56 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/05983699.shtml)
-- 2026-06-29 17:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/689717315306.shtml)
-- 2026-06-29 17:58 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/437297.shtml)
-- 2026-06-29 18:05 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/2551440961.shtml)
-- 2026-06-29 18:03 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/320299.shtml)
-- 2026-06-29 18:21 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/00986963.shtml)
-- 2026-06-29 18:19 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/1351127.shtml)
-- 2026-06-29 18:19 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/74737465.shtml)
-- 2026-06-29 18:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/053348.shtml)
+- 2026-06-29 18:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/681653.shtml)
+- 2026-06-29 18:19 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/00160.shtml)
+- 2026-06-29 18:29 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/48279664.shtml)
+- 2026-06-29 18:21 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/71349603.shtml)
+- 2026-06-29 18:29 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/85816.shtml)
+- 2026-06-29 18:21 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/064950127.shtml)
+- 2026-06-29 18:01 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/80234361.shtml)
+- 2026-06-29 18:25 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/024921535331.shtml)
+- 2026-06-29 18:28 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/92268816765.shtml)
+- 2026-06-29 18:11 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/9940541.shtml)
+- 2026-06-29 18:21 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/664799173713.shtml)
+- 2026-06-29 18:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/35238234.shtml)
+- 2026-06-29 18:14 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/8471068.shtml)
+- 2026-06-29 18:22 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/18743513.shtml)
+- 2026-06-29 18:18 - [起风了](https://www.blog.minike.top/Article/details/018714840724.shtml)

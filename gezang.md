@@ -1,56 +1,60 @@
-# 中信建投基金5年董事长离任，老搭档“上位”接棒！
+# 扣非净利润暴跌4218%！电魂网络的“中年危机”
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-作者 | 刘银平、谢美浴 编辑 | 付影 来源 | 独角金融 中信建投基金管理有限公司（下称“中信建投基金”）迎来新任“掌门人”。 4月24日，中信建投基金发布了一则高管变更公告：原总经理金强正式转任董事长，接替因工作安排离任的黄凌。与此同时，金强还将代为履行总经理职责，董事长、总经理“一肩挑”。 这场核心层的人事轮转中，黄凌与金强均是出身中信建投证券（601066.SH）的老
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 杭州电魂网络科技股份有限公司近日发布2025年年度报告，公司全年实现营业收入3.85亿元，同比下降30.08%；归属于上市公司股东的净利润亏损2.14亿元，同比由盈转亏，降幅达800.23%。这是电魂网络自2016年上市以来首次出现年度亏损。 财报显示，电魂网络2025年扣除非经常性损益的净
 
 ## 正文
 
-作者 | 刘银平、谢美浴 编辑 | 付影 来源 | 独角金融 中信建投基金管理有限公司（下称“中信建投基金”）迎来新任“掌门人”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月24日，中信建投基金发布了一则高管变更公告：原总经理金强正式转任董事长，接替因工作安排离任的黄凌。
+来源：上市之家 杭州电魂网络科技股份有限公司近日发布2025年年度报告，公司全年实现营业收入3.85亿元，同比下降30.08%；归属于上市公司股东的净利润亏损2.14亿元，同比由盈转亏，降幅达800.23%。
 
-与此同时，金强还将代为履行总经理职责，董事长、总经理“一肩挑”。
+这是电魂网络自2016年上市以来首次出现年度亏损。
 
-这场核心层的人事轮转中，黄凌与金强均是出身中信建投证券（601066.SH）的老将，且两人已在中信建投基金“搭班子”超过五年。
+财报显示，电魂网络2025年扣除非经常性损益的净利润为-2.18亿元，同比暴跌4218.31%；基本每股收益为-0.89元/股；经营活动产生的现金流量净额为-2148.59万元，而上一年同期为1.15亿元。
 
-自2021年2月起任董事长的黄凌，如今回归证券母公司执掌财富管理委员会；而自2020年6月便主理公司经营的金强，从“二把手”晋升为“一把手”。
+毛利率从2024年的74.52%下降至64.19%，减少了10.33个百分点。
 
-不过，金强肩挑两职仍面临不小的挑战。
+公司业绩下滑主要受两大因素影响：一是核心产品收入持续萎缩，运营超过15年的《梦三国》系列仍贡献约60%的营收，但该产品收入同比下降明显；二是资产减值计提规模较大，报告期内公司对存在减值迹象的资产计提减值准备共计2.46亿元，其中商誉减值准备1.96亿元，无形资产减值准备0.5亿元，成为导致公司亏损的主要原因。
 
-一方面，中信建投基金在2025年末跻身“千亿公募基金”阵营后，管理规模一季度末又回落至983亿元；另一方面，公司货币及债券基金占比超过80%，权益产品明显弱势。
+与电魂网络的业绩下滑形成对比的是，2025年中国游戏市场呈现稳健增长态势。
 
-在金强的带领下，这家“券商系”公募基金能否在稳住固收基本盘的同时，补齐权益投资领域短板？
+中国音像与数字出版协会发布的《2025年中国游戏产业报告》显示，全年国内游戏市场实际销售收入达3507.89亿元，同比增长7.68%；用户规模为6.83亿，同比增长1.35%，两项指标均创历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 17:54 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 18:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 18:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 18:23 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 18:12 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 18:03 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 17:58 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 18:15 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 18:06 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 18:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 18:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 18:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 18:22 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 18:03 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 18:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 18:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 18:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 18:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 18:14 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 18:29 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 18:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 18:28 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/983179.shtml)
-- 2026-06-29 17:58 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/00577861112.shtml)
-- 2026-06-29 18:02 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/897362470.shtml)
-- 2026-06-29 18:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/96695605.shtml)
-- 2026-06-29 18:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/930604160.shtml)
-- 2026-06-29 18:18 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/685203534494.shtml)
-- 2026-06-29 18:12 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/8294960.shtml)
-- 2026-06-29 17:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/0992784.shtml)
-- 2026-06-29 17:57 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/2105114220.shtml)
-- 2026-06-29 18:16 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/55516849.shtml)
-- 2026-06-29 17:54 - [第一炉香](https://www.blog.minike.top/Article/details/2696867.shtml)
-- 2026-06-29 18:04 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/08167976572.shtml)
-- 2026-06-29 18:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/47137.shtml)
-- 2026-06-29 18:19 - [扬名立万](https://www.blog.minike.top/Article/details/078867.shtml)
-- 2026-06-29 17:56 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/953939231.shtml)
+- 2026-06-29 18:10 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/6343276.shtml)
+- 2026-06-29 18:07 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/18374563.shtml)
+- 2026-06-29 18:07 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/6944152.shtml)
+- 2026-06-29 18:20 - [沙丘](https://www.share.minike.top/Article/details/022648377150.shtml)
+- 2026-06-29 18:23 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/14921.shtml)
+- 2026-06-29 18:25 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/9782428.shtml)
+- 2026-06-29 18:26 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/501391275798.shtml)
+- 2026-06-29 18:20 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/52602098.shtml)
+- 2026-06-29 18:07 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/770113474417.shtml)
+- 2026-06-29 18:26 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/49358088.shtml)
+- 2026-06-29 18:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/616941887535.shtml)
+- 2026-06-29 18:24 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/757262522.shtml)
+- 2026-06-29 18:21 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/9418882.shtml)
+- 2026-06-29 18:03 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/0626400280.shtml)
+- 2026-06-29 18:09 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/591909342253.shtml)

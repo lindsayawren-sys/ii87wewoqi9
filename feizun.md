@@ -1,58 +1,59 @@
-# 斯诺克世锦赛赵心童战胜丁俊晖晋级八强
+# 30余个海内外客属社团河南偃师祖根地拜谒
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新社英国谢菲尔德4月26日电 当地时间26日，2026年斯诺克世界锦标赛16进8轮次较量中备受关注的一场“中国德比”在谢菲尔德克鲁斯堡剧院结束。两位中国斯诺克标志性球员赵心童与丁俊晖经过激烈较量，最终卫冕冠军赵心童以13比9取胜，晋级八强。斯诺克世锦赛是斯诺克最具影响力和最高水平的赛事。此次赵心童与丁俊晖均以种子选手身份参赛，首轮二人分别战胜两位英格兰选手利亚姆·海菲尔德和大
+中新社河南洛阳4月8日电(张楠 连晨宇)第二届客家回家寻根活动8日在河南洛阳偃师区世界客家祖根地纪念公园举行，来自马来西亚、英国等国家和地区的30余个海内外客属社团集聚于此，拜谒寻根。 1700多年前，客家先民首次从汉魏洛阳故城一带南迁，偃师是全球客家公认的客家人首次南迁出发地。如今，世界客家祖根地纪念公园被确定为全球客属永久性拜祖圣地，每两年在此举行一次全球客属拜祖活动。 当
 
 ## 正文
 
-中新社英国谢菲尔德4月26日电 当地时间26日，2026年斯诺克世界锦标赛16进8轮次较量中备受关注的一场“中国德比”在谢菲尔德克鲁斯堡剧院结束。
+中新社河南洛阳4月8日电(张楠 连晨宇)第二届客家回家寻根活动8日在河南洛阳偃师区世界客家祖根地纪念公园举行，来自马来西亚、英国等国家和地区的30余个海内外客属社团集聚于此，拜谒寻根。
 
-两位中国斯诺克标志性球员赵心童与丁俊晖经过激烈较量，最终卫冕冠军赵心童以13比9取胜，晋级八强。
+1700多年前，客家先民首次从汉魏洛阳故城一带南迁，偃师是全球客家公认的客家人首次南迁出发地。
 
-斯诺克世锦赛是斯诺克最具影响力和最高水平的赛事。
+如今，世界客家祖根地纪念公园被确定为全球客属永久性拜祖圣地，每两年在此举行一次全球客属拜祖活动。
 
-此次赵心童与丁俊晖均以种子选手身份参赛，首轮二人分别战胜两位英格兰选手利亚姆·海菲尔德和大卫·吉尔伯特。
+当日，海内外客属代表在鸣炮击鼓声中，面向中原客家先民南迁圣地纪念碑行礼如仪。
 
-这场“中国德比”的两位选手，被外界视为中国斯诺克新旧两代领军人物。
+“礼炮19响，击鼓17通。
 
-赵心童是2025年赛事的外卡“黑马”奇迹创造者，代表锐气与新时代的冲击力。
+”广东韶关客家联谊会客家文化研究中心主任伍学忠向中新社介绍，17通鼓声呼应客家先民首次南迁迄今1700余年的历史跨度，意在铭记迁徙壮举，凝聚宗亲认同。
 
-而39岁的丁俊晖，早已是世界公认的中国斯诺克开拓者与旗帜，此次出战，其稳健、经验与对冠军的持续渴求，同样备受关注。
+众多客家乡亲表示，河洛文化为客家文化之根，可通过深化客家河洛渊源研究、打造沉浸式南迁历史体验带、建设线上客家祖根地数字平台等方式，使洛阳成为全球客家人的情感枢纽与合作平台。
 
-按照赛制，该轮比赛采用25局13胜制，此前比赛中首阶段的八局较量，二人各取四局战平。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 18:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 17:57 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 18:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 17:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 18:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 18:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 18:12 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 18:13 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 18:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 17:58 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 18:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 18:13 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 18:20 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 18:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 18:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 18:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 18:12 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 18:02 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 18:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 18:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 18:22 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:07 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 18:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 18:23 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/31803159828.shtml)
-- 2026-06-29 18:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/680616331492.shtml)
-- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/064111807.shtml)
-- 2026-06-29 18:19 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/9616149.shtml)
-- 2026-06-29 18:14 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/18993.shtml)
-- 2026-06-29 18:03 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/94038512571.shtml)
-- 2026-06-29 17:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/84339908.shtml)
-- 2026-06-29 18:20 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/23993173843.shtml)
-- 2026-06-29 18:13 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/23689025.shtml)
-- 2026-06-29 18:09 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/936663454324.shtml)
-- 2026-06-29 17:58 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/97917.shtml)
-- 2026-06-29 18:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/07388.shtml)
-- 2026-06-29 18:01 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/741474113422.shtml)
-- 2026-06-29 18:13 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/94151.shtml)
-- 2026-06-29 17:55 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/046041958.shtml)
+- 2026-06-29 18:23 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/595131624122.shtml)
+- 2026-06-29 18:09 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/132852426052.shtml)
+- 2026-06-29 18:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/28088675255.shtml)
+- 2026-06-29 18:05 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/311284873.shtml)
+- 2026-06-29 18:06 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/87878295.shtml)
+- 2026-06-29 18:18 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/191222.shtml)
+- 2026-06-29 18:22 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/9344249.shtml)
+- 2026-06-29 18:21 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/18332078246.shtml)
+- 2026-06-29 18:04 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/5605107.shtml)
+- 2026-06-29 18:12 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/325315.shtml)
+- 2026-06-29 18:02 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/27880.shtml)
+- 2026-06-29 18:17 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/60067.shtml)
+- 2026-06-29 18:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/9927278021.shtml)
+- 2026-06-29 18:15 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/08233231271.shtml)
+- 2026-06-29 18:21 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/75296467126.shtml)

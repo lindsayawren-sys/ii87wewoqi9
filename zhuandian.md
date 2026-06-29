@@ -1,58 +1,58 @@
-# 长安期货张晨：政策博弈下 尿素回调空间或有限
+# “雪山救狐狸”火到台湾 朱凤莲指审美、表达天然相通
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-一、行情走势回顾 2026年4月，尿素期货价格先抑后扬，4月下旬强势突破。3月以来美伊冲突持续发酵，霍尔木兹海峡航运受阻直接加剧全球尿素供应紧张格局，进而对全球化肥价格形成强有力支撑，国内尿素市场也受此海外情绪传导，一度呈现上行态势。但得益于国内持续推进的保供稳价政策及严格的出口限制措施，国内化肥市场相对独立，尿素价格在冲突爆发上涨后率先企稳，维持高位震荡，4月上旬，受春耕需求
+中新社北京4月8日电 (李百加 张杨彬)“有梗、有趣的创作和交流方式受到两岸网友的喜爱和传播，表明两岸同胞中华文化基因一脉相承，在文化审美和品味表达上天然相通、高度共鸣。”国务院台办发言人朱凤莲8日在北京表示。AI短片“雪山救狐狸”在大陆爆红后火到台湾，吸引岛内网友和知名艺人进行二次创作。国台办当天举行例行新闻发布会，朱凤莲提到，她看到了一些台湾网友二创的作品。 她还表示：“最
 
 ## 正文
 
-一、行情走势回顾 2026年4月，尿素期货价格先抑后扬，4月下旬强势突破。
+中新社北京4月8日电 (李百加 张杨彬)“有梗、有趣的创作和交流方式受到两岸网友的喜爱和传播，表明两岸同胞中华文化基因一脉相承，在文化审美和品味表达上天然相通、高度共鸣。
 
-3月以来美伊冲突持续发酵，霍尔木兹海峡航运受阻直接加剧全球尿素供应紧张格局，进而对全球化肥价格形成强有力支撑，国内尿素市场也受此海外情绪传导，一度呈现上行态势。
+”国务院台办发言人朱凤莲8日在北京表示。
 
-但得益于国内持续推进的保供稳价政策及严格的出口限制措施，国内化肥市场相对独立，尿素价格在冲突爆发上涨后率先企稳，维持高位震荡，4月上旬，受春耕需求转弱影响，期货价格一度震荡下行。
+AI短片“雪山救狐狸”在大陆爆红后火到台湾，吸引岛内网友和知名艺人进行二次创作。
 
-4月中旬，受印度招标高价刺激，尿素期货强势反弹，4月21日，尿素期货放量大涨，站上2000元大关，创2024年8月以来新高，近三个交易日再次震荡运行。
+国台办当天举行例行新闻发布会，朱凤莲提到，她看到了一些台湾网友二创的作品。
 
-现货市场价格相对稳定，国内市场实行出厂指导价，生产企业挺价意愿较强，但市场价上方空间仍受到限制，截至4月24日，河南小颗粒尿素市场主流价1890元/吨，山东小颗粒尿素市场主流价1910元/吨，江苏小颗粒尿素市场主流价1920元/吨，关中小颗粒尿素出厂价1740元/吨，安徽小颗粒尿素主流价1880元/吨，河北小颗粒尿素主流价1880元/吨，环比前一周均表现持平。
+她还表示：“最近很多台湾同胞问哪里能买到酱板鸭，欢迎台湾同胞到湖南品尝常德、郴州、株洲各具风味的酱板鸭。
 
-国际尿素价格继续上涨，中东地区小颗粒尿素FOB价900美元/吨，环比前一周上涨37美元/吨，较3月初上涨407.5美元/吨，巴西小颗粒尿素CFR价770美元/吨，环比前一周下跌22.5美元/吨，较3月初上涨300美元/吨，乌克兰尤日内港FOB价807.5美元/吨，环比前一周上涨10美元/吨，较3月初上涨371.5美元/吨。
+” 朱凤莲指出，大陆人工智能技术的快速发展，为两岸网友的创意和创新表达提供了新工具、新空间，激发出共同创作的热情与活力。
 
-二、供给端：国内日产量高位，后市或有回落 国内供应方面，尿素日产维持在高位。
+她表示，我们乐见两岸网友善用新技术进行生动有趣的创意表达和互动，乐见两岸同胞多交流、常往来、共发展。
 
-隆众资讯最新数据显示，国内尿素装置产能利用率90.18%，环比下跌0.13个百分点，同比上涨6.32个百分点，尿素日均产量21.52万吨，环比减少0.03万吨，同比增加2.23万吨。
+清明节假期，“小三通”客运航线迎来台胞返乡祭祖的客流高峰。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 18:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 18:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 18:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 18:01 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 18:09 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 18:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 18:17 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 18:01 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 18:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 18:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 18:15 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 18:10 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 18:04 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 18:19 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 18:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 18:28 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 18:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 18:24 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 18:17 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 18:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 18:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/40060.shtml)
-- 2026-06-29 18:00 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/079378372.shtml)
-- 2026-06-29 18:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/54393.shtml)
-- 2026-06-29 18:02 - [东方风云榜](http://www.share.minike.top/Article/details/639765.shtml)
-- 2026-06-29 18:23 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/817982566394.shtml)
-- 2026-06-29 18:12 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/21363536397.shtml)
-- 2026-06-29 18:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/38322.shtml)
-- 2026-06-29 18:19 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/182794128646.shtml)
-- 2026-06-29 18:21 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/3156935.shtml)
-- 2026-06-29 17:57 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/220873295.shtml)
-- 2026-06-29 18:09 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/789802325.shtml)
-- 2026-06-29 18:03 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/3380249.shtml)
-- 2026-06-29 17:55 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/004104.shtml)
-- 2026-06-29 18:22 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/116821.shtml)
-- 2026-06-29 18:07 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/687784665463.shtml)
+- 2026-06-29 18:21 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/440789922.shtml)
+- 2026-06-29 18:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/5463485131.shtml)
+- 2026-06-29 18:25 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/114245.shtml)
+- 2026-06-29 18:05 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/05922194.shtml)
+- 2026-06-29 18:10 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/6344074921.shtml)
+- 2026-06-29 18:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/23814.shtml)
+- 2026-06-29 18:00 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/21059986.shtml)
+- 2026-06-29 18:17 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/78699095177.shtml)
+- 2026-06-29 18:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/670867128984.shtml)
+- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/470825.shtml)
+- 2026-06-29 18:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/1905072.shtml)
+- 2026-06-29 18:04 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/33078.shtml)
+- 2026-06-29 18:24 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/87754.shtml)
+- 2026-06-29 18:18 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/398831743.shtml)
+- 2026-06-29 18:17 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/164898.shtml)

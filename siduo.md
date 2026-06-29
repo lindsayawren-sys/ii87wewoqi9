@@ -1,57 +1,61 @@
-# 报告显示“十四五”时期我国绿色低碳转型步伐加快
+# 美联储会议纪要显示官员们认为伊朗战争带来双向风险
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-人大常委会丨报告显示“十四五”时期我国绿色低碳转型步伐加快 新华社北京4月27日电(记者 高敬)国务院关于2025年度环境状况和环境保护目标完成情况的报告27日提请全国人大常委会会议审议。报告显示，“十四五”时期我国绿色低碳转型步伐加快。 报告指出，经过努力，“十四五”规划确定的生态环境质量改善目标均顺利完成。全国地级及以上城市PM2.5平均浓度累计下降20%，空气质量优良天数
+伊朗战争爆发后，美联储官员们对美国经济的两种截然不同的情景进行了讨论，其中一种情景主张降息，另一种情景则可能需要加息。 周三公布的美联储3月17日至18日联邦公开市场委员会（FOMC）会议纪要显示，多数官员担心战争可能损害劳动力市场，导致需要降低利率。与此同时，许多决策者强调了通胀风险，这最终可能需要加息。 会议记录还显示，越来越多的官员敦促同事们考虑在委员会声明中加入相关表述
 
 ## 正文
 
-人大常委会丨报告显示“十四五”时期我国绿色低碳转型步伐加快 新华社北京4月27日电(记者 高敬)国务院关于2025年度环境状况和环境保护目标完成情况的报告27日提请全国人大常委会会议审议。
+伊朗战争爆发后，美联储官员们对美国经济的两种截然不同的情景进行了讨论，其中一种情景主张降息，另一种情景则可能需要加息。
 
-报告显示，“十四五”时期我国绿色低碳转型步伐加快。
+周三公布的美联储3月17日至18日联邦公开市场委员会（FOMC）会议纪要显示，多数官员担心战争可能损害劳动力市场，导致需要降低利率。
 
-报告指出，经过努力，“十四五”规划确定的生态环境质量改善目标均顺利完成。
+与此同时，许多决策者强调了通胀风险，这最终可能需要加息。
 
-全国地级及以上城市PM2.5平均浓度累计下降20%，空气质量优良天数比例好于规划目标1.8个百分点；地表水Ⅰ至Ⅲ类水质断面比例累计上升8个百分点；氮氧化物、挥发性有机物、化学需氧量、氨氮排放量较2020年的降幅均完成规划目标。
+会议记录还显示，越来越多的官员敦促同事们考虑在委员会声明中加入相关表述，提及在特定条件下加息的情境。
 
-报告显示，“十四五”时期绿色低碳转型步伐加快。
+会议纪要称：“一些与会者认为，有强劲理由在会后声明中对委员会未来利率决策采用双向表述，反映出如果通胀维持在目标水平上方，上调联邦基金利率目标区间可能是适当的可能性。
 
-深入开展重点行业节能降碳专项行动。
+” 美联储在3月会议上将利率维持在3.5%至3.75%的区间不变。
 
-出台促进新能源消纳和调控的系列政策措施。
+总体而言，决策者对伊朗战争的反应体现在对双重使命两方面的担忧。
 
-有力有效管控高耗能高排放项目。
+会议纪要称：“绝大多数与会者认为，通胀上行风险和就业下行风险均有所上升，多数与会者指出，这些风险随着中东局势发展而加剧。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 18:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 17:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 18:14 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 17:58 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 18:01 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 18:21 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 18:14 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 18:13 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 18:03 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:07 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 18:05 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 18:24 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 18:06 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 18:03 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 18:02 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:00 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 18:22 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 18:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 18:19 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 18:17 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 18:19 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 18:27 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 18:29 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 18:22 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [一生一世](http://www.share.kurohicncr.top/Article/details/084854.shtml)
-- 2026-06-29 18:12 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/37765335637.shtml)
-- 2026-06-29 18:03 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/39252347286.shtml)
-- 2026-06-29 18:22 - [5万块的威力](https://www.share.minike.top/Article/details/3912761.shtml)
-- 2026-06-29 18:19 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/11801951898.shtml)
-- 2026-06-29 18:02 - [V8](http://www.share.kurohicncr.top/Article/details/96965671092.shtml)
-- 2026-06-29 18:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/9000734.shtml)
-- 2026-06-29 18:22 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/0124933231.shtml)
-- 2026-06-29 18:03 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/71391352039.shtml)
-- 2026-06-29 18:04 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/27605.shtml)
-- 2026-06-29 18:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/728354088998.shtml)
-- 2026-06-29 17:56 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/745765582896.shtml)
-- 2026-06-29 18:22 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/05070.shtml)
-- 2026-06-29 18:02 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/572168.shtml)
-- 2026-06-29 18:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/4470687.shtml)
+- 2026-06-29 18:27 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/54886444.shtml)
+- 2026-06-29 18:09 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/0955263301.shtml)
+- 2026-06-29 18:16 - [第一炉香](https://www.share.kurohicncr.top/Article/details/12737948783.shtml)
+- 2026-06-29 18:01 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/765503874447.shtml)
+- 2026-06-29 18:26 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/329193.shtml)
+- 2026-06-29 18:04 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/239711090820.shtml)
+- 2026-06-29 18:06 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/28793864873.shtml)
+- 2026-06-29 18:26 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/67039756891.shtml)
+- 2026-06-29 18:09 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/673462417.shtml)
+- 2026-06-29 18:14 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/7810653920.shtml)
+- 2026-06-29 18:11 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/9895903903.shtml)
+- 2026-06-29 18:14 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/7749244.shtml)
+- 2026-06-29 18:19 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/03880696497.shtml)
+- 2026-06-29 18:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/3174051347.shtml)
+- 2026-06-29 18:17 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/314770.shtml)

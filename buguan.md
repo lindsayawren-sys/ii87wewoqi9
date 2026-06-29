@@ -1,57 +1,59 @@
-# 美国多地再发生枪击事件，致十余人伤亡
+# 广电总局：电视剧创作要避免“颜值至上”“流量依赖”
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-据央视新闻消息，美国白宫记者协会晚宴25日晚响起枪声，此后美国多地发生枪击事件，导致十余人伤亡。美国媒体担忧，美国枪支暴力频发，大多数情况下普通人没有特勤人员保护，会“更危险”“更无助”。 白宫记者协会晚宴25日晚在华盛顿希尔顿酒店举行，总统特朗普及多名政府高官出席活动。枪击事件发生后，特朗普等人在特勤局人员保护下紧急撤离，一名特勤局人员受伤。26日，芝加哥市一名被拘留的犯罪嫌
+原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。 会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。近年来创作播出的一大批思想精深、艺术精湛、制作
 
 ## 正文
 
-据央视新闻消息，美国白宫记者协会晚宴25日晚响起枪声，此后美国多地发生枪击事件，导致十余人伤亡。
+原标题：电视剧司召开电视剧健康审美座谈会 4月2日，电视剧司召开电视剧健康审美座谈会。
 
-美国媒体担忧，美国枪支暴力频发，大多数情况下普通人没有特勤人员保护，会“更危险”“更无助”。
+爱奇艺、芒果TV、腾讯视频、优酷等重点网络视听平台，以及正午阳光、柠萌影视、华策影视、长信传媒等制作机构相关负责人参加了会议。
 
-白宫记者协会晚宴25日晚在华盛顿希尔顿酒店举行，总统特朗普及多名政府高官出席活动。
+会议认为，电视剧作为人民大众喜闻乐见的文艺形态，在传递主流价值、传承中华优秀传统文化、引领审美风尚等方面发挥着重要作用。
 
-枪击事件发生后，特朗普等人在特勤局人员保护下紧急撤离，一名特勤局人员受伤。
+近年来创作播出的一大批思想精深、艺术精湛、制作精良的优秀作品，充分展现了电视剧行业的责任与担当。
 
-26日，芝加哥市一名被拘留的犯罪嫌疑人在医院接受治疗期间开枪打死一名警察，另一名警察受重伤。
+同时也要清醒认识到，行业内还存在片面追求“颜值至上”的不良创作倾向，有的剧集出现演员妆容过度，部分服装化妆道具与人物性格、故事场景脱节等问题。
 
-同一天，位于印第安纳州布卢明顿市的印第安纳大学校园附近发生枪击，导致包括未成年人在内的至少9人受伤。
+会议指出，树立健康审美观念，是关乎文艺方向、关乎文化自信、关乎行业未来的重要命题。
 
-24小时内多起枪击事件再次引发对美国枪支管控及公共安全的担忧。
+电视剧行业要深入学习贯彻习近平文化思想，坚持以人民为中心的创作导向，坚持守正创新，坚持真善美的价值内核，深入生活、扎根人民，让电视剧作品真正体现质朴之美、自然之美、内涵之美。
 
-美国有线电视新闻网记者布赖恩·斯泰尔特25日也参加了晚宴。
+一是深刻认识树立健康审美观念的重要意义。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 18:21 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 18:04 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 18:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 18:21 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 18:07 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 18:08 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 18:04 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 18:22 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 18:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 18:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 18:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 18:15 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 18:27 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 18:10 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 18:22 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 18:23 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 18:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 18:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 18:14 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 18:24 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 18:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [逃狱兄弟](https://www.blog.minike.top/Article/details/24432.shtml)
-- 2026-06-29 18:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/09787.shtml)
-- 2026-06-29 18:08 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/02668578885.shtml)
-- 2026-06-29 18:02 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/18596671385.shtml)
-- 2026-06-29 17:54 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/87760372522.shtml)
-- 2026-06-29 18:08 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/707630.shtml)
-- 2026-06-29 18:21 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/945246687145.shtml)
-- 2026-06-29 18:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/9716538.shtml)
-- 2026-06-29 17:57 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/18137019.shtml)
-- 2026-06-29 18:16 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/906444.shtml)
-- 2026-06-29 18:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/930279.shtml)
-- 2026-06-29 18:14 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/7528057455.shtml)
-- 2026-06-29 18:07 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/775826827.shtml)
-- 2026-06-29 18:13 - [T1 KC](http://www.share.minike.top/Article/details/4940937971.shtml)
-- 2026-06-29 18:12 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/5275271.shtml)
+- 2026-06-29 18:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/1629553474.shtml)
+- 2026-06-29 18:09 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/0010618557.shtml)
+- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/241220060004.shtml)
+- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/5077808.shtml)
+- 2026-06-29 18:14 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/058573404655.shtml)
+- 2026-06-29 18:05 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/3060196.shtml)
+- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/208377029080.shtml)
+- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/7543791260.shtml)
+- 2026-06-29 18:22 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/870280462072.shtml)
+- 2026-06-29 18:04 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/11731076.shtml)
+- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/606691634.shtml)
+- 2026-06-29 18:19 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/585024.shtml)
+- 2026-06-29 18:15 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/290092288.shtml)
+- 2026-06-29 18:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/75589248.shtml)
+- 2026-06-29 18:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/012700405338.shtml)

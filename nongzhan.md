@@ -1,61 +1,60 @@
-# 中国多地专家携手制定《标准》聚焦阿尔法核素医学应用
+# 菲律宾2月失业率降至5.1%
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。 作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模
+中新社马尼拉4月8日电 (记者 张兴龙)菲律宾国家统计局8日公布数据显示，该国2月失业率为5.1%，较1月下降0.7个百分点。 数据显示，菲律宾2月失业人数为266万，较1月减少30万。菲2月劳动参与率为63.8%，较上月增加1.5个百分点，显示劳动力市场活跃度有所增强。 数据还显示，服务业是菲律宾吸纳就业最多的产业，2月就业人数达3139万，占总就业人数的63.5%；农业和工
 
 ## 正文
 
-中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。
+中新社马尼拉4月8日电 (记者 张兴龙)菲律宾国家统计局8日公布数据显示，该国2月失业率为5.1%，较1月下降0.7个百分点。
 
-作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模式由“单点技术突破”向“基础规范建设”延伸。
+数据显示，菲律宾2月失业人数为266万，较1月减少30万。
 
-该《标准》由余飞教授团队和中国科学院杭州医学研究所黄钢教授团队共同发起，联合国内众多科研院所和临床机构的权威专家历时15个月编纂、讨论、修订完成。
+菲2月劳动参与率为63.8%，较上月增加1.5个百分点，显示劳动力市场活跃度有所增强。
 
-作为《标准》的主要制定者，余飞教授指出，阿尔法核素药物具备“更强能量、更短射程、更耐乏氧、更易防护”四大临床应用独特优势，让核素治疗肿瘤成为“未来蓝海”。
+数据还显示，服务业是菲律宾吸纳就业最多的产业，2月就业人数达3139万，占总就业人数的63.5%；农业和工业分别占18.8%和17.7%。
 
-目前，全球医学界对医用阿尔法核素的应用研究还处在起步阶段，术语使用不统一、概念界定不明晰，导致多元异构的基础研究与应用场景表述呈现交叉错配现象，这仍是需要解决的问题。
+从细分行业看，行政和支持性服务活动、运输和仓储、住宿和餐饮服务以及金融和保险等行业就业人数同比增长较为明显；批发和零售业以及汽车和摩托车修理等行业就业人数环比增加较为明显。
 
-这种“各说各话”的语义现象，不仅影响科学研究结果的可比性，更增加了未来临床转化与规范管理的难度。
+与此同时，菲律宾2月就业质量有所改善。
 
-据悉，围绕医用阿尔法核素的标准化工作，已有国际组织将其纳入行动计划，比如国际计量局(BIPM)推动的AlphaMet项目，尝试围绕阿尔法核素计量与应用规范开展系统研究，助力推动阿尔法核素药物从实验室走向临床、惠及患者，这标志着医用阿尔法核素开始进入“标准驱动”的新发展阶段。
+数据显示，菲2月就业不足率为11.8%，较1月下降1.4个百分点。
 
-《标准》围绕阿尔法核素医学应用的关键科学问题与应用场景，系统梳理并规范了涉及阿尔法核素特性、放射性核素药物、辐射生物效应、微剂量学等多个技术维度的核心术语，并针对长期存在的“概念有交叉、定义不统一、使用不规范”等问题，进行了标准界定与聚类整合。
+就业不足意味着就业者正在寻求更多工作时间或更好的工作机会。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 18:05 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 18:16 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 18:06 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 18:07 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 18:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 18:01 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 18:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 18:23 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 18:16 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 18:00 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 18:11 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 18:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 18:22 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 18:11 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 18:01 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 18:17 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 18:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 18:13 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 18:00 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 18:14 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 18:09 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 18:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 18:02 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 18:04 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4088669438.shtml)
-- 2026-06-29 18:09 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/84064948101.shtml)
-- 2026-06-29 18:16 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/216273756.shtml)
-- 2026-06-29 17:58 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/486214195660.shtml)
-- 2026-06-29 18:01 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/90794696.shtml)
-- 2026-06-29 17:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/72077.shtml)
-- 2026-06-29 17:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/92533.shtml)
-- 2026-06-29 17:56 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/1353271.shtml)
-- 2026-06-29 17:54 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/99401.shtml)
-- 2026-06-29 18:23 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/1637759523.shtml)
-- 2026-06-29 18:23 - [金刚川](http://www.blog.kurohicncr.top/Article/details/343418.shtml)
-- 2026-06-29 18:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/051582393570.shtml)
-- 2026-06-29 18:23 - [NBA交易](http://www.blog.minike.top/Article/details/3270390801.shtml)
-- 2026-06-29 18:15 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/17762035744.shtml)
-- 2026-06-29 18:12 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/3557021804.shtml)
+- 2026-06-29 18:10 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/86046.shtml)
+- 2026-06-29 18:02 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/970329877101.shtml)
+- 2026-06-29 18:20 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/848048.shtml)
+- 2026-06-29 18:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/431210054.shtml)
+- 2026-06-29 18:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/69925468.shtml)
+- 2026-06-29 18:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/911533708.shtml)
+- 2026-06-29 18:19 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/1118596.shtml)
+- 2026-06-29 18:12 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/93913.shtml)
+- 2026-06-29 18:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/98209.shtml)
+- 2026-06-29 18:10 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/572087801.shtml)
+- 2026-06-29 18:02 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/698214.shtml)
+- 2026-06-29 18:04 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/2773247.shtml)
+- 2026-06-29 18:14 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/1941877.shtml)
+- 2026-06-29 18:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/84115971744.shtml)
+- 2026-06-29 18:03 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/8465627674.shtml)

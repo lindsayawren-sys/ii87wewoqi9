@@ -1,58 +1,60 @@
-# 日本公然宣称为“长期战争”做准备 中方回应
+# 黄金交易提醒：金价暴涨3.5%却创16年最惨月度！多头还能逆转乾坤？
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电 (记者 黄钰钦)中国外交部发言人林剑28日主持例行记者会。 有记者提问：日本首相高市早苗在会议上声称修订“安保三文件”工作是所有国家领域的重要工作，要以俄乌及中东局势为教训，为新型作战方式以及“长期战争”做好准备，推进海上安保能力、网络安全和经济安全保障。请问发言人有何评论？ 林剑：近期高市政权大力发展军工产业，现在又公然宣称为“长期战争”做准备，历史上
+汇通财经APP讯——周二（3月31日）现货黄金一度飙升3.5%，最高触及4687美元/盎司，最终收在4667美元附近，美国期金也大涨2.7%至4678.60美元。这一单日强势反弹看似提振人心，却无法掩盖一个残酷现实：3月金价累计暴跌11.8%，即将录得自2008年10月以来最差月度表现。短短一个月，黄金从地缘冲突初期的避险宠儿，迅速沦为高利率与通胀预期的牺牲品，而市场情绪正随着
 
 ## 正文
 
-中新网北京4月28日电 (记者 黄钰钦)中国外交部发言人林剑28日主持例行记者会。
+汇通财经APP讯——周二（3月31日）现货黄金一度飙升3.5%，最高触及4687美元/盎司，最终收在4667美元附近，美国期金也大涨2.7%至4678.60美元。
 
-有记者提问：日本首相高市早苗在会议上声称修订“安保三文件”工作是所有国家领域的重要工作，要以俄乌及中东局势为教训，为新型作战方式以及“长期战争”做好准备，推进海上安保能力、网络安全和经济安全保障。
+这一单日强势反弹看似提振人心，却无法掩盖一个残酷现实：3月金价累计暴跌11.8%，即将录得自2008年10月以来最差月度表现。
 
-请问发言人有何评论？
+短短一个月，黄金从地缘冲突初期的避险宠儿，迅速沦为高利率与通胀预期的牺牲品，而市场情绪正随着特朗普政府对伊朗军事行动的“缓和信号”剧烈摇摆。
 
-林剑：近期高市政权大力发展军工产业，现在又公然宣称为“长期战争”做准备，历史上日本曾挑起战争、侵略他国，现在又在渲染所谓的紧张局势，是不是要重蹈历史覆辙？
+中东局势缓和预期点燃短期反弹火种 即使霍尔木兹海峡仍基本处于封锁状态，特朗普总统仍愿意结束对伊朗的军事行动，这一消息瞬间点燃市场乐观情绪。
 
-在“再军事化”的道路上狂飙突进再次成为东亚的祸源？
+美国国防部长赫格塞思虽警告“未来几天将是决定性时刻”，若伊朗不妥协冲突将升级，但投资者更愿意押注“停火在即”。
 
-当年日本军国主义大肆侵略扩张，对中国及亚洲邻国犯下了滔天罪行，日本人民也深受其害。
+美元指数因此下跌0.6%至99.88，黄金作为非孳息资产的持有成本压力短暂缓解，叠加风险偏好回暖，金价实现久违的单日大涨。
 
-正是基于日本的侵略历史，为防范日本军国主义死灰复燃，《开罗宣言》《波茨坦公告》和《日本投降书》等一系列具有充分国际法效力的文件明确规定，日本应完全解除武装，不得维持能使其重新武装的产业。
+Zaner Metals高级贵金属策略师Peter Grant直言：“黄金当前的涨势令人鼓舞，这源于市场对中东局势缓和的乐观情绪有所增强。
 
-日本的宪法对本国军力交战权、战争权也作出严格限制。
+”然而他也提醒，要形成持续上涨形态，还需要看到更强劲的上行动能。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 18:08 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 18:02 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 18:02 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 18:17 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:11 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 18:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 17:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 17:59 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 18:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 18:16 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 18:28 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 18:21 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 18:12 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 18:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 18:01 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 18:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 18:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 18:09 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 18:15 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 18:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 18:04 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 18:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 18:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/5748496092.shtml)
-- 2026-06-29 18:05 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/0299653013.shtml)
-- 2026-06-29 18:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/11259477.shtml)
-- 2026-06-29 18:01 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/060112339586.shtml)
-- 2026-06-29 18:00 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/00325.shtml)
-- 2026-06-29 18:23 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/26503.shtml)
-- 2026-06-29 18:11 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/06061327741.shtml)
-- 2026-06-29 17:57 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/106293.shtml)
-- 2026-06-29 18:05 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/49390.shtml)
-- 2026-06-29 17:55 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/015479153.shtml)
-- 2026-06-29 18:13 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/86030.shtml)
-- 2026-06-29 17:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/393647497.shtml)
-- 2026-06-29 18:12 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/6325674013.shtml)
-- 2026-06-29 18:00 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/848203874.shtml)
-- 2026-06-29 18:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/678477219.shtml)
+- 2026-06-29 18:20 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/37193821.shtml)
+- 2026-06-29 18:24 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/642884.shtml)
+- 2026-06-29 18:15 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/957384029665.shtml)
+- 2026-06-29 18:18 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/11461054750.shtml)
+- 2026-06-29 18:20 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/9130767308.shtml)
+- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/1151077279.shtml)
+- 2026-06-29 18:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/9585345.shtml)
+- 2026-06-29 18:23 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/241125.shtml)
+- 2026-06-29 18:06 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/65110.shtml)
+- 2026-06-29 18:17 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/66053.shtml)
+- 2026-06-29 18:00 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/096684383887.shtml)
+- 2026-06-29 18:04 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/86025645098.shtml)
+- 2026-06-29 18:22 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/899235697986.shtml)
+- 2026-06-29 18:02 - [沙丘](http://www.blog.minike.top/Article/details/8278041.shtml)
+- 2026-06-29 18:03 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/54592898793.shtml)

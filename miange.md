@@ -1,61 +1,59 @@
-# 美国陆军退役中校：美国在美伊冲突中的战略败局早已注定
+# 他山之石，2025年野火之后加州房屋保险市场的崩塌与重构
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-视频︱美国陆军退役中校：美国在美伊冲突中的战略败局早已注定当地时间4月26日，美国陆军退役中校丹尼尔·戴维斯在社交媒体上批评美国主流媒体在报道美伊冲突时完全脱离现实、制造虚假叙事，同时认为美国的战略性败局早已注定。他表示，冲突继续拖下去只会让代价无限放大，完全不符合美国的利益。这场冲突过后，美国的国际地位只会变得更糟。 视频：美国陆军退役中校：美国在美伊冲突中的战略败局早已注定
+来源：13个精算师 2025年洛杉矶帕利塞德与伊顿野火，以近500亿美元总损失、超400亿美元保险赔付（赔付金额能进入全球巨灾前五），成为加州史上代价最高的野火灾害。 这场大火不仅烧毁了上万栋建筑、迫使18万人撤离，更将本已脆弱的加州房屋保险市场推向系统性崩溃边缘。 私人资本撤退、保费暴涨、兜底机制承压、房产交易受阻，一场由气候风险、监管约束与再保险成本共同引爆的危机，在202
 
 ## 正文
 
-视频︱美国陆军退役中校：美国在美伊冲突中的战略败局早已注定当地时间4月26日，美国陆军退役中校丹尼尔·戴维斯在社交媒体上批评美国主流媒体在报道美伊冲突时完全脱离现实、制造虚假叙事，同时认为美国的战略性败局早已注定。
+来源：13个精算师 2025年洛杉矶帕利塞德与伊顿野火，以近500亿美元总损失、超400亿美元保险赔付（赔付金额能进入全球巨灾前五），成为加州史上代价最高的野火灾害。
 
-他表示，冲突继续拖下去只会让代价无限放大，完全不符合美国的利益。
+这场大火不仅烧毁了上万栋建筑、迫使18万人撤离，更将本已脆弱的加州房屋保险市场推向系统性崩溃边缘。
 
-这场冲突过后，美国的国际地位只会变得更糟。
+私人资本撤退、保费暴涨、兜底机制承压、房产交易受阻，一场由气候风险、监管约束与再保险成本共同引爆的危机，在2025年野火后全面爆发。
 
-视频：美国陆军退役中校：美国在美伊冲突中的战略败局早已注定来源：总台环球资讯广播 如果你关注美国的任何主流媒体，尤其是像MS Now、美国有线电视新闻网或一些左翼媒体，虽然它们会批评特朗普总统，但总体而言，它们口径上还是保持一致：伊朗人很糟糕，局势对伊朗不利。
+1 市场崩塌： 巨头撤退，供给断崖式收缩 加州房屋保险的溃败，早在2025年野火前就已埋下伏笔。
 
-而保守派及中立媒体则清一色宣称，伊朗已经输掉这场战争。
+2023年起，State Farm、Allstate、Farmers等头部险企相继暂停新单；Costco超市合作险企（超市卖保险，我们能学么）、东京海上等中小主体陆续退出。
 
-它们大肆吹捧总统和政府的卓著表现，称一切进展顺利，美军占据全面优势。
+2025年野火后，赔付压力彻底击穿行业信心，收缩进一步加剧： 全州前12家主力公司中7家限制承保、取消或不续保近300万份保单，仅洛杉矶灾区就有数十万家庭失去保障。
 
-我实在难以理解，这些人完全是异想天开。
+State Farm作为加州最大房屋险企，野火季处理近8700起索赔、赔付超10亿美元，随即申请22%紧急费率上调，并继续收紧高风险区域续保；Allstate、Travelers等则直接划定“禁保区”，将洛杉矶山区、圣莫尼卡山脊、太平洋帕利塞德等高档社区排除在承保范围外。
 
-对于主要关注主流媒体的美国公众而言，这就是他们所获取的信息，这就是他们对冲突的看法。
+曾经普惠的房屋保险，在野火高风险区近乎“消失”，私人市场供给陷入停滞。
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 18:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 17:57 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 18:12 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 18:02 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 18:02 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 18:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 18:11 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 18:15 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 18:16 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 17:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:06 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 18:21 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 18:15 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 18:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 18:11 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 18:07 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 18:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 18:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 18:00 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 18:22 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 18:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 18:28 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:22 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 18:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 18:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 18:03 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 18:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/66159.shtml)
-- 2026-06-29 18:09 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/157895165.shtml)
-- 2026-06-29 17:55 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/635796.shtml)
-- 2026-06-29 18:06 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/45109497.shtml)
-- 2026-06-29 18:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/6407910169.shtml)
-- 2026-06-29 18:06 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/95708659324.shtml)
-- 2026-06-29 17:57 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/31945614.shtml)
-- 2026-06-29 18:04 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/5070938.shtml)
-- 2026-06-29 18:04 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/6783531039.shtml)
-- 2026-06-29 18:14 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/72807.shtml)
-- 2026-06-29 18:20 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/7964552424.shtml)
-- 2026-06-29 18:01 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/85464984.shtml)
-- 2026-06-29 17:54 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/32579.shtml)
-- 2026-06-29 18:04 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/99801.shtml)
-- 2026-06-29 18:17 - [一生一世](https://www.blog.minike.top/Article/details/272540.shtml)
+- 2026-06-29 18:01 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/27215239.shtml)
+- 2026-06-29 18:29 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4525129.shtml)
+- 2026-06-29 18:17 - [逆天祖国人](https://www.blog.minike.top/Article/details/77434393.shtml)
+- 2026-06-29 18:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/3243557112.shtml)
+- 2026-06-29 18:22 - [小娘惹](http://www.share.minike.top/Article/details/6027993903.shtml)
+- 2026-06-29 18:00 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/3402319.shtml)
+- 2026-06-29 18:17 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/85055411046.shtml)
+- 2026-06-29 18:27 - [逆天祖国人](http://www.share.minike.top/Article/details/1721647.shtml)
+- 2026-06-29 18:26 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/80374.shtml)
+- 2026-06-29 18:21 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/8707203.shtml)
+- 2026-06-29 18:24 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/62362311532.shtml)
+- 2026-06-29 18:12 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/7796275.shtml)
+- 2026-06-29 18:06 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/0725993.shtml)
+- 2026-06-29 18:13 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/7246118805.shtml)
+- 2026-06-29 18:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/508278653583.shtml)

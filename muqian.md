@@ -1,60 +1,61 @@
-# 记者手记：从三亚亚沙会感受“同舟共济”的亚洲共鸣
+# 新西兰内陆毛利人或曾完全吃素？最新考古研究发现证据
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网三亚4月27日电 题：记者手记：从三亚亚沙会感受“同舟共济”的亚洲共鸣 中新网记者 符宇群 随着最后一声激昂的鼓点落下，第六届亚洲沙滩运动会(简称“亚沙会”)龙舟项目的比赛26日圆满落幕。这项源起于中国的传统体育运动，在碧波之上呈现的，远不止速度与激情，更激荡起一种“同舟共济”的亚洲共鸣。 这是职业运动员的竞技场，也是大众突破自我的赛道。 中国澳门队的桨手们来自各行各业，
+中新网北京4月8日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇考古学论文称，新西兰一些18世纪奥特亚罗瓦(Aotearoa，毛利语名)的内陆毛利人族群，可能近乎完全以植物为食(俗称吃素)，这是关于奥特亚罗瓦毛利人群体采用此种饮食类型首次得到直接证据证实。 该论文介绍，此前已经知道，奥特亚罗瓦的早期毛利人群体会狩猎、捕鱼、采集和耕作，获取海陆来源的广泛
 
 ## 正文
 
-中新网三亚4月27日电 题：记者手记：从三亚亚沙会感受“同舟共济”的亚洲共鸣 中新网记者 符宇群 随着最后一声激昂的鼓点落下，第六届亚洲沙滩运动会(简称“亚沙会”)龙舟项目的比赛26日圆满落幕。
+中新网北京4月8日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇考古学论文称，新西兰一些18世纪奥特亚罗瓦(Aotearoa，毛利语名)的内陆毛利人族群，可能近乎完全以植物为食(俗称吃素)，这是关于奥特亚罗瓦毛利人群体采用此种饮食类型首次得到直接证据证实。
 
-这项源起于中国的传统体育运动，在碧波之上呈现的，远不止速度与激情，更激荡起一种“同舟共济”的亚洲共鸣。
+该论文介绍，此前已经知道，奥特亚罗瓦的早期毛利人群体会狩猎、捕鱼、采集和耕作，获取海陆来源的广泛饮食，但在定居后，饮食变得具有地域特色。
 
-这是职业运动员的竞技场，也是大众突破自我的赛道。
+根据考古和历史证据，居住在今新西兰汉密尔顿市附近的内陆毛利人群体自16世纪起加强了园艺种植，耕种番薯、芋头和薯蓣。
 
-中国澳门队的桨手们来自各行各业，有警察、公务员，也有护士等。
+尽管有种植的证据，但人们对这一地区毛利人饮食所知甚少。
 
-澳门队女队队长黄洁雯坦言，虽然此次未站上领奖台，但队员们为了共同的目标齐心协力，每一次挥桨都是对自我的超越，已在竞技中收获成长。
+在本项研究中，论文第一作者和通讯作者、新西兰生物考古南部研究中心(BioArch South)的Rebecca L. Kinaston与同事及合作者，并联合当地有重要影响力毛利人部落及亚部落代表组成的工作组，共同研究了7名毛利人的祖先遗骸，调查该地区过去的饮食和人口活动情况。
 
-同样全力以赴的还有中国台北队，这群以学生为主的年轻桨手，尽管与强队存在差距，却依然在碧波中划出了属于自己的节奏，奔着奖牌全力冲刺。
+这些研究样本个体生活年代大约在公元1700年-1780年间，对其同位素分析表明，该毛利人群体主要依靠由番薯和芋头等淀粉类食物组成的植物性饮食生活，少有摄入富含蛋白质的食物(如肉和鱼)的证据。
 
-这是高手过招的舞台，更是心灵相通的桥梁。
+这些考古发现得到这一地区现存园艺证据，以及与食用软质淀粉类食物有关的牙齿磨损和蛀牙模式的支持。
 
-“场上是对手，场下是朋友。
+同时，该研究样本的毛利人群中两名儿童(一男一女)似为当地人，可能在出生2到3年内断奶后就开始食用植物性食物。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 17:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 18:05 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 18:08 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 17:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 18:03 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 17:58 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 17:59 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 17:56 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 18:19 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 18:12 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 18:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 18:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 18:21 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 18:16 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 18:02 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 18:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 18:22 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 18:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 18:17 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 18:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 18:12 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 18:23 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 18:01 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 18:01 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 18:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 18:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 18:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 18:12 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [第一炉香](http://www.share.minike.top/Article/details/07826.shtml)
-- 2026-06-29 18:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/77463942.shtml)
-- 2026-06-29 18:01 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/13024107.shtml)
-- 2026-06-29 18:22 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/7748257.shtml)
-- 2026-06-29 18:18 - [V8](https://www.blog.minike.top/Article/details/7705869.shtml)
-- 2026-06-29 18:03 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/160904862568.shtml)
-- 2026-06-29 18:13 - [天道](https://www.share.minike.top/Article/details/27677.shtml)
-- 2026-06-29 18:08 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/333477501723.shtml)
-- 2026-06-29 18:15 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/356495.shtml)
-- 2026-06-29 18:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/834503669.shtml)
-- 2026-06-29 17:55 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/13886715478.shtml)
-- 2026-06-29 18:20 - [起风了](https://www.share.kurohicncr.top/Article/details/079415.shtml)
-- 2026-06-29 18:01 - [乔家的儿女](https://www.share.minike.top/Article/details/684845011.shtml)
-- 2026-06-29 18:13 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/46900327.shtml)
-- 2026-06-29 17:54 - [TTG KSG](https://www.blog.minike.top/Article/details/8459788125.shtml)
+- 2026-06-29 18:04 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.minike.top/Article/details/453863.shtml)
+- 2026-06-29 18:06 - [天道](https://www.share.minike.top/Article/details/23820.shtml)
+- 2026-06-29 18:22 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/355894149682.shtml)
+- 2026-06-29 18:27 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/186883973.shtml)
+- 2026-06-29 18:26 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/17753.shtml)
+- 2026-06-29 18:13 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/20576.shtml)
+- 2026-06-29 18:16 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/84133165229.shtml)
+- 2026-06-29 18:00 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/34294112.shtml)
+- 2026-06-29 18:06 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/42608432.shtml)
+- 2026-06-29 18:06 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/0327452401.shtml)
+- 2026-06-29 18:08 - [扫黑风暴](https://www.share.minike.top/Article/details/978040439151.shtml)
+- 2026-06-29 18:11 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/29809361.shtml)
+- 2026-06-29 18:27 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/7168966.shtml)
+- 2026-06-29 18:29 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/15279073236.shtml)
+- 2026-06-29 18:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/061902106.shtml)

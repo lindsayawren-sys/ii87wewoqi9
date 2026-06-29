@@ -1,59 +1,57 @@
-# 华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生
+# 刚刚，特朗普同意有条件停火两周，伊朗接受停火提议！国际油价暴跌15%，金银价格大涨
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 11:12 来源：中国新闻网 打卡中国美景、学做中国美食、解锁中式养生……华裔青年的留学生活有多充实？陈凯昇是一位马来西亚华裔，三年前他选择来到中国留学。这三年，他走遍20多个城市，在旅途中感受着中国人的好客、热情与大方。作为北京体育大学康复专业的学生，他也由此开启了中式养生的全新体验。从练习八段锦到学习针灸，他逐渐懂得了中国文化的博大精深。谈
+来源：期货日报 早上好，中东局势有新进展！ 据CCTV国际时讯最新消息，当地时间4月7日傍晚，北京时间今天（4月8日）清晨，美国总统特朗普在社交媒体上发文称，“基于与巴基斯坦总理谢里夫和陆军元帅阿西姆·穆尼尔的会谈，他们请求我推迟今晚针对伊朗的军事打击行动；同时，若伊朗同意完全、立即且安全地开放霍尔木兹海峡，我同意暂停对伊朗的轰炸和攻击，为期两周。这将是一项双向的停火协议！”
 
 ## 正文
 
-发布时间：2026年04月27日 11:12 来源：中国新闻网 打卡中国美景、学做中国美食、解锁中式养生……华裔青年的留学生活有多充实？
+来源：期货日报 早上好，中东局势有新进展！
 
-陈凯昇是一位马来西亚华裔，三年前他选择来到中国留学。
+据CCTV国际时讯最新消息，当地时间4月7日傍晚，北京时间今天（4月8日）清晨，美国总统特朗普在社交媒体上发文称，“基于与巴基斯坦总理谢里夫和陆军元帅阿西姆·穆尼尔的会谈，他们请求我推迟今晚针对伊朗的军事打击行动；同时，若伊朗同意完全、立即且安全地开放霍尔木兹海峡，我同意暂停对伊朗的轰炸和攻击，为期两周。
 
-这三年，他走遍20多个城市，在旅途中感受着中国人的好客、热情与大方。
+这将是一项双向的停火协议！
 
-作为北京体育大学康复专业的学生，他也由此开启了中式养生的全新体验。
+” 特朗普在帖文中称，“此举的原因是，我们已经达成并超越了所有军事目标，并且与伊朗就中东地区的长期和平协议已取得决定性进展。
 
-从练习八段锦到学习针灸，他逐渐懂得了中国文化的博大精深。
+我们收到了伊朗提出的10点提案，并认为这是一个可行的谈判基础。
 
-谈及未来，他表示：“我想把中国大众注重体育的文化带回马来西亚，让更多人知道体育重要性。
+美国和伊朗之间几乎已经就过去所有的争议点达成一致，但这两周的时间将用于最终敲定并完成协议。
 
-” 责任编辑：【杜晓姣】
+” 另据央视新闻消息，白宫官员表示，以色列也已同意临时停火。
+
+伊朗最高国家安全委员会当地时间8日凌晨发表声明称，根据最高领袖的建议和最高国家安全委员会批准，接受巴基斯坦提出的停火提议。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 17:56 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 18:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 17:56 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 18:21 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 18:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 17:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 18:09 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 18:14 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 18:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 18:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:12 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 18:22 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:02 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 18:04 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 18:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 18:23 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 18:05 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 18:10 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 18:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:07 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 18:24 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 18:18 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 18:23 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 18:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 18:20 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/963352068264.shtml)
-- 2026-06-29 18:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/985348.shtml)
-- 2026-06-29 18:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7612756.shtml)
-- 2026-06-29 18:19 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/75656160306.shtml)
-- 2026-06-29 17:57 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/79761102925.shtml)
-- 2026-06-29 18:22 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/74240614443.shtml)
-- 2026-06-29 18:12 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/40202.shtml)
-- 2026-06-29 18:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/89514094.shtml)
-- 2026-06-29 18:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/333701166332.shtml)
-- 2026-06-29 18:12 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/700776488580.shtml)
-- 2026-06-29 18:06 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/2788103290.shtml)
-- 2026-06-29 18:04 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/77341945705.shtml)
-- 2026-06-29 17:59 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/9494071031.shtml)
-- 2026-06-29 18:19 - [绘画区你赢了](https://www.share.minike.top/Article/details/71561619007.shtml)
-- 2026-06-29 18:17 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/6038735251.shtml)
+- 2026-06-29 18:02 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/29732.shtml)
+- 2026-06-29 18:07 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/964244.shtml)
+- 2026-06-29 18:13 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/8293460367.shtml)
+- 2026-06-29 18:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/7244556647.shtml)
+- 2026-06-29 18:26 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/941407126.shtml)
+- 2026-06-29 18:06 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/388473455478.shtml)
+- 2026-06-29 18:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/43027609.shtml)
+- 2026-06-29 18:29 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/915821631.shtml)
+- 2026-06-29 18:16 - [T1零封KC MSI](https://www.share.minike.top/Article/details/79934.shtml)
+- 2026-06-29 18:05 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/295994094.shtml)
+- 2026-06-29 18:29 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/70264744025.shtml)
+- 2026-06-29 18:13 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/28188771.shtml)
+- 2026-06-29 18:03 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/55295524128.shtml)
+- 2026-06-29 18:24 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/8325620547.shtml)
+- 2026-06-29 18:22 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/93837.shtml)

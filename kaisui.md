@@ -1,56 +1,59 @@
-# 原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭
+# 小摩：香港银行业去年业绩好坏参半 偏好汇丰控股及中银香港
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。 WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。 6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。 6月交割的布伦特原油上涨2
+摩根大通发布研报称，香银选股次序上，偏好汇丰控股（00005）及中银香港（02388），认为若短期内市场波动持续，这两只股票表现有望优于大市。渣打集团（02888）在地缘政治不确定性下仍属啤打系数较高的股份。给予汇股（予目标价180港元）及渣打（予目标价270港元）“增持”评级，大新银行（02356）评级亦为“增持”，目标价14.5港元；中银香港（02388）评级为“中性”及目
 
 ## 正文
 
-油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。
+摩根大通发布研报称，香银选股次序上，偏好汇丰控股（00005）及中银香港（02388），认为若短期内市场波动持续，这两只股票表现有望优于大市。
 
-WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。
+渣打集团（02888）在地缘政治不确定性下仍属啤打系数较高的股份。
 
-白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。
+给予汇股（予目标价180港元）及渣打（予目标价270港元）“增持”评级，大新银行（02356）评级亦为“增持”，目标价14.5港元；中银香港（02388）评级为“中性”及目标价43.3港元。
 
-6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。
+香港银行业2025财年业绩好坏参半，盈利同比平均增长4%，较2024财年的28%增速放缓，但不同银行之间趋势分歧。
 
-6月交割的布伦特原油上涨2.8%，结算价报每桶108.23美元。
+渣打香港、星展香港及大新银行录得逾20%增长，而东亚银行（00023）及恒生银行（00011）则出现双位数跌幅。
 
-周一的一系列新闻凸显出美伊谈判代表之间持续存在的理解分歧，强化了问题短期内无法解决的观点。
+小摩表示，去年下半年有利的市场环境，包括股市反弹及美元收益率相对人民币更具吸引力，带动大部分银行手续费收入维持双位数增长。
 
-特朗普周末取消了高级特使前往调解方巴基斯坦的行程，伊朗则表示，如果受到威胁就不会进行谈判。
+财富管理仍是未来重点，多家银行录得双位数的资产管理规模增长及强劲存款流入。
 
-BOK Financial Securities交易业务高级副总裁Dennis Kissler表示，短期内达成和平协议的可能性仍然很小，因为美国仍然坚持要求伊朗放弃其核能力。
+该行对香港银行业2026财年的基本情景预测为：净息差温和收缩、贷款增长动力改善、手续费收入录得高单位数至双位数增长，以及信贷成本稳定至下降。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 18:19 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 18:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 18:12 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 17:59 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 18:03 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 18:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 18:07 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 18:03 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 17:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 18:05 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 18:18 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 18:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 18:28 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 18:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 18:11 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 18:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 18:22 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 18:24 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 18:19 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 18:09 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 18:07 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 18:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/3282194493.shtml)
-- 2026-06-29 17:54 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/8646507873.shtml)
-- 2026-06-29 17:57 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/37702253291.shtml)
-- 2026-06-29 17:58 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/77090.shtml)
-- 2026-06-29 18:17 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/01498.shtml)
-- 2026-06-29 18:24 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/52557.shtml)
-- 2026-06-29 18:14 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/738403472714.shtml)
-- 2026-06-29 18:21 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/200583.shtml)
-- 2026-06-29 17:59 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/353443143062.shtml)
-- 2026-06-29 18:00 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/5201456.shtml)
-- 2026-06-29 18:15 - [人形机器人](https://www.share.kurohicncr.top/Article/details/34918022145.shtml)
-- 2026-06-29 18:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/58474.shtml)
-- 2026-06-29 17:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/71215180755.shtml)
-- 2026-06-29 18:23 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/37211959494.shtml)
-- 2026-06-29 18:15 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/538663.shtml)
+- 2026-06-29 18:22 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/282054.shtml)
+- 2026-06-29 18:14 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/74727042421.shtml)
+- 2026-06-29 18:12 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/631187552.shtml)
+- 2026-06-29 18:16 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/15669220743.shtml)
+- 2026-06-29 18:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/09359003190.shtml)
+- 2026-06-29 18:17 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/8975488989.shtml)
+- 2026-06-29 18:22 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/659820049654.shtml)
+- 2026-06-29 18:07 - [当我回母校教书](https://www.share.minike.top/Article/details/05805.shtml)
+- 2026-06-29 18:06 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/347471264666.shtml)
+- 2026-06-29 18:08 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/511727686.shtml)
+- 2026-06-29 18:17 - [起风了](http://www.blog.minike.top/Article/details/573145911.shtml)
+- 2026-06-29 18:19 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/432680085.shtml)
+- 2026-06-29 18:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/38814704.shtml)
+- 2026-06-29 18:03 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/392371.shtml)
+- 2026-06-29 18:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/270924905.shtml)

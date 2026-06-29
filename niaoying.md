@@ -1,57 +1,61 @@
-# 金价困守4700美元关口，全球央行购金策略分化
+# 晶合集成冲刺港股：年营收104亿，净利同比降3% 华勤技术去年斥资24亿买老股
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-相较于过去几年央行“一边倒”买入黄金的局面，当前的分歧确实增加了市场的不确定性。 国际黄金市场暂时进入“沉闷期”。近期伦敦黄金现货价格围绕4700美元/盎司反复拉锯，既缺乏冲破上轨的勇气，也未出现恐慌性抛压。曾经一致做多的全球黄金“大买家”们出现罕见分歧。一边是土耳其央行单周大举增持30.7吨黄金，重建储备并了结部分掉期头寸；另一边，阿塞拜疆国家石油基金一季度却抛售逾22吨黄金
+来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。 晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。 截至今日收盘，晶合集成股价为28.31元，市值为568亿元。一旦在港股上市，晶合集成形成“A+H”的格局。 年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合
 
 ## 正文
 
-相较于过去几年央行“一边倒”买入黄金的局面，当前的分歧确实增加了市场的不确定性。
+来源：雷递 雷递网 雷建平 4月7日 合肥晶合集成电路股份有限公司（简称“晶合集成”）日前更新招股书，准备在港交所上市。
 
-国际黄金市场暂时进入“沉闷期”。
+晶合集成2023年5月在科创板上市，是安徽省首家成功登陆资本市场的纯晶圆代工企业。
 
-近期伦敦黄金现货价格围绕4700美元/盎司反复拉锯，既缺乏冲破上轨的勇气，也未出现恐慌性抛压。
+截至今日收盘，晶合集成股价为28.31元，市值为568亿元。
 
-曾经一致做多的全球黄金“大买家”们出现罕见分歧。
+一旦在港股上市，晶合集成形成“A+H”的格局。
 
-一边是土耳其央行单周大举增持30.7吨黄金，重建储备并了结部分掉期头寸；另一边，阿塞拜疆国家石油基金一季度却抛售逾22吨黄金，创下2012年以来首次减持纪录。
+年营收104亿 净利同比降3% 晶合集成成立于2015年5月，由合肥市建设投资控股（集团）有限公司与力晶创新投资控股股份有限公司合资建设。
 
-与此同时，瑞士央行行长Martin Schlegel在年度股东大会上明确表态：黄金储备“不增不减”。
+晶合集成主要从事 12 英寸晶圆代工业务，致力于研发及应用行业先进的工艺，为客户提供不同工艺平台、多种制程节点的晶圆代工服务。
 
-星展银行（中国）高级投资策略师邓志坚对第一财经分析称，短期内中东部分国家依旧在抛售黄金以变现，所以黄金价格难以在短期内重回5000美元/盎司。
+在晶圆代工制程节点方面，晶合集成已实现150nm至40nm制程平台的量产，28nmOLED产品持续验证中，28nm 逻辑工艺平台已完成开发。
 
-中长期看，投资者对黄金的需求依然强劲，截至目前，COMEX黄金期货远期合约价格维持在4800美元/盎司以上，明年9月到期合约报价将超过5000美元/盎司。
+在工艺平台应用方面，公司目前已具备DDIC、CIS、PMIC、Logic、MCU 等工艺平台晶圆代工的技术能力。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 18:00 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 18:11 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 18:17 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 18:16 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 18:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 18:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 18:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 17:59 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 18:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 17:56 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 18:06 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 18:02 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 18:01 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 18:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 18:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 18:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 18:08 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 18:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 18:29 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 18:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 18:05 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 18:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 18:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 18:05 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 18:08 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/42301.shtml)
-- 2026-06-29 18:08 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/02371786754.shtml)
-- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/327335123.shtml)
-- 2026-06-29 17:56 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/71145.shtml)
-- 2026-06-29 18:15 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/0687219.shtml)
-- 2026-06-29 18:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/8366149659.shtml)
-- 2026-06-29 17:56 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/0571021.shtml)
-- 2026-06-29 18:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/172041120.shtml)
-- 2026-06-29 17:56 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/22939.shtml)
-- 2026-06-29 18:13 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/4028103.shtml)
-- 2026-06-29 18:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/083259214698.shtml)
-- 2026-06-29 18:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/917754646219.shtml)
-- 2026-06-29 17:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/16917895.shtml)
-- 2026-06-29 18:00 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/2303906876.shtml)
-- 2026-06-29 18:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/867817.shtml)
+- 2026-06-29 18:26 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/191036443023.shtml)
+- 2026-06-29 18:20 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/6331083.shtml)
+- 2026-06-29 18:25 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/97536889.shtml)
+- 2026-06-29 18:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/8951261.shtml)
+- 2026-06-29 18:09 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/482002.shtml)
+- 2026-06-29 18:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/94244480286.shtml)
+- 2026-06-29 18:14 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/07811098.shtml)
+- 2026-06-29 18:14 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/40675.shtml)
+- 2026-06-29 18:22 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/580571525212.shtml)
+- 2026-06-29 18:23 - [天道](http://www.share.kurohicncr.top/Article/details/1684004546.shtml)
+- 2026-06-29 18:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/806091058.shtml)
+- 2026-06-29 18:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/25510.shtml)
+- 2026-06-29 18:21 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/56372.shtml)
+- 2026-06-29 18:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/512582687751.shtml)
+- 2026-06-29 18:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/48032325517.shtml)

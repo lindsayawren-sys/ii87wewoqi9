@@ -1,56 +1,59 @@
-# 港股通创新药再度下探，520880跌逾1%失守60日线，场内频现溢价！机构：关注创新药底部布局机会
+# 长护险落地，服务供给如何跟上
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-4月27日，港股通创新药再度调整，100%创新药研发标的——港股通创新药ETF华宝（520880）跌逾1%失守60日线，场内频现溢价，显示买盘活跃。此前2个交易日，合计逾3900万元资金连续进场。 权重龙头普跌为主要拖累，前十成份股中仅康方生物逆市涨超3%，信达生物、翰森制药、中国生物制药等多股跌逾2%，三生制药、映恩生物-B跌超4%。 消息面，22日，药物临床试验登记与信息公
+近日，《关于加快建立长期护理保险制度的意见》（以下简称《意见》）印发。《意见》明确，用3年左右时间，基本建立适应我国基本国情的长期护理保险制度。 2016年国家启动长期护理保险制度试点，2020年试点工作稳妥有序扩大至49个城市，再到2025年底的92个城市。试点城市的探索，为在全国范围内推广提供了宝贵经验。 长护险服务机构资源能否满足需求？能力怎么样？服务质量如何？记者赴试点
 
 ## 正文
 
-4月27日，港股通创新药再度调整，100%创新药研发标的——港股通创新药ETF华宝（520880）跌逾1%失守60日线，场内频现溢价，显示买盘活跃。
+近日，《关于加快建立长期护理保险制度的意见》（以下简称《意见》）印发。
 
-此前2个交易日，合计逾3900万元资金连续进场。
+《意见》明确，用3年左右时间，基本建立适应我国基本国情的长期护理保险制度。
 
-权重龙头普跌为主要拖累，前十成份股中仅康方生物逆市涨超3%，信达生物、翰森制药、中国生物制药等多股跌逾2%，三生制药、映恩生物-B跌超4%。
+2016年国家启动长期护理保险制度试点，2020年试点工作稳妥有序扩大至49个城市，再到2025年底的92个城市。
 
-消息面，22日，药物临床试验登记与信息公示平台公示，康方生物正式启动全球首创ILT2/ILT4/CSF1R三特异性抗体AK150的I期临床研究，用于晚期恶性实体瘤治疗。
+试点城市的探索，为在全国范围内推广提供了宝贵经验。
 
-港股通创新药近期震荡走势，中泰证券分析指出，ASCO 年会摘要标题如期读出，国内康方、信达、科伦博泰、百利天恒等创新药领域龙头管线数据读出得到”汇报入选“的阶段性验证，前期市场炒作逻辑初步兑现，致使创新药/创新产业链板块资本市场表现相对承压。
+长护险服务机构资源能否满足需求？
 
-* 该机构进一步表示，建议关注创新药底部布局机会：AACR 盛会落幕，ASCO 续接重启数据披露窗口，中国学者主导并入选的研究摘要已达95 项（再创新高），国产创新药出海从 follow 到引领的逻辑再增强。
+能力怎么样？
 
-技术面：港股生物科技、港股制药等核心指数均调整较为充分并形成支撑；在 AI 等科技赛道调整背景下，创新药或成为成长股内的“避险”方向。
+服务质量如何？
 
-* 国产创新药获益于政策呵护、BD爆发、龙头盈利、AI赋能等多重利好共振，中长期投资逻辑坚挺。
+记者赴试点城市山东青岛、江苏南通调研，寻找答案。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 18:22 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 17:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 18:09 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 18:00 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 18:06 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 18:11 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 18:00 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:02 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 18:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 18:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 18:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 18:16 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 18:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 18:24 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:28 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 18:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 18:22 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 18:23 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 18:13 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/721900527.shtml)
-- 2026-06-29 18:11 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/4169144942.shtml)
-- 2026-06-29 18:21 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/82671519.shtml)
-- 2026-06-29 18:10 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/96127012159.shtml)
-- 2026-06-29 18:16 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/212738.shtml)
-- 2026-06-29 18:16 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/07001296610.shtml)
-- 2026-06-29 18:09 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/678495682.shtml)
-- 2026-06-29 18:03 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/342845.shtml)
-- 2026-06-29 18:19 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/81813863.shtml)
-- 2026-06-29 18:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/81474489367.shtml)
-- 2026-06-29 18:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/16479.shtml)
-- 2026-06-29 18:09 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/9324794865.shtml)
-- 2026-06-29 18:02 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0864688145.shtml)
-- 2026-06-29 17:56 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/760985000.shtml)
-- 2026-06-29 18:05 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/837412.shtml)
+- 2026-06-29 18:25 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/22220009909.shtml)
+- 2026-06-29 18:01 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/3507228.shtml)
+- 2026-06-29 18:04 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/851785.shtml)
+- 2026-06-29 18:14 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/07071748703.shtml)
+- 2026-06-29 18:02 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/64480395.shtml)
+- 2026-06-29 18:09 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/40221062746.shtml)
+- 2026-06-29 18:01 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/27348.shtml)
+- 2026-06-29 18:20 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/102725673401.shtml)
+- 2026-06-29 18:17 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/39913.shtml)
+- 2026-06-29 18:17 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/0854584446.shtml)
+- 2026-06-29 18:04 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/64434458881.shtml)
+- 2026-06-29 18:07 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/24985281823.shtml)
+- 2026-06-29 18:08 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/902861214242.shtml)
+- 2026-06-29 18:15 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/1727685848.shtml)
+- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/08023221.shtml)

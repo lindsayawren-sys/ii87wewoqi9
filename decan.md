@@ -1,60 +1,59 @@
-# 知情人士披露白宫记协晚宴枪击事件嫌疑人身份信息
+# 如果伊朗计划对霍尔木兹海峡收费，美国海军第五舰队将何去何从？
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-当地时间4月26日，有知情人士透露，涉嫌在白宫记者协会晚宴现场开枪的男子为来自美国南加州的一名教师兼游戏开发者。 多名知情人士称，现年31岁的科尔·托马斯·艾伦已被执法部门确认为嫌疑人，其居住在洛杉矶托伦斯市。当晚他在总统特朗普及多名政要出席的晚宴现场附近被控制。 一份与其姓名和照片相符的领英资料显示，艾伦为C2教育公司的一名兼职教师，该公司主要从事考试培训与辅导业务。 资料还
+作者：布拉德・伦登 伊朗最高国家安全委员会声明及官方媒体披露的停火协议中，包含伊朗的两项要求，这给美国海军在中东的持续存在带来了疑问。 其一，德黑兰拟对通过霍尔木兹海峡的船只征收通行费； 其二，伊朗明确要求美国作战部队撤出该地区。 一个核心问题是：军舰是否也需要缴纳通行费？ 美国海军第五舰队暨美国海军中央司令部，总部设在波斯湾内的巴林。 第五舰队负责的海域面积达 250 万平方
 
 ## 正文
 
-当地时间4月26日，有知情人士透露，涉嫌在白宫记者协会晚宴现场开枪的男子为来自美国南加州的一名教师兼游戏开发者。
+作者：布拉德・伦登 伊朗最高国家安全委员会声明及官方媒体披露的停火协议中，包含伊朗的两项要求，这给美国海军在中东的持续存在带来了疑问。
 
-多名知情人士称，现年31岁的科尔·托马斯·艾伦已被执法部门确认为嫌疑人，其居住在洛杉矶托伦斯市。
+其一，德黑兰拟对通过霍尔木兹海峡的船只征收通行费； 其二，伊朗明确要求美国作战部队撤出该地区。
 
-当晚他在总统特朗普及多名政要出席的晚宴现场附近被控制。
+一个核心问题是：军舰是否也需要缴纳通行费？
 
-一份与其姓名和照片相符的领英资料显示，艾伦为C2教育公司的一名兼职教师，该公司主要从事考试培训与辅导业务。
+美国海军第五舰队暨美国海军中央司令部，总部设在波斯湾内的巴林。
 
-资料还显示，艾伦于2017年毕业于加州理工学院，获机械工程学士学位，并于去年在加州州立大学多明格斯山分校获得计算机科学硕士学位。
+第五舰队负责的海域面积达 250 万平方英里，包括波斯湾、阿曼湾、红海及部分印度洋海域。
 
-此外，根据美国联邦选举委员会记录，艾伦曾于2024年10月向卡玛拉·哈里斯捐款25美元支持其总统竞选。
+除霍尔木兹海峡外，第五舰队还管控着红海北端的苏伊士运河、红海南端的曼德海峡等关键海上咽喉要道。
 
-相关新闻 当地时间25日晚，因美国白宫记者协会晚宴突发安全事件，参加晚宴的美国总统特朗普及其夫人梅拉尼娅以及一众与会美国高级官员从该活动现场紧急疏散。
+新加坡拉惹勒南国际研究院研究员高・睿林表示：“如果必须缴纳通行费，这显然会削弱美国军方进入波斯湾的通道。
 
-事件发生后不久，美国总统特朗普在白宫新闻简报室举行新闻发布会。
+” “除非特朗普打算让美国中央司令部彻底调整在中东波斯湾地区的部署态势，否则我不认为这套收费制度能够落地。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 17:55 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 18:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 18:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 18:21 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 18:16 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 18:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 18:09 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 18:03 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 18:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 17:59 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 18:04 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 18:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 18:16 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 18:18 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 18:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 18:17 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 18:13 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 18:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 18:08 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 18:06 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 18:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 18:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 18:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 18:15 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:04 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/97820034.shtml)
-- 2026-06-29 18:21 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/47235.shtml)
-- 2026-06-29 17:58 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/43736.shtml)
-- 2026-06-29 18:15 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/2589067.shtml)
-- 2026-06-29 17:54 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/0595857295.shtml)
-- 2026-06-29 18:10 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/5774238543.shtml)
-- 2026-06-29 18:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/2951063.shtml)
-- 2026-06-29 17:54 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/93241.shtml)
-- 2026-06-29 18:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/67158061.shtml)
-- 2026-06-29 18:12 - [机器人学校开学了](http://www.share.minike.top/Article/details/379557.shtml)
-- 2026-06-29 17:56 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/023456502.shtml)
-- 2026-06-29 18:22 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/9865727.shtml)
-- 2026-06-29 17:55 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/7517475.shtml)
-- 2026-06-29 18:22 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/533988.shtml)
-- 2026-06-29 18:12 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/639437120123.shtml)
+- 2026-06-29 18:22 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/8876174029.shtml)
+- 2026-06-29 18:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/33704579380.shtml)
+- 2026-06-29 18:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/45152.shtml)
+- 2026-06-29 18:25 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/7835654402.shtml)
+- 2026-06-29 18:00 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/8388718974.shtml)
+- 2026-06-29 18:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/4107999632.shtml)
+- 2026-06-29 18:09 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/1613158.shtml)
+- 2026-06-29 18:10 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/75025471.shtml)
+- 2026-06-29 18:05 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/48236.shtml)
+- 2026-06-29 18:02 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/3300428126.shtml)
+- 2026-06-29 18:13 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/82808726.shtml)
+- 2026-06-29 18:04 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/1766695.shtml)
+- 2026-06-29 18:20 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/7481245.shtml)
+- 2026-06-29 18:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/7583007.shtml)
+- 2026-06-29 18:05 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/3290915.shtml)

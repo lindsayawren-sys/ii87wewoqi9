@@ -1,57 +1,59 @@
-# Meta达成太阳能电力合作协议
+# 特朗普称美伊达成停火两周协议，伊朗10点提案可谈
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-内容摘要 Meta已签约，将向太空能源初创企业奥弗维尤能源（Overview Energy）采购最高 1 吉瓦的太阳能电力。 这家脸书母公司达成协议，将向奥弗维尤能源采购规模最高达 1 吉瓦的太阳能电力。该初创企业致力于部署特种卫星，为地面用户输送电力。 公司首席执行官马克・伯特表示，奥弗维尤计划在 2028 年开展太空在轨技术验证，并力争两年后正式推出商业化服务。 本次合作，
+专题：突发！美伊停火两周 原油暴跌15% #特朗普称伊朗10点提案可谈#更新：当地时间4月7日傍晚，北京时间今天（4月8日）清晨，美国总统特朗普在社交媒体发文称，“基于与巴基斯坦总理谢里夫和陆军元帅阿西姆·穆尼尔的会谈，他们请求我推迟今晚针对伊朗的军事打击行动；同时，若伊朗同意完全、立即且安全地开放霍尔木兹海峡，我同意暂停对伊朗的轰炸和攻击，为期两周。这将是一项双向的停火协议！
 
 ## 正文
 
-内容摘要 Meta已签约，将向太空能源初创企业奥弗维尤能源（Overview Energy）采购最高 1 吉瓦的太阳能电力。
+专题：突发！
 
-这家脸书母公司达成协议，将向奥弗维尤能源采购规模最高达 1 吉瓦的太阳能电力。
+美伊停火两周 原油暴跌15% #特朗普称伊朗10点提案可谈#更新：当地时间4月7日傍晚，北京时间今天（4月8日）清晨，美国总统特朗普在社交媒体发文称，“基于与巴基斯坦总理谢里夫和陆军元帅阿西姆·穆尼尔的会谈，他们请求我推迟今晚针对伊朗的军事打击行动；同时，若伊朗同意完全、立即且安全地开放霍尔木兹海峡，我同意暂停对伊朗的轰炸和攻击，为期两周。
 
-该初创企业致力于部署特种卫星，为地面用户输送电力。
+这将是一项双向的停火协议！
 
-公司首席执行官马克・伯特表示，奥弗维尤计划在 2028 年开展太空在轨技术验证，并力争两年后正式推出商业化服务。
+”#特朗普称美伊就争议点达成一致##特朗普同意有条件停火两周#特朗普在帖文中称，“此举的原因是，我们已经达成并超越了所有军事目标，并且与伊朗就中东地区的长期和平协议已取得决定性进展。
 
-本次合作，凸显各大科技巨头正加速布局新型能源供给方案，为人工智能高耗能发展目标提供能源支撑。
+我们收到了伊朗提出的10点提案，并认为这是一个可行的谈判基础。
 
-双方暂未披露协议具体条款。
+美国和伊朗之间几乎已经就过去所有的争议点达成一致，但这两周的时间将用于最终敲定并完成协议。
 
-轨道太阳能发电的构想已有数十年历史：早在 1941 年，艾萨克・阿西莫夫的科幻小说中便提及这一概念，此后各大高校与政府科研机构也长期开展相关研究。
+”目前伊朗对特朗普的最新表态暂无回应。
 
-受复杂技术难题与高昂成本限制，轨道太阳能系统长期难以落地，无法与传统能源形成互补或竞争。
+（北京青年报）责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 18:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 18:03 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 18:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 17:57 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 17:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 18:03 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 17:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 18:17 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:03 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 18:22 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 18:24 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 18:19 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 18:28 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 18:24 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 18:07 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 18:21 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 18:09 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 18:09 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 18:08 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 18:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 18:13 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 18:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/092956.shtml)
-- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/166125182.shtml)
-- 2026-06-29 17:59 - [急先锋](http://www.share.minike.top/Article/details/61405630272.shtml)
-- 2026-06-29 18:00 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/08664.shtml)
-- 2026-06-29 18:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/00820.shtml)
-- 2026-06-29 18:20 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/912959039.shtml)
-- 2026-06-29 18:01 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/716123.shtml)
-- 2026-06-29 17:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/933889370836.shtml)
-- 2026-06-29 18:15 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/52010909653.shtml)
-- 2026-06-29 18:11 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/3310372.shtml)
-- 2026-06-29 18:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/27865915449.shtml)
-- 2026-06-29 18:03 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/94663.shtml)
-- 2026-06-29 17:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/28149.shtml)
-- 2026-06-29 18:12 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/59399407.shtml)
-- 2026-06-29 18:03 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/72387.shtml)
+- 2026-06-29 18:24 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/84357779.shtml)
+- 2026-06-29 18:02 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/9121892143.shtml)
+- 2026-06-29 18:28 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/166433117027.shtml)
+- 2026-06-29 18:07 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0298649017.shtml)
+- 2026-06-29 18:27 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/3250213447.shtml)
+- 2026-06-29 18:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/5774074307.shtml)
+- 2026-06-29 18:29 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/70635723769.shtml)
+- 2026-06-29 18:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/1289976264.shtml)
+- 2026-06-29 18:26 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/36327.shtml)
+- 2026-06-29 18:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/632832.shtml)
+- 2026-06-29 18:13 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/093081648.shtml)
+- 2026-06-29 18:12 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/873010117025.shtml)
+- 2026-06-29 18:26 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/122469887555.shtml)
+- 2026-06-29 18:11 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/7108428.shtml)
+- 2026-06-29 18:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/7522926.shtml)

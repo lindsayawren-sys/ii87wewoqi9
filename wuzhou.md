@@ -1,58 +1,55 @@
-# 多家廉价航司向特朗普政府提案，申请25亿美元救助计划
+# 伊朗民众在全国各地的桥梁及发电厂周围组成人链
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-精神航空仍在与官方磋商，业内高管认为当下是争取财政援助与税收减免的窗口期 内容速览 边疆航空、阿维洛航空等一众廉价航空公司，正寻求 25 亿美元政府救助资金，并以股权认股权证作为对价。 据知情人士透露，以边疆航空、阿维洛航空为代表的美国廉价航空联盟，正向美国政府申请25 亿美元救助补贴，用以换取可转换为企业股权的认股权证。 部分知情人士表示，25 亿美元的救助金额，由各家航司测
+伊朗官方及其他当地媒体发布的视频和照片显示，为回应特朗普总统摧毁基础设施的威胁，伊朗民众正全国各地的桥梁及发电厂周围组成人链。许多示威者挥舞着伊朗伊斯兰共和国国旗，或是手持在美以战争首轮打击中身亡的最高领袖阿亚图拉・阿里・哈梅内伊的画像。 伊朗半官方的梅赫尔通讯社发布的照片显示，在西部城市克尔曼沙赫，抗议者在一座发电厂前举着横幅，上面写着：“袭击电力基础设施属于战争罪。” 改革
 
 ## 正文
 
-精神航空仍在与官方磋商，业内高管认为当下是争取财政援助与税收减免的窗口期 内容速览 边疆航空、阿维洛航空等一众廉价航空公司，正寻求 25 亿美元政府救助资金，并以股权认股权证作为对价。
+伊朗官方及其他当地媒体发布的视频和照片显示，为回应特朗普总统摧毁基础设施的威胁，伊朗民众正全国各地的桥梁及发电厂周围组成人链。
 
-据知情人士透露，以边疆航空、阿维洛航空为代表的美国廉价航空联盟，正向美国政府申请25 亿美元救助补贴，用以换取可转换为企业股权的认股权证。
+许多示威者挥舞着伊朗伊斯兰共和国国旗，或是手持在美以战争首轮打击中身亡的最高领袖阿亚图拉・阿里・哈梅内伊的画像。
 
-部分知情人士表示，25 亿美元的救助金额，由各家航司测算得出：即今年航空煤油实际支出，较年初预算的新增差额；测算前提为，今年剩余时间航空煤油均价将持续高于每加仑 4 美元。
+伊朗半官方的梅赫尔通讯社发布的照片显示，在西部城市克尔曼沙赫，抗议者在一座发电厂前举着横幅，上面写着：“袭击电力基础设施属于战争罪。
 
-相关人士称，针对本次救助方案的磋商将于未来数日持续推进。
+” 改革派报纸《东方报》发布的视频显示，在北部地区，塞姆南发电厂前的抗议者高呼 “美国去死，以色列去死”。
 
-特朗普总统周四在白宫椭圆办公室表态，乐见美国航空行业保持充分竞争、航司数量多元化，这也让廉价航司阵营备受鼓舞。
+战争期间，伊朗政府多次组织支持政府的集会。
 
-白宫发言人暂未对此置评。
+目前尚不清楚今日的示威活动是自发的还是有组织策划的。
 
-与此同时，美国政府正单独审议为精神航空提供兜底救助，避免其破产清算。
-
-《华尔街曰报》此前报道，精神航空正单独谈判，拟申请最高 5 亿美元政府贷款，作为交换，美国政府将获得该航司认股权证，有望持有其大量股份。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 18:22 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 18:02 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 18:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 18:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 17:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 17:58 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 18:18 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 18:08 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 18:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 18:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 18:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 18:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 18:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 18:11 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 18:09 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 18:22 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 18:14 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 18:29 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 18:01 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 18:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 18:21 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/214743944.shtml)
-- 2026-06-29 18:11 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/452671056.shtml)
-- 2026-06-29 18:10 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/13392.shtml)
-- 2026-06-29 18:13 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/734356116695.shtml)
-- 2026-06-29 18:12 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/9828513.shtml)
-- 2026-06-29 18:08 - [叠纸](https://www.blog.kurohicncr.top/Article/details/653148083140.shtml)
-- 2026-06-29 18:19 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/177163.shtml)
-- 2026-06-29 17:56 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/60340437.shtml)
-- 2026-06-29 18:23 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/418989252612.shtml)
-- 2026-06-29 18:11 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/3371847631.shtml)
-- 2026-06-29 18:12 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/1730384.shtml)
-- 2026-06-29 18:22 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/3195067662.shtml)
-- 2026-06-29 18:04 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/7413280.shtml)
-- 2026-06-29 18:01 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/671855.shtml)
-- 2026-06-29 18:18 - [速度与激情9](https://www.share.minike.top/Article/details/2500045009.shtml)
+- 2026-06-29 18:09 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/5649707475.shtml)
+- 2026-06-29 18:10 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/796720144.shtml)
+- 2026-06-29 18:07 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/85975.shtml)
+- 2026-06-29 18:25 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/22483182709.shtml)
+- 2026-06-29 18:03 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/6863549.shtml)
+- 2026-06-29 18:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/110624.shtml)
+- 2026-06-29 18:16 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/365232.shtml)
+- 2026-06-29 18:15 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/728387826.shtml)
+- 2026-06-29 18:15 - [叠纸](https://www.blog.kurohicncr.top/Article/details/5230311987.shtml)
+- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/44736348.shtml)
+- 2026-06-29 18:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/156115334.shtml)
+- 2026-06-29 18:05 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/1771201.shtml)
+- 2026-06-29 18:03 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/44150710635.shtml)
+- 2026-06-29 18:24 - [当我回母校教书](https://www.blog.minike.top/Article/details/41499724.shtml)
+- 2026-06-29 18:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/92491462.shtml)

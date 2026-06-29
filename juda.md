@@ -1,56 +1,57 @@
-# 仰望U9X量产高定与U8L鼎藏版北京车展全球首秀
+# 炭黑龙头也“黑脸”：黑猫股份2025年巨亏4.63亿元，导电炭黑布局短期难救主业
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-2026年4月24日，第十九届北京国际汽车展览会盛大开幕。仰望汽车携旗下2026款U7、U8、U8L鼎世版，以及首款登陆Gran Turismo7的中国超跑仰望U9同台亮相。同时，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”与仰望U8L鼎藏版在本届车展上全球首发，这是仰望从“技术突破者”跨入“豪华定义者”关键时刻。车展现场，仰望U9X“破晓时刻”以极致工艺与深
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 国内炭黑行业龙头黑猫股份近日披露2025年度财报，公司全年实现营业收入86.85亿元，同比下滑14.28%；归母净利润亏损4.63亿元，同比降幅超19倍，创下近三年最大亏损纪录。 在2025年炭黑行业供需失衡、价格承压的背景下，公司传统主业盈利崩塌，尽管在新能源领域布局初见成效，但短期仍难抵
 
 ## 正文
 
-2026年4月24日，第十九届北京国际汽车展览会盛大开幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-仰望汽车携旗下2026款U7、U8、U8L鼎世版，以及首款登陆Gran Turismo7的中国超跑仰望U9同台亮相。
+来源：上市之家 国内炭黑行业龙头黑猫股份近日披露2025年度财报，公司全年实现营业收入86.85亿元，同比下滑14.28%；归母净利润亏损4.63亿元，同比降幅超19倍，创下近三年最大亏损纪录。
 
-同时，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”与仰望U8L鼎藏版在本届车展上全球首发，这是仰望从“技术突破者”跨入“豪华定义者”关键时刻。
+在2025年炭黑行业供需失衡、价格承压的背景下，公司传统主业盈利崩塌，尽管在新能源领域布局初见成效，但短期仍难抵行业下行压力，转型突围面临多重挑战。
 
-车展现场，仰望U9X“破晓时刻”以极致工艺与深度个性化定制，回应全球顶尖藏家的精神共鸣；仰望U8L鼎藏版则以东方美学重塑行政旗舰格局，于鼎世版之上再造极致出行新境界。
+行业深度调整成为业绩变脸的核心诱因。
 
-从性能传奇到公路艺术，仰望U9X开启全球高定新章 作为中国超跑征服全球的旗帜，仰望U9X继以496.22km/h极速刷新全球超跑极速纪录，以6分59秒征服纽博格林北环后，在此次北京车展期间，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”首次亮相。
+2025年炭黑行业呈现“量增、价减、利弱”的格局，纳入中国橡胶协会统计的31家会员企业中42%陷入亏损。
 
-其设计灵感源自U9X打破世界纪录当天清晨冲破云层的第一缕金色阳光，这是属于仰望的“破晓时刻”。
+作为行业龙头，黑猫股份虽维持了92.89%的高产能利用率，全年炭黑产销量分别达107.94万吨和106.50万吨，但产品价格持续走低挤压了利润空间。
 
-“破晓时刻”车身漆面中融入了微米级超细金粉，经多层清漆层层锁固，不同光线下，漆面会完美复刻朝阳穿透云层的流光溢彩。
+以主流产品N330为例，2025年山东地区均价同比下跌17.89%，而上游煤焦油价格震荡波动，导致炭黑产品价格与成本出现“倒挂”，利润空间被大幅压缩。
 
-哑光金部分使用了中国传统非遗大漆的打磨工艺，将东方独有的温润质感，刻入每一寸型面。
+主业结构单一且抗风险能力弱的短板凸显。
 
 ## 相关推荐
 
-- 2026-06-29 18:20 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 18:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:06 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 18:01 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 18:17 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 18:00 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 18:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 18:22 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 18:03 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 18:03 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 18:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 18:18 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 18:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:18 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 18:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 18:24 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 18:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 18:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/43136.shtml)
-- 2026-06-29 18:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/51392502789.shtml)
-- 2026-06-29 18:00 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/2554479546.shtml)
-- 2026-06-29 18:06 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/917403300.shtml)
-- 2026-06-29 18:15 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/75740.shtml)
-- 2026-06-29 17:59 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/9035597134.shtml)
-- 2026-06-29 18:09 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/11889598.shtml)
-- 2026-06-29 18:03 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/54194366.shtml)
-- 2026-06-29 18:21 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/79050.shtml)
-- 2026-06-29 17:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/232320008.shtml)
-- 2026-06-29 18:13 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/39992.shtml)
-- 2026-06-29 18:08 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/904752540336.shtml)
-- 2026-06-29 18:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/0466747.shtml)
-- 2026-06-29 18:10 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/97367987.shtml)
-- 2026-06-29 18:17 - [女心理师](http://www.blog.kurohicncr.top/Article/details/712000301.shtml)
+- 2026-06-29 18:18 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/97813.shtml)
+- 2026-06-29 18:17 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/974361.shtml)
+- 2026-06-29 18:06 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/963462.shtml)
+- 2026-06-29 18:18 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/55704.shtml)
+- 2026-06-29 18:19 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/848570.shtml)
+- 2026-06-29 18:02 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/35786041630.shtml)
+- 2026-06-29 18:27 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/435925185255.shtml)
+- 2026-06-29 18:29 - [5万块的威力](http://www.blog.minike.top/Article/details/091707149536.shtml)
+- 2026-06-29 18:10 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/85605042.shtml)
+- 2026-06-29 18:21 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/594667120692.shtml)
+- 2026-06-29 18:25 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/103990680.shtml)
+- 2026-06-29 18:07 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/49592118.shtml)
+- 2026-06-29 18:15 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/70724.shtml)
+- 2026-06-29 18:04 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/438505168296.shtml)
+- 2026-06-29 18:13 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/70412380101.shtml)

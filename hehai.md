@@ -1,58 +1,53 @@
-# AI硬件引爆市场！继续抱团还是撤退？基金经理分歧加大
+# A股午评：近5000只个股飘红！三大指数集体大涨，创业板指涨近5%，黄金、芯片板块大涨，石油股领跌
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-在A股市场因业绩不及预期引发AI赛道震荡之际，美股市场正迎来新一轮轰轰烈烈的科技大反弹。 近期，A股部分“光”主题概念股表现乏力，拖累整个AI板块表现，部分公司一季度业绩不及预期以及关于极致抱团的质疑引发AI板块股价高位震荡，让A股投资者对AI的投资信仰中多了一分理性。 而美股市场中，一场由AI硬件主导的反弹，并不输A股，AI领域的硬件投资逻辑仍处于阶段性巅峰。 面对分化的市场
+8日，A股三大指数高开高走，沪指涨近2%，创业板指涨近5%。截至午间收盘，沪指涨1.92%，深证成指涨3.87%，创业板指涨4.81%。全市半日成交额1.55万亿，近5000只个股上涨。 板块方面，算力硬件、AI应用、半导体、人工智能、黄金、金融科技、消费电子、工业金属、商业航天、人形机器人概念股全线走强；油气、煤炭板块调整。
 
 ## 正文
 
-在A股市场因业绩不及预期引发AI赛道震荡之际，美股市场正迎来新一轮轰轰烈烈的科技大反弹。
+8日，A股三大指数高开高走，沪指涨近2%，创业板指涨近5%。
 
-近期，A股部分“光”主题概念股表现乏力，拖累整个AI板块表现，部分公司一季度业绩不及预期以及关于极致抱团的质疑引发AI板块股价高位震荡，让A股投资者对AI的投资信仰中多了一分理性。
+截至午间收盘，沪指涨1.92%，深证成指涨3.87%，创业板指涨4.81%。
 
-而美股市场中，一场由AI硬件主导的反弹，并不输A股，AI领域的硬件投资逻辑仍处于阶段性巅峰。
+全市半日成交额1.55万亿，近5000只个股上涨。
 
-面对分化的市场格局，基金经理们对AI赛道的配置思路，分歧明显加大。
-
-AI硬件主导中美股市反弹 当前，无论是A股还是美股，AI投资已从此前流动性驱动的普涨行情，全面转向“盈利兑现优先、硬件占优”的新阶段。
-
-美股周五（4月24日）收盘，费城半导体指数单日大涨4.32%，其中英特尔股价单日飙升23.6%，ARM、Rambus、超威半导体涨幅均达14%左右。
-
-作为囊括全球30家半导体头部企业、硬件属性突出的核心指数，费城半导体指数自3月底以来反弹幅度高达47.21%，近一年涨幅接近1.5倍。
-
-指数成份股中，英特尔、泰瑞达、ARM今年以来股价均实现翻倍，美光科技、泰瑞达、Coherent（COHR）近一年股价涨幅更是分别达到5.24倍、4.44倍和4.21倍。
+板块方面，算力硬件、AI应用、半导体、人工智能、黄金、金融科技、消费电子、工业金属、商业航天、人形机器人概念股全线走强；油气、煤炭板块调整。
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 18:11 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 18:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 18:06 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 18:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 18:03 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 18:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 18:00 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 17:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 17:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 18:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 18:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 18:23 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:23 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 18:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 18:15 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 18:07 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 18:02 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 18:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:16 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 18:02 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 18:23 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 18:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 18:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 18:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 18:29 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 18:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/34327707.shtml)
-- 2026-06-29 18:16 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/84988324.shtml)
-- 2026-06-29 18:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/984386393100.shtml)
-- 2026-06-29 18:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/1742948.shtml)
-- 2026-06-29 18:09 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/42468597833.shtml)
-- 2026-06-29 18:10 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/815961407665.shtml)
-- 2026-06-29 18:00 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5673043418.shtml)
-- 2026-06-29 18:21 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/089771264.shtml)
-- 2026-06-29 18:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/9279171.shtml)
-- 2026-06-29 17:56 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/238234.shtml)
-- 2026-06-29 18:17 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/504597.shtml)
-- 2026-06-29 18:06 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/5344980.shtml)
-- 2026-06-29 18:20 - [TTG KSG](http://www.blog.minike.top/Article/details/71198719.shtml)
-- 2026-06-29 18:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/4149456.shtml)
-- 2026-06-29 18:01 - [金刚川](http://www.blog.minike.top/Article/details/93080228815.shtml)
+- 2026-06-29 18:07 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/54160.shtml)
+- 2026-06-29 18:11 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/35932.shtml)
+- 2026-06-29 18:00 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/64059578.shtml)
+- 2026-06-29 18:17 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/2349410237.shtml)
+- 2026-06-29 18:06 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/739121.shtml)
+- 2026-06-29 18:01 - [一生一世](http://www.blog.kurohicncr.top/Article/details/22267.shtml)
+- 2026-06-29 18:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/173849.shtml)
+- 2026-06-29 18:15 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/3294767.shtml)
+- 2026-06-29 18:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/6532880.shtml)
+- 2026-06-29 18:10 - [女心理师](http://www.share.minike.top/Article/details/8146478.shtml)
+- 2026-06-29 18:04 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/35457221244.shtml)
+- 2026-06-29 18:11 - [扬名立万](https://www.blog.minike.top/Article/details/1183073.shtml)
+- 2026-06-29 18:14 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/3073393.shtml)
+- 2026-06-29 18:17 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/249934950.shtml)
+- 2026-06-29 18:10 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/59583.shtml)

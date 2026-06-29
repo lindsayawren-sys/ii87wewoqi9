@@ -1,47 +1,56 @@
-# 航拍雄安南河枢纽：一城春色 水岸盛景
+# 特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 19:04 来源：中国新闻网 近日，雄安新区南河枢纽碧水盈盈，新中式建筑映着波光，岸柳含烟、水鸟翩飞，水城共荣，满是生机与清新诗意。 南河枢纽位于雄安新区启动区的最南端，启动区、起步区城市界面与白洋淀生态界面的交汇处，在北城、中苑、南淀之间承载着重要的过渡、衔接功能，既是水陆交通的枢纽又是城淀相望的门户。 (谌诗雨 韩冰 视频来源 雄安新区宣传
+文章来源：金十数据 据路透社报道，美国总统特朗普当地时间周三表示，美国将协助处理霍尔木兹海峡日益积压的航运交通问题。 特朗普周二同意与伊朗停火两周，当时距离他要求德黑兰重新开放海峡、否则将面临民用基础设施打击的最后期限，已不到两小时。 特朗普表示，这一最后一刻达成的协议，以伊朗同意暂停封锁通过该海峡的石油和天然气供应为条件。霍尔木兹海峡通常承载着全球约五分之一的石油运输量。 特
 
 ## 正文
 
-发布时间：2026年04月27日 19:04 来源：中国新闻网 近日，雄安新区南河枢纽碧水盈盈，新中式建筑映着波光，岸柳含烟、水鸟翩飞，水城共荣，满是生机与清新诗意。
+文章来源：金十数据 据路透社报道，美国总统特朗普当地时间周三表示，美国将协助处理霍尔木兹海峡日益积压的航运交通问题。
 
-南河枢纽位于雄安新区启动区的最南端，启动区、起步区城市界面与白洋淀生态界面的交汇处，在北城、中苑、南淀之间承载着重要的过渡、衔接功能，既是水陆交通的枢纽又是城淀相望的门户。
+特朗普周二同意与伊朗停火两周，当时距离他要求德黑兰重新开放海峡、否则将面临民用基础设施打击的最后期限，已不到两小时。
 
-(谌诗雨 韩冰 视频来源 雄安新区宣传网信局） 责任编辑：【周驰】
+特朗普表示，这一最后一刻达成的协议，以伊朗同意暂停封锁通过该海峡的石油和天然气供应为条件。
+
+霍尔木兹海峡通常承载着全球约五分之一的石油运输量。
+
+特朗普说：“我们将装载各种物资，就‘待在附近’，以确保一切顺利。
+
+” 特朗普还庆祝道：“世界和平的大日子！
+
+伊朗希望这一切发生，他们受够了！
+
+其他人也一样！
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 18:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 18:21 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:02 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:21 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 18:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 18:03 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 18:16 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:59 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 18:07 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 18:15 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 18:06 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 18:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 18:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 18:12 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:23 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 18:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:15 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 18:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 18:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/0751453650.shtml)
-- 2026-06-29 17:56 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/74579302.shtml)
-- 2026-06-29 18:06 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/3595951.shtml)
-- 2026-06-29 18:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/24170.shtml)
-- 2026-06-29 18:07 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/5394222633.shtml)
-- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/675648.shtml)
-- 2026-06-29 18:12 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/46968712268.shtml)
-- 2026-06-29 18:00 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/684638170263.shtml)
-- 2026-06-29 17:57 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/125650.shtml)
-- 2026-06-29 17:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/200813190.shtml)
-- 2026-06-29 18:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/6478937715.shtml)
-- 2026-06-29 17:56 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/424685411456.shtml)
-- 2026-06-29 18:08 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/2536420.shtml)
-- 2026-06-29 18:22 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/39209.shtml)
-- 2026-06-29 18:19 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/39679088.shtml)
+- 2026-06-29 18:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/257152.shtml)
+- 2026-06-29 18:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/8410613.shtml)
+- 2026-06-29 18:05 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/89257.shtml)
+- 2026-06-29 18:17 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/6016129311.shtml)
+- 2026-06-29 18:28 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/1774958.shtml)
+- 2026-06-29 18:07 - [请回答王牌2019](http://www.share.minike.top/Article/details/72277560.shtml)
+- 2026-06-29 18:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/2139221.shtml)
+- 2026-06-29 18:14 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/085590720.shtml)
+- 2026-06-29 18:22 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/3689030668.shtml)
+- 2026-06-29 18:28 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/2207413.shtml)
+- 2026-06-29 18:05 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/8488341.shtml)
+- 2026-06-29 18:22 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/2809249.shtml)
+- 2026-06-29 18:04 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/37648082587.shtml)
+- 2026-06-29 18:08 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/30703835.shtml)
+- 2026-06-29 18:06 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/6356773.shtml)

@@ -1,56 +1,61 @@
-# 氧化铝：惊弓之鸟还是风雨欲来？
+# Z世代信用卡开户量攀升，信用评分却随之下滑
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-来源：广发期货研究 证监许可【2011】1292号 周敏波 Z0010559 | 2026年4月27日 星期一 行情点评：今日氧化铝期货盘中异动冲高，盘面一度涨超3%。截至4月27日下午15时，主力合约AO2609收报2899元/吨，减仓上涨2.57%。反弹驱动来自几内亚矿端政策预期的扰动。 一、几内亚出口政策传闻再掀波澜，消息真实性仍待验证 今日盘面脉冲式拉涨的直接催化剂来自
+信用评分机构 FICO 的最新报告显示，Z 世代的信用卡开户比例高于其他任何一代。 数据显示，在 18 至 29 岁、拥有 FICO 信用评分的 Z 世代人群中，超过 25% 的人在过去一年新开了至少一张信用卡，这一比例在所有年龄段中最高。 他们为何扎堆办卡？答案是：需要支付账单。 FICO 副总裁珍妮尔・迪托表示：“在过去 12 个月里遭遇失业或收入下降时，48% 的 Z 世
 
 ## 正文
 
-来源：广发期货研究 证监许可【2011】1292号 周敏波 Z0010559 | 2026年4月27日 星期一 行情点评：今日氧化铝期货盘中异动冲高，盘面一度涨超3%。
+信用评分机构 FICO 的最新报告显示，Z 世代的信用卡开户比例高于其他任何一代。
 
-截至4月27日下午15时，主力合约AO2609收报2899元/吨，减仓上涨2.57%。
+数据显示，在 18 至 29 岁、拥有 FICO 信用评分的 Z 世代人群中，超过 25% 的人在过去一年新开了至少一张信用卡，这一比例在所有年龄段中最高。
 
-反弹驱动来自几内亚矿端政策预期的扰动。
+他们为何扎堆办卡？
 
-一、几内亚出口政策传闻再掀波澜，消息真实性仍待验证 今日盘面脉冲式拉涨的直接催化剂来自几内亚铝土矿供应政策的新一轮传闻。
+答案是：需要支付账单。
 
-上周五晚间，市场消息称几内亚拟将2026年铝土矿出口量削减至1.5亿吨，较2025年的1.85亿吨减少近19%。
+FICO 副总裁珍妮尔・迪托表示：“在过去 12 个月里遭遇失业或收入下降时，48% 的 Z 世代和 43% 的千禧一代依靠信用卡维持生计，而 X 世代这一比例为 25%，婴儿潮一代仅为 7%。
 
-这一力度显著超出此前市场普遍预期的以稳价为主要目的的温和政策框架，直接推动夜盘大幅拉涨。
+”总计有近四成 Z 世代表示，他们办卡是为了给自己留一份财务缓冲。
 
-然而，该消息的真实性仍存在较大疑问。
+另一项研究发现，Z 世代正面临财务压力：年龄最大的一批 Z 世代中，超过六成表示在过去几个月已停止或减少了退休储蓄。
 
-截至最新，几内亚矿业与地质部官网尚未公布相关细则，消息仍处于传闻阶段。
+三分之二的 Z 世代补充说，由于其他开支压力，他们无法按自己的意愿存钱。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 18:05 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 17:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 18:21 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 18:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 18:23 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 18:13 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:14 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:17 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 18:18 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 18:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 18:00 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 18:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 18:08 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 18:02 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 18:07 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 18:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 18:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 18:27 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 18:29 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 18:27 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 18:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 18:23 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 18:25 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/750207801415.shtml)
-- 2026-06-29 17:54 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/156525.shtml)
-- 2026-06-29 18:07 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/658055639451.shtml)
-- 2026-06-29 18:13 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/989327860.shtml)
-- 2026-06-29 18:04 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/1234536.shtml)
-- 2026-06-29 18:19 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/4887627.shtml)
-- 2026-06-29 18:03 - [扫黑风暴](https://www.share.minike.top/Article/details/65881.shtml)
-- 2026-06-29 17:54 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/0086470.shtml)
-- 2026-06-29 18:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/8699129.shtml)
-- 2026-06-29 18:10 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/0518349829.shtml)
-- 2026-06-29 18:02 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/0285349.shtml)
-- 2026-06-29 18:03 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/931907.shtml)
-- 2026-06-29 18:03 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/65507638.shtml)
-- 2026-06-29 17:58 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/125982640.shtml)
-- 2026-06-29 18:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/1040957584.shtml)
+- 2026-06-29 18:12 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/849491283620.shtml)
+- 2026-06-29 18:09 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/107234320868.shtml)
+- 2026-06-29 18:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/57178283.shtml)
+- 2026-06-29 18:28 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/074870747151.shtml)
+- 2026-06-29 18:06 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/544184133.shtml)
+- 2026-06-29 18:00 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/736420.shtml)
+- 2026-06-29 18:20 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/1223334.shtml)
+- 2026-06-29 18:26 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/17117.shtml)
+- 2026-06-29 18:01 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/19966.shtml)
+- 2026-06-29 18:15 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/726275.shtml)
+- 2026-06-29 18:20 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/22012.shtml)
+- 2026-06-29 18:10 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/5865227.shtml)
+- 2026-06-29 18:03 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/3701014.shtml)
+- 2026-06-29 18:28 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/196486635113.shtml)
+- 2026-06-29 18:10 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/7259540.shtml)

@@ -1,55 +1,56 @@
-# 谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人
+# 警惕以“海外招工”为名的诈骗
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-据业内人士透露，谷歌DeepMind联合创始人兼首席执行官德米斯·哈萨比斯（Demis Hassabis）周二分别会见了韩国主要企业集团的负责人，其中包括现代汽车集团和LG集团。 知情人士称，哈萨比斯当天早些时候会见了现代汽车集团执行会长郑义宣，随后访问了LG集团总部，并与会长具光模会面。 消息人士称，哈萨比斯和具光模预计将在闭门会议上讨论如何进一步加强在人工智能领域的合作。L
+警惕以“海外招工”为名的诈骗(服务窗) 近年来，以“海外招工”为名的诈骗案件不时出现，对当事人生命财产安全构成威胁。上海市公安局国际机场分局反诈专班民警王卓慧提醒： 警惕“海外雇主”让务工人员自己办理旅游签证赴外工作。 旅游签证的唯一目的是旅游、探亲等短期事务，严禁从事任何劳务活动。境外正规用工，必须申请相应的工作签证。否则，可能涉嫌非法滞留或非法就业，被发现后不仅要被遣返，还
 
 ## 正文
 
-据业内人士透露，谷歌DeepMind联合创始人兼首席执行官德米斯·哈萨比斯（Demis Hassabis）周二分别会见了韩国主要企业集团的负责人，其中包括现代汽车集团和LG集团。
+警惕以“海外招工”为名的诈骗(服务窗) 近年来，以“海外招工”为名的诈骗案件不时出现，对当事人生命财产安全构成威胁。
 
-知情人士称，哈萨比斯当天早些时候会见了现代汽车集团执行会长郑义宣，随后访问了LG集团总部，并与会长具光模会面。
+上海市公安局国际机场分局反诈专班民警王卓慧提醒： 警惕“海外雇主”让务工人员自己办理旅游签证赴外工作。
 
-消息人士称，哈萨比斯和具光模预计将在闭门会议上讨论如何进一步加强在人工智能领域的合作。
+旅游签证的唯一目的是旅游、探亲等短期事务，严禁从事任何劳务活动。
 
-LG集团旗下LG电子公司及其人工智能研究实验室的高管也出席了此次会议。
+境外正规用工，必须申请相应的工作签证。
 
-消息人士称，哈萨比斯自周一以来一直在首尔，这是他十年来首次到访韩国。
+否则，可能涉嫌非法滞留或非法就业，被发现后不仅要被遣返，还要面临罚款和拘留。
 
-在与韩国科学技术部签署谅解备忘录 （MOU） 的仪式上，哈萨比斯暗示可能会与韩国主要企业集团会面，并表示 DeepMind计划扩大和深化与韩国本土企业集团的现有合作关系。
+同时，工作签证需要境外雇主提供担保、经过使领馆审核、留下备案记录。
 
-责任编辑：于健 SF069
+而旅游签证，没有劳务备案，没有用工监管，这很有可能是电诈团伙为了逃避打击进行的操作。
+
+所以，当有人让务工人员自己持旅游签证出境时，要意识到：出去的下一秒就可能面临非法滞留、人身控制、被迫犯罪的三重陷阱。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 18:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 18:03 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 18:17 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 18:15 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 17:54 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 18:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 18:02 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 18:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 17:55 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 18:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:28 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 18:01 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 18:14 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 18:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 18:10 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 18:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 18:23 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:13 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 18:25 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/6885806.shtml)
-- 2026-06-29 18:05 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/86684007751.shtml)
-- 2026-06-29 17:58 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/801947582.shtml)
-- 2026-06-29 18:21 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/13746.shtml)
-- 2026-06-29 18:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/084035032.shtml)
-- 2026-06-29 18:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/653956.shtml)
-- 2026-06-29 17:55 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/889884529.shtml)
-- 2026-06-29 18:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9115422679.shtml)
-- 2026-06-29 18:05 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/37208983.shtml)
-- 2026-06-29 18:10 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/5291934100.shtml)
-- 2026-06-29 18:16 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/0768517808.shtml)
-- 2026-06-29 18:16 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/76232929.shtml)
-- 2026-06-29 18:15 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/226265866688.shtml)
-- 2026-06-29 18:03 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/965331.shtml)
-- 2026-06-29 17:54 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/42137816.shtml)
+- 2026-06-29 18:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/468987.shtml)
+- 2026-06-29 18:09 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/068194.shtml)
+- 2026-06-29 18:02 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/43874331419.shtml)
+- 2026-06-29 18:28 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/9023459847.shtml)
+- 2026-06-29 18:29 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/29426083.shtml)
+- 2026-06-29 18:14 - [极限挑战第一季](https://www.blog.minike.top/Article/details/683208902.shtml)
+- 2026-06-29 18:17 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/78751.shtml)
+- 2026-06-29 18:29 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/1226732.shtml)
+- 2026-06-29 18:08 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/8589878061.shtml)
+- 2026-06-29 18:17 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/606398.shtml)
+- 2026-06-29 18:28 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/622783986977.shtml)
+- 2026-06-29 18:08 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/9551719.shtml)
+- 2026-06-29 18:09 - [沙丘](http://www.share.kurohicncr.top/Article/details/92997.shtml)
+- 2026-06-29 18:24 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/89536.shtml)
+- 2026-06-29 18:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/72122229353.shtml)

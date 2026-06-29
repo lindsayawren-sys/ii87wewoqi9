@@ -1,61 +1,54 @@
-# 3.3万亿上海银行未来五年将增员5000人！近七成补充至营销条线 董事长顾建忠：反复思考了三天，也很纠结
+# 周三美股小盘股反弹
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。 4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。这件事我反复思考了三天，也很纠结。” 纠结的原因不难理解——当前行业大势是人员精
+小盘股在午盘交易中反弹，罗素2000指数上涨逾3.2%。 这一小盘股基准指数在年初曾强劲开局，但由于其对周期性行业的敞口较大，在美伊战争爆发后便陷入困境。它是美国主要基准指数中第一个跌入回调区间的指数，纳斯达克综合指数和道琼斯工业平均指数紧随其后。此后该指数收复了部分失地，目前较近期高点约低4%。 罗素2000指数今年以来仍保持逾5%的涨幅，而道指、纳斯达克指数和标普500指数
 
 ## 正文
 
-来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。
+小盘股在午盘交易中反弹，罗素2000指数上涨逾3.2%。
 
-4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。
+这一小盘股基准指数在年初曾强劲开局，但由于其对周期性行业的敞口较大，在美伊战争爆发后便陷入困境。
 
-这件事我反复思考了三天，也很纠结。
+它是美国主要基准指数中第一个跌入回调区间的指数，纳斯达克综合指数和道琼斯工业平均指数紧随其后。
 
-” 纠结的原因不难理解——当前行业大势是人员精简、通过AI降本增效，逆势扩招在这样的背景下便显得有些“不合时宜”。
+此后该指数收复了部分失地，目前较近期高点约低4%。
 
-刚刚过去的2025年，上海银行刚刚减员了：报告期内在职员工14558人（含劳务派遣人员），较上一年减少154人。
+罗素2000指数今年以来仍保持逾5%的涨幅，而道指、纳斯达克指数和标普500指数则处于下跌区间。
 
-其中母公司14053人、子公司505人，分别减少141人、13人。
-
-上海银行做出这样的人员扩充规划目的也很明确。
-
-顾建忠在业绩说明会上指出，人的价值与作用始终不可替代，现阶段上海银行营销人员占比偏低。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 17:55 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 18:02 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 18:11 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 18:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 18:11 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 18:00 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 18:07 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 17:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 17:59 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 18:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 18:17 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 18:02 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 18:07 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 18:03 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:03 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 18:19 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 18:12 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 18:01 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 18:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 18:10 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 18:18 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 18:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 18:16 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 18:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 18:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/149074.shtml)
-- 2026-06-29 18:05 - [我和我的家乡](http://www.blog.minike.top/Article/details/05815935.shtml)
-- 2026-06-29 18:02 - [TTG KSG](http://www.share.minike.top/Article/details/8130192.shtml)
-- 2026-06-29 18:08 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/946912.shtml)
-- 2026-06-29 18:05 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/9143706.shtml)
-- 2026-06-29 18:02 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/291326.shtml)
-- 2026-06-29 17:55 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/57310.shtml)
-- 2026-06-29 18:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/588644925.shtml)
-- 2026-06-29 17:58 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/247047021.shtml)
-- 2026-06-29 18:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/2153146642.shtml)
-- 2026-06-29 18:23 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/064477928839.shtml)
-- 2026-06-29 18:08 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/768498785516.shtml)
-- 2026-06-29 18:05 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/940835421711.shtml)
-- 2026-06-29 17:55 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/448875150963.shtml)
-- 2026-06-29 18:14 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/258107602.shtml)
+- 2026-06-29 18:00 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/123855089733.shtml)
+- 2026-06-29 18:07 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/1597853.shtml)
+- 2026-06-29 18:17 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/984328450299.shtml)
+- 2026-06-29 18:10 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/676258526617.shtml)
+- 2026-06-29 18:20 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/155164217.shtml)
+- 2026-06-29 18:18 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/76904472.shtml)
+- 2026-06-29 18:08 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/04121894.shtml)
+- 2026-06-29 18:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/0665257.shtml)
+- 2026-06-29 18:05 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/541496858.shtml)
+- 2026-06-29 18:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/185814.shtml)
+- 2026-06-29 18:00 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/545709017833.shtml)
+- 2026-06-29 18:19 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/420309146315.shtml)
+- 2026-06-29 18:11 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/787965138863.shtml)
+- 2026-06-29 18:22 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/99120.shtml)
+- 2026-06-29 18:22 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/771417530257.shtml)

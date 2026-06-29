@@ -1,59 +1,59 @@
-# 比利时副首相兼外交大臣普雷沃将访华 中方介绍此访期待
+# 河套大地春耕一线见闻：从黄土朝天到智慧种田
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 (记者 张素 曾玥)中国外交部发言人27日宣布：应中共中央政治局委员、外交部长王毅邀请，比利时副首相兼外交大臣普雷沃于4月27日至5月1日访华。 当日外交部例行记者会上，有记者就此提问，中方如何评价当前中比关系？中方对此访有何期待？ 外交部发言人林剑表示，中比是全方位友好合作伙伴。近年来，双方高层交往频繁，在贸易投资、航运物流、生物医药等领域合作稳步推进
+中新网巴彦淖尔4月8日电 题：河套大地春耕一线见闻：从黄土朝天到智慧种田 中新网记者 张林虎 春回大地，万物复苏。内蒙古自治区巴彦淖尔市的田野上，农机轰鸣声此起彼伏，一幅别样的春耕图正徐徐展开。与往年不同的是，今年河套大地多了不少新物件——匀播机、北斗导航、智能育苗大棚……一项项新技术正悄悄改变着农民“面朝黄土背朝天”的老日子。 匀播技术进田头 在磴口县沙金套海苏木巴音宝力格嘎
 
 ## 正文
 
-中新网北京4月27日电 (记者 张素 曾玥)中国外交部发言人27日宣布：应中共中央政治局委员、外交部长王毅邀请，比利时副首相兼外交大臣普雷沃于4月27日至5月1日访华。
+中新网巴彦淖尔4月8日电 题：河套大地春耕一线见闻：从黄土朝天到智慧种田 中新网记者 张林虎 春回大地，万物复苏。
 
-当日外交部例行记者会上，有记者就此提问，中方如何评价当前中比关系？
+内蒙古自治区巴彦淖尔市的田野上，农机轰鸣声此起彼伏，一幅别样的春耕图正徐徐展开。
 
-中方对此访有何期待？
+与往年不同的是，今年河套大地多了不少新物件——匀播机、北斗导航、智能育苗大棚……一项项新技术正悄悄改变着农民“面朝黄土背朝天”的老日子。
 
-外交部发言人林剑表示，中比是全方位友好合作伙伴。
+匀播技术进田头 在磴口县沙金套海苏木巴音宝力格嘎查的小麦种植基地，两台匀播机正开足马力来回作业。
 
-近年来，双方高层交往频繁，在贸易投资、航运物流、生物医药等领域合作稳步推进，成效显著，切实造福两国人民。
+与传统条播方式不同，这种立体匀播新技术能让麦种在土壤里分布更均匀、间距更科学，不仅提高了土地利用率，还打下了丰产的基础，预计每亩可增产10%左右。
 
-林剑说，今年是中比建交55周年，此次访问是普雷沃副首相兼外交大臣就任后首次访华。
+内蒙古德鑫种养殖农民专业合作社理事长孟永平蹲在地头看着播种机走过，眼里满是期待。
 
-中方期待通过此访，同比方就双边关系和共同关心的国际地区问题深入交流，扩大共识、深化合作，推动中比关系持续健康稳定发展，为中欧关系发展作出新贡献。
+今年是他第二年采用小麦匀播技术。
 
-(完)
+去年，他种的200亩小麦平均亩产426公斤，增产率达到13%。
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 18:11 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 17:55 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 18:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 18:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 18:22 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 18:05 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 18:04 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 17:54 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:22 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 18:23 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 18:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 18:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 18:27 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 18:25 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 18:13 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 18:08 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 18:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 18:29 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 18:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 18:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:06 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 18:04 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 18:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 18:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/62074.shtml)
-- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/67635499.shtml)
-- 2026-06-29 17:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/366395.shtml)
-- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/4630369.shtml)
-- 2026-06-29 18:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/62401.shtml)
-- 2026-06-29 18:05 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/884446061018.shtml)
-- 2026-06-29 18:13 - [极限挑战第一季](https://www.blog.minike.top/Article/details/30489038.shtml)
-- 2026-06-29 18:13 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/59420872158.shtml)
-- 2026-06-29 18:20 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/1045102.shtml)
-- 2026-06-29 17:58 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/127545195280.shtml)
-- 2026-06-29 17:56 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/2666904.shtml)
-- 2026-06-29 18:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/725592990.shtml)
-- 2026-06-29 18:22 - [天道](http://www.blog.minike.top/Article/details/5763306.shtml)
-- 2026-06-29 18:22 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/461550749854.shtml)
-- 2026-06-29 17:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/15510422651.shtml)
+- 2026-06-29 18:28 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/421120517997.shtml)
+- 2026-06-29 18:21 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/59423787415.shtml)
+- 2026-06-29 18:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/510428562008.shtml)
+- 2026-06-29 18:03 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/8128606910.shtml)
+- 2026-06-29 18:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/317717.shtml)
+- 2026-06-29 18:17 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/92343333616.shtml)
+- 2026-06-29 18:24 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/655926.shtml)
+- 2026-06-29 18:23 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/9038715161.shtml)
+- 2026-06-29 18:18 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/23623.shtml)
+- 2026-06-29 18:07 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5954265888.shtml)
+- 2026-06-29 18:24 - [毒液2](http://www.share.minike.top/Article/details/05123564.shtml)
+- 2026-06-29 18:07 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/15310083016.shtml)
+- 2026-06-29 18:29 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/613538749.shtml)
+- 2026-06-29 18:29 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/65029383.shtml)
+- 2026-06-29 18:28 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/031432482279.shtml)

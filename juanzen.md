@@ -1,54 +1,50 @@
-# 国际综艺《亚洲特快》打卡成都 展现“熊猫家园”魅力
+# 日韩股市大幅高开 韩国股市大涨5.5%
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。 节目主持人Marius Damian接
+日经225指数指数开盘上涨1.8%，报51959.47点，个股普涨。韩国综合股价指数（KOSPI）开盘报5330.04点，上涨5.5%。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。
+日经225指数指数开盘上涨1.8%，报51959.47点，个股普涨。
 
-据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。
+韩国综合股价指数（KOSPI）开盘报5330.04点，上涨5.5%。
 
-节目主持人Marius Damian接受记者采访时表示，作为首次到访成都的游客，此前仅知晓成都“熊猫之都”的盛名，实地探访后发现城市随处可见大熊猫元素。
-
-令他印象深刻的是，成都的现代建筑与自然环境融合极佳，整座城市如同大熊猫一般平和、有自身节奏，这种与自然相融的状态让他十分青睐，而大熊猫所象征的温柔特质，更让他对成都和大熊猫都充满喜爱。
-
-(记者何浠） 责任编辑：【周驰】
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 18:11 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 18:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 18:04 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 17:58 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 18:13 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 18:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:59 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 18:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 18:03 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 18:17 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 18:00 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:01 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 18:07 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 18:15 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 18:06 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 18:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 18:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 18:28 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:10 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 18:28 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 18:18 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 18:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 18:14 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 18:27 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 18:06 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/135307.shtml)
-- 2026-06-29 18:23 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/98494366660.shtml)
-- 2026-06-29 18:04 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/165147824191.shtml)
-- 2026-06-29 18:03 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/72103472269.shtml)
-- 2026-06-29 18:23 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/967833462.shtml)
-- 2026-06-29 18:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/4616499.shtml)
-- 2026-06-29 17:58 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/8682337773.shtml)
-- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/936080420561.shtml)
-- 2026-06-29 18:14 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/9783397511.shtml)
-- 2026-06-29 18:12 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/098522.shtml)
-- 2026-06-29 18:07 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/41088463.shtml)
-- 2026-06-29 18:14 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/002236.shtml)
-- 2026-06-29 18:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/63809779.shtml)
-- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/986678.shtml)
-- 2026-06-29 18:22 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/60744315066.shtml)
+- 2026-06-29 18:04 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/16819054.shtml)
+- 2026-06-29 18:10 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/76094150.shtml)
+- 2026-06-29 18:29 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/838269633337.shtml)
+- 2026-06-29 18:12 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/01500.shtml)
+- 2026-06-29 18:03 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/8307794.shtml)
+- 2026-06-29 18:24 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/312992301365.shtml)
+- 2026-06-29 18:17 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/76591275280.shtml)
+- 2026-06-29 18:04 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/3027270.shtml)
+- 2026-06-29 18:14 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/68578160817.shtml)
+- 2026-06-29 18:10 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/5732553.shtml)
+- 2026-06-29 18:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/909036864.shtml)
+- 2026-06-29 18:04 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/48387450.shtml)
+- 2026-06-29 18:24 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/998919165.shtml)
+- 2026-06-29 18:01 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/48441252.shtml)
+- 2026-06-29 18:01 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/87091310.shtml)

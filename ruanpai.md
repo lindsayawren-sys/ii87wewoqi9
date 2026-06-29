@@ -1,57 +1,52 @@
-# 脱口秀主持人涉梅拉尼娅言论惹争议 第一夫人要求ABC采取行动
+# 交易员大幅削减欧洲央行加息押注 因油价下跌
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-美国第一夫人梅拉尼娅·特朗普敦促华特迪士尼旗下的美国广播公司（ABC）“表明立场”，因该电视网的深夜节目主持人吉米·金摩尔在一段脱口秀节目中发表了她称之为“充满仇恨和暴力”的言论。 在上周四晚播出的《吉米·金摩尔直播秀》节目中，这位喜剧演员对即将举行的白宫记协晚宴进行了恶搞。他不仅暗示特朗普与梅拉尼娅的相识是由声名狼藉的已故恋童癖者杰弗里·爱泼斯坦牵线，还开玩笑说“我们的第一夫
+由于伊朗与美国达成停火安排引发油价下跌，交易员周三削减对欧洲央行收紧货币政策的押注，目前预计2026年加息次数不到两次。 互换合约目前显示，预计欧洲央行在今年年底前将加息49个基点，较周二下降32个基点。 这是自欧洲央行3月19日政策会议维持利率不变以来，鹰派程度最低的市场定价。 周三欧洲国债大幅上涨，德国基准收益率下跌18个基点，意大利下跌多达30个基点。 布伦特原油期货周三
 
 ## 正文
 
-美国第一夫人梅拉尼娅·特朗普敦促华特迪士尼旗下的美国广播公司（ABC）“表明立场”，因该电视网的深夜节目主持人吉米·金摩尔在一段脱口秀节目中发表了她称之为“充满仇恨和暴力”的言论。
+由于伊朗与美国达成停火安排引发油价下跌，交易员周三削减对欧洲央行收紧货币政策的押注，目前预计2026年加息次数不到两次。
 
-在上周四晚播出的《吉米·金摩尔直播秀》节目中，这位喜剧演员对即将举行的白宫记协晚宴进行了恶搞。
+互换合约目前显示，预计欧洲央行在今年年底前将加息49个基点，较周二下降32个基点。
 
-他不仅暗示特朗普与梅拉尼娅的相识是由声名狼藉的已故恋童癖者杰弗里·爱泼斯坦牵线，还开玩笑说“我们的第一夫人梅拉尼娅也在场。
+这是自欧洲央行3月19日政策会议维持利率不变以来，鹰派程度最低的市场定价。
 
-看看梅拉尼娅，多么美丽。
+周三欧洲国债大幅上涨，德国基准收益率下跌18个基点，意大利下跌多达30个基点。
 
-特朗普夫人，你有一种像准寡妇般的光彩。
+布伦特原油期货周三下跌16%，跌破每桶92美元，降低了通胀风险。
 
-” 鉴于两天后晚宴上发生未遂刺杀事件，这些笑话被认为不得体。
-
-去年9月，金摩尔曾因关于政治活动人士查理·柯克遭刺杀一事发表的言论被停职数日。
-
-在停职前，美国联邦通信委员会主席布伦丹·卡尔曾表示，这些言论可能危及电视台的执照。
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 18:05 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 18:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 18:19 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 18:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 18:17 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 18:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 18:21 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 17:56 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 18:22 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 18:15 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 18:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 18:25 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:20 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 18:01 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 18:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 18:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 18:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 18:12 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/926400788864.shtml)
-- 2026-06-29 17:59 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/1627436463.shtml)
-- 2026-06-29 18:20 - [请回答王牌2019](http://www.share.minike.top/Article/details/355173212.shtml)
-- 2026-06-29 18:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/630905.shtml)
-- 2026-06-29 18:18 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/6381592.shtml)
-- 2026-06-29 18:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/15210819.shtml)
-- 2026-06-29 18:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/36319408581.shtml)
-- 2026-06-29 18:04 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/80801712776.shtml)
-- 2026-06-29 18:00 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/61520.shtml)
-- 2026-06-29 18:21 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/1904418111.shtml)
-- 2026-06-29 18:03 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/8113677.shtml)
-- 2026-06-29 18:06 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/597288.shtml)
-- 2026-06-29 18:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/7644127.shtml)
-- 2026-06-29 18:16 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/42472288.shtml)
-- 2026-06-29 18:01 - [叠纸](http://www.blog.minike.top/Article/details/50241514.shtml)
+- 2026-06-29 18:26 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/3749137188.shtml)
+- 2026-06-29 18:00 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/60344.shtml)
+- 2026-06-29 18:06 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/686767.shtml)
+- 2026-06-29 18:09 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/3665498.shtml)
+- 2026-06-29 18:11 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/8028105.shtml)
+- 2026-06-29 18:05 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/17372089530.shtml)
+- 2026-06-29 18:24 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/340363821337.shtml)
+- 2026-06-29 18:11 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/45957.shtml)
+- 2026-06-29 18:26 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/7193625065.shtml)
+- 2026-06-29 18:04 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/957245.shtml)
+- 2026-06-29 18:25 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/93518575595.shtml)
+- 2026-06-29 18:07 - [扬名立万](https://www.share.kurohicncr.top/Article/details/0628806.shtml)
+- 2026-06-29 18:05 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/1199099.shtml)
+- 2026-06-29 18:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/253620.shtml)
+- 2026-06-29 18:03 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/555623047604.shtml)

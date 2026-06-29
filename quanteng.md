@@ -1,59 +1,57 @@
-# 财务造假、资金占用！一夜之间7家A股公司被查被罚，证监会重拳出击
+# 开盘：美股周三大幅高开道指涨1300点 美伊停火协议提振风险偏好
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。 其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处
+北京时间4月8日晚，美股周三大幅高开。道指期货飙升1300点。原油期货价格暴跌。美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。 道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。 美国总统特朗普7日宣布，同意暂停对伊朗的轰炸
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+北京时间4月8日晚，美股周三大幅高开。
 
-记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。
+道指期货飙升1300点。
 
-其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处罚决定书》。
+原油期货价格暴跌。
 
-值得注意的是，就在几天前的4月22日，*ST数源（维权）、傲农生物（维权）、欢瑞世纪（维权）、兰石重装（维权）4家公司也刚被立案调查。
+美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。
 
-也就是说，短短5天内，已有11家上市公司披露被查或被罚。
+道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。
 
-实际上，一周数家乃至十余家公司被查被罚，已成为监管新常态。
+美国总统特朗普7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
 
-这并不意味着问题公司数量在增多，恰恰相反，它是监管效率提升、技术手段升级的结果。
+他同时表示，“这将是一次双向停火。
 
-随着存量问题被不断出清，上市公司的合规意识将逐步增强，假以时日，A股上市公司整体质量有望显著提升。
+” 美东时间4月7日晚6时30分许，特朗普通过社交媒体宣布了上述消息。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 18:23 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 17:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 18:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 18:09 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 17:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 18:19 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 18:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 18:06 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 18:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 18:01 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:05 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 18:15 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 18:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 18:05 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 18:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 18:26 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 18:24 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 18:19 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 18:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 18:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 18:28 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 18:17 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/60923595.shtml)
-- 2026-06-29 18:13 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/375185.shtml)
-- 2026-06-29 18:08 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/499306711721.shtml)
-- 2026-06-29 18:08 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/17071748717.shtml)
-- 2026-06-29 18:15 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/89982727.shtml)
-- 2026-06-29 18:23 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/65137324.shtml)
-- 2026-06-29 17:59 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/284289089650.shtml)
-- 2026-06-29 18:16 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/212101885.shtml)
-- 2026-06-29 18:06 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/999546543.shtml)
-- 2026-06-29 17:55 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/0034208374.shtml)
-- 2026-06-29 18:03 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/5327536480.shtml)
-- 2026-06-29 18:06 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/7569567953.shtml)
-- 2026-06-29 17:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/547086540626.shtml)
-- 2026-06-29 18:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/089083.shtml)
-- 2026-06-29 18:19 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/73150152.shtml)
+- 2026-06-29 18:15 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3873696.shtml)
+- 2026-06-29 18:24 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/060813.shtml)
+- 2026-06-29 18:11 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/79356502.shtml)
+- 2026-06-29 18:19 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/9491160634.shtml)
+- 2026-06-29 18:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/879647933068.shtml)
+- 2026-06-29 18:25 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3089108023.shtml)
+- 2026-06-29 18:09 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/545007453302.shtml)
+- 2026-06-29 18:06 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/501345817842.shtml)
+- 2026-06-29 18:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/8141772.shtml)
+- 2026-06-29 18:27 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/065579804067.shtml)
+- 2026-06-29 18:19 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/765040.shtml)
+- 2026-06-29 18:20 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/7330772.shtml)
+- 2026-06-29 18:14 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/313447738662.shtml)
+- 2026-06-29 18:29 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/225349155521.shtml)
+- 2026-06-29 18:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/0733852125.shtml)

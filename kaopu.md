@@ -1,58 +1,56 @@
-# 杨德龙：2026巴菲特股东大会前瞻
+# 36％股权被质押、多家民营股东出局，北部湾财险增长瓶颈待破
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-自2006年从北京大学毕业后进入证券行业，我便开始关注巴菲特股东大会。2016年五一，我第一次飞往美国奥马哈现场参会，此后十年间七次亲历这一投资界的年度盛会，2026年4月30日我将第八次飞往这座美国中部小镇。在我看来，巴菲特的人格魅力与其投资业绩一样空前绝后。每年有近4万名全球投资者不远万里汇聚奥马哈，其中不乏各国知名投资人。这充分说明，价值投资并非仅受中国人推崇，而是全世界
+来源：华夏时报 4月7日，一纸来自广西金融监管局的批复，将北部湾财险再度推至聚光灯下。广西投资集团金融控股有限公司（下称“广投金控”）正式受让广西金融投资集团有限公司（下称“广西金投集团”）持有的3亿股，以及广西长江天成投资集团有限公司持有的1.4595亿股。 交易落定后，广西金投集团彻底退出股东名单，长江天成投资集团仅保留405万股、持股比例降至0.27%，而广投金控则以4.
 
 ## 正文
 
-自2006年从北京大学毕业后进入证券行业，我便开始关注巴菲特股东大会。
+来源：华夏时报 4月7日，一纸来自广西金融监管局的批复，将北部湾财险再度推至聚光灯下。
 
-2016年五一，我第一次飞往美国奥马哈现场参会，此后十年间七次亲历这一投资界的年度盛会，2026年4月30日我将第八次飞往这座美国中部小镇。
+广西投资集团金融控股有限公司（下称“广投金控”）正式受让广西金融投资集团有限公司（下称“广西金投集团”）持有的3亿股，以及广西长江天成投资集团有限公司持有的1.4595亿股。
 
-在我看来，巴菲特的人格魅力与其投资业绩一样空前绝后。
+交易落定后，广西金投集团彻底退出股东名单，长江天成投资集团仅保留405万股、持股比例降至0.27%，而广投金控则以4.4595亿股、29.73%的持股比成为北部湾财险第一大股东。
 
-每年有近4万名全球投资者不远万里汇聚奥马哈，其中不乏各国知名投资人。
+但股权划转背后，北部湾财险的深层困局并未缓解。
 
-这充分说明，价值投资并非仅受中国人推崇，而是全世界投资者共同认可的投资理念。
+三家民营股东合计36%的股权全部处于质押状态，其中广西平铝集团所持6%股权历经流拍至今无人接手，长江天成投资集团转让的9.73%股权也迟迟未获监管放行。
 
-巴菲特用61年时间创造了投资史上的奇迹，伯克希尔·哈撒韦净资产增长6万倍，年化收益率达19.9%。
+股权连环变局 近两年，北部湾财险股东榜上多家民营股东所持股权陆续进入司法拍卖程序，且几乎都经历了流拍、降价、再拍，最终由广西国资背景企业接手。
 
-虽然年化收益仅跑赢标普500指数约10个百分点，但复利增长的威力在长达61年的维度上产生了惊人的效果：伯克希尔净资产涨幅约为标普500的200倍。
+回溯来看，北部湾财险第四大股东长江天成投资集团所持1.46亿股（占比9.73%）在2024年被摆上拍卖台，起拍价约2.03亿元，但因无人问津而流拍。
 
-巴菲特也投资过中国公司，其中两大经典案例包括：中石油港股获利约10倍，比亚迪港股获利约38倍，且资金投入量巨大。
+第二次拍卖依然遇冷，直至广西国资委旗下的广西国经资产管理有限公司出手拿下。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 18:18 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 18:11 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 18:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 18:08 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 18:02 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 18:22 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:15 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:12 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 18:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 18:02 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 18:29 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 18:01 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 18:24 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 18:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 18:19 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:27 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:07 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 18:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/33535374.shtml)
-- 2026-06-29 18:20 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/2415735.shtml)
-- 2026-06-29 18:01 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/007491917605.shtml)
-- 2026-06-29 18:04 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/54460571.shtml)
-- 2026-06-29 17:58 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/673459602023.shtml)
-- 2026-06-29 18:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/51796303400.shtml)
-- 2026-06-29 18:01 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/1957746938.shtml)
-- 2026-06-29 18:22 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/42633414215.shtml)
-- 2026-06-29 18:17 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/28639174248.shtml)
-- 2026-06-29 17:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/0255697652.shtml)
-- 2026-06-29 18:11 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/4551590911.shtml)
-- 2026-06-29 17:56 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/785844.shtml)
-- 2026-06-29 18:05 - [斗破苍穹](http://www.share.minike.top/Article/details/59921618237.shtml)
-- 2026-06-29 18:10 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/145637539419.shtml)
-- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/604536510.shtml)
+- 2026-06-29 18:14 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/4363181662.shtml)
+- 2026-06-29 18:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/21056.shtml)
+- 2026-06-29 18:08 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/159737.shtml)
+- 2026-06-29 18:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/0353703.shtml)
+- 2026-06-29 18:18 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/517382.shtml)
+- 2026-06-29 18:27 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/23882817.shtml)
+- 2026-06-29 18:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/09740586716.shtml)
+- 2026-06-29 18:06 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/4442102819.shtml)
+- 2026-06-29 18:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3202729493.shtml)
+- 2026-06-29 18:05 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/31913.shtml)
+- 2026-06-29 18:25 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/01665308.shtml)
+- 2026-06-29 18:15 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/7558100794.shtml)
+- 2026-06-29 18:07 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/78155215457.shtml)
+- 2026-06-29 18:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/3668046125.shtml)
+- 2026-06-29 18:10 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/3675785.shtml)

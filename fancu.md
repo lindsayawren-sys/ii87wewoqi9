@@ -1,58 +1,50 @@
-# 贝壳高管高额年薪引关注，96%来自“股份支付薪酬”
+# 零跑汽车获董事长朱江明及股东傅利泉增持合共508.02万股H股
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！营收规模见顶后，贝壳持续自我变革，大规模调整组织架构，正在转型居住服务平台 文|《财经》研究员 王文彤 编辑 | 杨立赟 4月24日晚，贝壳-W（02423.HK）发布了2025年度报告。相较一个月前公布的2025全年业绩，年度报告披露了更多信息，包括近期颇为外界关注的管理层薪酬细节。 年报显示，贝壳联合创
+零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+零跑汽车（09863）发布公告，基于对公司未来发展的强烈信心，为促进公司持续、稳定、健康发展，维护广大公众投资者利益，于近期公司股东、董事长兼首席执行官朱江明先生及公司股东傅利泉先生于市场内合共购入508.02万股公司H股（本次增持），平均价格为每股股份约45.10港币，合共增持金额约2.3亿元港币。
 
-营收规模见顶后，贝壳持续自我变革，大规模调整组织架构，正在转型居住服务平台 文|《财经》研究员 王文彤 编辑 | 杨立赟 4月24日晚，贝壳-W（02423.HK）发布了2025年度报告。
+紧随本次增持后，于本公告日期，朱江明先生及傅利泉先生及所属的公司单一最大股东集团合共持有公司2.11亿股H股及1.29亿股内资股，占公司已发行总股数的23.89%。
 
-相较一个月前公布的2025全年业绩，年度报告披露了更多信息，包括近期颇为外界关注的管理层薪酬细节。
+朱江明先生及傅利泉先生确认，本次增持符合相关法律法规以及《香港联合交易所有限公司证券上市规则》相关要求。
 
-年报显示，贝壳联合创始人、董事长兼首席执行官彭永东2025年的薪酬为2.35亿元，同比下降41.25%；联合创始人兼执行董事单一刚2025年薪酬为1.76亿元，同比下降41.14%。
-
-过亿元的年薪令外界侧目，但详细拆分可知，此二人薪酬中占比最高的是“股份支付薪酬”，2025年的占比均超过96%。
-
-剔除这部分收入，二人的薪酬分别为937.8万元和672.8万元。
-
-对比其他港股上市房企董事长薪酬水平，在合理范围内。
-
-彭永东和单一刚已将2025年限制性股票全额捐赠，用于为居住行业服务者及家庭（指房产经纪人及装修工人）提供医疗保障和子女教育、为应届毕业生提供支持等，并设立“健康家贝守护金”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 18:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 18:10 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 18:12 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 18:00 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 18:00 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:17 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 18:16 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 17:56 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 18:19 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 17:57 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 18:21 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 18:08 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 18:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 18:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 18:27 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 18:15 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 18:26 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 18:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 18:29 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 18:03 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 18:01 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 18:16 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/94753736393.shtml)
-- 2026-06-29 17:58 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/1564567101.shtml)
-- 2026-06-29 18:22 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/443701.shtml)
-- 2026-06-29 18:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/092914258078.shtml)
-- 2026-06-29 18:21 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/375732283.shtml)
-- 2026-06-29 18:19 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/7659689.shtml)
-- 2026-06-29 17:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/4556913.shtml)
-- 2026-06-29 18:19 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/4833191637.shtml)
-- 2026-06-29 17:56 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/867663.shtml)
-- 2026-06-29 18:03 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/47967989635.shtml)
-- 2026-06-29 18:09 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/3579665511.shtml)
-- 2026-06-29 18:21 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/132504103977.shtml)
-- 2026-06-29 18:06 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/62840.shtml)
-- 2026-06-29 17:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/5079013.shtml)
-- 2026-06-29 18:17 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/302683900358.shtml)
+- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/2602669.shtml)
+- 2026-06-29 18:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/627840.shtml)
+- 2026-06-29 18:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/00787.shtml)
+- 2026-06-29 18:25 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/008353180.shtml)
+- 2026-06-29 18:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/62339.shtml)
+- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/0248829967.shtml)
+- 2026-06-29 18:24 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/6292712.shtml)
+- 2026-06-29 18:18 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/02899.shtml)
+- 2026-06-29 18:09 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/72898.shtml)
+- 2026-06-29 18:10 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/159220.shtml)
+- 2026-06-29 18:23 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/3395263270.shtml)
+- 2026-06-29 18:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/554028007.shtml)
+- 2026-06-29 18:08 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/05026206162.shtml)
+- 2026-06-29 18:14 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/783744057845.shtml)
+- 2026-06-29 18:27 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/033751575.shtml)

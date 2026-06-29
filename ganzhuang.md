@@ -1,55 +1,60 @@
-# 全球首艘10800车汽车运输船命名交付
+# 三星内存再提价30%！寒武纪登顶A股吸金榜，华宝基金电子ETF（515260）最高上探1.95%
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中船广船国际联合中船贸易为韩国HMM航运建造的全球首艘10800车汽车运输船(PCTC)“格罗唯视 领航”轮28日在广州南沙命名交付。 该船单船最大装车量达10800辆，刷新全球同类船舶运力纪录，标志着我国高端船舶制造能力实现新突破，为全球航运业绿色低碳转型提供了“中国方案”。 “格罗唯视 领航”轮由中船集团上海船舶研究设计院设计，总长230米，型宽40米，设计吃水10.5米，
+今日（4月7日）电子板块全天获主力资金净流入88亿元，板块吸金额高居31个申万一级行业第二位，寒武纪获主力资金爆买28.41亿元，霸居A股吸金榜首位。 热门ETF方面，双双覆盖苹果产业链+半导体产业链的电子ETF华宝（515260）场内涨幅最高上探1.95%，收涨1.3%，值得关注的是，该ETF场内宽幅溢价，收盘溢价率高达0.81%，显示买盘资金更为强势！ 成份股方面，寒武纪领
 
 ## 正文
 
-中船广船国际联合中船贸易为韩国HMM航运建造的全球首艘10800车汽车运输船(PCTC)“格罗唯视 领航”轮28日在广州南沙命名交付。
+今日（4月7日）电子板块全天获主力资金净流入88亿元，板块吸金额高居31个申万一级行业第二位，寒武纪获主力资金爆买28.41亿元，霸居A股吸金榜首位。
 
-该船单船最大装车量达10800辆，刷新全球同类船舶运力纪录，标志着我国高端船舶制造能力实现新突破，为全球航运业绿色低碳转型提供了“中国方案”。
+热门ETF方面，双双覆盖苹果产业链+半导体产业链的电子ETF华宝（515260）场内涨幅最高上探1.95%，收涨1.3%，值得关注的是，该ETF场内宽幅溢价，收盘溢价率高达0.81%，显示买盘资金更为强势！
 
-“格罗唯视 领航”轮由中船集团上海船舶研究设计院设计，总长230米，型宽40米，设计吃水10.5米，设计航速19节，采用LNG/燃油双燃料推进系统，满足国际海事组织TierⅢ排放标准，具有绿色环保、节能高效、安全可靠等特点。
+成份股方面，寒武纪领涨超9%，华勤技术、圣邦股份、生益科技涨逾5%，浪潮信息、中芯国际等个股跟涨。
 
-该船设计14层车库甲板，可灵活装载电动汽车、氢能源汽车及重型卡车等多元车型，单船最大装车量达10800辆。
+苹果产业链方面，富士康已在试产苹果折叠屏iPhone手机。
 
-按5米一台标准车计算，所装载的车辆首尾相连，超过50公里长，是名副其实的“海上巨无霸”。
+业内人士指出，苹果在2026年有望拿下约28%的市场份额，逼近三星的领先位置。
 
-该船交付后，将由韩国现代物流有限公司运营。
+华西证券表示，苹果加速入局折叠屏，有望带动折叠屏手机实现加速放量，并有望引领折叠屏产业链实现创新升级*。
 
-记者：胡林果、田建川 海报制作：贾稀荃 新华社国内部 新华社广东分社联合出品
+半导体产业链方面，全球半导体巨头三星电子一季度业绩炸裂，营业利润增超7倍创新高，核心驱动力来自全球AI产业带动的存储芯片需求激增及价格上涨。
+
+事实上，三星内存再提价30%，爱建证券认为，全球存储芯片市场涨价周期有望在2026年延续*。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 18:10 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 18:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 18:22 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 18:03 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 18:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 18:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 18:04 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 18:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 18:07 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 18:04 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 18:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 18:12 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 18:27 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 18:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 18:04 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 18:11 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 18:22 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 18:08 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 18:13 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 18:27 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 18:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 18:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/406925.shtml)
-- 2026-06-29 18:18 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/39605.shtml)
-- 2026-06-29 18:15 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/7692994.shtml)
-- 2026-06-29 18:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/393585139.shtml)
-- 2026-06-29 18:08 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/60008.shtml)
-- 2026-06-29 17:54 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/590843231.shtml)
-- 2026-06-29 18:12 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/465394244054.shtml)
-- 2026-06-29 17:58 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/8780473381.shtml)
-- 2026-06-29 18:16 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/42798106087.shtml)
-- 2026-06-29 18:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4178020.shtml)
-- 2026-06-29 17:55 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/91584317579.shtml)
-- 2026-06-29 18:22 - [一生一世](http://www.share.minike.top/Article/details/593241187.shtml)
-- 2026-06-29 17:55 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/219917504292.shtml)
-- 2026-06-29 18:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/27744016.shtml)
-- 2026-06-29 17:54 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/9209708.shtml)
+- 2026-06-29 18:11 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/61051006095.shtml)
+- 2026-06-29 18:22 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/32432097.shtml)
+- 2026-06-29 18:28 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/811595647.shtml)
+- 2026-06-29 18:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/3893330103.shtml)
+- 2026-06-29 18:28 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/483891195.shtml)
+- 2026-06-29 18:29 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/760489031.shtml)
+- 2026-06-29 18:06 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/355511182794.shtml)
+- 2026-06-29 18:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/0028132.shtml)
+- 2026-06-29 18:13 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/6637004180.shtml)
+- 2026-06-29 18:29 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/9672032115.shtml)
+- 2026-06-29 18:00 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/44212401.shtml)
+- 2026-06-29 18:04 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/05715.shtml)
+- 2026-06-29 18:22 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/76787734716.shtml)
+- 2026-06-29 18:04 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/49131921.shtml)
+- 2026-06-29 18:28 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/26633329.shtml)

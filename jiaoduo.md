@@ -1,56 +1,59 @@
-# 上海家化发布2026年一季报：线上业务持续增长 四个聚焦成效显著
+# 布鲁克菲尔德以10.5亿欧元从黑石收购马德里住宅资产组合
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美
+正推进一项重大的欧洲房地产投资，而此刻许多投资者仍在重新评估风险。该公司已同意以超过10亿欧元的价格从黑石集团收购一个西班牙租赁住宅资产组合，这被描述为自美以对伊朗发动袭击以来欧洲最大的一笔房地产交易。该交易涉及Fidere Patrimonio Socimi SA，布鲁克菲尔德的基金已签订股份购买协议，税后及调整后的净价为10.5亿欧元，与黑石持有这些资产的估值一致。 该资产
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+正推进一项重大的欧洲房地产投资，而此刻许多投资者仍在重新评估风险。
 
-4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。
+该公司已同意以超过10亿欧元的价格从黑石集团收购一个西班牙租赁住宅资产组合，这被描述为自美以对伊朗发动袭击以来欧洲最大的一笔房地产交易。
 
-报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。
+该交易涉及Fidere Patrimonio Socimi SA，布鲁克菲尔德的基金已签订股份购买协议，税后及调整后的净价为10.5亿欧元，与黑石持有这些资产的估值一致。
 
-国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美妆线上渠道同比增长62.5%，个护业务线上渠道同比增长37.9%。
+该资产组合包括马德里47栋建筑中的约5000套公寓，在一个受融资条件和宏观不确定性不断变化影响的市场中，提供了即时规模。
 
-期末，应收账款同比下降16.6%，现金流3.78亿元，整体经营质量稳步向好。
+在中东局势升级后，通常被用作房地产估值参考的债券收益率随能源价格一同走高，增加了资本成本，并增加了先前已达成协议的交易破裂的可能性。
 
-此外，公司一季度毛利率同比提升2.4个百分点，实现了量质齐升的良性发展。
+尽管随着交易员评估潜在的经济放缓风险，收益率近期已从高位回落，但当前环境仍反映出2022年通胀飙升后脆弱的复苏态势。
 
-2026年第一季度，上海家化继续深入“聚焦核心品牌、聚焦品牌建设、聚焦线上、聚焦效率”的经营战略，在2025年扭亏为盈基础上持续深化战略落地、夯实增长底盘，实现开局稳健增长。
+布鲁克菲尔德最初于1月提出报价，并选择在地缘政治紧张局势加剧后仍继续推进，这可能表明尽管存在短期波动，但该公司对住宅资产的长期前景抱有信心。
 
-核心品牌推新不断，深耕品牌内核建设 2026年第一季度，便携式六神驱蚊蛋、玉泽干敏修护霜、佰草集大白泥面膜三大亿元单品齐头并进，延续良好增长态势，均实现高速增长，进一步夯实市场地位。
+对黑石而言，此交易延续了其在全球金融危机后开始的一项战略，当时它大举扩张进入西班牙房地产市场，包括收购Fidere以及随后与西班牙大众银行和Testa Residencial SOCIMI SA相关的交易。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 18:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 17:58 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 17:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 17:57 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:22 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 18:21 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 18:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 18:17 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 18:03 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 18:07 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 18:07 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 18:07 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 18:29 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 18:21 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 18:09 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 18:08 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 18:09 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 18:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 18:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 18:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 18:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/217204540144.shtml)
-- 2026-06-29 17:54 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/28715904978.shtml)
-- 2026-06-29 18:11 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/021316579453.shtml)
-- 2026-06-29 18:03 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/35842.shtml)
-- 2026-06-29 18:19 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/916193209387.shtml)
-- 2026-06-29 18:10 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/815436.shtml)
-- 2026-06-29 18:19 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/87712.shtml)
-- 2026-06-29 18:14 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/0013547.shtml)
-- 2026-06-29 18:09 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/2575094.shtml)
-- 2026-06-29 18:04 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/893561.shtml)
-- 2026-06-29 18:21 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/8515893202.shtml)
-- 2026-06-29 18:22 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/44070.shtml)
-- 2026-06-29 18:20 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/5933792535.shtml)
-- 2026-06-29 17:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/89561.shtml)
-- 2026-06-29 18:19 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/71953.shtml)
+- 2026-06-29 18:00 - [扬名立万](http://www.share.kurohicncr.top/Article/details/10777203460.shtml)
+- 2026-06-29 18:02 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/2023976.shtml)
+- 2026-06-29 18:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/182694.shtml)
+- 2026-06-29 18:14 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/16760473.shtml)
+- 2026-06-29 18:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.minike.top/Article/details/9696858346.shtml)
+- 2026-06-29 18:07 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/982556.shtml)
+- 2026-06-29 18:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/475784208439.shtml)
+- 2026-06-29 18:10 - [我和我的家乡](https://www.share.minike.top/Article/details/4134433502.shtml)
+- 2026-06-29 18:18 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/46976727726.shtml)
+- 2026-06-29 18:21 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/8152731075.shtml)
+- 2026-06-29 18:01 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/290851842.shtml)
+- 2026-06-29 18:19 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/645169.shtml)
+- 2026-06-29 18:29 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/9336206.shtml)
+- 2026-06-29 18:11 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/34913381038.shtml)
+- 2026-06-29 18:18 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/38093113996.shtml)

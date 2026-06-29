@@ -1,49 +1,58 @@
-# 美银证券：金风科技重申“买入”评级 目标价升至18.5港元
+# 猪肉股大涨，生猪价格却不断下跌，原因是？
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-美银证券发布研报称，金风科技（02208）今年首季净利润同比增长60%至9.07亿元人民币，好过预期，主要由风机出货量增加以及重启风电场销售所带动。整体毛利率同比下降5个百分点，主要受风电场营运表现及海外出货占比下降所拖累。该行将金风科技2026至2028年的盈利预测平均上调3%，以反映风机出货量预测增加，料今年全年增长35%，但部分被风机利润率降至10.8%所抵销； 金风科技
+来源：期货日报 近日，国内生猪市场出现了一个值得关注的现象：生猪期货主力合约持续下跌，现货猪价跌至历史低位，而A股猪肉板块却逆势走强。 4月7日，生猪期货主力合约收报9210元/吨，创上市以来新低。农业农村部监测数据显示，3月第4周全国生猪均价跌至10.68元/公斤，部分地区甚至跌破10元/公斤，创下8年来新低。与此同时，A股猪肉板块却大涨，华统股份、巨星农牧等生猪养殖股表现亮
 
 ## 正文
 
-美银证券发布研报称，金风科技（02208）今年首季净利润同比增长60%至9.07亿元人民币，好过预期，主要由风机出货量增加以及重启风电场销售所带动。
+来源：期货日报 近日，国内生猪市场出现了一个值得关注的现象：生猪期货主力合约持续下跌，现货猪价跌至历史低位，而A股猪肉板块却逆势走强。
 
-整体毛利率同比下降5个百分点，主要受风电场营运表现及海外出货占比下降所拖累。
+4月7日，生猪期货主力合约收报9210元/吨，创上市以来新低。
 
-该行将金风科技2026至2028年的盈利预测平均上调3%，以反映风机出货量预测增加，料今年全年增长35%，但部分被风机利润率降至10.8%所抵销； 金风科技港股目标价由17.6港元升至18.5港元，重申“买入”评级； 金风科技（002202.SZ）A股目标价由31.6元下调至26元人民币，维持“跑输大市”评级。
+农业农村部监测数据显示，3月第4周全国生猪均价跌至10.68元/公斤，部分地区甚至跌破10元/公斤，创下8年来新低。
 
-责任编辑：卢昱君
+与此同时，A股猪肉板块却大涨，华统股份、巨星农牧等生猪养殖股表现亮眼。
+
+期货日报记者从采访中了解到，出现这种“期股背离”现象的主要原因是期货市场和股票市场交易驱动的时间周期和交易逻辑不同。
+
+“期货定价现货、股票定价预期。
+
+”中信建投期货养殖板块研究员邓昊然解释说，生猪期货价格下跌尤其是近月合约下跌，反映了市场对短期供需格局并不看好，期货价格充分计价了当下的供应过剩压力。
+
+而A股猪肉板块上涨则是资金提前博弈周期反转，猪价越低、行业亏损越严重，意味着中小养殖户现金流压力加剧，能繁母猪去化速度有望加快，供应收缩拐点可能提前到来。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 18:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 18:22 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 18:09 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 18:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 18:04 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 18:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 17:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 17:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 18:22 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 18:23 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 18:24 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 18:10 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 18:00 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 18:21 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:29 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:15 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 18:02 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 18:29 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 18:04 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 18:19 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/549906977.shtml)
-- 2026-06-29 17:54 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/265536.shtml)
-- 2026-06-29 18:15 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/20374.shtml)
-- 2026-06-29 18:17 - [扫黑风暴](https://www.share.minike.top/Article/details/4205630.shtml)
-- 2026-06-29 17:57 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/921614.shtml)
-- 2026-06-29 18:07 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/3126719727.shtml)
-- 2026-06-29 18:18 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/081806.shtml)
-- 2026-06-29 18:12 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/7450635.shtml)
-- 2026-06-29 18:23 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/320900820302.shtml)
-- 2026-06-29 18:05 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/604095.shtml)
-- 2026-06-29 18:11 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/829318927981.shtml)
-- 2026-06-29 18:23 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/034860.shtml)
-- 2026-06-29 18:02 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/974713.shtml)
-- 2026-06-29 18:11 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/06522626.shtml)
-- 2026-06-29 18:04 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/8061217.shtml)
+- 2026-06-29 18:18 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/28020.shtml)
+- 2026-06-29 18:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/55571156.shtml)
+- 2026-06-29 18:16 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/20944.shtml)
+- 2026-06-29 18:05 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/1373748.shtml)
+- 2026-06-29 18:23 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/065772.shtml)
+- 2026-06-29 18:09 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/54696907.shtml)
+- 2026-06-29 18:25 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/60147.shtml)
+- 2026-06-29 18:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/04173050253.shtml)
+- 2026-06-29 18:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/251538395698.shtml)
+- 2026-06-29 18:11 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/368077293948.shtml)
+- 2026-06-29 18:19 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/95180.shtml)
+- 2026-06-29 18:20 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/401031932.shtml)
+- 2026-06-29 18:12 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/366742399.shtml)
+- 2026-06-29 18:17 - [逃狱兄弟](https://www.blog.minike.top/Article/details/207475376431.shtml)
+- 2026-06-29 18:07 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/475925888.shtml)

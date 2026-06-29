@@ -1,58 +1,57 @@
-# 我国拟修订企业国有资产法 以立法引领保障国资国企改革发展
+# 特朗普警告伊朗：若不达成协议，“整个文明将在今晚消亡”
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-人大常委会丨我国拟修订企业国有资产法 以立法引领保障国资国企改革发展 新华社北京4月27日电(记者王希)企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议审议。这是企业国有资产法自2009年5月1日施行以来的首次修订。 国有企业是中国特色社会主义的重要物质基础和政治基础。企业国有资产法规定了我国企业国有资产管理监督的基础制度，自施行以来为国资国企改革发展提供
+要点 美国总统特朗普周二大幅升级对伊朗的威胁，警告称除非伊朗领导层达成包含重新开放霍尔木兹海峡的协议，否则 “整个文明将在今晚消亡”。 一名白宫官员向 CNBC 证实，此前美军已于夜间打击了伊朗主要石油出口终端哈尔克岛的军事目标，此番威胁紧随其后。 “整个文明将在今晚消亡，永远无法复原。我不希望发生这种事，但很可能会。” 特朗普周二上午在 “真实社交” 平台写道。 “不过，既然
 
 ## 正文
 
-人大常委会丨我国拟修订企业国有资产法 以立法引领保障国资国企改革发展 新华社北京4月27日电(记者王希)企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议审议。
+要点 美国总统特朗普周二大幅升级对伊朗的威胁，警告称除非伊朗领导层达成包含重新开放霍尔木兹海峡的协议，否则 “整个文明将在今晚消亡”。
 
-这是企业国有资产法自2009年5月1日施行以来的首次修订。
+一名白宫官员向 CNBC 证实，此前美军已于夜间打击了伊朗主要石油出口终端哈尔克岛的军事目标，此番威胁紧随其后。
 
-国有企业是中国特色社会主义的重要物质基础和政治基础。
+“整个文明将在今晚消亡，永远无法复原。
 
-企业国有资产法规定了我国企业国有资产管理监督的基础制度，自施行以来为国资国企改革发展提供了有力法治保障。
+我不希望发生这种事，但很可能会。
 
-当前，我国发展处于战略机遇和风险挑战并存、不确定难预料因素增多的时期，推动高质量发展、推进中国式现代化，对更好发挥国有经济战略支撑作用提出了新的更高要求。
+” 特朗普周二上午在 “真实社交” 平台写道。
 
-修改完善企业国有资产法，以立法引领和保障国资国企改革发展，加强国有资产管理监督法治建设，对于保障国有经济持续健康发展具有十分重要的意义。
+“不过，既然我们将实现彻底的政权更迭，由更明智、更温和的人掌权，或许会发生革命性的美好事情，谁知道呢？
 
-据了解，企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。
+” 他写道。
 
-草案修改71条、新增32条，共九章109条。
+“今晚我们就会知晓答案，这是世界漫长复杂历史中最重要的时刻之一。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 18:13 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 18:11 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 18:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 18:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:57 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 18:12 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 18:04 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 17:54 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 18:06 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 18:23 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 17:58 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 18:27 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 18:07 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 18:26 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 18:22 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 18:21 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 18:15 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:28 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:05 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 18:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 18:02 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/6197886892.shtml)
-- 2026-06-29 18:05 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/48678977.shtml)
-- 2026-06-29 18:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/1941294.shtml)
-- 2026-06-29 18:05 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/949060988.shtml)
-- 2026-06-29 18:21 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/26262639.shtml)
-- 2026-06-29 18:06 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/03649.shtml)
-- 2026-06-29 17:58 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/21159375981.shtml)
-- 2026-06-29 18:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/548003.shtml)
-- 2026-06-29 18:19 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/24527739.shtml)
-- 2026-06-29 18:00 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/3433734.shtml)
-- 2026-06-29 17:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/90511752.shtml)
-- 2026-06-29 18:12 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/746043.shtml)
-- 2026-06-29 17:54 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/24428950490.shtml)
-- 2026-06-29 18:17 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/94658049216.shtml)
-- 2026-06-29 18:02 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/39582361.shtml)
+- 2026-06-29 18:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/1197243.shtml)
+- 2026-06-29 18:20 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/121239642.shtml)
+- 2026-06-29 18:01 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/96321.shtml)
+- 2026-06-29 18:16 - [周生如故](https://www.share.minike.top/Article/details/700963504.shtml)
+- 2026-06-29 18:23 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/7822324203.shtml)
+- 2026-06-29 18:13 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/105473.shtml)
+- 2026-06-29 18:10 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/200298681.shtml)
+- 2026-06-29 18:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/0219200.shtml)
+- 2026-06-29 18:18 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/25806616.shtml)
+- 2026-06-29 18:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/38097785.shtml)
+- 2026-06-29 18:15 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/83581222030.shtml)
+- 2026-06-29 18:22 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/194784413.shtml)
+- 2026-06-29 18:26 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/16285284392.shtml)
+- 2026-06-29 18:28 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/47019.shtml)
+- 2026-06-29 18:28 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/131315.shtml)

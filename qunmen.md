@@ -1,60 +1,58 @@
-# 将阅读嵌入生活
+# Meta发布其耗巨资组建的超智能团队首款AI模型
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-今年2月1日起实施的《全民阅读促进条例》，从立法层面为全民阅读的开展提供了法治保障。条例明确规定每年4月的最后一周为“全民阅读活动周”。最美四月天，读书正当时。4月20日至22日，以“共促全民阅读 共建书香社会”为主题的第五届全民阅读大会在江西南昌举行。书香渗透每个角落 全民阅读已经融入城市肌理，成为百姓的生活习惯。 以江西为例，江西省图书馆新馆自2020年开放以来，已接待入馆
+META上涨 8.37% Meta 平台公司于周三发布了Muse Spark，这是其去年为在人工智能竞赛中追赶竞争对手而重金组建的团队所研发的首款人工智能模型。 美国科技巨头正面临压力，需要证明其巨额人工智能投入能够获得回报。对 Meta 而言，赌注尤其高昂：该公司去年以 143 亿美元的协议聘请了 Scale AI 首席执行官亚历克斯・王，并为新组建的超智能团队部分工程师开出
 
 ## 正文
 
-今年2月1日起实施的《全民阅读促进条例》，从立法层面为全民阅读的开展提供了法治保障。
+META上涨 8.37% Meta 平台公司于周三发布了Muse Spark，这是其去年为在人工智能竞赛中追赶竞争对手而重金组建的团队所研发的首款人工智能模型。
 
-条例明确规定每年4月的最后一周为“全民阅读活动周”。
+美国科技巨头正面临压力，需要证明其巨额人工智能投入能够获得回报。
 
-最美四月天，读书正当时。
+对 Meta 而言，赌注尤其高昂：该公司去年以 143 亿美元的协议聘请了 Scale AI 首席执行官亚历克斯・王，并为新组建的超智能团队部分工程师开出了数亿美元薪酬待遇。
 
-4月20日至22日，以“共促全民阅读 共建书香社会”为主题的第五届全民阅读大会在江西南昌举行。
+Muse Spark 是该团队全新系列模型中的首款产品，该团队致力于研发智力超越人类的机器。
 
-书香渗透每个角落 全民阅读已经融入城市肌理，成为百姓的生活习惯。
+该模型初期仅在使用率较低的 Meta AI 应用程序及网站上线，并将在未来数周内，取代目前支撑 WhatsApp、Instagram、Facebook 及 Meta 系列智能眼镜聊天功能的现有 Llama 模型。
 
-以江西为例，江西省图书馆新馆自2020年开放以来，已接待入馆读者超1000万人次，借还图书超480万册次，年均举办各类全民阅读活动1000场；开在社区、乡镇、景区、公园等处的111座南昌孺子书房，构建起“15分钟阅读圈”，成为市民“家门口的图书馆”……遍及城乡的阅读基础设施网络体系，有效满足着广大人民群众的阅读需求。
+该公司在一篇博客文章中表示：“这款初始模型在设计上轻量化、运行快速，同时足以对科学、数学和健康领域的复杂问题进行推理。
 
-除了公共阅读设施，南昌大街小巷还分布着众多独具特色的网红书店。
+它是一个强大的基础模型，下一代产品已在研发中。
 
-“虽然网上买书很方便，但我还是喜欢经常到书店逛逛。
+” Meta 并未披露该模型的参数量 —— 这是对比人工智能系统算力水平的关键指标。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 18:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 18:09 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 18:02 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 18:01 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 18:07 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 18:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 17:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 18:15 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 18:21 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 17:56 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 17:55 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 18:12 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 18:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:25 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 18:25 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:25 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 18:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 18:07 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 18:10 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 18:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 18:22 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 18:10 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 18:23 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 18:14 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 18:20 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/913403.shtml)
-- 2026-06-29 18:02 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/52499724212.shtml)
-- 2026-06-29 18:11 - [V8](https://www.share.minike.top/Article/details/978939524.shtml)
-- 2026-06-29 17:56 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/4311858254.shtml)
-- 2026-06-29 18:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/41185329.shtml)
-- 2026-06-29 18:06 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/456448222.shtml)
-- 2026-06-29 18:01 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/89474491.shtml)
-- 2026-06-29 18:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/05634794.shtml)
-- 2026-06-29 17:58 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/6241294.shtml)
-- 2026-06-29 18:10 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4132259.shtml)
-- 2026-06-29 18:22 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/17996.shtml)
-- 2026-06-29 18:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/78667.shtml)
-- 2026-06-29 17:56 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/5743289101.shtml)
-- 2026-06-29 17:58 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/3826421.shtml)
-- 2026-06-29 18:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8338724153.shtml)
+- 2026-06-29 18:23 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/859827905358.shtml)
+- 2026-06-29 18:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/4746122363.shtml)
+- 2026-06-29 18:07 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/93362615.shtml)
+- 2026-06-29 18:08 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/01117245714.shtml)
+- 2026-06-29 18:08 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/426791.shtml)
+- 2026-06-29 18:15 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/3221725060.shtml)
+- 2026-06-29 18:00 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/86932546904.shtml)
+- 2026-06-29 18:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/93593125461.shtml)
+- 2026-06-29 18:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/323586614.shtml)
+- 2026-06-29 18:11 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/796488023952.shtml)
+- 2026-06-29 18:28 - [逃狱兄弟](https://www.blog.minike.top/Article/details/3982770.shtml)
+- 2026-06-29 18:06 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/608573418640.shtml)
+- 2026-06-29 18:08 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/274145555491.shtml)
+- 2026-06-29 18:24 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/471592.shtml)
+- 2026-06-29 18:01 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/73754.shtml)

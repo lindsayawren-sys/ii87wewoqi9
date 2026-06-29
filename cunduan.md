@@ -1,46 +1,57 @@
-# 广西沿海水文中心发布钦州市洪水蓝色预警
+# 海南今年平均降水量偏少约七成 全岛各市县均出现气象干旱
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据“钦州发布”官方微博消息，广西沿海水文中心4月27日发布洪水蓝色预警，受强降雨影响，预计未来5~10小时，大风江钦南区那彭镇河段将出现超警戒(17.5米)1米左右的洪水；白鹤江钦南区久隆镇河段将出现警戒水位(8.5米)左右的洪水，丹竹江钦南区那丽镇河段将出现警戒水位(9.0米)左右的洪水。广西沿海水文中心于4月27日10时30分发布钦州市洪水蓝色预警，请钦
+中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。专家表示，今年海南春季气象干旱整体较往年同期更为严重。气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。 据悉，截至4月7日，海南岛18个
 
 ## 正文
 
-中新网4月27日电 据“钦州发布”官方微博消息，广西沿海水文中心4月27日发布洪水蓝色预警，受强降雨影响，预计未来5~10小时，大风江钦南区那彭镇河段将出现超警戒(17.5米)1米左右的洪水；白鹤江钦南区久隆镇河段将出现警戒水位(8.5米)左右的洪水，丹竹江钦南区那丽镇河段将出现警戒水位(9.0米)左右的洪水。
+中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。
 
-广西沿海水文中心于4月27日10时30分发布钦州市洪水蓝色预警，请钦南区沿江相关区域各有关单位及社会公众密切关注雨水情变化，加强防范，及时避险。
+记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。
+
+专家表示，今年海南春季气象干旱整体较往年同期更为严重。
+
+气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。
+
+据悉，截至4月7日，海南岛18个市县均出现了不同程度的气象干旱。
+
+其中，文昌和琼海出现重度气象干旱，海口、澄迈、临高、儋州、白沙、五指山、保亭、陵水、琼中、万宁、屯昌和定安12个市县出现中度气象干旱，昌江、东方、乐东和三亚4个市县出现轻度气象干旱。
+
+海南省气候中心专家认为，今年海南异常高温与厄尔尼诺现象无直接关系，而是副热带高压偏强、西南干热气流和焚风效应的共同作用。
+
+当前海南受副热带高压控制，空气下沉过程中压缩增温，加之晴朗少云天气使太阳辐射直接加热地面，进一步推高气温；同时，岛内中低层受西南干热气流影响，气流翻越五指山脉形成焚风效应，在下降过程中加速升温，导致北部和西部地区更易出现极端高温。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 18:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 18:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 18:18 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 18:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:18 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 17:59 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 18:12 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 17:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 17:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 18:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 18:07 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 18:12 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 18:07 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 18:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 18:00 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 18:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 18:07 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 18:10 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 18:25 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 18:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 18:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 18:04 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/05131112909.shtml)
-- 2026-06-29 17:56 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/7102055485.shtml)
-- 2026-06-29 18:23 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/084733267.shtml)
-- 2026-06-29 18:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/95901339942.shtml)
-- 2026-06-29 18:16 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/5529739237.shtml)
-- 2026-06-29 18:18 - [女心理师](http://www.share.minike.top/Article/details/57864737377.shtml)
-- 2026-06-29 18:01 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/991676195294.shtml)
-- 2026-06-29 18:03 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/10925.shtml)
-- 2026-06-29 18:11 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/72469703328.shtml)
-- 2026-06-29 18:09 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/974326758.shtml)
-- 2026-06-29 18:17 - [女心理师](http://www.blog.kurohicncr.top/Article/details/1987210.shtml)
-- 2026-06-29 18:09 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/318484788.shtml)
-- 2026-06-29 18:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/2198625.shtml)
-- 2026-06-29 18:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/13669.shtml)
-- 2026-06-29 18:12 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/6700477696.shtml)
+- 2026-06-29 18:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/61644377445.shtml)
+- 2026-06-29 18:09 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/02702.shtml)
+- 2026-06-29 18:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/194730919.shtml)
+- 2026-06-29 18:24 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/37321.shtml)
+- 2026-06-29 18:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/4059822.shtml)
+- 2026-06-29 18:08 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/828682514.shtml)
+- 2026-06-29 18:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/652822.shtml)
+- 2026-06-29 18:15 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/6855188.shtml)
+- 2026-06-29 18:15 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/7740824.shtml)
+- 2026-06-29 18:08 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/6069749.shtml)
+- 2026-06-29 18:08 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/11083731805.shtml)
+- 2026-06-29 18:16 - [沉睡花园](http://www.blog.minike.top/Article/details/1196093010.shtml)
+- 2026-06-29 18:29 - [扫黑风暴](https://www.blog.minike.top/Article/details/595801.shtml)
+- 2026-06-29 18:01 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/6639383.shtml)
+- 2026-06-29 18:00 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/195426.shtml)

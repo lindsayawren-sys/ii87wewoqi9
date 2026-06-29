@@ -1,56 +1,59 @@
-# 创新药板块回调或迎布局窗口！恒生创新药ETF华泰柏瑞（520500）连续4周获得资金净流入
+# 巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-近期创新药板块有所回调，但板块基本面与政策面并未转弱，反而积蓄了多重积极信号。国内创新药定价机制正从“行政控费”转向“市场主导、分类定价”，有望大幅改善创新药企的研发回报预期；同时，国产创新药在全球顶级学术会议中的入选数量与质量持续突破，叠加BD出海交易持续活跃、部分头部企业迎来盈利拐点，回调或为中长期投资提供了布局窗口。 在此背景下，资金延续对创新药板块的关注度，目前全市场仅
+沃伦・巴菲特表示，尽管比尔・盖茨与已定罪性犯罪者杰弗里・爱泼斯坦关系密切的内幕被曝光，他仍不后悔向盖茨基金会捐赠的数十亿美元，但他已不再与密友盖茨交谈。 已向盖茨基金会捐赠了价值数百亿美元股票的巴菲特周二对美国消费者新闻与商业频道（CNBC）表示：“我希望某些事情从未发生过。” 但谈到基金会的工作时，他说：“他们又不是在为自己侵吞钱财。” 据基金会披露，截至 2022 年，巴菲
 
 ## 正文
 
-近期创新药板块有所回调，但板块基本面与政策面并未转弱，反而积蓄了多重积极信号。
+沃伦・巴菲特表示，尽管比尔・盖茨与已定罪性犯罪者杰弗里・爱泼斯坦关系密切的内幕被曝光，他仍不后悔向盖茨基金会捐赠的数十亿美元，但他已不再与密友盖茨交谈。
 
-国内创新药定价机制正从“行政控费”转向“市场主导、分类定价”，有望大幅改善创新药企的研发回报预期；同时，国产创新药在全球顶级学术会议中的入选数量与质量持续突破，叠加BD出海交易持续活跃、部分头部企业迎来盈利拐点，回调或为中长期投资提供了布局窗口。
+已向盖茨基金会捐赠了价值数百亿美元股票的巴菲特周二对美国消费者新闻与商业频道（CNBC）表示：“我希望某些事情从未发生过。
 
-在此背景下，资金延续对创新药板块的关注度，目前全市场仅有的跟踪恒生创新药指数的ETF——恒生创新药ETF华泰柏瑞（520500）近期交投显著活跃。
+” 但谈到基金会的工作时，他说：“他们又不是在为自己侵吞钱财。
 
-据交易所及Wind数据显示，该ETF连续4周获得周度资金净流入、累计吸金3.12亿元；4月以来日均成交额达12.66亿元，相较1季度6.11亿元的日均水平显著放量107%。
+” 据基金会披露，截至 2022 年，巴菲特的捐款总额已达 360 亿美元，此后他每年仍继续捐赠。
 
-在资金的踊跃交易下，该ETF最新规模逼近25亿元，份额突破15亿份。
+不过，他尚未决定原定今年 6 月进行的下一笔捐款将如何处理。
 
-2026年ASCO将于5月底召开，美国临床肿瘤学会（ASCO）年会是全球规模最大、最具权威性的临床肿瘤学会议之一，中国创新药企在本届大会重磅环节中的入选数量再创新高。
+美国司法部公布的超过 300 万页爱泼斯坦相关文件中，包含大量盖茨与爱泼斯坦之间的邮件，显示二人曾协调会面、并讨论盖茨的慈善工作。
 
-据统计，共有12家中国创新药企的13项研究入选全体大会（Plenary Session）和最新突破摘要（LBA），刷新历史纪录，显示中国创新药在全球顶级肿瘤会议中的参与度和话语权持续提升。
+文件中还有爱泼斯坦本人写下的内容，暗示盖茨存在性不端行为。
 
-中信建投分析指出，从入选层级看，中国项目正从一般“口头报告”进一步走向“全体大会”和“LBA”等汇报类型，反映中国创新药临床证据质量持续提升。
+据报道，盖茨已就与爱泼斯坦的关联向基金会员工道歉，称这段关系是 “一个巨大的错误”，但坚决否认有关个人不当行为的指控，称其 “不实”。
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 18:12 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 18:20 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 18:02 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 18:20 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 18:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 17:54 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 17:58 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 18:14 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 18:09 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 18:09 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 18:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 18:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 18:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 18:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 18:12 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 18:08 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 18:05 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 18:06 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 18:09 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 18:13 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/2836200.shtml)
-- 2026-06-29 18:10 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/2964274610.shtml)
-- 2026-06-29 17:54 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/929373088322.shtml)
-- 2026-06-29 17:57 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/00523575491.shtml)
-- 2026-06-29 17:59 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/751445.shtml)
-- 2026-06-29 18:11 - [请回答王牌2019](http://www.share.minike.top/Article/details/763986.shtml)
-- 2026-06-29 17:59 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/82095961.shtml)
-- 2026-06-29 18:07 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/5763143.shtml)
-- 2026-06-29 18:23 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/854473823017.shtml)
-- 2026-06-29 18:07 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/5917657014.shtml)
-- 2026-06-29 18:06 - [NBA交易](http://www.share.minike.top/Article/details/138491950347.shtml)
-- 2026-06-29 18:05 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/33874344.shtml)
-- 2026-06-29 18:14 - [沉睡花园](http://www.blog.minike.top/Article/details/607489436.shtml)
-- 2026-06-29 18:21 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/8499550617.shtml)
-- 2026-06-29 18:13 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/27183846051.shtml)
+- 2026-06-29 18:17 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/85885757168.shtml)
+- 2026-06-29 18:13 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/55876.shtml)
+- 2026-06-29 18:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/17849374769.shtml)
+- 2026-06-29 18:29 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/03560.shtml)
+- 2026-06-29 18:11 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/39221898382.shtml)
+- 2026-06-29 18:24 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/63497228803.shtml)
+- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/6668274526.shtml)
+- 2026-06-29 18:08 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/423951.shtml)
+- 2026-06-29 18:04 - [明星大侦探第一季](https://www.share.minike.top/Article/details/19345461200.shtml)
+- 2026-06-29 18:19 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/176974.shtml)
+- 2026-06-29 18:17 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/36380.shtml)
+- 2026-06-29 18:21 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/3577750.shtml)
+- 2026-06-29 18:16 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/28184.shtml)
+- 2026-06-29 18:28 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/85540.shtml)
+- 2026-06-29 18:20 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/50972.shtml)

@@ -1,59 +1,58 @@
-# 上海通报5起违反中央八项规定精神问题
+# 越南人民的好“骑”心，广西满足！
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。 1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。吉玉萍还
+东盟场景录 广西云-广西日报记者 沈 程 银白色外观可双人乘骑、车尾加大加宽可放置货物……在RMEV公司位于越南河内的展厅里，几款造型各异的智能电动车整齐排列，车身线条流畅，科技感十足。这些智能电动车来自中国广西南宁，由人民出行(南宁)科技有限公司自主研发。 提起人民出行，南宁人并不陌生。去年，该公司自主研发的“御风”共享电动车在国内市场广受青睐。如今，这一“广西智造”品牌正加
 
 ## 正文
 
-中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。
+东盟场景录 广西云-广西日报记者 沈 程 银白色外观可双人乘骑、车尾加大加宽可放置货物……在RMEV公司位于越南河内的展厅里，几款造型各异的智能电动车整齐排列，车身线条流畅，科技感十足。
 
-1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。
+这些智能电动车来自中国广西南宁，由人民出行(南宁)科技有限公司自主研发。
 
-2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。
+提起人民出行，南宁人并不陌生。
 
-吉玉萍还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+去年，该公司自主研发的“御风”共享电动车在国内市场广受青睐。
 
-2.上海国际机场股份有限公司原总经理黄铮霖接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金，违规出入私人会所，违规干预和插手市场经济活动等问题。
+如今，这一“广西智造”品牌正加速布局海外，以越南为首个支点开启新征程。
 
-2021年至2025年，黄铮霖多次接受私营企业主安排的宴请、外地旅游，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼品礼金；利用职务便利，违规为他人在相关设备采购等事项上提供帮助，非法收受财物。
+今年1月，人民出行以RMEV品牌正式落地河内，与当地头部企业达成深度战略合作，将智慧出行一体化解决方案带到湄公河畔。
 
-黄铮霖还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+“我们已经做好了与RMEV合作的前期筹备工作，包括技术对接以及和政府部门的沟通。
 
-3.上海体育大学资产处产业办公室原业务主管、交流中心原总经理张成一接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金等问题。
+”Grab越南区总经理马俊重透露，目前正在小范围的内部测试中，很快就能在越南骑上“广西造”的智能电动车。
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:16 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 18:07 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 18:10 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 18:22 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 18:14 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 18:03 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 18:21 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 17:57 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 18:23 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 18:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 18:19 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 18:07 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 18:25 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 18:26 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 18:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 18:00 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 18:15 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 18:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 18:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 18:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 18:04 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 18:01 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/084903252957.shtml)
-- 2026-06-29 18:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/6075384.shtml)
-- 2026-06-29 17:58 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/61760005.shtml)
-- 2026-06-29 18:03 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/780462.shtml)
-- 2026-06-29 18:22 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/802446231.shtml)
-- 2026-06-29 18:10 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/59141.shtml)
-- 2026-06-29 18:23 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/4710845888.shtml)
-- 2026-06-29 18:09 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/966114672028.shtml)
-- 2026-06-29 18:11 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/442336239.shtml)
-- 2026-06-29 17:59 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/72631922.shtml)
-- 2026-06-29 18:17 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/02158276414.shtml)
-- 2026-06-29 18:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/847378448.shtml)
-- 2026-06-29 18:15 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/1797882799.shtml)
-- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/525754343.shtml)
-- 2026-06-29 18:05 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/052501.shtml)
+- 2026-06-29 18:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/089967.shtml)
+- 2026-06-29 18:06 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/10039175972.shtml)
+- 2026-06-29 18:24 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/24085.shtml)
+- 2026-06-29 18:13 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/15904438.shtml)
+- 2026-06-29 18:02 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/3276600893.shtml)
+- 2026-06-29 18:13 - [女心理师](http://www.blog.minike.top/Article/details/232096512.shtml)
+- 2026-06-29 18:06 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/5051112727.shtml)
+- 2026-06-29 18:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/871239.shtml)
+- 2026-06-29 18:22 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/43386824.shtml)
+- 2026-06-29 18:13 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/91092.shtml)
+- 2026-06-29 18:04 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/351263699317.shtml)
+- 2026-06-29 18:28 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/921401050.shtml)
+- 2026-06-29 18:02 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/610985720770.shtml)
+- 2026-06-29 18:01 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/999115046404.shtml)
+- 2026-06-29 18:21 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/5672973395.shtml)

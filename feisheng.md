@@ -1,56 +1,57 @@
-# 职业伤害保障试点再扩围，纳入小象超市、盒马鲜生等
+# 生态修复+特色林果，塔克拉玛干沙漠边有了开心果
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-今年将出行、即时配送和同城货运三个试点行业的平台企业总体纳入试点范围。 新就业形态人员职业伤害保障试点继续扩围。今年7月1日起，T3出行等9家出行平台企业，以及小象超市、盒马鲜生等5家即时配送平台企业均将纳入试点范围。4月28日，人社部举行的例行新闻发布会透露这一动向。 近年来，以外卖骑手等为代表的新就业形态劳动者的权益保障话题备受社会关注。当前部分灵活就业人员、新就业形态就业
+近日，在洛浦县的有机种植防沙治沙项目现场，百余台大型机械正同步平整沙丘、规整地块，施工人员正抢抓春季造林黄金期，计划新栽植30万株开心果苗木，同时林下套种中草药、贝贝南瓜、有机蔬菜等经济作物。 该项目规划总面积5400亩，总投资1亿元。针对开心果幼苗易受干热风影响、越冬难度大、成活率偏低等实际难题，基地多措并举强化管护保障。新疆亨利产业园管理有限公司总经理林茂青说：“我们优选两
 
 ## 正文
 
-今年将出行、即时配送和同城货运三个试点行业的平台企业总体纳入试点范围。
+近日，在洛浦县的有机种植防沙治沙项目现场，百余台大型机械正同步平整沙丘、规整地块，施工人员正抢抓春季造林黄金期，计划新栽植30万株开心果苗木，同时林下套种中草药、贝贝南瓜、有机蔬菜等经济作物。
 
-新就业形态人员职业伤害保障试点继续扩围。
+该项目规划总面积5400亩，总投资1亿元。
 
-今年7月1日起，T3出行等9家出行平台企业，以及小象超市、盒马鲜生等5家即时配送平台企业均将纳入试点范围。
+针对开心果幼苗易受干热风影响、越冬难度大、成活率偏低等实际难题，基地多措并举强化管护保障。
 
-4月28日，人社部举行的例行新闻发布会透露这一动向。
+新疆亨利产业园管理有限公司总经理林茂青说：“我们优选两至三年生健壮苗木进行定植，配套打造近100亩、树龄10至12年的成熟挂果示范林，长期跟踪苗木长势，积累精细化管护经验。
 
-近年来，以外卖骑手等为代表的新就业形态劳动者的权益保障话题备受社会关注。
+同时通过林间套种玉米搭建防风屏障，依托林下农作物抑尘固沙，合理布设高立式沙障，在梯田边坡、道路沿线密植梭梭林降温固沙，全方位做好保苗护绿工作，持续巩固拓展塔克拉玛干沙漠锁边治理成果。
 
-当前部分灵活就业人员、新就业形态就业人员等未被纳入社保体系，存在“漏保”“脱保”“断保”情况。
-
-为补上这块“短板”，国家近年来推进职业伤害保障试点，在工伤保险制度框架下，结合新就业形态特点，提出按单计费、每单必保的职业伤害保障模式，于2022年启动试点工作。
-
-2025年7月，人社部等九部门联合印发的《关于扩大新就业形态人员职业伤害保障试点的通知》施行，明确用三年时间，从扩容省份、新增企业、拓宽行业三个维度分步骤、渐进式推进职业伤害保障试点扩围工作。
+”
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 18:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:06 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 18:15 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 18:04 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 18:01 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 17:57 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 18:01 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 17:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 18:19 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 18:12 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 18:11 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 18:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 18:19 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 18:01 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 18:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 18:25 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 18:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 18:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 18:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/95202624616.shtml)
-- 2026-06-29 18:22 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/7789550.shtml)
-- 2026-06-29 18:18 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/6679210.shtml)
-- 2026-06-29 18:19 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/42934640135.shtml)
-- 2026-06-29 18:02 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/9800295.shtml)
-- 2026-06-29 18:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/68241.shtml)
-- 2026-06-29 18:04 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/49303394.shtml)
-- 2026-06-29 18:15 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/02584987.shtml)
-- 2026-06-29 18:14 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/96379548398.shtml)
-- 2026-06-29 18:06 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/39107346.shtml)
-- 2026-06-29 18:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/206101872232.shtml)
-- 2026-06-29 18:02 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/917879065.shtml)
-- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/98205.shtml)
-- 2026-06-29 17:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/390535934.shtml)
-- 2026-06-29 18:11 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/3607329.shtml)
+- 2026-06-29 18:15 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/0218142848.shtml)
+- 2026-06-29 18:03 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/822811.shtml)
+- 2026-06-29 18:01 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/4069348.shtml)
+- 2026-06-29 18:07 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/39513711.shtml)
+- 2026-06-29 18:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/9314187.shtml)
+- 2026-06-29 18:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/96819057.shtml)
+- 2026-06-29 18:25 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/2379437.shtml)
+- 2026-06-29 18:11 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/1582354.shtml)
+- 2026-06-29 18:12 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/56522546.shtml)
+- 2026-06-29 18:01 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/8517864.shtml)
+- 2026-06-29 18:11 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/51787994650.shtml)
+- 2026-06-29 18:28 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/5322353.shtml)
+- 2026-06-29 18:03 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/008221020282.shtml)
+- 2026-06-29 18:23 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/72804.shtml)
+- 2026-06-29 18:12 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/97282309304.shtml)

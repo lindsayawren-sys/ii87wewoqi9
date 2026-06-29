@@ -1,48 +1,57 @@
-# 我国拟修订农业法加快建设农业强国
+# 星巴克拓展咖啡以外业务，进军能量饮料领域
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-新华社权威快报｜我国拟修订农业法加快建设农业强国 农业法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。 农业法是农业和农村经济领域的基础性法律，于1993年制定，2002年进行了全面修改
+星巴克正顺应能量饮料趋势，推出名为“Energy Refreshers”的新系列饮品，为其核心菜单增添了更强的咖啡因冲击力。 这些饮品于4月7日上市，由咖啡师新鲜制作，咖啡因含量约为公司标准Refreshers的2到3倍，并添加了B族维生素。它们提供草莓巴西莓、芒果火龙果等熟悉口味，以及一款新的芒果草莓选项，并可选择用水、柠檬水或椰奶进行定制。此举建立在星巴克早期进军即饮能量饮
 
 ## 正文
 
-新华社权威快报｜我国拟修订农业法加快建设农业强国 农业法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
+星巴克正顺应能量饮料趋势，推出名为“Energy Refreshers”的新系列饮品，为其核心菜单增添了更强的咖啡因冲击力。
 
-此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
+这些饮品于4月7日上市，由咖啡师新鲜制作，咖啡因含量约为公司标准Refreshers的2到3倍，并添加了B族维生素。
 
-农业法是农业和农村经济领域的基础性法律，于1993年制定，2002年进行了全面修改，2009年和2012年分别对个别条款作了修改。
+它们提供草莓巴西莓、芒果火龙果等熟悉口味，以及一款新的芒果草莓选项，并可选择用水、柠檬水或椰奶进行定制。
 
-记者：胡璐、韩佳诺 海报制作：韩佳诺 新华社国内部出品
+此举建立在星巴克早期进军即饮能量饮料的基础上，包括2025年与百事公司合作开发的罐装产品线，该产品线主打含160毫克植物性咖啡因的无糖选项。
+
+值得关注的是，星巴克并非只是在试水，而是从两个角度同时切入这一品类。
+
+它现在既拥有店内现制饮品，又拥有零售罐装产品，使其与麦当劳、Dutch Bros等连锁品牌形成更直接的竞争，同时也踏入了由魔爪和Celsius主导的领域。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 18:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 17:59 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 17:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 17:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 18:16 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:00 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 18:19 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 18:22 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 18:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:12 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 18:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 18:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 18:08 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 18:28 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 18:25 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 18:08 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 18:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 18:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 18:10 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 18:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:15 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/260877701.shtml)
-- 2026-06-29 17:55 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/7138195978.shtml)
-- 2026-06-29 18:22 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/72082500996.shtml)
-- 2026-06-29 18:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/43170886420.shtml)
-- 2026-06-29 18:13 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/74729365831.shtml)
-- 2026-06-29 17:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/01036996238.shtml)
-- 2026-06-29 17:57 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/30610948.shtml)
-- 2026-06-29 18:02 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/669909322.shtml)
-- 2026-06-29 18:23 - [V8](https://www.share.kurohicncr.top/Article/details/35116056884.shtml)
-- 2026-06-29 17:55 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/46408.shtml)
-- 2026-06-29 18:02 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/0295831.shtml)
-- 2026-06-29 18:19 - [T1 KC](http://www.share.kurohicncr.top/Article/details/758288.shtml)
-- 2026-06-29 18:19 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/46105.shtml)
-- 2026-06-29 17:59 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/69686076054.shtml)
-- 2026-06-29 18:12 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/906154628183.shtml)
+- 2026-06-29 18:17 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/03380058943.shtml)
+- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/827378490544.shtml)
+- 2026-06-29 18:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/40914142.shtml)
+- 2026-06-29 18:06 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/24001827.shtml)
+- 2026-06-29 18:14 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/697372507.shtml)
+- 2026-06-29 18:20 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/01266230.shtml)
+- 2026-06-29 18:04 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/722788.shtml)
+- 2026-06-29 18:21 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/083074381.shtml)
+- 2026-06-29 18:18 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/295403.shtml)
+- 2026-06-29 18:23 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/00279282.shtml)
+- 2026-06-29 18:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/16189765817.shtml)
+- 2026-06-29 18:06 - [逃狱兄弟](http://www.blog.minike.top/Article/details/768318602.shtml)
+- 2026-06-29 18:22 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/00168375599.shtml)
+- 2026-06-29 18:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/452725.shtml)
+- 2026-06-29 18:03 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/500674390.shtml)

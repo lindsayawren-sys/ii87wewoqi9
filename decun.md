@@ -1,58 +1,60 @@
-# 三七互娱押中智谱：营收降了，但投资收益暴增9倍
+# 金融监管总局最新部署！大型机构带头维护县域金融秩序、坚决纠正“内卷式”竞争
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-游戏大厂集体“投AI”。 4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。 4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。 营收下降利润却上涨不
+4月8日，金融监管总局发布《关于做好2026年金融支持乡村全面振兴工作的通知》（下称《通知》），要求农业发展银行、大中型商业银行在2026年继续单列涉农信贷计划，努力实现同口径涉农贷款余额较年初持续增长目标；在提升农村金融服务能力过程中，明确大型银行保险机构要带头维护县域金融秩序，坚决防止并纠正“内卷式”竞争行为。 全国普惠型涉农贷款余额已达14.52万亿元 “三农”是金融服务
 
 ## 正文
 
-游戏大厂集体“投AI”。
+4月8日，金融监管总局发布《关于做好2026年金融支持乡村全面振兴工作的通知》（下称《通知》），要求农业发展银行、大中型商业银行在2026年继续单列涉农信贷计划，努力实现同口径涉农贷款余额较年初持续增长目标；在提升农村金融服务能力过程中，明确大型银行保险机构要带头维护县域金融秩序，坚决防止并纠正“内卷式”竞争行为。
 
-4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。
+全国普惠型涉农贷款余额已达14.52万亿元 “三农”是金融服务实体经济的重点领域和薄弱环节，金融监管部门历来强调引导机构将金融资源配置到这些领域中。
 
-4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。
+仅以信贷为例，根据金融监管总局最新数据，截至2026年2月末，全国普惠型涉农贷款余额14.52万亿元，同比增长10.34%；今年前两个月新发放的普惠型涉农贷款平均利率4.05%，同比下降0.46个百分点。
 
-营收下降利润却上涨不少。
+本次《通知》首先强调要持续强化重点领域金融供给，以金融手段保障农业综合生产能力和质量效益提升、助力培育壮大县域富民产业、支持乡村建设和城乡融合发展。
 
-财报提及，业绩增长主要源于主营游戏业务增长及投资收益贡献。
+具体方向包括聚焦稳定粮油生产、“菜篮子”产业提质增效、农业科技创新，加大对绿色高效种养、农产品精深加工、农村电商高质量发展工程、农文旅融合、林草产业等领域的金融投入，加大对乡村全面振兴片区建设支持力度等。
 
-不过相较主营业务，更被业界所关注的是三七互娱的投资收益：一季度同比增长达981%，增加3.26亿元。
+《中共中央 国务院关于锚定农业农村现代化 扎实推进乡村全面振兴的意见》今年首次提及“实施常态化精准帮扶”。
 
-财报提及，报告期内三七互娱通过联营企业投资的智谱AI（北京智谱华章科技股份有限公司）挂牌上市，智谱股价变动导致联营企业公允价值变动收益有所上升，公司按持股比例相应确认了投资收益。
+作为落实《意见》的具体政策安排，《通知》也作出针对性部署，即要求各机构健全常态化金融帮扶机制，聚焦防止返贫致贫对象和欠发达地区，进一步巩固提升金融帮扶的力度、精度和实效，助力守牢不发生规模性返贫致贫底线。
 
-智谱在今年1月顶着“大模型第一股”的光环登陆港股，发行价116.2港元，此后三个月股价一路飙升，就在上周盘中触及1078港元的高点，涨幅超过9倍。
+要求大型机构带头维护县域金融秩序 在推动提升农村金融服务能力的整体安排中，今年《通知》特别强调大型机构的带头责任，要求大型银行保险机构树立和践行正确政绩观，带头维护县域金融秩序，坚决防止并纠正对涉农客户过度共债、“价格战”等“内卷式”竞争行为；而对于广大农村中小银行，则明确要持续深化改革，以改革促支农支小能力提升。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 17:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 18:06 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 18:14 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 18:11 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 18:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 18:07 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:14 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 18:00 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 18:18 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 18:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:04 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 18:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:28 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 18:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 18:03 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 18:00 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:11 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 18:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 18:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 18:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 18:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:05 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 18:16 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 18:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/4338620370.shtml)
-- 2026-06-29 18:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/862973.shtml)
-- 2026-06-29 18:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3731551.shtml)
-- 2026-06-29 18:15 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/659323.shtml)
-- 2026-06-29 18:16 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/22994770.shtml)
-- 2026-06-29 18:15 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/887443881766.shtml)
-- 2026-06-29 18:17 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/382516.shtml)
-- 2026-06-29 18:01 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/5551372.shtml)
-- 2026-06-29 18:12 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/539840199.shtml)
-- 2026-06-29 17:54 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9113161.shtml)
-- 2026-06-29 18:05 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/652841108813.shtml)
-- 2026-06-29 18:16 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/443544326.shtml)
-- 2026-06-29 18:23 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/475383150682.shtml)
-- 2026-06-29 18:06 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/911556.shtml)
-- 2026-06-29 18:23 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/44451.shtml)
+- 2026-06-29 18:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/94734031.shtml)
+- 2026-06-29 18:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/62669.shtml)
+- 2026-06-29 18:03 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/4743412637.shtml)
+- 2026-06-29 18:25 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/092630969913.shtml)
+- 2026-06-29 18:11 - [起风了](https://www.share.minike.top/Article/details/4003134447.shtml)
+- 2026-06-29 18:14 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/07141804856.shtml)
+- 2026-06-29 18:00 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/640545.shtml)
+- 2026-06-29 18:22 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/289055.shtml)
+- 2026-06-29 18:23 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/2315768382.shtml)
+- 2026-06-29 18:13 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/959305579204.shtml)
+- 2026-06-29 18:18 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/3457715019.shtml)
+- 2026-06-29 18:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/7495022060.shtml)
+- 2026-06-29 18:06 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/9529821.shtml)
+- 2026-06-29 18:03 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/610758861.shtml)
+- 2026-06-29 18:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/62720.shtml)

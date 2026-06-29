@@ -1,56 +1,56 @@
-# 对冲基金Saba拟募资新基金，瞄准流动性枯竭的私募市场
+# 梅德韦杰夫：霍尔木兹海峡是“核武器级”谈判筹码
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-知名对冲基金经理博阿斯·温斯坦旗下的Saba Capital Management计划推出一只新基金，旨在从难以变现的私募资产中捕捉套利机会，以满足众多财富顾问客户急需流动性的迫切需求。 据知情人士透露，Saba计划扩张其投资活动，成立一只全新投资工具，目标针对公开及非公开的“业务发展公司”——这是一种专注于投资中小型私营企业或不良债务的封闭式基金。一位匿名信源表示：“许多财富
+俄罗斯联邦安全会议副主席梅德韦杰夫周三表示，伊朗已将对霍尔木兹海峡的控制权作为其实力的考验，其威力堪比核武器。 梅德韦杰夫在社交媒体表示：“华盛顿和德黑兰之间的休战将如何演变尚不清楚。但有一件事是肯定的——伊朗已经测试了它的核武器。它就是霍尔木兹海峡。其潜力无穷无尽。”他后来又补充说：“瞧，就是这样：霍尔木兹海峡再次关闭。这件武器正在奏效。”责任编辑：李桐
 
 ## 正文
 
-知名对冲基金经理博阿斯·温斯坦旗下的Saba Capital Management计划推出一只新基金，旨在从难以变现的私募资产中捕捉套利机会，以满足众多财富顾问客户急需流动性的迫切需求。
+俄罗斯联邦安全会议副主席梅德韦杰夫周三表示，伊朗已将对霍尔木兹海峡的控制权作为其实力的考验，其威力堪比核武器。
 
-据知情人士透露，Saba计划扩张其投资活动，成立一只全新投资工具，目标针对公开及非公开的“业务发展公司”——这是一种专注于投资中小型私营企业或不良债务的封闭式基金。
+梅德韦杰夫在社交媒体表示：“华盛顿和德黑兰之间的休战将如何演变尚不清楚。
 
-一位匿名信源表示：“许多财富顾问的客户被困在这些缺乏流动性的产品中，他们对现金的渴求是推动温斯坦作出这一决策的主要原因。
+但有一件事是肯定的——伊朗已经测试了它的核武器。
 
-” Saba已在市场上对该策略进行试探。
+它就是霍尔木兹海峡。
 
-消息人士称，Saba近期完成了针对Starwood Real Estate Trust和Blue Owl Capital的收购要约，通过约190笔独立交易累计收购了约1000万美元面值的资产，其中绝大部分来自喜达屋房地产信托。
+其潜力无穷无尽。
 
-这些交易的实际成交价格隐含了相对于资产净值约35%的折价，这清晰地反映出在承压行情下投资者为获得流动性而愿意接受的“代价”。
+”他后来又补充说：“瞧，就是这样：霍尔木兹海峡再次关闭。
 
-当前，随着中东冲突持续和经济不确定性增加，全球资本市场流动性收紧，许多投资于非公开资产的投资者面临退出困境。
+这件武器正在奏效。
 
-Saba此次拟推出的新基金正是瞄准这一市场痛点，试图通过在二级市场上折价购入私募资产获利。
+”责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 18:15 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 18:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 18:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 18:17 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 18:02 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 18:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 18:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 17:58 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 18:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 18:06 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 18:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 18:04 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 18:04 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 18:13 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 18:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 18:12 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 18:20 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [爱很美味](http://www.blog.minike.top/Article/details/394830.shtml)
-- 2026-06-29 18:16 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/7102791408.shtml)
-- 2026-06-29 17:54 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/1052655597.shtml)
-- 2026-06-29 17:57 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/27059.shtml)
-- 2026-06-29 18:23 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/31511468.shtml)
-- 2026-06-29 18:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/428121296075.shtml)
-- 2026-06-29 18:11 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/57943.shtml)
-- 2026-06-29 18:08 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/38864370.shtml)
-- 2026-06-29 18:05 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/5136156.shtml)
-- 2026-06-29 18:10 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/370043.shtml)
-- 2026-06-29 18:19 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/69401335.shtml)
-- 2026-06-29 18:04 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/77961.shtml)
-- 2026-06-29 18:22 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/10355.shtml)
-- 2026-06-29 18:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4194079859.shtml)
-- 2026-06-29 18:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/503134530480.shtml)
+- 2026-06-29 18:22 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/501832296.shtml)
+- 2026-06-29 18:06 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/6843729.shtml)
+- 2026-06-29 18:14 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/73909881.shtml)
+- 2026-06-29 18:22 - [绘画区你赢了](http://www.share.minike.top/Article/details/197887177.shtml)
+- 2026-06-29 18:27 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/4661517740.shtml)
+- 2026-06-29 18:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/460559391329.shtml)
+- 2026-06-29 18:26 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/529776325447.shtml)
+- 2026-06-29 18:25 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/848985749.shtml)
+- 2026-06-29 18:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/00391459353.shtml)
+- 2026-06-29 18:28 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/2495699606.shtml)
+- 2026-06-29 18:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/9727047720.shtml)
+- 2026-06-29 18:27 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/22802967.shtml)
+- 2026-06-29 18:24 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/582639.shtml)
+- 2026-06-29 18:09 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/10708.shtml)
+- 2026-06-29 18:06 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/42425267.shtml)

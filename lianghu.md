@@ -1,57 +1,57 @@
-# 菲仕兰分享创新实践 助力乳制品行业提质升级
+# 创业板指大涨超4%！创业板人工智能ETF富国（159246）早盘一度涨超6%
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-近日，2026国际食品安全与健康大会在北京举办。作为全球领先的乳制品企业，菲仕兰深度参与本次行业盛会，通过品牌展示、高峰对话、主题演讲等形式，分享了菲仕兰的创新实践和生命早期营养的前沿成果，助力乳制品行业提质升级。 本次大会由中国食品科学技术学会与国际食品科技联盟联合主办，以“融合创新共筑食安健康新未来”为主题，汇聚国内外的专家、学者及国内外头部企业，共同围绕全球食品安全与健康
+4月8日，A股市场迎来普涨行情，三大指数早盘集体走强。其中，创业板指表现尤为亮眼，以超4%的涨幅领涨，显示出强劲的反弹动能，上证指数亦上涨1.59%，市场情绪显著回暖。 相关ETF产品中，富国创业板人工智能ETF（159246）一度涨逾6%，截至10：25涨幅为5.85%，成交额超7000万元，较昨日明显放量。成分股来看，蓝色光标、易点天下、东方国信等涨超10%，汉得信息、网宿
 
 ## 正文
 
-近日，2026国际食品安全与健康大会在北京举办。
+4月8日，A股市场迎来普涨行情，三大指数早盘集体走强。
 
-作为全球领先的乳制品企业，菲仕兰深度参与本次行业盛会，通过品牌展示、高峰对话、主题演讲等形式，分享了菲仕兰的创新实践和生命早期营养的前沿成果，助力乳制品行业提质升级。
+其中，创业板指表现尤为亮眼，以超4%的涨幅领涨，显示出强劲的反弹动能，上证指数亦上涨1.59%，市场情绪显著回暖。
 
-本次大会由中国食品科学技术学会与国际食品科技联盟联合主办，以“融合创新共筑食安健康新未来”为主题，汇聚国内外的专家、学者及国内外头部企业，共同围绕全球食品安全与健康领域的诸多热点话题展开深入研讨，为全球食品安全与健康事业注入新动能。
+相关ETF产品中，富国创业板人工智能ETF（159246）一度涨逾6%，截至10：25涨幅为5.85%，成交额超7000万元，较昨日明显放量。
 
-大会现场，菲仕兰的展台生动展现了“从牧场到餐桌”的全产业链管理。
+成分股来看，蓝色光标、易点天下、东方国信等涨超10%，汉得信息、网宿科技等跟涨。
 
-旗下皇家美素佳儿、皇家美素佳儿莼悦、皇家美素佳儿旺玥、美素佳儿源悦、黑白牛奶、黑白淡奶等明星产品集中展出，吸引众多参会嘉宾关注。
+消息面上，美伊局势逆转，引发亚太市场“狂欢”。
 
-菲仕兰中国高级副总裁杨国超出席企业家高峰论坛，分享菲仕兰以消费者需求驱动产品创新，以技术创新践行可持续发展。
+机构认为，四月下旬将成为国内外环境边际改善的关键时间窗口。
 
-产品创新方面，随着消费者对健康的理解越来越深入，对优质蛋白的需求快速增长，包括运动人群增肌需求和大众的体重管理需求。
+外部冲击消退后，4月中下旬市场焦点将转向一季报业绩高增长领域。
 
-菲仕兰推出蛋白质含量为10%的希腊酸奶，通过工艺优化和配方调整，在保持高蛋白含量的同时，显著改善了口感的顺滑度和细腻度。
+基于当前数据，有色金属、石油石化等资源板块，以及新能源、光通信、半导体产业链有望成为业绩增速最为亮眼的行业。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 17:57 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 18:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 18:01 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 18:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 17:57 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 18:16 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 17:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 18:16 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 18:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 18:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 18:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 18:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 18:18 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 18:29 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 18:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 18:10 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 18:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/7260713864.shtml)
-- 2026-06-29 18:10 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/652470825.shtml)
-- 2026-06-29 18:05 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/57864.shtml)
-- 2026-06-29 18:21 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/5472275331.shtml)
-- 2026-06-29 17:59 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/35515904.shtml)
-- 2026-06-29 18:07 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/4636107.shtml)
-- 2026-06-29 18:20 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/93858883076.shtml)
-- 2026-06-29 17:59 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/02097.shtml)
-- 2026-06-29 18:11 - [扫黑风暴](https://www.blog.minike.top/Article/details/7371888.shtml)
-- 2026-06-29 18:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/110695469236.shtml)
-- 2026-06-29 18:22 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/5774094.shtml)
-- 2026-06-29 17:57 - [东方风云榜](http://www.share.minike.top/Article/details/791158.shtml)
-- 2026-06-29 17:59 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/560727918.shtml)
-- 2026-06-29 18:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/881616780.shtml)
-- 2026-06-29 18:11 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/445581287693.shtml)
+- 2026-06-29 18:11 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/174246.shtml)
+- 2026-06-29 18:03 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/791701.shtml)
+- 2026-06-29 18:05 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/12620125936.shtml)
+- 2026-06-29 18:09 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/28289575787.shtml)
+- 2026-06-29 18:25 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/892015443.shtml)
+- 2026-06-29 18:28 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/4351419662.shtml)
+- 2026-06-29 18:18 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/5000609721.shtml)
+- 2026-06-29 18:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4793441931.shtml)
+- 2026-06-29 18:26 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/14544.shtml)
+- 2026-06-29 18:14 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/4566159.shtml)
+- 2026-06-29 18:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/50227.shtml)
+- 2026-06-29 18:23 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/89005866397.shtml)
+- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/316500995486.shtml)
+- 2026-06-29 18:27 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/0185195527.shtml)
+- 2026-06-29 18:05 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/442247224.shtml)

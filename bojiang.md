@@ -1,59 +1,61 @@
-# 美联储本周料按兵不动 中东战争冲击油价 通胀面临不确定性
+# 中信金融资产去年营收增超40%，管理层：四年时光，公司已脱胎换骨
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-美联储官员本周召开会议，此时中东战争已进入第二个月，给经济带来的影响造成了持续的不确定性。这很可能使央行维持利率不变。 “这场战争将如何解决仍存在不确定性，油价一直波动。但它们仍远高于战前水平，因此最终会对经济产生影响，”前克利夫兰联储主席洛蕾塔·梅斯特表示。 政策制定者正在权衡战争对通胀和增长的影响，等待观察其严重程度，这取决于战争持续时间。 前堪萨斯城联储主席埃丝特·乔治表
+界面新闻记者 | 安震 3月31日，中国中信金融资产管理股份有限公司（下称：中信金融资产）召开2025年业绩发布会。中信金融资产总裁李子民在业绩发布会上对界面新闻等媒体表示，经过四年的时光淬炼，公司实现了脱胎换骨质的变化，探索出一条重大金融风险化解的路子。 数据显示，2025年中信金融资产实现总收入804.76亿元，剔除一次性影响因素，同比增长43.0%；实现归属于公司股东净利
 
 ## 正文
 
-美联储官员本周召开会议，此时中东战争已进入第二个月，给经济带来的影响造成了持续的不确定性。
+界面新闻记者 | 安震 3月31日，中国中信金融资产管理股份有限公司（下称：中信金融资产）召开2025年业绩发布会。
 
-这很可能使央行维持利率不变。
+中信金融资产总裁李子民在业绩发布会上对界面新闻等媒体表示，经过四年的时光淬炼，公司实现了脱胎换骨质的变化，探索出一条重大金融风险化解的路子。
 
-“这场战争将如何解决仍存在不确定性，油价一直波动。
+数据显示，2025年中信金融资产实现总收入804.76亿元，剔除一次性影响因素，同比增长43.0%；实现归属于公司股东净利润人民币110.86亿元，同比增长15.3%，剔除处置金租公司影响，同比增长17.0%。
 
-但它们仍远高于战前水平，因此最终会对经济产生影响，”前克利夫兰联储主席洛蕾塔·梅斯特表示。
+平均股权回报率（ROAE）达18.7%，较上年度提升0.3个百分点。
 
-政策制定者正在权衡战争对通胀和增长的影响，等待观察其严重程度，这取决于战争持续时间。
+不良资产经营分部是中信金融资产收入、利润的主要来源。
 
-前堪萨斯城联储主席埃丝特·乔治表示，有一种感觉是，冲击波将贯穿整个夏季并延续到秋季，使油价保持高位并影响供应。
+2025年，不良资产经营分部总收入为694.11亿元，剔除一次性影响因素后，增长108.5%，分部税前利润143.57亿元，同比增长121.5%；截至2025年末，分部资产总额为9144.20亿元，较上年末增长9.7%。
 
-到目前为止，官方数据显示，由于汽油价格飙升，整体通胀已经上升，但更高的能源价格尚未传导至商品和服务价格。
+中信金融资产副总裁赵晶晶表示，三大主业协同发力，是盈利增长核心引擎。
 
-梅斯特表示，她认为美联储需要谨慎对待这种传导。
+报告期内，纾困盘活业务实现收入同比增长54.7%；收购处置业务剔除处置资产估值结转影响，同比增长16.6%；股权资产收入剔除一次性影响因素，同比增长47.5%。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 18:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 17:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 18:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:18 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 18:07 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 17:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 18:18 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 18:11 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 18:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 17:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 18:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 18:04 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 18:06 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 18:16 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 18:02 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 18:01 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 18:01 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 18:21 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 18:08 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 18:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 18:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 18:28 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 18:19 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 18:23 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:06 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 18:24 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/65404.shtml)
-- 2026-06-29 18:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/44002319.shtml)
-- 2026-06-29 18:18 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/463943780.shtml)
-- 2026-06-29 17:58 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/217218395.shtml)
-- 2026-06-29 18:09 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/377019840.shtml)
-- 2026-06-29 18:03 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/412557.shtml)
-- 2026-06-29 18:00 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/919282511.shtml)
-- 2026-06-29 18:20 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/10891563161.shtml)
-- 2026-06-29 18:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/64574.shtml)
-- 2026-06-29 18:07 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/9397421.shtml)
-- 2026-06-29 18:22 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/272946.shtml)
-- 2026-06-29 18:07 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/50829.shtml)
-- 2026-06-29 18:22 - [扬名立万](http://www.blog.minike.top/Article/details/08658450932.shtml)
-- 2026-06-29 18:04 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/162879.shtml)
-- 2026-06-29 18:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/4356154489.shtml)
+- 2026-06-29 18:06 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/542484153.shtml)
+- 2026-06-29 18:00 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/551695296.shtml)
+- 2026-06-29 18:10 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/2213157.shtml)
+- 2026-06-29 18:17 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/85551588.shtml)
+- 2026-06-29 18:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/846327642.shtml)
+- 2026-06-29 18:16 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/9161018599.shtml)
+- 2026-06-29 18:27 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/4709453030.shtml)
+- 2026-06-29 18:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/850693.shtml)
+- 2026-06-29 18:20 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/99157.shtml)
+- 2026-06-29 18:11 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/3880162905.shtml)
+- 2026-06-29 18:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/977914.shtml)
+- 2026-06-29 18:24 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/89549540496.shtml)
+- 2026-06-29 18:18 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/141076976.shtml)
+- 2026-06-29 18:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/09303.shtml)
+- 2026-06-29 18:07 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/59174550.shtml)

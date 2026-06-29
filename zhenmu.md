@@ -1,59 +1,50 @@
-# 文昌海关日用品定点采购项目比选公告
+# 国际金价大涨重上4800美元 国内金饰克价涨到1470元
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-为合规开展采购的同时便利日常工作，文昌海关根据《文昌海关非政府采购管理办法(试行)》相关规定开展日用品定点采购项目，现将采购信息公告如下： 一、项目需求 (一)项目名称：文昌海关日用品定点采购项目。 (二)具体需求：对附件清单内120种办公用品、生活用品、食品干货配料等日常使用商品进行报价，从中选取总体价格较为优惠的竞价人。(三)使用地点：文昌海关 (四)采购控制价：年度批量采
+中新网4月8日电 (左雨晴)4月8日早盘，国际金价开盘大涨，重回4800美元。截至发稿，COMEX黄金涨超3%，伦敦现货黄金涨超2%。受国际金价影响，同日国内金饰价格上调。老凤祥足金饰品克价由前一日的1435元/克上调至1470元/克，一夜涨35元。
 
 ## 正文
 
-为合规开展采购的同时便利日常工作，文昌海关根据《文昌海关非政府采购管理办法(试行)》相关规定开展日用品定点采购项目，现将采购信息公告如下： 一、项目需求 (一)项目名称：文昌海关日用品定点采购项目。
+中新网4月8日电 (左雨晴)4月8日早盘，国际金价开盘大涨，重回4800美元。
 
-(二)具体需求：对附件清单内120种办公用品、生活用品、食品干货配料等日常使用商品进行报价，从中选取总体价格较为优惠的竞价人。
+截至发稿，COMEX黄金涨超3%，伦敦现货黄金涨超2%。
 
-(三)使用地点：文昌海关 (四)采购控制价：年度批量采购金额不超过人民币30万元(含)。
+受国际金价影响，同日国内金饰价格上调。
 
-二、竞价人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)； (二)竞价人须具备能承办本项目的有效合法证照(证照中营业范围、业务范围必须与本项目相关)。
-
-(三)参加本项目竞价活动前三年内，在信用中国、爱企查、企查查等网站查询没有不良记录； (四)本次竞价不接受联合体参与。
-
-三、竞价文件组成 (一)工商营业执照、税务登记证及组织机构代码证等或者具备有效的三证合一的工商营业执照副本复印件1份； (二)法定代表人授权委托书； (三)报价单； 以上文件均需加盖企业公章。
-
-四、竞价文件递交 (一)竞价文件递交时间：2026年4月28日至2026年5月7日(法定节假日除外)，上午8:30至12:00，下午14:30至17:30。
-
-(二)地点：文昌市文城镇疏港路2号。
+老凤祥足金饰品克价由前一日的1435元/克上调至1470元/克，一夜涨35元。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 18:18 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 17:55 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 18:08 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 18:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 17:58 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 18:12 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 18:00 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 18:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 18:18 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 18:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 18:10 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 18:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 18:21 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 18:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 18:27 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 18:09 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:22 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 18:16 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 18:18 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 18:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 18:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 18:25 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 18:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [时光音乐会](http://www.blog.minike.top/Article/details/8569680.shtml)
-- 2026-06-29 18:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/9061149.shtml)
-- 2026-06-29 18:22 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/02591169280.shtml)
-- 2026-06-29 17:57 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/89064411741.shtml)
-- 2026-06-29 18:18 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/2642209.shtml)
-- 2026-06-29 18:04 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/514396870484.shtml)
-- 2026-06-29 18:05 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/2631463.shtml)
-- 2026-06-29 18:10 - [千与千寻](http://www.share.minike.top/Article/details/554917.shtml)
-- 2026-06-29 18:22 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/0071293.shtml)
-- 2026-06-29 17:56 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/49453.shtml)
-- 2026-06-29 18:19 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/40505848.shtml)
-- 2026-06-29 18:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/09906741.shtml)
-- 2026-06-29 18:11 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/471616543.shtml)
-- 2026-06-29 17:56 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/84785873.shtml)
-- 2026-06-29 18:08 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/8340352.shtml)
+- 2026-06-29 18:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/79473.shtml)
+- 2026-06-29 18:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/545493815.shtml)
+- 2026-06-29 18:25 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/221121.shtml)
+- 2026-06-29 18:29 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/27124071.shtml)
+- 2026-06-29 18:15 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/72408211.shtml)
+- 2026-06-29 18:13 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0784989345.shtml)
+- 2026-06-29 18:03 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/862467075.shtml)
+- 2026-06-29 18:02 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/19875.shtml)
+- 2026-06-29 18:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/824854408819.shtml)
+- 2026-06-29 18:17 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/921868145.shtml)
+- 2026-06-29 18:09 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/610129316738.shtml)
+- 2026-06-29 18:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/58357056414.shtml)
+- 2026-06-29 18:03 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/48930.shtml)
+- 2026-06-29 18:27 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/2872175.shtml)
+- 2026-06-29 18:27 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/085390.shtml)

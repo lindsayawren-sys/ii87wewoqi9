@@ -1,60 +1,50 @@
-# 投保人未在合同约定医院就诊，保险公司拒赔该费用获支持
+# 心泰医疗建议H股回购计划
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。 张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保
+心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。 目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。责任编辑：卢昱君
 
 ## 正文
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。
+心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。
 
-张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。
+目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。
 
-法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。
-
-张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保险条款以加黑字体载明，被保险人因疾病在保险公司认可的“公立医院”接受治疗的，保险公司承担保险责任。
-
-张先生同年在北京某三甲公立医院进行双髋人工全髋关节置换术，支出医疗费15 万余元；后转至北京某私立康复医院进行康复治疗，支出医疗费 3 万余元。
-
-张先生向保险公司申请理赔，保险公司称，投保时已明确说明需在保险合同约定范围内医院就诊，私立康复医院不属于合同约定的公立医院，因此拒绝赔付该笔费用。
-
-张先生故诉至法院，要求保险公司支付全部医疗费。
-
-法院经审理认为，案涉保险合同明确约定医疗机构范围为“公立医院”，私立康复医院不符合该约定。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 18:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 17:57 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 18:14 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 18:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 18:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 18:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 18:13 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 18:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 17:57 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 18:00 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 18:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 18:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 18:10 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 18:16 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 18:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 18:09 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 18:20 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 18:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 18:26 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 18:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 18:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 18:09 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 18:21 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:27 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 18:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 18:16 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/941033652903.shtml)
-- 2026-06-29 18:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/42484459.shtml)
-- 2026-06-29 18:14 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/93882974.shtml)
-- 2026-06-29 18:02 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/52762318.shtml)
-- 2026-06-29 18:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/81474279.shtml)
-- 2026-06-29 18:05 - [起风了](https://www.blog.minike.top/Article/details/477209.shtml)
-- 2026-06-29 18:10 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/14393095377.shtml)
-- 2026-06-29 17:54 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/237160017754.shtml)
-- 2026-06-29 18:17 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1559003284.shtml)
-- 2026-06-29 17:57 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/13730.shtml)
-- 2026-06-29 18:09 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/719979220903.shtml)
-- 2026-06-29 17:56 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/5010078.shtml)
-- 2026-06-29 18:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/86807889.shtml)
-- 2026-06-29 18:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/66514093.shtml)
-- 2026-06-29 18:16 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/19984659.shtml)
+- 2026-06-29 18:18 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/629903673.shtml)
+- 2026-06-29 18:17 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/03988370843.shtml)
+- 2026-06-29 18:12 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/737038.shtml)
+- 2026-06-29 18:14 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/803969830166.shtml)
+- 2026-06-29 18:21 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/68523436659.shtml)
+- 2026-06-29 18:15 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/23236.shtml)
+- 2026-06-29 18:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/871468448.shtml)
+- 2026-06-29 18:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/86083.shtml)
+- 2026-06-29 18:06 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/7710401769.shtml)
+- 2026-06-29 18:16 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/194514.shtml)
+- 2026-06-29 18:05 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/799703.shtml)
+- 2026-06-29 18:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/050041903395.shtml)
+- 2026-06-29 18:07 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/516874329664.shtml)
+- 2026-06-29 18:17 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/14227240302.shtml)
+- 2026-06-29 18:20 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/6294353786.shtml)

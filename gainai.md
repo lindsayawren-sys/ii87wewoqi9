@@ -1,59 +1,58 @@
-# 长安期货屈亚娟：矿端偏紧且需求稳健，锌价或震荡偏强
+# 两高：依法从严惩处涉民航飞行安全违法犯罪
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-3月底后，锌价逐步反弹回升，有色整体从战事的冲击中缓和，加之国内炼厂对锌矿的抢购，以及需求向好带来了一定的提振，沪锌回升至24500元/吨附近，LME锌最高涨至3500美元/吨附近。 关注宏观潜在扰动 地缘方面，美以伊战争已持续近两月，4月11日，美伊双方在巴基斯坦的首轮谈判未达成协议，上周末的二轮谈判预期也被打破，目前霍尔木兹海峡面临“双封锁”，原油价格还徘徊于高位水平。贵金
+中新网北京4月8日电(记者 高萌)安全是飞行的生命线。4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。 最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举
 
 ## 正文
 
-3月底后，锌价逐步反弹回升，有色整体从战事的冲击中缓和，加之国内炼厂对锌矿的抢购，以及需求向好带来了一定的提振，沪锌回升至24500元/吨附近，LME锌最高涨至3500美元/吨附近。
+中新网北京4月8日电(记者 高萌)安全是飞行的生命线。
 
-关注宏观潜在扰动 地缘方面，美以伊战争已持续近两月，4月11日，美伊双方在巴基斯坦的首轮谈判未达成协议，上周末的二轮谈判预期也被打破，目前霍尔木兹海峡面临“双封锁”，原油价格还徘徊于高位水平。
+4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。
 
-贵金属和有色行情逐步对战争因素脱敏，重心有所上移，但战事消息还是会对市场情绪有短时的脉冲式冲击，目前双方在海峡控制权、核原料等关键问题上仍存较大分歧，虽在停火阶段，仍需警惕极端事件发生的风险。
+最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。
 
-另外，上周五美国司法部撤销针对美联储主席鲍威尔的刑事调查，为下任主席人选沃什确认程序扫清关键障碍，受该消息影响，美联储年内降息预期升温。
+最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举了暴力危及飞行安全罪中“危及飞行安全”的具体情形；明确了相关犯罪的数罪并罚和从一重罪处罚原则。
 
-此前公布的美国3月CPI同环比增速基本处于预期之内，后续更多需要关注高油价持续的时间。
+《解释》明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为，明确了上述行为适用的罪名和定罪条件。
 
-锌矿供应偏紧张 在锌矿供应端，据国际铅锌研究小组（ILZSG），今年2月全球锌矿产量96.43万吨，环比下降2.8%，同比增加3.6%；1-2月累计产量195.6万吨，同比增加3.5%；其预计今年全球锌矿产量增速将放缓至0.3%。
+例如，《解释》规定，并非所有的违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
 
-自2月底美以伊战争爆发之后，伊朗的锌矿供应担忧受到关注，虽然其产量在全球占比不高，但本身预计今年有新增产能释放，突发的战事会影响到实际供应量。
+同时，《解释》还特别明确，对民航乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
 
-近期，我国的进口锌矿加工费快速下降，截止上周，SMM进口锌精矿TC指数降至-36.13美元/干吨，2月底还在20美元/干吨以上的水平。
+《解释》还突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治，规定行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 17:55 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 18:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:07 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 17:59 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 18:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 17:58 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 18:07 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 18:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 17:56 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 18:06 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 18:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 18:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 18:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 18:17 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 18:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 18:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 18:11 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 18:26 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 18:19 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 18:09 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 18:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 18:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 18:07 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 18:28 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [一生一世](https://www.share.kurohicncr.top/Article/details/2959991.shtml)
-- 2026-06-29 18:17 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/54828693.shtml)
-- 2026-06-29 17:57 - [沙丘](https://www.share.kurohicncr.top/Article/details/9047802.shtml)
-- 2026-06-29 18:02 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/611485897933.shtml)
-- 2026-06-29 18:09 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/26955817833.shtml)
-- 2026-06-29 18:06 - [扬名立万](http://www.share.kurohicncr.top/Article/details/8540384.shtml)
-- 2026-06-29 18:08 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/156980.shtml)
-- 2026-06-29 18:21 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/3538974.shtml)
-- 2026-06-29 18:20 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/751862270797.shtml)
-- 2026-06-29 18:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/033612.shtml)
-- 2026-06-29 18:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/12635565.shtml)
-- 2026-06-29 18:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/521596659155.shtml)
-- 2026-06-29 17:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/694089161.shtml)
-- 2026-06-29 18:15 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/46251.shtml)
-- 2026-06-29 18:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/61314506373.shtml)
+- 2026-06-29 18:01 - [金刚川](https://www.share.kurohicncr.top/Article/details/7232395.shtml)
+- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/39335.shtml)
+- 2026-06-29 18:07 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/390986632.shtml)
+- 2026-06-29 18:08 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/28700.shtml)
+- 2026-06-29 18:18 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/549982.shtml)
+- 2026-06-29 18:07 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/751957291.shtml)
+- 2026-06-29 18:25 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/5670322.shtml)
+- 2026-06-29 18:18 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/179644683473.shtml)
+- 2026-06-29 18:04 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/659568435884.shtml)
+- 2026-06-29 18:28 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/09467254639.shtml)
+- 2026-06-29 18:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/134879379675.shtml)
+- 2026-06-29 18:01 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/41794015.shtml)
+- 2026-06-29 18:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/1039427052.shtml)
+- 2026-06-29 18:09 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/70690863025.shtml)
+- 2026-06-29 18:14 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/92599783.shtml)

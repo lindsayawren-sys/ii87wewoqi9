@@ -1,58 +1,60 @@
-# 300965，筹划重大资产重组！明起停牌
+# 在富时指数获准上调和美伊停火之后，越南股市上涨
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！恒宇信通（300965）最新公告。 4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相
+富时罗素确认越南将于今年晚些时候被纳入新兴市场指数后，越南股市大幅上涨，美伊达成两周停火协议也进一步提振了市场情绪。 越南基准股指VN指数收盘上涨4.7%，创下3月6日以来的最高水平。此次上涨将该指数今年以来的跌幅收窄至1.6%。 富时罗素在六个月前首次表示将把越南从前沿市场级别上调，其在最新评估后确认，越南仍将按计划完成级别调整。此次纳入将使这个亚洲增长最快的经济体之一，与中
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+富时罗素确认越南将于今年晚些时候被纳入新兴市场指数后，越南股市大幅上涨，美伊达成两周停火协议也进一步提振了市场情绪。
 
-恒宇信通（300965）最新公告。
+越南基准股指VN指数收盘上涨4.7%，创下3月6日以来的最高水平。
 
-4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。
+此次上涨将该指数今年以来的跌幅收窄至1.6%。
 
-因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相关规定，经公司申请，公司证券（证券品种：A股股票，证券简称：恒宇信通，证券代码：300965）自2026年4月27日（星期一）开市起开始停牌，预计停牌时间不超过10个交易日。
+富时罗素在六个月前首次表示将把越南从前沿市场级别上调，其在最新评估后确认，越南仍将按计划完成级别调整。
 
-根据公告，神导科技成立于2004年，注册资本3806.25万元，公司经营范围包括技术服务、技术开发、技术咨询、技术交流、技术转让、技术推广；软件开发；计算机系统服务；数据处理服务；计算机及办公设备维修；电子产品销售；机械设备销售；通讯设备销售；计算机软硬件及辅助设备零售；货物进出口；技术进出口；进出口代理；导航终端制造；导航、测绘、气象及海洋专用仪器制造等。
+此次纳入将使这个亚洲增长最快的经济体之一，与中国、印度和印度尼西亚跻身同一梯队。
 
-公开资料显示，恒宇信通致力于信息可视化产业的感知、融合与显示方向，构建了图形图像处理及显示、综合视景及可视化导航、任务规划及模拟训练、高可靠性专用电子模块四大产品体系，广泛用于机载、舰载、车载等专业领域。
+该指数编纂机构此前估算，此次调整有望为该国带来至多60亿美元的增量资金流入。
 
-2025年，恒宇信通实现营业收入2.01亿元，同比增长11.38%；实现归母净利润3606.65万元，同比增长34.87%；实现扣非后净利润2085.79万元，同比增长40.54%。
+胡志明市证券公司首席市场策略师阮文勇表示：“在经过近十年的观察期后，这标志着越南市场迎来重要里程碑。
 
-综合自：公司公告 责任编辑：杨红卜
+市场在关键制度层面实现了优化，包括全球经纪商机制、2024年实施的非预存资金交易机制，以及失败交易处理流程的规范化。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 18:17 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 18:22 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 18:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 18:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 18:18 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 18:19 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 18:00 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 18:23 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 18:02 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 18:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 18:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 18:24 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 18:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 18:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 18:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 18:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 18:01 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:13 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 18:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 18:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 18:05 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 18:22 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 18:26 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 18:05 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/694354.shtml)
-- 2026-06-29 18:21 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/88053269537.shtml)
-- 2026-06-29 18:19 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/8024005776.shtml)
-- 2026-06-29 18:20 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/9554076.shtml)
-- 2026-06-29 18:08 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/7961510036.shtml)
-- 2026-06-29 18:13 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/7320350.shtml)
-- 2026-06-29 18:02 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/1918538879.shtml)
-- 2026-06-29 17:54 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/2353925.shtml)
-- 2026-06-29 18:13 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/61253.shtml)
-- 2026-06-29 18:18 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/1372188.shtml)
-- 2026-06-29 18:21 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/6352434.shtml)
-- 2026-06-29 18:10 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/98538257.shtml)
-- 2026-06-29 17:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/87937.shtml)
-- 2026-06-29 18:00 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/54861.shtml)
-- 2026-06-29 18:21 - [爱很美味](http://www.share.kurohicncr.top/Article/details/31518.shtml)
+- 2026-06-29 18:28 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/464069.shtml)
+- 2026-06-29 18:13 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/420015898993.shtml)
+- 2026-06-29 18:26 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/471781452874.shtml)
+- 2026-06-29 18:06 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/68591.shtml)
+- 2026-06-29 18:01 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/67432082.shtml)
+- 2026-06-29 18:19 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/4571024.shtml)
+- 2026-06-29 18:27 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/7765907.shtml)
+- 2026-06-29 18:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/3762574011.shtml)
+- 2026-06-29 18:16 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/9550295.shtml)
+- 2026-06-29 18:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/894502630655.shtml)
+- 2026-06-29 18:22 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/7134903965.shtml)
+- 2026-06-29 18:02 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/7389015150.shtml)
+- 2026-06-29 18:13 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/08201.shtml)
+- 2026-06-29 18:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/730355.shtml)
+- 2026-06-29 18:00 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/91213940.shtml)

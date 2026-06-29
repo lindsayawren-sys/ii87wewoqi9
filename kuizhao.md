@@ -1,58 +1,43 @@
-# 中越民众齐聚边城共庆“三月三” 携手深化跨境人文交流
+# 吉宏股份：2026年4月29日召开2025年年度股东会
 
-> 更新时间：2026-06-29 18:24:02 UTC+8
+> 更新时间：2026-06-29 18:30:02 UTC+8
 
 ## 摘要
 
-深山侗寨为何受联合国旅游组织青睐？万斯先撤、总统跌倒？ 特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大
+证券日报网讯 3月31日，吉宏股份发布公告称，公司将于2026年4月29日召开2025年年度股东会。
 
 ## 正文
 
-深山侗寨为何受联合国旅游组织青睐？
-
-万斯先撤、总统跌倒？
-
-特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？
-
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
-
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
-
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
-
-太阳今日爆发X2.4级耀斑，有何影响？
-
-内蒙古锡林浩特：百鸟翔集绘春图12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+证券日报网讯 3月31日，吉宏股份发布公告称，公司将于2026年4月29日召开2025年年度股东会。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 18:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:01 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 18:02 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 18:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 18:17 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 18:19 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 17:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 18:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 18:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 18:23 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:11 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 18:16 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 18:29 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 18:21 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 18:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 18:28 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 18:23 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 18:17 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 18:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 18:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 18:07 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7080557.shtml)
-- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/09302678.shtml)
-- 2026-06-29 18:12 - [绘画区你赢了](http://www.blog.minike.top/Article/details/151800163.shtml)
-- 2026-06-29 17:59 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/755055843371.shtml)
-- 2026-06-29 18:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/968715053.shtml)
-- 2026-06-29 18:13 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/55650.shtml)
-- 2026-06-29 18:14 - [斛珠夫人](http://www.blog.minike.top/Article/details/35916732.shtml)
-- 2026-06-29 18:23 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/7926638079.shtml)
-- 2026-06-29 18:14 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/2071969139.shtml)
-- 2026-06-29 18:08 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/464986098.shtml)
-- 2026-06-29 18:04 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/712909463115.shtml)
-- 2026-06-29 18:14 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/551843.shtml)
-- 2026-06-29 18:17 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/183680875.shtml)
-- 2026-06-29 18:14 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/469781.shtml)
-- 2026-06-29 17:56 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/0087027929.shtml)
+- 2026-06-29 18:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/491615162.shtml)
+- 2026-06-29 18:26 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/047061.shtml)
+- 2026-06-29 18:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/381517822.shtml)
+- 2026-06-29 18:09 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/800059915.shtml)
+- 2026-06-29 18:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/45862.shtml)
+- 2026-06-29 18:23 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/503144976572.shtml)
+- 2026-06-29 18:08 - [东方风云榜](https://www.share.minike.top/Article/details/750818694655.shtml)
+- 2026-06-29 18:15 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/40506.shtml)
+- 2026-06-29 18:14 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/67855.shtml)
+- 2026-06-29 18:23 - [明星大侦探第一季](http://www.share.minike.top/Article/details/576898.shtml)
+- 2026-06-29 18:20 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/370997.shtml)
+- 2026-06-29 18:18 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/14674665998.shtml)
+- 2026-06-29 18:17 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/939077594.shtml)
+- 2026-06-29 18:01 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/809002819.shtml)
+- 2026-06-29 18:08 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/135236088844.shtml)
